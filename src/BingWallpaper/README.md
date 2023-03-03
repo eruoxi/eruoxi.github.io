@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月04日：人迹罕至的一条路
+#### 通往皮库山的道路，葡萄牙（© Marco Bottigelli/Getty Images）
+
+![人迹罕至的一条路](https://cn.bing.com/th?id=OHR.PicoVolcano_ZH-CN6865997792_800x480.jpg&rf=LaDigue_800x480.jpg "人迹罕至的一条路")
+
+皮库山的海拔高约8000英尺，是亚速尔群岛皮库岛的最高点，也是这里最著名的景点之一。亚速尔群岛位于大西洋，是葡萄牙的一个自治区。皮库山是一座由玄武岩熔岩构成的层状火山。1562年，这里曾爆发了一次长达两年多的火山喷发。自1720年12月以来，皮库山一直处于“休眠”状态。游客可以在这里徒步，有毅力的也可以攀登到山顶。尽管登上山顶并不容易，但却十分值得，因为站在皮库山之巅，可以将周围岛屿的景色尽收眼底。
+
+在冬季，皮科山的山顶通常是亚速尔群岛唯一被雪覆盖的地方。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%9a%ae%e5%ba%93%e5%b1%b1&form=hpcapt&filters=HpDate:"20230303_1600" "Bing Wallpaper 2023 3月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230304_PicoVolcano"&FORM=HPQUIZ "必应主页测验 2023 3月 4")
+[下载480](https://cn.bing.com/th?id=OHR.PicoVolcano_ZH-CN6865997792_800x480.jpg&rf=LaDigue_800x480.jpg "通往皮库山的道路，葡萄牙")
+[下载720](https://cn.bing.com/th?id=OHR.PicoVolcano_ZH-CN6865997792_1280x720.jpg&rf=LaDigue_1280x720.jpg "通往皮库山的道路，葡萄牙")
+[下载1080](https://cn.bing.com/th?id=OHR.PicoVolcano_ZH-CN6865997792_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "通往皮库山的道路，葡萄牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.PicoVolcano_ZH-CN6865997792_UHD.jpg&rf=LaDigue_UHD.jpg "通往皮库山的道路，葡萄牙")
+
+---
 ### 03月03日：这些捕食者在做什么？
 #### 斯皮尔德拉的虎鲸，挪威（© Alex Mustard/Minden Pictures）
 
@@ -235,22 +252,5 @@ Itaimbezinho 峡谷是南里奥格兰德州最著名的峡谷。它是巴西自�
 [下载720](https://cn.bing.com/th?id=OHR.EbenIceCave_ZH-CN6035107581_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃本冰洞，密歇根上半岛，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.EbenIceCave_ZH-CN6035107581_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃本冰洞，密歇根上半岛，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.EbenIceCave_ZH-CN6035107581_UHD.jpg&rf=LaDigue_UHD.jpg "埃本冰洞，密歇根上半岛，美国")
-
----
-### 02月17日：“后院鸟类统计”活动开始了！
-#### 栖息在红袋鼠爪枝干上的艾氏煌蜂鸟（© GypsyPictureShow/Shutterstock）
-
-![“后院鸟类统计”活动开始了！](https://cn.bing.com/th?id=OHR.BirdcountAllen_ZH-CN4029022734_800x480.jpg&rf=LaDigue_800x480.jpg "“后院鸟类统计”活动开始了！")
-
-让我们尽点绵薄之力，帮助科学家更多地了解全球鸟类数量吧。“后院鸟类统计”是一项为期四天的年度活动，起源于美国，目前已推广至全世界。该活动鼓励观鸟者留意当地的鸟类，并通过eBird平台上传报告。例如，如果你在墨西哥中南部，你可能会看到一只在这里过冬的艾氏煌蜂鸟。活动的统计结果将被汇总并公布在网上，供科学家和有兴趣的网友查阅。据估计，全球有10000种鸟类。在这个激动人心的周末，带上你的设备，出门观鸟吧！
-
-科学家估计全球约有10000种鸟类。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%89%be%e6%b0%8f%e7%85%8c%e8%9c%82%e9%b8%9f&form=hpcapt&filters=HpDate:"20230216_1600" "Bing Wallpaper 2023 2月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230217_BirdcountAllen"&FORM=HPQUIZ "必应主页测验 2023 2月 17")
-[下载480](https://cn.bing.com/th?id=OHR.BirdcountAllen_ZH-CN4029022734_800x480.jpg&rf=LaDigue_800x480.jpg "栖息在红袋鼠爪枝干上的艾氏煌蜂鸟")
-[下载720](https://cn.bing.com/th?id=OHR.BirdcountAllen_ZH-CN4029022734_1280x720.jpg&rf=LaDigue_1280x720.jpg "栖息在红袋鼠爪枝干上的艾氏煌蜂鸟")
-[下载1080](https://cn.bing.com/th?id=OHR.BirdcountAllen_ZH-CN4029022734_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "栖息在红袋鼠爪枝干上的艾氏煌蜂鸟")
-[下载UHD](https://cn.bing.com/th?id=OHR.BirdcountAllen_ZH-CN4029022734_UHD.jpg&rf=LaDigue_UHD.jpg "栖息在红袋鼠爪枝干上的艾氏煌蜂鸟")
 
 ---
