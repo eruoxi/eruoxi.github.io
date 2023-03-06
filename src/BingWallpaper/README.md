@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月07日：彩虹般的风景
+#### 梯田鸟瞰图，元阳，中国（© AlexGcs/Getty Images）
+
+![彩虹般的风景](https://cn.bing.com/th?id=OHR.YuanyangChina_ZH-CN7360249295_800x480.jpg&rf=LaDigue_800x480.jpg "彩虹般的风景")
+
+元阳梯田风景壮丽，已被联合国教科文组织列为世界文化遗产。这些壮观的梯田位于中国云南省，总面积约17万亩，有1300多年的历史。成片的梯田沿着哀牢山缓缓延伸，色彩丰富、景观壮丽，是摄影爱好者的“天堂”。元阳县远离城市的喧嚣，游客们可以放心享受这里的宁静。在这里，依然可以感受到原住民哈尼族延续了数百年的文化，绚丽多彩的服饰、传统的房屋，以及在田间劳作的水牛，它们共同构成了一幅极其动人的彩绘版画。
+
+元阳梯田位于红河哈尼梯田的核心区域，已有1300多年的历史。2013年，元阳梯田被联合国教科文组织列为世界文化遗产。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e5%85%83%e9%98%b3&form=hpcapt&filters=HpDate:"20230306_1600" "Bing Wallpaper 2023 3月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230307_YuanyangChina"&FORM=HPQUIZ "必应主页测验 2023 3月 7")
+[下载480](https://cn.bing.com/th?id=OHR.YuanyangChina_ZH-CN7360249295_800x480.jpg&rf=LaDigue_800x480.jpg "梯田鸟瞰图，元阳，中国")
+[下载720](https://cn.bing.com/th?id=OHR.YuanyangChina_ZH-CN7360249295_1280x720.jpg&rf=LaDigue_1280x720.jpg "梯田鸟瞰图，元阳，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.YuanyangChina_ZH-CN7360249295_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梯田鸟瞰图，元阳，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.YuanyangChina_ZH-CN7360249295_UHD.jpg&rf=LaDigue_UHD.jpg "梯田鸟瞰图，元阳，中国")
+
+---
 ### 03月06日：这些独特的生物是什么?
 #### 站在自己领域的冰岛马，冰岛（© Rodrigo Lourezini/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MardiGrasNOLA_ZH-CN9628788934_1280x720.jpg&rf=LaDigue_1280x720.jpg "新奥尔良法语区，路易斯安那州")
 [下载1080](https://cn.bing.com/th?id=OHR.MardiGrasNOLA_ZH-CN9628788934_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "新奥尔良法语区，路易斯安那州")
 [下载UHD](https://cn.bing.com/th?id=OHR.MardiGrasNOLA_ZH-CN9628788934_UHD.jpg&rf=LaDigue_UHD.jpg "新奥尔良法语区，路易斯安那州")
-
----
-### 02月20日：在大自然中漫步
-#### Itaimbezinho峡谷，巴西（© NidoHuebl/Getty Images）
-
-![在大自然中漫步](https://cn.bing.com/th?id=OHR.Itaimbezinho_ZH-CN5641449623_800x480.jpg&rf=LaDigue_800x480.jpg "在大自然中漫步")
-
-Itaimbezinho 峡谷是南里奥格兰德州最著名的峡谷。它是巴西自然奇观之一，位于南坎巴拉市，它是巴西南坎巴拉市的自然奇观之一，位于阿帕拉多斯达塞拉国家公园内。Itaimbezinho峡谷两侧的峭壁非常直，如刀切一般。Itaimbezinho峡谷名字便得名于峭壁的特征，在图皮瓜拉尼语中："ita"的意思是石头，"aimbé"的意思是切割和锋利。
-
-峡谷地区也是印第安人的栖息地，也是多部肥皂剧和迷你剧的取景地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e8%a5%bf%e5%a5%a5%e6%a0%bc%e5%85%b0%e5%be%b7%e5%b7%9e&form=hpcapt&filters=HpDate:"20230219_1600" "Bing Wallpaper 2023 2月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230220_Itaimbezinho"&FORM=HPQUIZ "必应主页测验 2023 2月 20")
-[下载480](https://cn.bing.com/th?id=OHR.Itaimbezinho_ZH-CN5641449623_800x480.jpg&rf=LaDigue_800x480.jpg "Itaimbezinho峡谷，巴西")
-[下载720](https://cn.bing.com/th?id=OHR.Itaimbezinho_ZH-CN5641449623_1280x720.jpg&rf=LaDigue_1280x720.jpg "Itaimbezinho峡谷，巴西")
-[下载1080](https://cn.bing.com/th?id=OHR.Itaimbezinho_ZH-CN5641449623_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Itaimbezinho峡谷，巴西")
-[下载UHD](https://cn.bing.com/th?id=OHR.Itaimbezinho_ZH-CN5641449623_UHD.jpg&rf=LaDigue_UHD.jpg "Itaimbezinho峡谷，巴西")
 
 ---
