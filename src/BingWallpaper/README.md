@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月08日：守候浪漫的极光
+#### 极光展示，怀特霍斯，育空地区，加拿大（© John Hyde/plainpicture/Design Pics）
+
+![守候浪漫的极光](https://cn.bing.com/th?id=OHR.WhitehorseAurora_ZH-CN0978404088_800x480.jpg&rf=LaDigue_800x480.jpg "守候浪漫的极光")
+
+极光通常也称为极光，是地球天空中的自然光显示，主要出现在高纬度地区（北极和南极附近）。 极光显示出明亮光的动态模式，表现为覆盖整个天空的窗帘、光线、螺旋或动态闪烁。
+
+“极光”一词来源于罗马黎明女神奥罗拉的名字，她从东到西旅行，宣告太阳的到来。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%80%80%e7%89%b9%e9%9c%8d%e6%96%af%e5%8c%97%e6%9e%81%e5%85%89&form=hpcapt&filters=HpDate:"20230307_1600" "Bing Wallpaper 2023 3月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230308_WhitehorseAurora"&FORM=HPQUIZ "必应主页测验 2023 3月 8")
+[下载480](https://cn.bing.com/th?id=OHR.WhitehorseAurora_ZH-CN0978404088_800x480.jpg&rf=LaDigue_800x480.jpg "极光展示，怀特霍斯，育空地区，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.WhitehorseAurora_ZH-CN0978404088_1280x720.jpg&rf=LaDigue_1280x720.jpg "极光展示，怀特霍斯，育空地区，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.WhitehorseAurora_ZH-CN0978404088_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "极光展示，怀特霍斯，育空地区，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.WhitehorseAurora_ZH-CN0978404088_UHD.jpg&rf=LaDigue_UHD.jpg "极光展示，怀特霍斯，育空地区，加拿大")
+
+---
 ### 03月07日：彩虹般的风景
 #### 梯田鸟瞰图，元阳，中国（© AlexGcs/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FriedensglockeFichtelberg_ZH-CN5510489151_1280x720.jpg&rf=LaDigue_1280x720.jpg "菲希特尔山脉上的和平钟，萨克森州，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.FriedensglockeFichtelberg_ZH-CN5510489151_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "菲希特尔山脉上的和平钟，萨克森州，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FriedensglockeFichtelberg_ZH-CN5510489151_UHD.jpg&rf=LaDigue_UHD.jpg "菲希特尔山脉上的和平钟，萨克森州，德国")
-
----
-### 02月21日：带上国王饼
-#### 新奥尔良法语区，路易斯安那州（© f11photo/Getty Images）
-
-![带上国王饼](https://cn.bing.com/th?id=OHR.MardiGrasNOLA_ZH-CN9628788934_800x480.jpg&rf=LaDigue_800x480.jpg "带上国王饼")
-
-新奥尔良（New Orleans），是美国路易斯安那州南部的一座海港城市，同时也是该州最大的城市，行政上与奥尔良县重合。新奥尔良最有特色的建筑大多聚集在法语区老城。在西班牙统治新奥尔良的40年间法语区的两场大火把法国老式建筑烧了个精光，尤以1788年那场最为惨重。如今法国区的街道非常狭窄，各家各户紧密相连，斑驳的老墙之上，二楼的雕花栏杆小阳台们常常被绿色的垂吊花草布满，一年四季都绚烂艳丽。
-
-法语区里那些浮华精致的雕花生铁阑干阳台都是西班牙建筑的风格，只有位于杜梅街上的“约翰夫人家”还可隐隐窥见法国乡间木屋的风貌。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%b0%e5%a5%a5%e5%b0%94%e8%89%af%e6%b3%95%e8%af%ad%e5%8c%ba&form=hpcapt&filters=HpDate:"20230220_1600" "Bing Wallpaper 2023 2月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230221_MardiGrasNOLA"&FORM=HPQUIZ "必应主页测验 2023 2月 21")
-[下载480](https://cn.bing.com/th?id=OHR.MardiGrasNOLA_ZH-CN9628788934_800x480.jpg&rf=LaDigue_800x480.jpg "新奥尔良法语区，路易斯安那州")
-[下载720](https://cn.bing.com/th?id=OHR.MardiGrasNOLA_ZH-CN9628788934_1280x720.jpg&rf=LaDigue_1280x720.jpg "新奥尔良法语区，路易斯安那州")
-[下载1080](https://cn.bing.com/th?id=OHR.MardiGrasNOLA_ZH-CN9628788934_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "新奥尔良法语区，路易斯安那州")
-[下载UHD](https://cn.bing.com/th?id=OHR.MardiGrasNOLA_ZH-CN9628788934_UHD.jpg&rf=LaDigue_UHD.jpg "新奥尔良法语区，路易斯安那州")
 
 ---
