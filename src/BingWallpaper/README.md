@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月9日：雨后见彩虹
+#### 威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国（© Beverley Van Praagh/Getty Images）
+
+![雨后见彩虹](https://cn.bing.com/th?id=OHR.WaimeaRainbow_ZH-CN1127225170_800x480.jpg&rf=LaDigue_800x480.jpg "雨后见彩虹")
+
+威美亚峡谷被誉为“太平洋大峡谷”，是风景如画的怀波奥瀑布所在地。瀑布和峡谷河流的源头来自地球上降雨量最多的地方之一怀厄莱阿莱峰。大约400万年前，考艾岛火山坍塌了一部分，形成了一个洼地，随着威美亚河流的不断侵蚀，洼地逐渐变成了如今的威美亚峡谷。考艾岛地形多变，风景各不相同，如果你想探寻考艾岛的多样性，可以离开海滩，沿着蜿蜒的550高速公路进入山区，在到达怀波奥瀑布观景台之前，你会在沿途收获海岸和峡谷的壮丽景色。
+
+和其他夏威夷群岛一样，考艾岛是由海底火山喷发形成的，其熔岩流可以追溯到500万年前，是夏威夷大岛中最古老的岛屿。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e7%be%8e%e4%ba%9a%e5%b3%a1%e8%b0%b7&form=hpcapt&filters=HpDate:"20230308_1600" "Bing Wallpaper 2023 3月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230309_WaimeaRainbow"&FORM=HPQUIZ "必应主页测验 2023 3月 9")
+[下载480](https://cn.bing.com/th?id=OHR.WaimeaRainbow_ZH-CN1127225170_800x480.jpg&rf=LaDigue_800x480.jpg "威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国")
+[下载720](https://cn.bing.com/th?id=OHR.WaimeaRainbow_ZH-CN1127225170_1280x720.jpg&rf=LaDigue_1280x720.jpg "威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.WaimeaRainbow_ZH-CN1127225170_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WaimeaRainbow_ZH-CN1127225170_UHD.jpg&rf=LaDigue_UHD.jpg "威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国")
+
+---
 ### 03月08日：守候浪漫的极光
 #### 极光展示，怀特霍斯，育空地区，加拿大（© John Hyde/plainpicture/Design Pics）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BabblingBrook_ZH-CN9371346787_1280x720.jpg&rf=LaDigue_1280x720.jpg "克罗索尔山谷，斯诺多尼亚国家公园，英国威尔士")
 [下载1080](https://cn.bing.com/th?id=OHR.BabblingBrook_ZH-CN9371346787_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克罗索尔山谷，斯诺多尼亚国家公园，英国威尔士")
 [下载UHD](https://cn.bing.com/th?id=OHR.BabblingBrook_ZH-CN9371346787_UHD.jpg&rf=LaDigue_UHD.jpg "克罗索尔山谷，斯诺多尼亚国家公园，英国威尔士")
-
----
-### 02月22日：和平之钟
-#### 菲希特尔山脉上的和平钟，萨克森州，德国（© Jan Drahokoupil/Getty Images）
-
-![和平之钟](https://cn.bing.com/th?id=OHR.FriedensglockeFichtelberg_ZH-CN5510489151_800x480.jpg&rf=LaDigue_800x480.jpg "和平之钟")
-
-菲希特尔山位于厄尔士山脉的上维森塔尔镇附近。这座山高1214米，是东德最高的山峰，也是冬季运动爱好者的圣地。这里有各种冬季运动，双板滑雪、单板滑雪、越野滑雪、雪橇雪橇和马拉雪橇等等。如果你更喜欢夏天，也可以在这里来场夏日旅行，体验这里的自然风景。在菲希特尔山顶有一座和平钟，在这里欣赏到周围群山的壮丽景色。
-
-菲希特尔山的南麓坐落着德国海拔最高的城镇——上维森塔尔，这是一个位于波尔巴赫山谷的度假小镇。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8f%b2%e5%b8%8c%e7%89%b9%e5%b0%94%e5%b1%b1&form=hpcapt&filters=HpDate:"20230221_1600" "Bing Wallpaper 2023 2月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230222_FriedensglockeFichtelberg"&FORM=HPQUIZ "必应主页测验 2023 2月 22")
-[下载480](https://cn.bing.com/th?id=OHR.FriedensglockeFichtelberg_ZH-CN5510489151_800x480.jpg&rf=LaDigue_800x480.jpg "菲希特尔山脉上的和平钟，萨克森州，德国")
-[下载720](https://cn.bing.com/th?id=OHR.FriedensglockeFichtelberg_ZH-CN5510489151_1280x720.jpg&rf=LaDigue_1280x720.jpg "菲希特尔山脉上的和平钟，萨克森州，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.FriedensglockeFichtelberg_ZH-CN5510489151_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "菲希特尔山脉上的和平钟，萨克森州，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.FriedensglockeFichtelberg_ZH-CN5510489151_UHD.jpg&rf=LaDigue_UHD.jpg "菲希特尔山脉上的和平钟，萨克森州，德国")
 
 ---
