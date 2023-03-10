@@ -16,6 +16,23 @@
 [下载UHD](https://cn.bing.com/th?id=OHR.WaimeaRainbow_ZH-CN1127225170_UHD.jpg&rf=LaDigue_UHD.jpg "威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国")
 
 ---
+### 03月11日：像一张油画
+#### 马萨诸塞州格洛斯特的沼泽地（© Thomas H. Mitchell/Getty Images）
+
+![像一张油画](https://cn.bing.com/th?id=OHR.LongWharf_ZH-CN8793669955_800x480.jpg&rf=LaDigue_800x480.jpg "像一张油画")
+
+在新英格兰灿烂阳光的照耀下，这片盐沼地里的耐盐植物和海水形成了色彩鲜明的对比。盐沼是水生食物链中重要的一环，同时也是孕育野生动植物的温床。
+
+由于盐沼常常被潮汐浸没，同时含有大量分解物质，所以其泥炭中的氧气含量极低。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e8%90%a8%e8%af%b8%e5%a1%9e%e5%b7%9e%e6%a0%bc%e6%b4%9b%e6%96%af%e7%89%b9&form=hpcapt&filters=HpDate:"20230310_1600" "Bing Wallpaper 2023 3月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230311_LongWharf"&FORM=HPQUIZ "必应主页测验 2023 3月 11")
+[下载480](https://cn.bing.com/th?id=OHR.LongWharf_ZH-CN8793669955_800x480.jpg&rf=LaDigue_800x480.jpg "马萨诸塞州格洛斯特的沼泽地")
+[下载720](https://cn.bing.com/th?id=OHR.LongWharf_ZH-CN8793669955_1280x720.jpg&rf=LaDigue_1280x720.jpg "马萨诸塞州格洛斯特的沼泽地")
+[下载1080](https://cn.bing.com/th?id=OHR.LongWharf_ZH-CN8793669955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马萨诸塞州格洛斯特的沼泽地")
+[下载UHD](https://cn.bing.com/th?id=OHR.LongWharf_ZH-CN8793669955_UHD.jpg&rf=LaDigue_UHD.jpg "马萨诸塞州格洛斯特的沼泽地")
+
+---
 ### 03月10日：巨人的谜题
 #### 埃代尔，峰区，英国（© John Finney/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BryceAnniv_ZH-CN5305245786_1280x720.jpg&rf=LaDigue_1280x720.jpg "布莱斯峡谷国家公园的石林，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BryceAnniv_ZH-CN5305245786_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布莱斯峡谷国家公园的石林，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BryceAnniv_ZH-CN5305245786_UHD.jpg&rf=LaDigue_UHD.jpg "布莱斯峡谷国家公园的石林，犹他州，美国")
-
----
-### 02月24日：一只华丽招摇的鸳鸯
-#### 里士满公园的鸳鸯，伦敦，英国（© Oscar Dewhurst/Minden Pictures）
-
-![一只华丽招摇的鸳鸯](https://cn.bing.com/th?id=OHR.RichmondParkDuck_ZH-CN4956127005_800x480.jpg&rf=LaDigue_800x480.jpg "一只华丽招摇的鸳鸯")
-
-今天照片里的是一只鸳鸯，它正在寒冷沉闷的冬日里展示自己漂亮鲜艳的羽毛。到了换羽季节，雄性鸳鸯会脱去色彩斑斓的羽毛，使得它们的外貌更接近色彩暗淡的雌性鸳鸯，不过它们的喙仍然会是明亮的橙黄色或红色。
-
-里士满公园修建于17世纪，原本是查理一世的鹿园，现在已成为国家级的自然保护区。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%b8%b3%e9%b8%af&form=hpcapt&filters=HpDate:"20230223_1600" "Bing Wallpaper 2023 2月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230224_RichmondParkDuck"&FORM=HPQUIZ "必应主页测验 2023 2月 24")
-[下载480](https://cn.bing.com/th?id=OHR.RichmondParkDuck_ZH-CN4956127005_800x480.jpg&rf=LaDigue_800x480.jpg "里士满公园的鸳鸯，伦敦，英国")
-[下载720](https://cn.bing.com/th?id=OHR.RichmondParkDuck_ZH-CN4956127005_1280x720.jpg&rf=LaDigue_1280x720.jpg "里士满公园的鸳鸯，伦敦，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.RichmondParkDuck_ZH-CN4956127005_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "里士满公园的鸳鸯，伦敦，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.RichmondParkDuck_ZH-CN4956127005_UHD.jpg&rf=LaDigue_UHD.jpg "里士满公园的鸳鸯，伦敦，英国")
 
 ---
