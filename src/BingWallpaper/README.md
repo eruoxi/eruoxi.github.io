@@ -16,6 +16,23 @@
 [下载UHD](https://cn.bing.com/th?id=OHR.WaimeaRainbow_ZH-CN1127225170_UHD.jpg&rf=LaDigue_UHD.jpg "威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国")
 
 ---
+### 03月12日：波浪板起伏的绿丘
+#### 南唐斯国家公园的绵羊，东萨塞克斯郡，英国（© Slawek Staszczuk/Alamy）
+
+![波浪板起伏的绿丘](https://cn.bing.com/th?id=OHR.SouthDownsSheep_ZH-CN8986424729_800x480.jpg&rf=LaDigue_800x480.jpg "波浪板起伏的绿丘")
+
+这些标志性的、连绵起伏的绿色山丘是南唐斯国家公园的美景之一，它们横跨英国东南部的沿海郡。几个世纪以来，放牧的绵羊保持了这里低矮的草皮，也让这里成为了欧洲最繁荣的野生动物栖息地之一，野花和不同种类的蝴蝶在南唐斯的草原上繁衍生息。但如今，这种罕见的生态栖息地只覆盖了唐斯面积的约4%，原因是二战期间这里大部分土地都被用做了种植粮食。2010年，南唐斯国家公园成立，原因之一也是为了保护和重建唐斯的生态栖息地。
+
+绿丘起伏绵延至地平线，这是南唐斯国家公园的标志性景象之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%97%e5%94%90%e6%96%af%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230311_1600" "Bing Wallpaper 2023 3月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230312_SouthDownsSheep"&FORM=HPQUIZ "必应主页测验 2023 3月 12")
+[下载480](https://cn.bing.com/th?id=OHR.SouthDownsSheep_ZH-CN8986424729_800x480.jpg&rf=LaDigue_800x480.jpg "南唐斯国家公园的绵羊，东萨塞克斯郡，英国")
+[下载720](https://cn.bing.com/th?id=OHR.SouthDownsSheep_ZH-CN8986424729_1280x720.jpg&rf=LaDigue_1280x720.jpg "南唐斯国家公园的绵羊，东萨塞克斯郡，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.SouthDownsSheep_ZH-CN8986424729_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南唐斯国家公园的绵羊，东萨塞克斯郡，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SouthDownsSheep_ZH-CN8986424729_UHD.jpg&rf=LaDigue_UHD.jpg "南唐斯国家公园的绵羊，东萨塞克斯郡，英国")
+
+---
 ### 03月11日：像一张油画
 #### 马萨诸塞州格洛斯特的沼泽地（© Thomas H. Mitchell/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CanopyPeru_ZH-CN5659581553_1280x720.jpg&rf=LaDigue_1280x720.jpg "亚马孙雨林的树冠探险，秘鲁")
 [下载1080](https://cn.bing.com/th?id=OHR.CanopyPeru_ZH-CN5659581553_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亚马孙雨林的树冠探险，秘鲁")
 [下载UHD](https://cn.bing.com/th?id=OHR.CanopyPeru_ZH-CN5659581553_UHD.jpg&rf=LaDigue_UHD.jpg "亚马孙雨林的树冠探险，秘鲁")
-
----
-### 02月25日：冬天的布莱斯峡谷石林
-#### 布莱斯峡谷国家公园的石林，犹他州，美国（© Piriya Photography/Getty Images）
-
-![冬天的布莱斯峡谷石林](https://cn.bing.com/th?id=OHR.BryceAnniv_ZH-CN5305245786_800x480.jpg&rf=LaDigue_800x480.jpg "冬天的布莱斯峡谷石林")
-
-当太阳在布莱斯峡谷升起时，白雪皑皑的橙红色岩石闪闪发光。这些修长高耸的岩石被称为石林，而布莱斯峡谷国家公园正是因为拥有地球上密度最高的石林而闻名。这些石林的下层是松软的沉积岩，上面则覆盖着一层更为坚硬的石盖。犹他州冬天的冰霜会侵蚀石盖，最终暴露出底下更易被侵蚀的岩石。值得庆幸的是，这些石林现在还屹立不倒，让我们可以在公园成立100周年之时欣赏大自然的鬼斧神工。
-
-布莱斯峡谷并非由流过的溪流侵蚀而成，因此严格来说它并不是一个峡谷。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e8%8e%b1%e6%96%af%e5%b3%a1%e8%b0%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230224_1600" "Bing Wallpaper 2023 2月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230225_BryceAnniv"&FORM=HPQUIZ "必应主页测验 2023 2月 25")
-[下载480](https://cn.bing.com/th?id=OHR.BryceAnniv_ZH-CN5305245786_800x480.jpg&rf=LaDigue_800x480.jpg "布莱斯峡谷国家公园的石林，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BryceAnniv_ZH-CN5305245786_1280x720.jpg&rf=LaDigue_1280x720.jpg "布莱斯峡谷国家公园的石林，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BryceAnniv_ZH-CN5305245786_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布莱斯峡谷国家公园的石林，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BryceAnniv_ZH-CN5305245786_UHD.jpg&rf=LaDigue_UHD.jpg "布莱斯峡谷国家公园的石林，犹他州，美国")
 
 ---
