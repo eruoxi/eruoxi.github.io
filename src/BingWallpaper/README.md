@@ -16,6 +16,23 @@
 [下载UHD](https://cn.bing.com/th?id=OHR.WaimeaRainbow_ZH-CN1127225170_UHD.jpg&rf=LaDigue_UHD.jpg "威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国")
 
 ---
+### 03月13日：午睡消除烦恼
+#### 正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚（© Cavan Images/Shutterstock）
+
+![午睡消除烦恼](https://cn.bing.com/th?id=OHR.LionessesNap_ZH-CN9240393299_800x480.jpg&rf=LaDigue_800x480.jpg "午睡消除烦恼")
+
+欢迎来到坦桑利亚的塞伦盖蒂国家公园，这里是地球上最壮观的野生动物生态系统之一，栖息着世界上数量最多的狮子。有赖于这里的天气和地形，塞伦盖蒂国家公园栖息着包括稀有黑犀牛在内的各类哺乳动物，是非洲游客最多的野生动物保护区之一。公园里最高的岩石山丘“辛巴巨石”是电影《狮子王》中荣耀石的灵感来源。塞伦盖蒂气候炎热，郁郁葱葱的树林为狮子们提供了理想的庇荫所，让它们可以小憩片刻，恢复精力。祝愿大家都能睡得这么舒坦。
+
+塞伦盖蒂国家公园因世界上规模最大的动物年度迁徙而闻名。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a1%9e%e4%bc%a6%e7%9b%96%e8%92%82%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230312_1600" "Bing Wallpaper 2023 3月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230313_LionessesNap"&FORM=HPQUIZ "必应主页测验 2023 3月 13")
+[下载480](https://cn.bing.com/th?id=OHR.LionessesNap_ZH-CN9240393299_800x480.jpg&rf=LaDigue_800x480.jpg "正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚")
+[下载720](https://cn.bing.com/th?id=OHR.LionessesNap_ZH-CN9240393299_1280x720.jpg&rf=LaDigue_1280x720.jpg "正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.LionessesNap_ZH-CN9240393299_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.LionessesNap_ZH-CN9240393299_UHD.jpg&rf=LaDigue_UHD.jpg "正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚")
+
+---
 ### 03月12日：波浪板起伏的绿丘
 #### 南唐斯国家公园的绵羊，东萨塞克斯郡，英国（© Slawek Staszczuk/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://th.bing.com/th?id=OHR.PolarBearFrost_ZH-CN5918160947_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极熊在加拿大沉睡")
 [下载1080](https://th.bing.com/th?id=OHR.PolarBearFrost_ZH-CN5918160947_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊在加拿大沉睡")
 [下载UHD](https://th.bing.com/th?id=OHR.PolarBearFrost_ZH-CN5918160947_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊在加拿大沉睡")
-
----
-### 02月26日：随着亚马孙的树冠摇摆
-#### 亚马孙雨林的树冠探险，秘鲁（© Pere Rubi/Getty Images）
-
-![随着亚马孙的树冠摇摆](https://cn.bing.com/th?id=OHR.CanopyPeru_ZH-CN5659581553_800x480.jpg&rf=LaDigue_800x480.jpg "随着亚马孙的树冠摇摆")
-
-穿过亚马孙雨林中的这座吊桥，意味着你要依靠这些树木作为支撑。同样，地球生物的生存也依赖于亚马孙雨林的这些树木。亚马孙流域储存的碳是全球化石燃料年排放量的10倍以上，这里还是地球上10%已知物种的家园。亚马孙河是世界上流域最广、流量最大的河流，其河流入海流量占全球的20%。从安第斯山脉到大西洋，亚马孙河流经了八个国家。今天的照片拍摄于秘鲁的坦博帕塔国家保护区，这里是巨型角雕、金刚鹦鹉、美洲虎、水豚、树懒和巨型水獭的家园。
-
-桑多瓦尔湖是坦博帕塔国家保护区内最受欢迎的景点，湖岸长满了棕榈树，这些树是金刚鹦鹉的家园。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9d%a6%e5%8d%9a%e5%b8%95%e5%a1%94%e5%9b%bd%e5%ae%b6%e4%bf%9d%e6%8a%a4%e5%8c%ba&form=hpcapt&filters=HpDate:"20230225_1600" "Bing Wallpaper 2023 2月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230226_CanopyPeru"&FORM=HPQUIZ "必应主页测验 2023 2月 26")
-[下载480](https://cn.bing.com/th?id=OHR.CanopyPeru_ZH-CN5659581553_800x480.jpg&rf=LaDigue_800x480.jpg "亚马孙雨林的树冠探险，秘鲁")
-[下载720](https://cn.bing.com/th?id=OHR.CanopyPeru_ZH-CN5659581553_1280x720.jpg&rf=LaDigue_1280x720.jpg "亚马孙雨林的树冠探险，秘鲁")
-[下载1080](https://cn.bing.com/th?id=OHR.CanopyPeru_ZH-CN5659581553_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亚马孙雨林的树冠探险，秘鲁")
-[下载UHD](https://cn.bing.com/th?id=OHR.CanopyPeru_ZH-CN5659581553_UHD.jpg&rf=LaDigue_UHD.jpg "亚马孙雨林的树冠探险，秘鲁")
 
 ---
