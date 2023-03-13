@@ -16,6 +16,23 @@
 [下载UHD](https://cn.bing.com/th?id=OHR.WaimeaRainbow_ZH-CN1127225170_UHD.jpg&rf=LaDigue_UHD.jpg "威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国")
 
 ---
+### 03月14日：美丽的曲径迷宫
+#### 阿伊纳帕植物园灌木丛迷宫，塞浦路斯（© Tpopova/Getty Images）
+
+![美丽的曲径迷宫](https://cn.bing.com/th?id=OHR.CyprusMaze_ZH-CN9448060895_800x480.jpg&rf=LaDigue_800x480.jpg "美丽的曲径迷宫")
+
+今天，我们用这张绝美无比的灌木丛迷宫鸟瞰图来庆祝圆周率日，该迷宫位于塞浦路斯的阿伊纳帕植物园。圆周率日的意义在于纪念数学常数π。如果用计算器求圆周率的值，它可能会被截止到小数点后15位或更少，但在数学中π被认为是一个无限的比值。阿伊纳帕植物园灌木丛迷宫的圆形图案把圆周率公式带入了现实，这里也是长途步行爱好者的必游之地。如果你准备好迎接挑战，那就来这个巨型迷宫试试吧。
+
+人们有很多方式庆祝圆周率日，包括吃馅饼、抛馅饼和讨论数字π的意义。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a1%9e%e6%b5%a6%e8%b7%af%e6%96%af&form=hpcapt&filters=HpDate:"20230313_1600" "Bing Wallpaper 2023 3月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230314_CyprusMaze"&FORM=HPQUIZ "必应主页测验 2023 3月 14")
+[下载480](https://cn.bing.com/th?id=OHR.CyprusMaze_ZH-CN9448060895_800x480.jpg&rf=LaDigue_800x480.jpg "阿伊纳帕植物园灌木丛迷宫，塞浦路斯")
+[下载720](https://cn.bing.com/th?id=OHR.CyprusMaze_ZH-CN9448060895_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿伊纳帕植物园灌木丛迷宫，塞浦路斯")
+[下载1080](https://cn.bing.com/th?id=OHR.CyprusMaze_ZH-CN9448060895_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿伊纳帕植物园灌木丛迷宫，塞浦路斯")
+[下载UHD](https://cn.bing.com/th?id=OHR.CyprusMaze_ZH-CN9448060895_UHD.jpg&rf=LaDigue_UHD.jpg "阿伊纳帕植物园灌木丛迷宫，塞浦路斯")
+
+---
 ### 03月13日：午睡消除烦恼
 #### 正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚（© Cavan Images/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AtraniAmalfi_ZH-CN6391731688_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿特拉尼，阿马尔菲海岸，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.AtraniAmalfi_ZH-CN6391731688_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿特拉尼，阿马尔菲海岸，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.AtraniAmalfi_ZH-CN6391731688_UHD.jpg&rf=LaDigue_UHD.jpg "阿特拉尼，阿马尔菲海岸，意大利")
-
----
-### 02月27日：冰冷的北极，温暖的拥抱
-#### 北极熊在加拿大沉睡（© David Pike/Minden Pictures）
-
-![冰冷的北极，温暖的拥抱](https://th.bing.com/th?id=OHR.PolarBearFrost_ZH-CN5918160947_800x480.jpg&rf=LaDigue_800x480.jpg "冰冷的北极，温暖的拥抱")
-
-2月27日是国际北极熊日，旨在让人们意识到北极熊因气候变化而面临的巨大威胁。北极熊需要北极的浮冰才能捕食，但北极浮冰正随着地球变暖而减少。虽然北极熊是非常出色的游泳选手，它们甚至因此被归类为海洋哺乳动物，但北极的浮冰仍是它们赖以生存的关键因素。让我们在这一天来认真想想，如何通过可持续的生活方式来帮助北极熊。
-
-北极熊没有领地意识，它们面临冲突时总是小心翼翼，常常选择逃跑而不是战斗。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%9e%81%e7%86%8a&form=hpcapt&filters=HpDate:"20230226_1600" "Bing Wallpaper 2023 2月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230227_PolarBearFrost"&FORM=HPQUIZ "必应主页测验 2023 2月 27")
-[下载480](https://th.bing.com/th?id=OHR.PolarBearFrost_ZH-CN5918160947_800x480.jpg&rf=LaDigue_800x480.jpg "北极熊在加拿大沉睡")
-[下载720](https://th.bing.com/th?id=OHR.PolarBearFrost_ZH-CN5918160947_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极熊在加拿大沉睡")
-[下载1080](https://th.bing.com/th?id=OHR.PolarBearFrost_ZH-CN5918160947_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊在加拿大沉睡")
-[下载UHD](https://th.bing.com/th?id=OHR.PolarBearFrost_ZH-CN5918160947_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊在加拿大沉睡")
 
 ---
