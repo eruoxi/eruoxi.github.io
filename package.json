@@ -1,0 +1,37 @@
+{
+  "name": "Bing Wallpaper",
+  "version": "1.0.0",
+  "description": "Bing Wallpaper 每天发现一个新地方，包含必应主页上特别推荐的一批来自世界各地的精美图片。您不仅每天都会看到一个新图像，而且还可以浏览图像并了解其来源。",
+  "main": "index.js",
+  "scripts": {
+    "BingWallpaper:loadLastImage": "node index.js --loadLastImage",
+    "BingWallpaper:updateMD": "node index.js --updateMD --forVuePress",
+    "BingWallpaper:build": "vuepress build src/BingWallpaper",
+    "BingWallpaper:dev": "vuepress dev src/BingWallpaper"
+  },
+  "repository": {
+    "type": "git",
+    "url": "git+https://github.com/answer-3/answer-3.github.io.git"
+  },
+  "keywords": [
+    "bing",
+    "image",
+    "wallpaper",
+    "必应",
+    "图片",
+    "壁纸"
+  ],
+  "author": "answer-3",
+  "license": "ISC",
+  "bugs": {
+    "url": "https://github.com/answer-3/answer-3.github.io/issues"
+  },
+  "homepage": "https://github.com/answer-3/answer-3.github.io",
+  "devDependencies": {
+    "@vuepress/client": "2.0.0-beta.61",
+    "@vuepress/plugin-pwa": "^2.0.0-beta.61",
+    "@vuepress/plugin-search": "2.0.0-beta.61",
+    "vue": "^3.2.47",
+    "vuepress": "2.0.0-beta.61"
+  }
+}

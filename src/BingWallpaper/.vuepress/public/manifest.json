@@ -1,0 +1,17 @@
+{
+  "lang": "zh-CN",
+  "name": "每日一图",
+  "short_name": "每日一图",
+  "description": "每天一张图 发现新世界",
+  "start_url": "/",
+  "background_color": "#2f3d58",
+  "theme_color": "#2f3d58",
+  "orientation": "any",
+  "display": "standalone",
+  "icons": [
+    {
+      "src": "/icon512.png",
+      "sizes": "512x512"
+    }
+  ]
+}

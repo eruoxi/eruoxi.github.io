@@ -1,0 +1,70 @@
+name: Update Bing Wallpaper
+on:
+  schedule:
+    - cron: '00 16 * * *'
+  workflow_dispatch:
+
+# Sets permissions of the GITHUB_TOKEN to allow deployment to GitHub Pages
+permissions:
+  contents: write
+  pages: write
+  id-token: write
+
+# Allow one concurrent deployment
+concurrency:
+  group: "pages"
+  cancel-in-progress: true
+
+jobs:
+  update-bing-wallpaper:
+    environment:
+      name: github-pages
+      url: ${{ steps.deployment.outputs.page_url }}
+    runs-on: ubuntu-latest
+    steps:
+      - name: checkout(检出代码)
+        uses: actions/checkout@v3
+        with:
+          ref: main
+
+      - name: 设置 node 运行环境
+        uses: actions/setup-node@v3
+        with:
+          # 选择要使用的 node 版本
+          node-version: 18
+          # 缓存 npm 依赖
+          cache: npm
+
+      - name: npm ci
+        run: npm ci
+
+      - name: loadLastImage(获取 bing 最新图片信息)
+        run: npm run BingWallpaper:loadLastImage
+
+      - name: commit(提交变更到 git 本地仓库)
+        run: |
+          git config --local user.email "eruoxi@hotmail.com"
+          git config --local user.name "eruoxi"
+          git pull
+          git add -A
+          git commit -m "update by github actions"
+          git push
+
+      - name: updateMD
+        run: npm run BingWallpaper:updateMD
+
+      - name: build
+        run: npm run BingWallpaper:build
+
+      - name: Setup Pages
+        uses: actions/configure-pages@v3
+
+      - name: Upload artifact
+        uses: actions/upload-pages-artifact@v1
+        with:
+          # Upload entire repository
+          path: './src/BingWallpaper/.vuepress/dist'
+
+      - name: Deploy to GitHub Pages
+        id: deployment
+        uses: actions/deploy-pages@v1
