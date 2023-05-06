@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月07日：什么事这么好笑？
+#### 海豹幼崽，伦迪岛，英国（© Henley Spiers/Minden Pictures）
+
+![什么事这么好笑？](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_800x480.jpg&rf=LaDigue_800x480.jpg "什么事这么好笑？")
+
+每年5月的第一个星期日是世界爱笑日。设立这个节日的目的是让大家更了解笑对身心健康的好处。今天这张灰色小海豹咧嘴大笑的图片就很好地展示了什么叫做开怀大笑。一些研究表明，笑可以提升免疫力，改善情绪，并减轻疼痛。事实证明，“笑是最好的良药”这句古谚确为不易之论。
+
+笑能降血压，进而降低人们心脏病发或中风的风险。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%81%b0%e6%b5%b7%e8%b1%b9&form=hpcapt&filters=HpDate:"20230506_1600" "Bing Wallpaper 2023 5月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230507_SealLaughing"&FORM=HPQUIZ "必应主页测验 2023 5月 7")
+[下载480](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_800x480.jpg&rf=LaDigue_800x480.jpg "海豹幼崽，伦迪岛，英国")
+[下载720](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_1280x720.jpg&rf=LaDigue_1280x720.jpg "海豹幼崽，伦迪岛，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海豹幼崽，伦迪岛，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_UHD.jpg&rf=LaDigue_UHD.jpg "海豹幼崽，伦迪岛，英国")
+
+---
 ### 05月06日：一片花田
 #### 大麦和矢车菊, 诺德豪森, 德国（© Mandy Tabatt/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Honnavaralavenderfields_ZH-CN8054655091_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时分薄雾笼罩下的薰衣草田，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.Honnavaralavenderfields_ZH-CN8054655091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时分薄雾笼罩下的薰衣草田，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.Honnavaralavenderfields_ZH-CN8054655091_UHD.jpg&rf=LaDigue_UHD.jpg "日出时分薄雾笼罩下的薰衣草田，印度")
-
----
-### 04月22日：一只狡猾的国家公园居民
-#### 岛屿灰狐，海峡群岛国家公园，美国加利福尼亚州（© Ian Shive/Tandem Stills + Motion）
-
-![一只狡猾的国家公园居民](https://cn.bing.com/th?id=OHR.EarthDayFox_ZH-CN7926350207_800x480.jpg&rf=LaDigue_800x480.jpg "一只狡猾的国家公园居民")
-
-今天是地球日，这正是庆祝地球生物丰富多样性和广阔生命之美的绝佳机会。有些动物的活动范围几乎覆盖全球，而另一些动物的栖息地却很狭窄。今天照片中的岛屿灰狐是南加州海峡群岛特有的本土物种。南加州海峡群岛的八个岛屿中，有六个都能找到它们的身影，其中每个岛屿都有一个独特的灰狐亚种。截至2021年，全世界的岛屿灰狐只有不到10000只。但归功于保护组织的圈养繁殖和种群恢复计划，岛屿灰狐的数量正在增加。而国家公园在保护地球和野生动物方面起着至关重要的作用。
-
-岛屿灰狐对当地岛民来说十分重要。它们已被半驯化，可作为宠物，可用于制作皮草，还可防治害虫等。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b2%9b%e5%b1%bf%e7%81%b0%e7%8b%90&form=hpcapt&filters=HpDate:"20230421_1600" "Bing Wallpaper 2023 4月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230422_EarthDayFox"&FORM=HPQUIZ "必应主页测验 2023 4月 22")
-[下载480](https://cn.bing.com/th?id=OHR.EarthDayFox_ZH-CN7926350207_800x480.jpg&rf=LaDigue_800x480.jpg "岛屿灰狐，海峡群岛国家公园，美国加利福尼亚州")
-[下载720](https://cn.bing.com/th?id=OHR.EarthDayFox_ZH-CN7926350207_1280x720.jpg&rf=LaDigue_1280x720.jpg "岛屿灰狐，海峡群岛国家公园，美国加利福尼亚州")
-[下载1080](https://cn.bing.com/th?id=OHR.EarthDayFox_ZH-CN7926350207_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "岛屿灰狐，海峡群岛国家公园，美国加利福尼亚州")
-[下载UHD](https://cn.bing.com/th?id=OHR.EarthDayFox_ZH-CN7926350207_UHD.jpg&rf=LaDigue_UHD.jpg "岛屿灰狐，海峡群岛国家公园，美国加利福尼亚州")
 
 ---
