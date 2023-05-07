@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月08日：藏在精致拱门里的百年时光
+#### 精致拱门，拱门国家公园，犹他州（© Mark Brodkin Photography/Getty Images）
+
+![藏在精致拱门里的百年时光](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_800x480.jpg&rf=LaDigue_800x480.jpg "藏在精致拱门里的百年时光")
+
+精致拱门是美国最受欢迎的地质景点之一。在犹他州拱门国家公园的2000个石拱门中，精致拱门是最有名的那一座，也是这里最大的岩石拱门。犹他州的车牌和邮票也有印有精致拱门。只需徒步三英里，就能到达这座拱门，这也是公园里最棒的徒步旅行路线之一。每年都有近140万人前往拱门国家公园，只为一睹精致拱门的全貌。
+
+这座精致拱门是由恩特拉达砂岩形成的。原先的岩石边缘逐渐被风化和侵蚀，最后只留下了这座拱门。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%8b%b1%e9%97%a8%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230507_1600" "Bing Wallpaper 2023 5月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230508_TheChaps"&FORM=HPQUIZ "必应主页测验 2023 5月 8")
+[下载480](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_800x480.jpg&rf=LaDigue_800x480.jpg "精致拱门，拱门国家公园，犹他州")
+[下载720](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_1280x720.jpg&rf=LaDigue_1280x720.jpg "精致拱门，拱门国家公园，犹他州")
+[下载1080](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "精致拱门，拱门国家公园，犹他州")
+[下载UHD](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_UHD.jpg&rf=LaDigue_UHD.jpg "精致拱门，拱门国家公园，犹他州")
+
+---
 ### 05月07日：什么事这么好笑？
 #### 海豹幼崽，伦迪岛，英国（© Henley Spiers/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FranconianWineCellar_ZH-CN8234719750_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴伐利亚森林酒窖，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.FranconianWineCellar_ZH-CN8234719750_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴伐利亚森林酒窖，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FranconianWineCellar_ZH-CN8234719750_UHD.jpg&rf=LaDigue_UHD.jpg "巴伐利亚森林酒窖，德国")
-
----
-### 04月23日：梦幻般的紫色
-#### 日出时分薄雾笼罩下的薰衣草田，印度（© Amith Nag Photography/Getty Images）
-
-![梦幻般的紫色](https://cn.bing.com/th?id=OHR.Honnavaralavenderfields_ZH-CN8054655091_800x480.jpg&rf=LaDigue_800x480.jpg "梦幻般的紫色")
-
-薰衣草种植在印度是一个规模持续增长的产业。卡纳塔克邦、泰米尔纳德邦、喜马偕尔邦和北阿坎德邦的农民已经开始商业化种植薰衣草。这些地区的气候和土壤条件适宜薰衣草的生长。近年来，薰衣草衍生产品（如精油、干花和香包等）的需求量稳定增加。薰衣草种植可以为农民创收和促进可持续农业，对许多印度人来说，这已经成为一个有吸引力的选择。
-
-英语单词“lavender”自13世纪开始使用，通常被认为源于古法语的“lavandre”。但追根溯源，它其实源于拉丁语“lavare”的词根“lavo”，意思是浸染，指植物浸染。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%96%b0%e8%a1%a3%e8%8d%89%e7%94%b0&form=hpcapt&filters=HpDate:"20230422_1600" "Bing Wallpaper 2023 4月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230423_Honnavaralavenderfields"&FORM=HPQUIZ "必应主页测验 2023 4月 23")
-[下载480](https://cn.bing.com/th?id=OHR.Honnavaralavenderfields_ZH-CN8054655091_800x480.jpg&rf=LaDigue_800x480.jpg "日出时分薄雾笼罩下的薰衣草田，印度")
-[下载720](https://cn.bing.com/th?id=OHR.Honnavaralavenderfields_ZH-CN8054655091_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时分薄雾笼罩下的薰衣草田，印度")
-[下载1080](https://cn.bing.com/th?id=OHR.Honnavaralavenderfields_ZH-CN8054655091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时分薄雾笼罩下的薰衣草田，印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.Honnavaralavenderfields_ZH-CN8054655091_UHD.jpg&rf=LaDigue_UHD.jpg "日出时分薄雾笼罩下的薰衣草田，印度")
 
 ---
