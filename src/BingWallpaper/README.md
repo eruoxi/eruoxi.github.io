@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月09日：天堂的一角
+#### 卡韦希环礁，土阿莫土群岛，法属波利尼西亚（© WaterFrame/Alamy）
+
+![天堂的一角](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_800x480.jpg&rf=LaDigue_800x480.jpg "天堂的一角")
+
+卡韦希环礁是法属波利尼西亚的土阿莫土群岛的一个珊瑚环礁。它距离塔希提岛450公里，面积非常小，长24公里，宽18公里，人口约200人。岛上的居民主要以干椰子肉为生。
+
+虽然此前卡韦希环礁可能已被珍珠商人所熟知，但有记载的第一位访问该环礁的欧洲人是“比格尔号”的船长罗伯特·菲茨罗伊，他于1835年发现并测绘了卡韦希环礁。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e9%9f%a6%e5%b8%8c%e7%8e%af%e7%a4%81&form=hpcapt&filters=HpDate:"20230508_1600" "Bing Wallpaper 2023 5月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230509_Atoll"&FORM=HPQUIZ "必应主页测验 2023 5月 9")
+[下载480](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_800x480.jpg&rf=LaDigue_800x480.jpg "卡韦希环礁，土阿莫土群岛，法属波利尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡韦希环礁，土阿莫土群岛，法属波利尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡韦希环礁，土阿莫土群岛，法属波利尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_UHD.jpg&rf=LaDigue_UHD.jpg "卡韦希环礁，土阿莫土群岛，法属波利尼西亚")
+
+---
 ### 05月08日：藏在精致拱门里的百年时光
 #### 精致拱门，拱门国家公园，犹他州（© Mark Brodkin Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AdelieWPD_ZH-CN8434233391_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿德利企鹅")
 [下载1080](https://cn.bing.com/th?id=OHR.AdelieWPD_ZH-CN8434233391_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿德利企鹅")
 [下载UHD](https://cn.bing.com/th?id=OHR.AdelieWPD_ZH-CN8434233391_UHD.jpg&rf=LaDigue_UHD.jpg "阿德利企鹅")
-
----
-### 04月24日：隐藏在树林中
-#### 巴伐利亚森林酒窖，德国（© Andreas_Zerndl/Getty Images）
-
-![隐藏在树林中](https://cn.bing.com/th?id=OHR.FranconianWineCellar_ZH-CN8234719750_800x480.jpg&rf=LaDigue_800x480.jpg "隐藏在树林中")
-
-德国啤酒享誉世界，其强大的葡萄酒酿造业也闻名遐迩。庞大的葡萄酒产量也催生了对储存酒窖的需求。酒窖通常需要低温黑暗的环境，所以图中这个位于巴伐利亚森林的酒窖位置就十分理想。
-
-巴伐利亚森林位于德国巴伐利亚，是一片树木繁茂的低山区，长约100公里。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e4%bc%90%e5%88%a9%e4%ba%9a%e6%a3%ae%e6%9e%97&form=hpcapt&filters=HpDate:"20230423_1600" "Bing Wallpaper 2023 4月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230424_FranconianWineCellar"&FORM=HPQUIZ "必应主页测验 2023 4月 24")
-[下载480](https://cn.bing.com/th?id=OHR.FranconianWineCellar_ZH-CN8234719750_800x480.jpg&rf=LaDigue_800x480.jpg "巴伐利亚森林酒窖，德国")
-[下载720](https://cn.bing.com/th?id=OHR.FranconianWineCellar_ZH-CN8234719750_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴伐利亚森林酒窖，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.FranconianWineCellar_ZH-CN8234719750_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴伐利亚森林酒窖，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.FranconianWineCellar_ZH-CN8234719750_UHD.jpg&rf=LaDigue_UHD.jpg "巴伐利亚森林酒窖，德国")
 
 ---
