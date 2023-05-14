@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月15日：文化交汇的岛屿
+#### 莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛（© Gavin Hellier/Getty Images）
+
+![文化交汇的岛屿](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_800x480.jpg&rf=LaDigue_800x480.jpg "文化交汇的岛屿")
+
+数千年的时光里，加那利群岛一直是各种文化的交汇地。早在公元前40年，这片火山群岛就引起了罗马人的兴趣；999年，阿拉伯商人又来到了这里。几百年间，热那亚、马略卡、葡萄牙和法国的殖民者也纷至沓来。这里的农业种植历史悠久，香蕉、番茄及土豆是主要农作物。如今，加纳利群岛是西班牙的一部分。最初的航海者来这里寻找贸易机会，而如今的游客来这里探索国家公园、躺在沙滩上放松、以及欣赏壮丽的落日。
+
+在大航海时代，这些岛屿是西班牙殖民美洲的行程中主要的船舶停靠点。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e9%82%a3%e5%88%a9%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20230514_1600" "Bing Wallpaper 2023 5月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230515_MorroJable"&FORM=HPQUIZ "必应主页测验 2023 5月 15")
+[下载480](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_800x480.jpg&rf=LaDigue_800x480.jpg "莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛")
+[下载720](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_1280x720.jpg&rf=LaDigue_1280x720.jpg "莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛")
+[下载1080](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_UHD.jpg&rf=LaDigue_UHD.jpg "莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛")
+
+---
 ### 05月14日：母亲节快乐！
 #### 白尾鹿母鹿和刚出生的小鹿，美国蒙大拿州（© Donald M. Jones/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.QuebecCityBridge_ZH-CN9618387961_1280x720.jpg&rf=LaDigue_1280x720.jpg "横跨圣劳伦斯河下游的魁北克大桥，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.QuebecCityBridge_ZH-CN9618387961_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "横跨圣劳伦斯河下游的魁北克大桥，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.QuebecCityBridge_ZH-CN9618387961_UHD.jpg&rf=LaDigue_UHD.jpg "横跨圣劳伦斯河下游的魁北克大桥，加拿大")
-
----
-### 04月30日：伟大的遗迹
-#### 塞利努斯的神庙，西西里岛，意大利（© Antonino Bartuccio/eStock）
-
-![伟大的遗迹](https://cn.bing.com/th?id=OHR.TempleE_ZH-CN9455488333_800x480.jpg&rf=LaDigue_800x480.jpg "伟大的遗迹")
-
-这座神庙建于公元前6世纪，得名于其所在地——当时的希腊殖民地塞利农特。即使今天，希腊建的卫城的遗迹依然可见，以其宏伟的气势镇守着西西里海岸的这一片土地。这座神庙属于两种建筑风格之间的过渡时期，即多立克柱式和古典柱式。柱子的檐口上有各种主题的精美浮雕，如宙斯和赫拉、阿尔忒弥斯和阿克泰翁。
-
-这个考古遗址包含许多大型神庙，最早可以追溯到公元前550年，其中有五座神庙集中在一个卫城。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a1%9e%e5%88%a9%e5%86%9c%e7%89%b9&form=hpcapt&filters=HpDate:"20230429_1600" "Bing Wallpaper 2023 4月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230430_TempleE"&FORM=HPQUIZ "必应主页测验 2023 4月 30")
-[下载480](https://cn.bing.com/th?id=OHR.TempleE_ZH-CN9455488333_800x480.jpg&rf=LaDigue_800x480.jpg "塞利努斯的神庙，西西里岛，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.TempleE_ZH-CN9455488333_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞利努斯的神庙，西西里岛，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.TempleE_ZH-CN9455488333_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞利努斯的神庙，西西里岛，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.TempleE_ZH-CN9455488333_UHD.jpg&rf=LaDigue_UHD.jpg "塞利努斯的神庙，西西里岛，意大利")
 
 ---
