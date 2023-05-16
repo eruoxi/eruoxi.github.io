@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月17日：通往太平洋之窗
+#### 加利福尼亚州圣克鲁斯的天然桥州立公园（© Jim Patterson/Tandem Stills + Motion）
+
+![通往太平洋之窗](https://cn.bing.com/th?id=OHR.CormorantBridge_ZH-CN7673299694_800x480.jpg&rf=LaDigue_800x480.jpg "通往太平洋之窗")
+
+天然桥州立公园位于美国加利福尼亚州的圣克鲁斯市。初期，这里有三座海水侵蚀而成的拱桥，其中一座于1905年倒塌，后来又有一座于1980年倒塌，剩下我们如今看到的这座拱桥。然而，海浪的侵蚀是无情的，因此仅剩的这座拱桥最终也会倒塌。除了拱桥，这个公园还有君主斑蝶，因此也吸引了不少游客。
+
+这座公园，对于观赏岸边鸟类、迁徙的鲸鱼，以及在海岸嬉戏的海豹和海獭来说，是绝佳观测点。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a9%e7%84%b6%e6%a1%a5%e5%b7%9e%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230516_1600" "Bing Wallpaper 2023 5月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230517_CormorantBridge"&FORM=HPQUIZ "必应主页测验 2023 5月 17")
+[下载480](https://cn.bing.com/th?id=OHR.CormorantBridge_ZH-CN7673299694_800x480.jpg&rf=LaDigue_800x480.jpg "加利福尼亚州圣克鲁斯的天然桥州立公园")
+[下载720](https://cn.bing.com/th?id=OHR.CormorantBridge_ZH-CN7673299694_1280x720.jpg&rf=LaDigue_1280x720.jpg "加利福尼亚州圣克鲁斯的天然桥州立公园")
+[下载1080](https://cn.bing.com/th?id=OHR.CormorantBridge_ZH-CN7673299694_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加利福尼亚州圣克鲁斯的天然桥州立公园")
+[下载UHD](https://cn.bing.com/th?id=OHR.CormorantBridge_ZH-CN7673299694_UHD.jpg&rf=LaDigue_UHD.jpg "加利福尼亚州圣克鲁斯的天然桥州立公园")
+
+---
 ### 05月16日：一片平静的水域
 #### 在奥克弗诺基国家野生动物保护区划独木舟（© Brad Beck/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ThreeWildebeest_ZH-CN0175563521_1280x720.jpg&rf=LaDigue_1280x720.jpg "马赛马拉的角马，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ThreeWildebeest_ZH-CN0175563521_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉的角马，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ThreeWildebeest_ZH-CN0175563521_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉的角马，肯尼亚")
-
----
-### 05月02日：蓝湖和险峰
-#### 阿尔卑斯山脉锡尔夫雷塔山的乔里森湖，瑞士（© Florin Baumann/Getty Images）
-
-![蓝湖和险峰](https://cn.bing.com/th?id=OHR.KlostersSerneus_ZH-CN9821473046_800x480.jpg&rf=LaDigue_800x480.jpg "蓝湖和险峰")
-
-今天我们要探索一处超凡脱俗的奇景：瑞士达沃斯附近的约里森湖群。天气晴朗时，湖面会呈现出不真实的蓝色，和周围灰暗、嶙峋的锡尔夫雷塔山形成鲜明的对比。阳光被水中的“岩粉”（湖床被冰川摩擦产生的细微的岩石颗粒）反射，形成了这种鲜艳的蓝色。锡尔夫雷塔山被冰川环绕，和碧蓝色的约里森湖一起被称为“蓝色锡尔夫雷塔”。如果你想亲眼目睹此景，要知道来到此地的路途并不容易。记得带上合适的徒步鞋、大量的饮用水和强健的双腿。
-
-约里森湖是阿尔卑斯山脉中的一个湖群，坐落在瑞士格劳宾登州乔里弗雷斯山口以西，弗吕拉维斯山顶以北。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%94%a1%e5%b0%94%e5%a4%ab%e9%9b%b7%e5%a1%94%e5%b1%b1&form=hpcapt&filters=HpDate:"20230501_1600" "Bing Wallpaper 2023 5月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230502_KlostersSerneus"&FORM=HPQUIZ "必应主页测验 2023 5月 2")
-[下载480](https://cn.bing.com/th?id=OHR.KlostersSerneus_ZH-CN9821473046_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔卑斯山脉锡尔夫雷塔山的乔里森湖，瑞士")
-[下载720](https://cn.bing.com/th?id=OHR.KlostersSerneus_ZH-CN9821473046_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔卑斯山脉锡尔夫雷塔山的乔里森湖，瑞士")
-[下载1080](https://cn.bing.com/th?id=OHR.KlostersSerneus_ZH-CN9821473046_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔卑斯山脉锡尔夫雷塔山的乔里森湖，瑞士")
-[下载UHD](https://cn.bing.com/th?id=OHR.KlostersSerneus_ZH-CN9821473046_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔卑斯山脉锡尔夫雷塔山的乔里森湖，瑞士")
 
 ---
