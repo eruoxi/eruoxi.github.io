@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月20日：一片蜂群
+#### 谢菲尔德的欧洲蜜蜂, 英格兰（© Deborah Vernon/Alamy）
+
+![一片蜂群](https://cn.bing.com/th?id=OHR.EuropeanHoneybee_ZH-CN5191293837_800x480.jpg&rf=LaDigue_800x480.jpg "一片蜂群")
+
+春日百花盛开时，你会听到蜜蜂在花丛间嗡嗡作响。世界蜜蜂日这一天正处于授粉高峰期，同时也是现代养蜂先驱者——斯洛文尼亚人安东·扬沙的生日。蜜蜂是授粉昆虫，因此它们对陆地生态系统至关重要。蜜蜂在觅食时收集花粉带回蜂巢，由此让花粉从一株植物传到另一株植物，帮助植物繁殖。我们107种农作物中，超9成都需要蜜蜂“照料”。所以“勤劳的蜜蜂”这一标签并非夸张，而是事实。但如今，世界范围内的蜜蜂数量已经减少。所以，今天就让我们减少使用杀虫剂、种植本地植物，让它们安心地“工作”吧。
+
+一只工蜂一辈子平均只能生产1/12茶匙的蜂蜜。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%9c%9c%e8%9c%82&form=hpcapt&filters=HpDate:"20230519_1600" "Bing Wallpaper 2023 5月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230520_EuropeanHoneybee"&FORM=HPQUIZ "必应主页测验 2023 5月 20")
+[下载480](https://cn.bing.com/th?id=OHR.EuropeanHoneybee_ZH-CN5191293837_800x480.jpg&rf=LaDigue_800x480.jpg "谢菲尔德的欧洲蜜蜂, 英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.EuropeanHoneybee_ZH-CN5191293837_1280x720.jpg&rf=LaDigue_1280x720.jpg "谢菲尔德的欧洲蜜蜂, 英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.EuropeanHoneybee_ZH-CN5191293837_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "谢菲尔德的欧洲蜜蜂, 英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.EuropeanHoneybee_ZH-CN5191293837_UHD.jpg&rf=LaDigue_UHD.jpg "谢菲尔德的欧洲蜜蜂, 英格兰")
+
+---
 ### 05月19日：我们怎么才能帮助濒危动物？
 #### 苏门答腊犀牛，韦卡巴斯国家公园，印度尼西亚（© Cyril Ruoso/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Kornblume_ZH-CN0344238832_1280x720.jpg&rf=LaDigue_1280x720.jpg "大麦和矢车菊, 诺德豪森, 德国")
 [下载1080](https://cn.bing.com/th?id=OHR.Kornblume_ZH-CN0344238832_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大麦和矢车菊, 诺德豪森, 德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.Kornblume_ZH-CN0344238832_UHD.jpg&rf=LaDigue_UHD.jpg "大麦和矢车菊, 诺德豪森, 德国")
-
----
-### 05月05日：从胜利到欢庆
-#### 普埃布拉天主堂和波波卡特佩特火山，普埃布拉，墨西哥（© Radius Images/Shutterstock）
-
-![从胜利到欢庆](https://cn.bing.com/th?id=OHR.Popocatepetl_ZH-CN5483138337_800x480.jpg&rf=LaDigue_800x480.jpg "从胜利到欢庆")
-
-与许多人的看法相反，5月5日并不是墨西哥的独立日。 真正的墨西哥独立日是在每年的9月16日庆祝。 而5月5日是为了庆祝在1862年的这一天墨西哥在普埃布拉战役中战胜法兰西帝国。虽然这一天是为了纪念一个重大的历史事件，但墨西哥的庆祝活动相对平静，主要集中在普埃布拉。
-
-传说在建此教堂时，墙刚砌好就无缘无故地倒塌了，后来两位天使闻讯降临，每天晚上守卫着教堂，终于使教堂工程得以完成。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%99%ae%e5%9f%83%e5%b8%83%e6%8b%89%e5%a4%a9%e4%b8%bb%e5%a0%82&form=hpcapt&filters=HpDate:"20230504_1600" "Bing Wallpaper 2023 5月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230505_Popocatepetl"&FORM=HPQUIZ "必应主页测验 2023 5月 5")
-[下载480](https://cn.bing.com/th?id=OHR.Popocatepetl_ZH-CN5483138337_800x480.jpg&rf=LaDigue_800x480.jpg "普埃布拉天主堂和波波卡特佩特火山，普埃布拉，墨西哥")
-[下载720](https://cn.bing.com/th?id=OHR.Popocatepetl_ZH-CN5483138337_1280x720.jpg&rf=LaDigue_1280x720.jpg "普埃布拉天主堂和波波卡特佩特火山，普埃布拉，墨西哥")
-[下载1080](https://cn.bing.com/th?id=OHR.Popocatepetl_ZH-CN5483138337_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普埃布拉天主堂和波波卡特佩特火山，普埃布拉，墨西哥")
-[下载UHD](https://cn.bing.com/th?id=OHR.Popocatepetl_ZH-CN5483138337_UHD.jpg&rf=LaDigue_UHD.jpg "普埃布拉天主堂和波波卡特佩特火山，普埃布拉，墨西哥")
 
 ---
