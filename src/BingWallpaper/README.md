@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月21日：一座承载历史的桥
+#### 塞纳河，巴黎，法国（© StockByM/Getty Images）
+
+![一座承载历史的桥](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_800x480.jpg&rf=LaDigue_800x480.jpg "一座承载历史的桥")
+
+塞纳河流经法国巴黎，对这座古城的历史有着非比寻常的意义。公元前3世纪，一个名为帕里西人的凯尔特部落决定定居在塞纳河两岸之间的一座岛屿，即如今的西岱岛。在接下来的数个世纪里，塞纳河在巴黎发展成为全球商业和文化中心的过程中发挥了重要作用。
+
+这条河是许多著名印象派画作的主题，包括莫奈的《拉格勒努耶尔浴池》和雷诺阿的《阿斯涅尔的塞纳河》。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a1%9e%e7%ba%b3%e6%b2%b3&form=hpcapt&filters=HpDate:"20230520_1600" "Bing Wallpaper 2023 5月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230521_PontdArcole"&FORM=HPQUIZ "必应主页测验 2023 5月 21")
+[下载480](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_800x480.jpg&rf=LaDigue_800x480.jpg "塞纳河，巴黎，法国")
+[下载720](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞纳河，巴黎，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞纳河，巴黎，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_UHD.jpg&rf=LaDigue_UHD.jpg "塞纳河，巴黎，法国")
+
+---
 ### 05月20日：一片蜂群
 #### 谢菲尔德的欧洲蜜蜂, 英格兰（© Deborah Vernon/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_1280x720.jpg&rf=LaDigue_1280x720.jpg "海豹幼崽，伦迪岛，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海豹幼崽，伦迪岛，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_UHD.jpg&rf=LaDigue_UHD.jpg "海豹幼崽，伦迪岛，英国")
-
----
-### 05月06日：一片花田
-#### 大麦和矢车菊, 诺德豪森, 德国（© Mandy Tabatt/Getty Images）
-
-![一片花田](https://cn.bing.com/th?id=OHR.Kornblume_ZH-CN0344238832_800x480.jpg&rf=LaDigue_800x480.jpg "一片花田")
-
-春天久盼终至，今天是种花日，让我们在今天种下一株花吧！种花不仅对我们的身心健康都有好处，也有益于地球。度过了漫长、寒冷又沉郁的冬季之后，开启一年中最美丽的季节之一的方式，非种花莫属！
-
-矢车菊经常长在麦田里，所以它的英文名也叫“cornflower”（麦田花）。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%9f%a2%e8%bd%a6%e8%8f%8a&form=hpcapt&filters=HpDate:"20230505_1600" "Bing Wallpaper 2023 5月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230506_Kornblume"&FORM=HPQUIZ "必应主页测验 2023 5月 6")
-[下载480](https://cn.bing.com/th?id=OHR.Kornblume_ZH-CN0344238832_800x480.jpg&rf=LaDigue_800x480.jpg "大麦和矢车菊, 诺德豪森, 德国")
-[下载720](https://cn.bing.com/th?id=OHR.Kornblume_ZH-CN0344238832_1280x720.jpg&rf=LaDigue_1280x720.jpg "大麦和矢车菊, 诺德豪森, 德国")
-[下载1080](https://cn.bing.com/th?id=OHR.Kornblume_ZH-CN0344238832_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大麦和矢车菊, 诺德豪森, 德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.Kornblume_ZH-CN0344238832_UHD.jpg&rf=LaDigue_UHD.jpg "大麦和矢车菊, 诺德豪森, 德国")
 
 ---
