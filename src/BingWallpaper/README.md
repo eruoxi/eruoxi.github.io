@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月22日：为了每个人，保护地球的生物多样性
+#### 阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加（© Kevin Wells/Getty Images）
+
+![为了每个人，保护地球的生物多样性](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_800x480.jpg&rf=LaDigue_800x480.jpg "为了每个人，保护地球的生物多样性")
+
+今天是世界生物多样性日，也是个回顾生物多样性在人类历史发展和续存过程中的关键作用的机会。从细菌、基因到整个生态系统，生物多样性囊括所有形式的生命，包括珊瑚礁、雨林和海洋环境等。我们的水、食物、药品、衣服、住所和能源都依赖于健康的生态系统。
+
+阿雷纳尔是哥斯达黎加所有火山中最年轻、最活跃的一座。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%93%a5%e6%96%af%e8%be%be%e9%bb%8e%e5%8a%a0+%e8%92%99%e6%b3%b0%e9%9f%a6%e5%b0%94%e5%be%b7&form=hpcapt&filters=HpDate:"20230521_1600" "Bing Wallpaper 2023 5月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230522_BiodiverseCostaRica"&FORM=HPQUIZ "必应主页测验 2023 5月 22")
+[下载480](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_800x480.jpg&rf=LaDigue_800x480.jpg "阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加")
+[下载720](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加")
+[下载1080](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加")
+[下载UHD](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_UHD.jpg&rf=LaDigue_UHD.jpg "阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加")
+
+---
 ### 05月21日：一座承载历史的桥
 #### 塞纳河，巴黎，法国（© StockByM/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_1280x720.jpg&rf=LaDigue_1280x720.jpg "精致拱门，拱门国家公园，犹他州")
 [下载1080](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "精致拱门，拱门国家公园，犹他州")
 [下载UHD](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_UHD.jpg&rf=LaDigue_UHD.jpg "精致拱门，拱门国家公园，犹他州")
-
----
-### 05月07日：什么事这么好笑？
-#### 海豹幼崽，伦迪岛，英国（© Henley Spiers/Minden Pictures）
-
-![什么事这么好笑？](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_800x480.jpg&rf=LaDigue_800x480.jpg "什么事这么好笑？")
-
-每年5月的第一个星期日是世界爱笑日。设立这个节日的目的是让大家更了解笑对身心健康的好处。今天这张灰色小海豹咧嘴大笑的图片就很好地展示了什么叫做开怀大笑。一些研究表明，笑可以提升免疫力，改善情绪，并减轻疼痛。事实证明，“笑是最好的良药”这句古谚确为不易之论。
-
-笑能降血压，进而降低人们心脏病发或中风的风险。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%81%b0%e6%b5%b7%e8%b1%b9&form=hpcapt&filters=HpDate:"20230506_1600" "Bing Wallpaper 2023 5月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230507_SealLaughing"&FORM=HPQUIZ "必应主页测验 2023 5月 7")
-[下载480](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_800x480.jpg&rf=LaDigue_800x480.jpg "海豹幼崽，伦迪岛，英国")
-[下载720](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_1280x720.jpg&rf=LaDigue_1280x720.jpg "海豹幼崽，伦迪岛，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海豹幼崽，伦迪岛，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_UHD.jpg&rf=LaDigue_UHD.jpg "海豹幼崽，伦迪岛，英国")
 
 ---
