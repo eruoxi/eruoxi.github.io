@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月24日：历史在这里复活
+#### 科孚岛旧城堡（© Netfalls Remy Musser/Shutterstock）
+
+![历史在这里复活](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_800x480.jpg&rf=LaDigue_800x480.jpg "历史在这里复活")
+
+希腊科孚岛的旧城堡矗立在半岛的尖端，现在是科孚公共图书馆和档案馆的所在地。这座城堡历史悠久，可以追溯到拜占庭时期。6世纪，入侵者袭击了科孚，促使幸存者建造了一个被城堡包围的新村庄。后来在威尼斯统治期间，城堡又经历了加固改建，以抵御奥斯曼军队的侵扰。数个世纪以来，这座希腊地标见证了当地的巨大变化以及几个帝国的兴衰。
+
+城堡内设有科孚公共图书馆，位于英国人早年建造的军营内。城堡还会举行一些艺术和文化展览。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e5%ad%9a%e5%b2%9b%e6%97%a7%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20230523_1600" "Bing Wallpaper 2023 5月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230524_OldFortress"&FORM=HPQUIZ "必应主页测验 2023 5月 24")
+[下载480](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_800x480.jpg&rf=LaDigue_800x480.jpg "科孚岛旧城堡")
+[下载720](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_1280x720.jpg&rf=LaDigue_1280x720.jpg "科孚岛旧城堡")
+[下载1080](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科孚岛旧城堡")
+[下载UHD](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_UHD.jpg&rf=LaDigue_UHD.jpg "科孚岛旧城堡")
+
+---
 ### 05月23日：保护我们的乌龟
 #### 西部箱龟（© Tim Fitzharris/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CordouanLighthouse_ZH-CN6267155218_1280x720.jpg&rf=LaDigue_1280x720.jpg "科尔杜昂灯塔，罗扬市，夏朗德省，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.CordouanLighthouse_ZH-CN6267155218_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科尔杜昂灯塔，罗扬市，夏朗德省，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CordouanLighthouse_ZH-CN6267155218_UHD.jpg&rf=LaDigue_UHD.jpg "科尔杜昂灯塔，罗扬市，夏朗德省，法国")
-
----
-### 05月09日：天堂的一角
-#### 卡韦希环礁，土阿莫土群岛，法属波利尼西亚（© WaterFrame/Alamy）
-
-![天堂的一角](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_800x480.jpg&rf=LaDigue_800x480.jpg "天堂的一角")
-
-卡韦希环礁是法属波利尼西亚的土阿莫土群岛的一个珊瑚环礁。它距离塔希提岛450公里，面积非常小，长24公里，宽18公里，人口约200人。岛上的居民主要以干椰子肉为生。
-
-虽然此前卡韦希环礁可能已被珍珠商人所熟知，但有记载的第一位访问该环礁的欧洲人是“比格尔号”的船长罗伯特·菲茨罗伊，他于1835年发现并测绘了卡韦希环礁。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e9%9f%a6%e5%b8%8c%e7%8e%af%e7%a4%81&form=hpcapt&filters=HpDate:"20230508_1600" "Bing Wallpaper 2023 5月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230509_Atoll"&FORM=HPQUIZ "必应主页测验 2023 5月 9")
-[下载480](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_800x480.jpg&rf=LaDigue_800x480.jpg "卡韦希环礁，土阿莫土群岛，法属波利尼西亚")
-[下载720](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡韦希环礁，土阿莫土群岛，法属波利尼西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡韦希环礁，土阿莫土群岛，法属波利尼西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_UHD.jpg&rf=LaDigue_UHD.jpg "卡韦希环礁，土阿莫土群岛，法属波利尼西亚")
 
 ---
