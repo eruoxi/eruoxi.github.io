@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月26日：在废墟中寻找美
+#### 西沙瓦寺，素可泰历史公园，泰国（© Casper1774 Studio/Shutterstock）
+
+![在废墟中寻找美](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_800x480.jpg&rf=LaDigue_800x480.jpg "在废墟中寻找美")
+
+历史悠久的素可泰镇是古代重要的大都市中心，也是泰国最迷人的目的地之一。素可泰（Sukhothai）意为“幸福的黎明”，是繁荣社区和建筑技艺完美融合的典范。历史公园周围环绕着湖泊、草坪和郁郁葱葱的树木。公园里有一座古代宫殿和26座雄伟寺庙的遗迹，包括今天这张照片中的西沙瓦寺。这座寺庙是公园的主要景点之一，融合了华富里的建筑设计和印度教的风格。素可泰镇及其周围建筑被联合国教科文组织列为世界遗产。如果你想体验泰国丰富的文化，那就去素可泰历史公园吧。
+
+这座佛教圣地（可追溯至 12 和 13 世纪）位于玛哈泰寺以南，拥有三座高棉风格的塔楼和一条风景如画的护城河。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%b0%e5%9b%bd%e8%a5%bf%e6%b2%99%e7%93%a6%e5%af%ba&form=hpcapt&filters=HpDate:"20230525_1600" "Bing Wallpaper 2023 5月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230526_WatSriSawai"&FORM=HPQUIZ "必应主页测验 2023 5月 26")
+[下载480](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_800x480.jpg&rf=LaDigue_800x480.jpg "西沙瓦寺，素可泰历史公园，泰国")
+[下载720](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_1280x720.jpg&rf=LaDigue_1280x720.jpg "西沙瓦寺，素可泰历史公园，泰国")
+[下载1080](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西沙瓦寺，素可泰历史公园，泰国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_UHD.jpg&rf=LaDigue_UHD.jpg "西沙瓦寺，素可泰历史公园，泰国")
+
+---
 ### 05月25日：童话照进现实
 #### 法罗群岛，丹麦（© miroslav_1/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WildLupine_ZH-CN6623952879_1280x720.jpg&rf=LaDigue_1280x720.jpg "紫色和蓝色的野生羽扇豆")
 [下载1080](https://cn.bing.com/th?id=OHR.WildLupine_ZH-CN6623952879_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "紫色和蓝色的野生羽扇豆")
 [下载UHD](https://cn.bing.com/th?id=OHR.WildLupine_ZH-CN6623952879_UHD.jpg&rf=LaDigue_UHD.jpg "紫色和蓝色的野生羽扇豆")
-
----
-### 05月11日：这个体育场建在你意想不到的地方
-#### 亨宁斯韦尔体育场，挪威（© Morten Falch Sortland/Getty Images）
-
-![这个体育场建在你意想不到的地方](https://cn.bing.com/th?id=OHR.FootballField_ZH-CN6439594719_800x480.jpg&rf=LaDigue_800x480.jpg "这个体育场建在你意想不到的地方")
-
-如果你想同时欣赏一场有趣的足球比赛和挪威海壮丽的美景，那么挪威的亨宁斯韦尔足球场就是你的目的地。这座球场坐落在一个只有几百人的小渔村里，在其广阔的绿地上，你可能永远看不到一场欧冠联赛，球场内甚至没有观众看台，但它仍然是世界上最引人注目的足球场之一。亨宁斯韦尔足球场位于一个小岛之上，被裸露的岩石和湛蓝的海水包围，在这里看球会是一种永生难忘的梦幻体验。
-
-亨宁斯韦尔体育场位于北极圈内，被认为是世界上最美丽的足球场之一，可以俯瞰湛蓝的挪威海。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%ba%a8%e5%ae%81%e6%96%af%e9%9f%a6%e5%b0%94%e4%bd%93%e8%82%b2%e5%9c%ba&form=hpcapt&filters=HpDate:"20230510_1600" "Bing Wallpaper 2023 5月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230511_FootballField"&FORM=HPQUIZ "必应主页测验 2023 5月 11")
-[下载480](https://cn.bing.com/th?id=OHR.FootballField_ZH-CN6439594719_800x480.jpg&rf=LaDigue_800x480.jpg "亨宁斯韦尔体育场，挪威")
-[下载720](https://cn.bing.com/th?id=OHR.FootballField_ZH-CN6439594719_1280x720.jpg&rf=LaDigue_1280x720.jpg "亨宁斯韦尔体育场，挪威")
-[下载1080](https://cn.bing.com/th?id=OHR.FootballField_ZH-CN6439594719_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亨宁斯韦尔体育场，挪威")
-[下载UHD](https://cn.bing.com/th?id=OHR.FootballField_ZH-CN6439594719_UHD.jpg&rf=LaDigue_UHD.jpg "亨宁斯韦尔体育场，挪威")
 
 ---
