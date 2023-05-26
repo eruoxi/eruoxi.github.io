@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月27日：伸向天空
+#### 纳米比亚的植物（© Fotofeeling/DEEPOL by plainpicture）
+
+![伸向天空](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_800x480.jpg&rf=LaDigue_800x480.jpg "伸向天空")
+
+箭袋树是一种罕见的植物，生长于气候恶劣干旱的纳米比亚。有趣的是，箭袋树其实根本不是树，而是一种高度濒危的芦荟植物，属于多肉植物。当地土著桑人会将箭袋树的枝干掏空，做成箭袋在狩猎时使用，故名箭袋树。如果你在纳米比亚的冬季（5月到7月）参观箭袋树森林，就能欣赏到这些独特的植物开出鲜黄的花朵。
+
+箭袋树被土著桑人称为“choje”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ae%ad%e8%a2%8b%e6%a0%91&form=hpcapt&filters=HpDate:"20230526_1600" "Bing Wallpaper 2023 5月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230527_AloeDichotomum"&FORM=HPQUIZ "必应主页测验 2023 5月 27")
+[下载480](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_800x480.jpg&rf=LaDigue_800x480.jpg "纳米比亚的植物")
+[下载720](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_1280x720.jpg&rf=LaDigue_1280x720.jpg "纳米比亚的植物")
+[下载1080](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳米比亚的植物")
+[下载UHD](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_UHD.jpg&rf=LaDigue_UHD.jpg "纳米比亚的植物")
+
+---
 ### 05月26日：在废墟中寻找美
 #### 西沙瓦寺，素可泰历史公园，泰国（© Casper1774 Studio/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_1280x720.jpg&rf=LaDigue_1280x720.jpg "曼海姆水塔，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼海姆水塔，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_UHD.jpg&rf=LaDigue_UHD.jpg "曼海姆水塔，德国")
-
----
-### 05月12日：蝴蝶最好的朋友
-#### 紫色和蓝色的野生羽扇豆（© silverjohn/Getty Images Plus）
-
-![蝴蝶最好的朋友](https://cn.bing.com/th?id=OHR.WildLupine_ZH-CN6623952879_800x480.jpg&rf=LaDigue_800x480.jpg "蝴蝶最好的朋友")
-
-野生羽扇豆，俗称鲁冰花，是最美丽的一年生草本植物之一。羽扇豆于早春或初夏开放，花朵通常呈蓝色、粉色或紫色，当它们在草地和路边尽情绽放时，即使是最平凡的风景也变得亮眼起来。野生羽扇豆也是卡纳蓝蝴蝶用来保护卵的唯一一种植物，卡纳蓝蝴蝶的幼虫孵化后就以羽扇豆的叶子为食。
-
-在18世纪末，羽扇豆被引入北欧用于改善土壤。到了19世纪60年代，黄花羽扇豆在波罗的海沿岸平原已经随处可见了。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%87%8e%e7%94%9f%e7%be%bd%e6%89%87%e8%b1%86&form=hpcapt&filters=HpDate:"20230511_1600" "Bing Wallpaper 2023 5月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230512_WildLupine"&FORM=HPQUIZ "必应主页测验 2023 5月 12")
-[下载480](https://cn.bing.com/th?id=OHR.WildLupine_ZH-CN6623952879_800x480.jpg&rf=LaDigue_800x480.jpg "紫色和蓝色的野生羽扇豆")
-[下载720](https://cn.bing.com/th?id=OHR.WildLupine_ZH-CN6623952879_1280x720.jpg&rf=LaDigue_1280x720.jpg "紫色和蓝色的野生羽扇豆")
-[下载1080](https://cn.bing.com/th?id=OHR.WildLupine_ZH-CN6623952879_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "紫色和蓝色的野生羽扇豆")
-[下载UHD](https://cn.bing.com/th?id=OHR.WildLupine_ZH-CN6623952879_UHD.jpg&rf=LaDigue_UHD.jpg "紫色和蓝色的野生羽扇豆")
 
 ---
