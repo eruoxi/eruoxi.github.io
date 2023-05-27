@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月28日：俯瞰层叠的梯田
+#### 乌布的德格拉朗梯田，印度尼西亚（© Cavan Images/Adobe Stock）
+
+![俯瞰层叠的梯田](https://cn.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_800x480.jpg&rf=LaDigue_800x480.jpg "俯瞰层叠的梯田")
+
+稻米在巴厘岛文化中扮演着重要角色，特加拉朗梯田是巴厘岛最著名的稻田之一。德格拉朗梯田利用独特的供水系统进行水稻种植，优化了水的配置及使用。传统的巴厘岛灌溉系统，被称为苏巴克（Subak），效率极高，目前已被联合国教科文组织列为世界遗产。从空中俯瞰特加拉朗梯田，田野风光令人惊叹。如果你要去巴厘岛，一定要去特加拉朗梯田看看。
+
+德格拉朗梯田位于巴厘岛的乌布市，面积61.8平方公里，人口53760人。层叠的梯田是该地区著名的旅游景点。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%b0%e5%ba%a6%e5%b0%bc%e8%a5%bf%e4%ba%9a%e4%b9%8c%e5%b8%83&form=hpcapt&filters=HpDate:"20230527_1600" "Bing Wallpaper 2023 5月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230528_TegallalangTerrace"&FORM=HPQUIZ "必应主页测验 2023 5月 28")
+[下载480](https://cn.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_800x480.jpg&rf=LaDigue_800x480.jpg "乌布的德格拉朗梯田，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌布的德格拉朗梯田，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌布的德格拉朗梯田，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_UHD.jpg&rf=LaDigue_UHD.jpg "乌布的德格拉朗梯田，印度尼西亚")
+
+---
 ### 05月27日：伸向天空
 #### 纳米比亚的植物（© Fotofeeling/DEEPOL by plainpicture）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OdocoileusVirginianus_ZH-CN6941501455_1280x720.jpg&rf=LaDigue_1280x720.jpg "白尾鹿母鹿和刚出生的小鹿，美国蒙大拿州")
 [下载1080](https://cn.bing.com/th?id=OHR.OdocoileusVirginianus_ZH-CN6941501455_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "白尾鹿母鹿和刚出生的小鹿，美国蒙大拿州")
 [下载UHD](https://cn.bing.com/th?id=OHR.OdocoileusVirginianus_ZH-CN6941501455_UHD.jpg&rf=LaDigue_UHD.jpg "白尾鹿母鹿和刚出生的小鹿，美国蒙大拿州")
-
----
-### 05月13日：供水系统的历史
-#### 曼海姆水塔，德国（© tichr/Getty Images）
-
-![供水系统的历史](https://cn.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_800x480.jpg&rf=LaDigue_800x480.jpg "供水系统的历史")
-
-曼海姆水塔是德国曼海姆的一座有名的地标建筑。这座水塔位于腓特烈广场，建于1886年至1889年之间，高60米，直径19米，是曼海姆的第一座城市水塔。
-
-曼海姆水塔是曼海姆的第一座城市水塔。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9b%bc%e6%b5%b7%e5%a7%86%e5%b8%82&form=hpcapt&filters=HpDate:"20230512_1600" "Bing Wallpaper 2023 5月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230513_Mannheim"&FORM=HPQUIZ "必应主页测验 2023 5月 13")
-[下载480](https://cn.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_800x480.jpg&rf=LaDigue_800x480.jpg "曼海姆水塔，德国")
-[下载720](https://cn.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_1280x720.jpg&rf=LaDigue_1280x720.jpg "曼海姆水塔，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼海姆水塔，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_UHD.jpg&rf=LaDigue_UHD.jpg "曼海姆水塔，德国")
 
 ---
