@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月30日：墨西哥的隐秘海滩
+#### 埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥（© ferrantraite/Getty Images）
+
+![墨西哥的隐秘海滩](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_800x480.jpg&rf=LaDigue_800x480.jpg "墨西哥的隐秘海滩")
+
+这张绝美的照片是在埃莫海滩拍摄的，这里又被称为“隐秘海滩”，位于墨西哥巴亚尔塔港西北处的偏远海岛，这里以其纯净的美景和独特的地貌而闻名。这处海滩只能通过一个自然侵蚀形成的隧道到达。沙滩和周围的岩壁组成了一个仰望天空的天窗，碧蓝的天空、绿松石色的海水、长满鲜花的崖壁相互映衬，景色独一无二。埃莫海滩又称“爱情海滩”，已经是一个热门的旅游目的地，但是为了保护这里的自然风景和生态环境，当地限制了游客数量。
+
+埃莫海滩位于一个开放的洒满阳光的环形山中，只有在退潮的时候才能进入，也被称为“隐秘海滩”或者“爱情海滩”。这个特殊的地质构造是20世纪00年代的炸弹爆炸和后续的自然侵蚀形成的。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8e%9b%e4%b8%bd%e5%9f%83%e5%a1%94%e6%96%af%e7%be%a4%e5%b2%9b%e5%9f%83%e8%8e%ab%e6%b5%b7%e6%bb%a9&form=hpcapt&filters=HpDate:"20230529_1600" "Bing Wallpaper 2023 5月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230530_HiddenBeach"&FORM=HPQUIZ "必应主页测验 2023 5月 30")
+[下载480](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_800x480.jpg&rf=LaDigue_800x480.jpg "埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥")
+[下载720](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥")
+[下载1080](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥")
+[下载UHD](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_UHD.jpg&rf=LaDigue_UHD.jpg "埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥")
+
+---
 ### 05月29日：人间天堂
 #### 萨克马兰大湾，瓜德罗普岛国家公园，小安的列斯群岛（© Hemis/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AmericanWetlands_ZH-CN7534567518_1280x720.jpg&rf=LaDigue_1280x720.jpg "在奥克弗诺基国家野生动物保护区划独木舟")
 [下载1080](https://cn.bing.com/th?id=OHR.AmericanWetlands_ZH-CN7534567518_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在奥克弗诺基国家野生动物保护区划独木舟")
 [下载UHD](https://cn.bing.com/th?id=OHR.AmericanWetlands_ZH-CN7534567518_UHD.jpg&rf=LaDigue_UHD.jpg "在奥克弗诺基国家野生动物保护区划独木舟")
-
----
-### 05月15日：文化交汇的岛屿
-#### 莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛（© Gavin Hellier/Getty Images）
-
-![文化交汇的岛屿](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_800x480.jpg&rf=LaDigue_800x480.jpg "文化交汇的岛屿")
-
-数千年的时光里，加那利群岛一直是各种文化的交汇地。早在公元前40年，这片火山群岛就引起了罗马人的兴趣；999年，阿拉伯商人又来到了这里。几百年间，热那亚、马略卡、葡萄牙和法国的殖民者也纷至沓来。这里的农业种植历史悠久，香蕉、番茄及土豆是主要农作物。如今，加纳利群岛是西班牙的一部分。最初的航海者来这里寻找贸易机会，而如今的游客来这里探索国家公园、躺在沙滩上放松、以及欣赏壮丽的落日。
-
-在大航海时代，这些岛屿是西班牙殖民美洲的行程中主要的船舶停靠点。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e9%82%a3%e5%88%a9%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20230514_1600" "Bing Wallpaper 2023 5月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230515_MorroJable"&FORM=HPQUIZ "必应主页测验 2023 5月 15")
-[下载480](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_800x480.jpg&rf=LaDigue_800x480.jpg "莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛")
-[下载720](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_1280x720.jpg&rf=LaDigue_1280x720.jpg "莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛")
-[下载1080](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_UHD.jpg&rf=LaDigue_UHD.jpg "莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛")
 
 ---
