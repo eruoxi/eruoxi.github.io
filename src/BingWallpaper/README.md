@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月01日：一望无际的湛蓝
+#### 大堡礁的航拍图，澳大利亚（© AirPano LLC/Amazing Aerial Agency）
+
+![一望无际的湛蓝](https://cn.bing.com/th?id=OHR.ReefAwareness_ZH-CN8840949729_800x480.jpg&rf=LaDigue_800x480.jpg "一望无际的湛蓝")
+
+澳大利亚的大堡礁是世界上最大的珊瑚礁，沿澳大利亚海岸蔓延1430英里。许多海洋生物生活在这个珊瑚礁生态系统中，包括鲸鱼、海豚、海龟以及1500多种鱼类。遗憾的是，这处世界自然遗产正受到气候变化、污染和过度捕捞的威胁。每年的六月一日是世界珊瑚礁日，旨在让人们意识到海洋珊瑚礁系统的脆弱性和重要性，提醒我们每一个人、每一个组织和企业保护这些宝藏、维持自然的平衡。
+
+大堡礁岛上有215种鸟类在此筑巢或栖息。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e5%a0%a1%e7%a4%81&form=hpcapt&filters=HpDate:"20230531_1600" "Bing Wallpaper 2023 6月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230601_ReefAwareness"&FORM=HPQUIZ "必应主页测验 2023 6月 1")
+[下载480](https://cn.bing.com/th?id=OHR.ReefAwareness_ZH-CN8840949729_800x480.jpg&rf=LaDigue_800x480.jpg "大堡礁的航拍图，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.ReefAwareness_ZH-CN8840949729_1280x720.jpg&rf=LaDigue_1280x720.jpg "大堡礁的航拍图，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.ReefAwareness_ZH-CN8840949729_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大堡礁的航拍图，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.ReefAwareness_ZH-CN8840949729_UHD.jpg&rf=LaDigue_UHD.jpg "大堡礁的航拍图，澳大利亚")
+
+---
 ### 05月31日：一脸好奇的海獭宝宝
 #### 海獭宝宝，威廉王子湾，美国阿拉斯加州（© Donald M. Jones/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_1280x720.jpg&rf=LaDigue_1280x720.jpg "拉曼加，穆尔西亚，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拉曼加，穆尔西亚，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_UHD.jpg&rf=LaDigue_UHD.jpg "拉曼加，穆尔西亚，西班牙")
-
----
-### 05月17日：通往太平洋之窗
-#### 加利福尼亚州圣克鲁斯的天然桥州立公园（© Jim Patterson/Tandem Stills + Motion）
-
-![通往太平洋之窗](https://cn.bing.com/th?id=OHR.CormorantBridge_ZH-CN7673299694_800x480.jpg&rf=LaDigue_800x480.jpg "通往太平洋之窗")
-
-天然桥州立公园位于美国加利福尼亚州的圣克鲁斯市。初期，这里有三座海水侵蚀而成的拱桥，其中一座于1905年倒塌，后来又有一座于1980年倒塌，剩下我们如今看到的这座拱桥。然而，海浪的侵蚀是无情的，因此仅剩的这座拱桥最终也会倒塌。除了拱桥，这个公园还有君主斑蝶，因此也吸引了不少游客。
-
-这座公园，对于观赏岸边鸟类、迁徙的鲸鱼，以及在海岸嬉戏的海豹和海獭来说，是绝佳观测点。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a9%e7%84%b6%e6%a1%a5%e5%b7%9e%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230516_1600" "Bing Wallpaper 2023 5月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230517_CormorantBridge"&FORM=HPQUIZ "必应主页测验 2023 5月 17")
-[下载480](https://cn.bing.com/th?id=OHR.CormorantBridge_ZH-CN7673299694_800x480.jpg&rf=LaDigue_800x480.jpg "加利福尼亚州圣克鲁斯的天然桥州立公园")
-[下载720](https://cn.bing.com/th?id=OHR.CormorantBridge_ZH-CN7673299694_1280x720.jpg&rf=LaDigue_1280x720.jpg "加利福尼亚州圣克鲁斯的天然桥州立公园")
-[下载1080](https://cn.bing.com/th?id=OHR.CormorantBridge_ZH-CN7673299694_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加利福尼亚州圣克鲁斯的天然桥州立公园")
-[下载UHD](https://cn.bing.com/th?id=OHR.CormorantBridge_ZH-CN7673299694_UHD.jpg&rf=LaDigue_UHD.jpg "加利福尼亚州圣克鲁斯的天然桥州立公园")
 
 ---
