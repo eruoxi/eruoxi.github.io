@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月02日：被沙海包围
+#### 沙丘中的南非剑羚，纳米比亚（© Sergey Gorshkov/Alamy）
+
+![被沙海包围](https://cn.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_800x480.jpg&rf=LaDigue_800x480.jpg "被沙海包围")
+
+“生命总会找到出路。”虽然《侏罗纪公园》中的马尔科姆博士是在谈论恐龙繁殖，但这句话也适用于生命如何在地球上最恶劣的环境中存活。极端生物是一种可以生活在极端环境下的生物，包括高温、低温或其他超出生命所能适应的条件。例如，在寒冷的北极地区，企鹅和北极熊可以生存；在炎热的沙漠中，骆驼可以不喝一滴水存活几个月；在高酸高温高压的海洋环境中，海洋微生物依然可以茁壮成长。
+
+纳米比亚的南非剑羚，也称为大羚羊，是生活在南非干旱地区的本地动物。照片中的这只羚羊不需要直接喝水生存，而是从所吃的植物中获取水分。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%97%e9%9d%9e%e5%89%91%e7%be%9a&form=hpcapt&filters=HpDate:"20230601_1600" "Bing Wallpaper 2023 6月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230602_GemsbokNamibia"&FORM=HPQUIZ "必应主页测验 2023 6月 2")
+[下载480](https://cn.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_800x480.jpg&rf=LaDigue_800x480.jpg "沙丘中的南非剑羚，纳米比亚")
+[下载720](https://cn.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_1280x720.jpg&rf=LaDigue_1280x720.jpg "沙丘中的南非剑羚，纳米比亚")
+[下载1080](https://cn.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙丘中的南非剑羚，纳米比亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_UHD.jpg&rf=LaDigue_UHD.jpg "沙丘中的南非剑羚，纳米比亚")
+
+---
 ### 06月01日：一望无际的湛蓝
 #### 大堡礁的航拍图，澳大利亚（© AirPano LLC/Amazing Aerial Agency）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_1280x720.jpg&rf=LaDigue_1280x720.jpg "苏门答腊犀牛，韦卡巴斯国家公园，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "苏门答腊犀牛，韦卡巴斯国家公园，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_UHD.jpg&rf=LaDigue_UHD.jpg "苏门答腊犀牛，韦卡巴斯国家公园，印度尼西亚")
-
----
-### 05月18日：准备好欢庆吧！
-#### 拉曼加，穆尔西亚，西班牙（© SOMATUSCANI/Getty Images）
-
-![准备好欢庆吧！](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_800x480.jpg&rf=LaDigue_800x480.jpg "准备好欢庆吧！")
-
-拉曼加是一个西班牙小镇，位于伊比利亚半岛的东南部。镇上不仅风景优美，还有公园、竞技场、海滩等等。
-
-拉曼加有五座岛屿，水域条件优越，是一个热门的水上运动目的地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e7%a9%86%e5%b0%94%e8%a5%bf%e4%ba%9a&form=hpcapt&filters=HpDate:"20230517_1600" "Bing Wallpaper 2023 5月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230518_SardineBurial"&FORM=HPQUIZ "必应主页测验 2023 5月 18")
-[下载480](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_800x480.jpg&rf=LaDigue_800x480.jpg "拉曼加，穆尔西亚，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_1280x720.jpg&rf=LaDigue_1280x720.jpg "拉曼加，穆尔西亚，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拉曼加，穆尔西亚，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_UHD.jpg&rf=LaDigue_UHD.jpg "拉曼加，穆尔西亚，西班牙")
 
 ---
