@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月03日：一睹最壮观的峡谷
+#### 大峡谷国家公园的南凯巴布步道，亚利桑那州，美国（© Roman Khomlyak/Getty Images）
+
+![一睹最壮观的峡谷](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_800x480.jpg&rf=LaDigue_800x480.jpg "一睹最壮观的峡谷")
+
+今天是美国国家步道日，也是远足的最佳时机，也提醒大家要保护远足路线，让每个人都能享受这份快乐。想找个绝佳的地方活动活动吗？今天照片里位于大峡谷的南凯巴布步道就是个好去处。这条路线从被称为“烟囱”的急转弯开始，通向一个陡峭狭窄的下坡路，等待你的将是一次令人振奋的旅程。新鲜空气和运动可以改善你的情绪和睡眠，增强体力和耐力，并降低患心脏病的风险。此外，环境的变化还可以激发创造力，启发新思路。
+
+由于沿途非常陡峭，并且缺乏树荫和饮用水（除了起点），南凯巴布步道比光明天使步道更艰险，但沿途的风景也更加壮丽。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e5%b3%a1%e8%b0%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230602_1600" "Bing Wallpaper 2023 6月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230603_SouthKaibabTrail"&FORM=HPQUIZ "必应主页测验 2023 6月 3")
+[下载480](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_800x480.jpg&rf=LaDigue_800x480.jpg "大峡谷国家公园的南凯巴布步道，亚利桑那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_1280x720.jpg&rf=LaDigue_1280x720.jpg "大峡谷国家公园的南凯巴布步道，亚利桑那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大峡谷国家公园的南凯巴布步道，亚利桑那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_UHD.jpg&rf=LaDigue_UHD.jpg "大峡谷国家公园的南凯巴布步道，亚利桑那州，美国")
+
+---
 ### 06月02日：被沙海包围
 #### 沙丘中的南非剑羚，纳米比亚（© Sergey Gorshkov/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EuropeanHoneybee_ZH-CN5191293837_1280x720.jpg&rf=LaDigue_1280x720.jpg "谢菲尔德的欧洲蜜蜂, 英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.EuropeanHoneybee_ZH-CN5191293837_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "谢菲尔德的欧洲蜜蜂, 英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.EuropeanHoneybee_ZH-CN5191293837_UHD.jpg&rf=LaDigue_UHD.jpg "谢菲尔德的欧洲蜜蜂, 英格兰")
-
----
-### 05月19日：我们怎么才能帮助濒危动物？
-#### 苏门答腊犀牛，韦卡巴斯国家公园，印度尼西亚（© Cyril Ruoso/Minden Pictures）
-
-![我们怎么才能帮助濒危动物？](https://cn.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_800x480.jpg&rf=LaDigue_800x480.jpg "我们怎么才能帮助濒危动物？")
-
-随着自然栖息地的减少和消失，成千上万的物种面临着灭绝的危险，图中的苏门答腊犀牛亦是如此。伐木业和狩猎业使得它们生存受到威胁，被列为国际自然保护联盟濒危物种红色名录的极危物种。苏门答腊犀牛曾经遍布东南亚，现今其野生数量仅不到100只。
-
-苏门答腊犀牛浑身覆盖着长长的毛。与现存的其他所有犀牛物种相比，它们与已灭绝的批毛犀亲缘关系更近。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8b%8f%e9%97%a8%e7%ad%94%e8%85%8a%e7%8a%80%e7%89%9b&form=hpcapt&filters=HpDate:"20230518_1600" "Bing Wallpaper 2023 5月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230519_SumatranRhino"&FORM=HPQUIZ "必应主页测验 2023 5月 19")
-[下载480](https://cn.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_800x480.jpg&rf=LaDigue_800x480.jpg "苏门答腊犀牛，韦卡巴斯国家公园，印度尼西亚")
-[下载720](https://cn.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_1280x720.jpg&rf=LaDigue_1280x720.jpg "苏门答腊犀牛，韦卡巴斯国家公园，印度尼西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "苏门答腊犀牛，韦卡巴斯国家公园，印度尼西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_UHD.jpg&rf=LaDigue_UHD.jpg "苏门答腊犀牛，韦卡巴斯国家公园，印度尼西亚")
 
 ---
