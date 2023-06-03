@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月04日：热带天堂的黑沙滩
+#### 怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国（© Matt Anderson Photography/Getty Images）
+
+![热带天堂的黑沙滩](https://cn.bing.com/th?id=OHR.MauiBeach_ZH-CN1435658101_800x480.jpg&rf=LaDigue_800x480.jpg "热带天堂的黑沙滩")
+
+黑色沙滩通常是怎样形成的？有两种情况：第一种情况，海浪冲刷海滩时，深色的、较重的矿物质留了下来；第二种情况则发生在怀阿纳帕纳帕州立公园的这片沙滩，玄武岩（一种黑色的火山岩）被海浪侵蚀成细小的颗粒，形成了令人惊叹的黑色沙滩。你可以在茂宜岛东侧，哈纳之路的尽头找到这个海滩。类似的黑沙滩遍布世界各地，包括阿拉斯加、加利福尼亚、希腊、哥斯达黎加、意大利、冰岛、印度尼西亚和新西兰等地。
+
+怀阿纳帕纳帕（Waiʻanapanapa）在夏威夷语中的意思是“闪光的水”，指的是附近的淡水溪流和波光粼粼的水池。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%80%80%e9%98%bf%e7%ba%b3%e5%b8%95%e7%ba%b3%e5%b8%95%e5%b7%9e%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230603_1600" "Bing Wallpaper 2023 6月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230604_MauiBeach"&FORM=HPQUIZ "必应主页测验 2023 6月 4")
+[下载480](https://cn.bing.com/th?id=OHR.MauiBeach_ZH-CN1435658101_800x480.jpg&rf=LaDigue_800x480.jpg "怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MauiBeach_ZH-CN1435658101_1280x720.jpg&rf=LaDigue_1280x720.jpg "怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MauiBeach_ZH-CN1435658101_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MauiBeach_ZH-CN1435658101_UHD.jpg&rf=LaDigue_UHD.jpg "怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国")
+
+---
 ### 06月03日：一睹最壮观的峡谷
 #### 大峡谷国家公园的南凯巴布步道，亚利桑那州，美国（© Roman Khomlyak/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞纳河，巴黎，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞纳河，巴黎，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_UHD.jpg&rf=LaDigue_UHD.jpg "塞纳河，巴黎，法国")
-
----
-### 05月20日：一片蜂群
-#### 谢菲尔德的欧洲蜜蜂, 英格兰（© Deborah Vernon/Alamy）
-
-![一片蜂群](https://cn.bing.com/th?id=OHR.EuropeanHoneybee_ZH-CN5191293837_800x480.jpg&rf=LaDigue_800x480.jpg "一片蜂群")
-
-春日百花盛开时，你会听到蜜蜂在花丛间嗡嗡作响。世界蜜蜂日这一天正处于授粉高峰期，同时也是现代养蜂先驱者——斯洛文尼亚人安东·扬沙的生日。蜜蜂是授粉昆虫，因此它们对陆地生态系统至关重要。蜜蜂在觅食时收集花粉带回蜂巢，由此让花粉从一株植物传到另一株植物，帮助植物繁殖。我们107种农作物中，超9成都需要蜜蜂“照料”。所以“勤劳的蜜蜂”这一标签并非夸张，而是事实。但如今，世界范围内的蜜蜂数量已经减少。所以，今天就让我们减少使用杀虫剂、种植本地植物，让它们安心地“工作”吧。
-
-一只工蜂一辈子平均只能生产1/12茶匙的蜂蜜。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%9c%9c%e8%9c%82&form=hpcapt&filters=HpDate:"20230519_1600" "Bing Wallpaper 2023 5月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230520_EuropeanHoneybee"&FORM=HPQUIZ "必应主页测验 2023 5月 20")
-[下载480](https://cn.bing.com/th?id=OHR.EuropeanHoneybee_ZH-CN5191293837_800x480.jpg&rf=LaDigue_800x480.jpg "谢菲尔德的欧洲蜜蜂, 英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.EuropeanHoneybee_ZH-CN5191293837_1280x720.jpg&rf=LaDigue_1280x720.jpg "谢菲尔德的欧洲蜜蜂, 英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.EuropeanHoneybee_ZH-CN5191293837_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "谢菲尔德的欧洲蜜蜂, 英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.EuropeanHoneybee_ZH-CN5191293837_UHD.jpg&rf=LaDigue_UHD.jpg "谢菲尔德的欧洲蜜蜂, 英格兰")
 
 ---
