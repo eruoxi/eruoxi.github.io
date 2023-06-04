@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月05日：风景如画的瀑布
+#### 辛华达峡谷的瀑布，贾斯珀国家公园，加拿大（© Delpixart/Getty Images）
+
+![风景如画的瀑布](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_800x480.jpg&rf=LaDigue_800x480.jpg "风景如画的瀑布")
+
+辛华达瀑布位于加拿大艾伯塔省贾斯珀国家公园，落差约为18.5米。从著名的冰原大道下来，通过一条600米的通道便可到达该瀑布。
+
+贾斯珀国家公园于1984年被联合国教科文组织列为世界遗产。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%b4%be%e6%96%af%e7%8f%80%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230604_1600" "Bing Wallpaper 2023 6月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230605_WaterfallsSunwaptaValley"&FORM=HPQUIZ "必应主页测验 2023 6月 5")
+[下载480](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_800x480.jpg&rf=LaDigue_800x480.jpg "辛华达峡谷的瀑布，贾斯珀国家公园，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_1280x720.jpg&rf=LaDigue_1280x720.jpg "辛华达峡谷的瀑布，贾斯珀国家公园，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "辛华达峡谷的瀑布，贾斯珀国家公园，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_UHD.jpg&rf=LaDigue_UHD.jpg "辛华达峡谷的瀑布，贾斯珀国家公园，加拿大")
+
+---
 ### 06月04日：热带天堂的黑沙滩
 #### 怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国（© Matt Anderson Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加")
 [下载1080](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加")
 [下载UHD](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_UHD.jpg&rf=LaDigue_UHD.jpg "阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加")
-
----
-### 05月21日：一座承载历史的桥
-#### 塞纳河，巴黎，法国（© StockByM/Getty Images）
-
-![一座承载历史的桥](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_800x480.jpg&rf=LaDigue_800x480.jpg "一座承载历史的桥")
-
-塞纳河流经法国巴黎，对这座古城的历史有着非比寻常的意义。公元前3世纪，一个名为帕里西人的凯尔特部落决定定居在塞纳河两岸之间的一座岛屿，即如今的西岱岛。在接下来的数个世纪里，塞纳河在巴黎发展成为全球商业和文化中心的过程中发挥了重要作用。
-
-这条河是许多著名印象派画作的主题，包括莫奈的《拉格勒努耶尔浴池》和雷诺阿的《阿斯涅尔的塞纳河》。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a1%9e%e7%ba%b3%e6%b2%b3&form=hpcapt&filters=HpDate:"20230520_1600" "Bing Wallpaper 2023 5月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230521_PontdArcole"&FORM=HPQUIZ "必应主页测验 2023 5月 21")
-[下载480](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_800x480.jpg&rf=LaDigue_800x480.jpg "塞纳河，巴黎，法国")
-[下载720](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞纳河，巴黎，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞纳河，巴黎，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_UHD.jpg&rf=LaDigue_UHD.jpg "塞纳河，巴黎，法国")
 
 ---
