@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月06日：诺曼底登陆日
+#### The chalk cliffs of Étretat, Normandy, France（© MarcelloLand/Getty Images）
+
+![诺曼底登陆日](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_800x480.jpg&rf=LaDigue_800x480.jpg "诺曼底登陆日")
+
+第二次世界大战期间，1944年6月6日，经过数月计划和无数次的拖延，盟军在法国诺曼底海滩登陆，诺曼底战役由此拉开序幕。这是历史上最雄心勃勃的军事袭击之一，为盟军战胜轴心国奠定了坚实基础。
+
+1927年，法国两位飞行员驾驶双翼飞机“白鸟”跨越大西洋，途经埃特尔塔之后，他们便神秘失踪了。埃特尔塔也因此闻名于世。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9f%83%e7%89%b9%e5%b0%94%e5%a1%94%e6%b5%b7%e5%b2%b8&form=hpcapt&filters=HpDate:"20230605_1600" "Bing Wallpaper 2023 6月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230606_CliffsEtretat"&FORM=HPQUIZ "必应主页测验 2023 6月 6")
+[下载480](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_800x480.jpg&rf=LaDigue_800x480.jpg "The chalk cliffs of Étretat, Normandy, France")
+[下载720](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_1280x720.jpg&rf=LaDigue_1280x720.jpg "The chalk cliffs of Étretat, Normandy, France")
+[下载1080](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "The chalk cliffs of Étretat, Normandy, France")
+[下载UHD](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_UHD.jpg&rf=LaDigue_UHD.jpg "The chalk cliffs of Étretat, Normandy, France")
+
+---
 ### 06月05日：风景如画的瀑布
 #### 辛华达峡谷的瀑布，贾斯珀国家公园，加拿大（© Delpixart/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WesternBoxTurtle_ZH-CN6203163704_1280x720.jpg&rf=LaDigue_1280x720.jpg "西部箱龟")
 [下载1080](https://cn.bing.com/th?id=OHR.WesternBoxTurtle_ZH-CN6203163704_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西部箱龟")
 [下载UHD](https://cn.bing.com/th?id=OHR.WesternBoxTurtle_ZH-CN6203163704_UHD.jpg&rf=LaDigue_UHD.jpg "西部箱龟")
-
----
-### 05月22日：为了每个人，保护地球的生物多样性
-#### 阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加（© Kevin Wells/Getty Images）
-
-![为了每个人，保护地球的生物多样性](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_800x480.jpg&rf=LaDigue_800x480.jpg "为了每个人，保护地球的生物多样性")
-
-今天是世界生物多样性日，也是个回顾生物多样性在人类历史发展和续存过程中的关键作用的机会。从细菌、基因到整个生态系统，生物多样性囊括所有形式的生命，包括珊瑚礁、雨林和海洋环境等。我们的水、食物、药品、衣服、住所和能源都依赖于健康的生态系统。
-
-阿雷纳尔是哥斯达黎加所有火山中最年轻、最活跃的一座。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%93%a5%e6%96%af%e8%be%be%e9%bb%8e%e5%8a%a0+%e8%92%99%e6%b3%b0%e9%9f%a6%e5%b0%94%e5%be%b7&form=hpcapt&filters=HpDate:"20230521_1600" "Bing Wallpaper 2023 5月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230522_BiodiverseCostaRica"&FORM=HPQUIZ "必应主页测验 2023 5月 22")
-[下载480](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_800x480.jpg&rf=LaDigue_800x480.jpg "阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加")
-[下载720](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加")
-[下载1080](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加")
-[下载UHD](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_UHD.jpg&rf=LaDigue_UHD.jpg "阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加")
 
 ---
