@@ -1,8 +1,25 @@
 ## Bing Wallpaper(最近15天)
-### 06月06日：诺曼底登陆日
-#### The chalk cliffs of Étretat, Normandy, France（© MarcelloLand/Getty Images）
+### 06月07日：如果这些墙会说话······
+#### 普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州（© Ian Shive/Tandem Stills + Motion）
 
-![诺曼底登陆日](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_800x480.jpg&rf=LaDigue_800x480.jpg "诺曼底登陆日")
+![如果这些墙会说话······](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_800x480.jpg&rf=LaDigue_800x480.jpg "如果这些墙会说话······")
+
+数百年来，新墨西哥州的查科峡谷一直是普韦布洛人祖先的主要文化中心，他们的族群在这里扎根并繁荣起来。然而，由于高地沙漠冬季漫长、少雨且生长季节短暂，在这里生活并非易事。尽管面临这些挑战，普韦布洛人还是找到了在这个条件艰苦的地方繁荣发展的方法。今天，查科文化国家历史公园让我们得以窥见古老的普韦布洛人的文化、传统和价值观。该遗址是史前时代举办典礼的公共建筑的所在地，建筑风格具有普韦布洛文化的独特特征。这些建筑仿照古代的悬崖民居，由石灰石块或土坯砖建造而成。
+
+查科文化国家历史公园是美国最重要的保留了前哥伦布时期文化和历史的地区之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%9f%a5%e7%a7%91%e6%96%87%e5%8c%96%e5%9b%bd%e5%ae%b6%e5%8e%86%e5%8f%b2%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230606_1600" "Bing Wallpaper 2023 6月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230607_ChacoCulture"&FORM=HPQUIZ "必应主页测验 2023 6月 7")
+[下载480](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_800x480.jpg&rf=LaDigue_800x480.jpg "普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州")
+[下载720](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_1280x720.jpg&rf=LaDigue_1280x720.jpg "普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州")
+[下载1080](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_UHD.jpg&rf=LaDigue_UHD.jpg "普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州")
+
+---
+### 06月06日：诺曼底登陆日
+#### 埃特尔塔海岸的白垩悬崖，诺曼底，法国（© MarcelloLand/Getty Images）
+
+![诺曼底登陆日](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_800x480.jpg&rf=LaDigue_800x480.jpg "诺曼底登陆日")
 
 第二次世界大战期间，1944年6月6日，经过数月计划和无数次的拖延，盟军在法国诺曼底海滩登陆，诺曼底战役由此拉开序幕。这是历史上最雄心勃勃的军事袭击之一，为盟军战胜轴心国奠定了坚实基础。
 
@@ -10,10 +27,10 @@
 
 [Bing搜索](https://cn.bing.com/search?q=%e5%9f%83%e7%89%b9%e5%b0%94%e5%a1%94%e6%b5%b7%e5%b2%b8&form=hpcapt&filters=HpDate:"20230605_1600" "Bing Wallpaper 2023 6月 6")
 [必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230606_CliffsEtretat"&FORM=HPQUIZ "必应主页测验 2023 6月 6")
-[下载480](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_800x480.jpg&rf=LaDigue_800x480.jpg "The chalk cliffs of Étretat, Normandy, France")
-[下载720](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_1280x720.jpg&rf=LaDigue_1280x720.jpg "The chalk cliffs of Étretat, Normandy, France")
-[下载1080](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "The chalk cliffs of Étretat, Normandy, France")
-[下载UHD](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_UHD.jpg&rf=LaDigue_UHD.jpg "The chalk cliffs of Étretat, Normandy, France")
+[下载480](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_800x480.jpg&rf=LaDigue_800x480.jpg "埃特尔塔海岸的白垩悬崖，诺曼底，法国")
+[下载720](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃特尔塔海岸的白垩悬崖，诺曼底，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃特尔塔海岸的白垩悬崖，诺曼底，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_UHD.jpg&rf=LaDigue_UHD.jpg "埃特尔塔海岸的白垩悬崖，诺曼底，法国")
 
 ---
 ### 06月05日：风景如画的瀑布
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_1280x720.jpg&rf=LaDigue_1280x720.jpg "科孚岛旧城堡")
 [下载1080](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科孚岛旧城堡")
 [下载UHD](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_UHD.jpg&rf=LaDigue_UHD.jpg "科孚岛旧城堡")
-
----
-### 05月23日：保护我们的乌龟
-#### 西部箱龟（© Tim Fitzharris/Minden Pictures）
-
-![保护我们的乌龟](https://cn.bing.com/th?id=OHR.WesternBoxTurtle_ZH-CN6203163704_800x480.jpg&rf=LaDigue_800x480.jpg "保护我们的乌龟")
-
-西方箱龟以其壳上的明亮斑纹为特征，可能是最广为人知的龟种之一。 它们的寿命约为 25 年，但最长可达 100 年。 某些海龟物种很可能存在于 1 亿多年前。 虽然海龟和陆龟的寿命比恐龙还长，但超过一半的海龟和陆龟物种现在濒临灭绝。今天是世界海龟日，让我们庆祝这些可爱的生物并思考它们在我们的生态系统中发挥的重要作用。
-
-箱龟不会游泳，但它们可以漂浮在水中。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e9%83%a8%e7%ae%b1%e9%be%9f&form=hpcapt&filters=HpDate:"20230522_1600" "Bing Wallpaper 2023 5月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230523_WesternBoxTurtle"&FORM=HPQUIZ "必应主页测验 2023 5月 23")
-[下载480](https://cn.bing.com/th?id=OHR.WesternBoxTurtle_ZH-CN6203163704_800x480.jpg&rf=LaDigue_800x480.jpg "西部箱龟")
-[下载720](https://cn.bing.com/th?id=OHR.WesternBoxTurtle_ZH-CN6203163704_1280x720.jpg&rf=LaDigue_1280x720.jpg "西部箱龟")
-[下载1080](https://cn.bing.com/th?id=OHR.WesternBoxTurtle_ZH-CN6203163704_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西部箱龟")
-[下载UHD](https://cn.bing.com/th?id=OHR.WesternBoxTurtle_ZH-CN6203163704_UHD.jpg&rf=LaDigue_UHD.jpg "西部箱龟")
 
 ---
