@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月08日：座头鲸唱歌的地方
+#### 座头鲸（© Philip Thurston/Getty Images）
+
+![座头鲸唱歌的地方](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_800x480.jpg&rf=LaDigue_800x480.jpg "座头鲸唱歌的地方")
+
+海洋覆盖了地球表面70%以上的面积，因此海洋在调节地球气候和生态系统方面发挥着至关重要的作用。这些浩瀚的海洋支撑着巨大的海洋生物生态系统，美丽的座头鲸也在其中。座头鲸因其“唱歌”而闻名，研究认为这可能是一种孤独的表现。好消息是，随着商业捕鲸活动的结束，鲸鱼的数量有所上升，鲸鱼们也就不太需要再唱孤独之歌了。
+
+雄性座头鲸被称为公鲸，而雌性则被称为母鲸。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%ba%a7%e5%a4%b4%e9%b2%b8&form=hpcapt&filters=HpDate:"20230607_1600" "Bing Wallpaper 2023 6月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230608_PlayfulHumpback"&FORM=HPQUIZ "必应主页测验 2023 6月 8")
+[下载480](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_800x480.jpg&rf=LaDigue_800x480.jpg "座头鲸")
+[下载720](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_1280x720.jpg&rf=LaDigue_1280x720.jpg "座头鲸")
+[下载1080](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "座头鲸")
+[下载UHD](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_UHD.jpg&rf=LaDigue_UHD.jpg "座头鲸")
+
+---
 ### 06月07日：如果这些墙会说话······
 #### 普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州（© Ian Shive/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_1280x720.jpg&rf=LaDigue_1280x720.jpg "法罗群岛，丹麦")
 [下载1080](https://cn.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "法罗群岛，丹麦")
 [下载UHD](https://cn.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_UHD.jpg&rf=LaDigue_UHD.jpg "法罗群岛，丹麦")
-
----
-### 05月24日：历史在这里复活
-#### 科孚岛旧城堡（© Netfalls Remy Musser/Shutterstock）
-
-![历史在这里复活](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_800x480.jpg&rf=LaDigue_800x480.jpg "历史在这里复活")
-
-希腊科孚岛的旧城堡矗立在半岛的尖端，现在是科孚公共图书馆和档案馆的所在地。这座城堡历史悠久，可以追溯到拜占庭时期。6世纪，入侵者袭击了科孚，促使幸存者建造了一个被城堡包围的新村庄。后来在威尼斯统治期间，城堡又经历了加固改建，以抵御奥斯曼军队的侵扰。数个世纪以来，这座希腊地标见证了当地的巨大变化以及几个帝国的兴衰。
-
-城堡内设有科孚公共图书馆，位于英国人早年建造的军营内。城堡还会举行一些艺术和文化展览。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e5%ad%9a%e5%b2%9b%e6%97%a7%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20230523_1600" "Bing Wallpaper 2023 5月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230524_OldFortress"&FORM=HPQUIZ "必应主页测验 2023 5月 24")
-[下载480](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_800x480.jpg&rf=LaDigue_800x480.jpg "科孚岛旧城堡")
-[下载720](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_1280x720.jpg&rf=LaDigue_1280x720.jpg "科孚岛旧城堡")
-[下载1080](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科孚岛旧城堡")
-[下载UHD](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_UHD.jpg&rf=LaDigue_UHD.jpg "科孚岛旧城堡")
 
 ---
