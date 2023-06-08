@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月09日：与太阳一同升起
+#### 卡帕多西亚, 土耳其（© Anton Petrus/Getty Images）
+
+![与太阳一同升起](https://cn.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_800x480.jpg&rf=LaDigue_800x480.jpg "与太阳一同升起")
+
+如果你去土耳其旅行，一定要去卡帕多西亚打卡，这是一个位于土耳其中部的历史名胜古迹。卡帕多西亚的一个神奇时刻是观看几十个热气球升入黎明的天空。如果你喜欢冒险，你还可以坐上热气球观光。卡帕多西亚遍布着神秘的高耸岩层，高可达130英尺，由数百万年前火山喷发而形成，被称为“精灵烟囟”。这里还有一个你从热气球上无法看到景点，那就是地下城德林库尤，德林库尤的房屋、市场、办公室以及公共场所完全位于地下，整座城市的历史可以追溯到公元前1400年。这座地下城曾为市民提供庇护，让他们免受掠夺和入侵。在你体验卡帕多西亚的古代奇观时，你会更容易理解这个世界有多古老。
+
+卡帕多西亚以其独特的岩层、历史遗产和观光热气球而闻名。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e5%b8%95%e5%a4%9a%e8%a5%bf%e4%ba%9a&form=hpcapt&filters=HpDate:"20230608_1600" "Bing Wallpaper 2023 6月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230609_BalloonsTurkey"&FORM=HPQUIZ "必应主页测验 2023 6月 9")
+[下载480](https://cn.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_800x480.jpg&rf=LaDigue_800x480.jpg "卡帕多西亚, 土耳其")
+[下载720](https://cn.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡帕多西亚, 土耳其")
+[下载1080](https://cn.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡帕多西亚, 土耳其")
+[下载UHD](https://cn.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_UHD.jpg&rf=LaDigue_UHD.jpg "卡帕多西亚, 土耳其")
+
+---
 ### 06月08日：座头鲸唱歌的地方
 #### 座头鲸（© Philip Thurston/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_1280x720.jpg&rf=LaDigue_1280x720.jpg "西沙瓦寺，素可泰历史公园，泰国")
 [下载1080](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西沙瓦寺，素可泰历史公园，泰国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_UHD.jpg&rf=LaDigue_UHD.jpg "西沙瓦寺，素可泰历史公园，泰国")
-
----
-### 05月25日：童话照进现实
-#### 法罗群岛，丹麦（© miroslav_1/Getty Images）
-
-![童话照进现实](https://cn.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_800x480.jpg&rf=LaDigue_800x480.jpg "童话照进现实")
-
-萨克森位于法罗群岛的斯特雷莫伊海岸，是一个偏远的小村庄，以其童话般的美景而闻名。它坐落在风景如画的山谷中，旁边是清澈的泻湖，两侧群山环绕，屋顶覆盖着绿油油的草皮。萨克森人烟稀少，人口不到15人，甚至这里瀑布的数量都比常住人口数量多。
-
-萨克森位于曾经是入海口的底部，四周环绕着高山。 入口形成了一个很好的深天然良港，直到一场风暴用沙子把它堵住了。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b3%95%e7%bd%97%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20230524_1600" "Bing Wallpaper 2023 5月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230525_SaksunFaroe"&FORM=HPQUIZ "必应主页测验 2023 5月 25")
-[下载480](https://cn.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_800x480.jpg&rf=LaDigue_800x480.jpg "法罗群岛，丹麦")
-[下载720](https://cn.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_1280x720.jpg&rf=LaDigue_1280x720.jpg "法罗群岛，丹麦")
-[下载1080](https://cn.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "法罗群岛，丹麦")
-[下载UHD](https://cn.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_UHD.jpg&rf=LaDigue_UHD.jpg "法罗群岛，丹麦")
 
 ---
