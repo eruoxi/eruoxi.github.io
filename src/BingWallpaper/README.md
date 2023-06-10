@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月11日：伺机而动
+#### 巨鹭，克鲁格国家公园，南非（© Johan Swanepoel/Alamy）
+
+![伺机而动](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_800x480.jpg&rf=LaDigue_800x480.jpg "伺机而动")
+
+今天照片中的是世界上最大的鹭科鸟类——巨鹭，它正在南非克鲁格国家公园等待猎物游过。这种涉水鸟由于体型巨大（身高可达5英尺，翼展可达7英尺）而被称为巨鹭。它们以其异常缓慢的狩猎动作和对湖泊沼泽等水生栖息地的偏好而闻名。巨鹭在深水中觅食，以鲻鱼和罗非鱼等大型鱼类为食。它们也吃小动物，包括青蛙、蛇和蜥蜴。巨鹭不会因季节而迁徙，常见于撒哈拉以南的非洲地区，在亚洲的西部和南部地区也有少量巨鹭。
+
+比起在陆地上空飞行，巨鹭更喜欢沿着水道飞行，算是名副其实的水生鸟类，它们很少远离水源去冒险。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%a8%e9%b9%ad&form=hpcapt&filters=HpDate:"20230610_1600" "Bing Wallpaper 2023 6月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230611_GoliathHeron"&FORM=HPQUIZ "必应主页测验 2023 6月 11")
+[下载480](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_800x480.jpg&rf=LaDigue_800x480.jpg "巨鹭，克鲁格国家公园，南非")
+[下载720](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_1280x720.jpg&rf=LaDigue_1280x720.jpg "巨鹭，克鲁格国家公园，南非")
+[下载1080](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巨鹭，克鲁格国家公园，南非")
+[下载UHD](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_UHD.jpg&rf=LaDigue_UHD.jpg "巨鹭，克鲁格国家公园，南非")
+
+---
 ### 06月10日：波尔图的青花瓷美景
 #### 波尔图大教堂, 葡萄牙（© Reinhard Schmid/Huber/eStock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌布的德格拉朗梯田，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌布的德格拉朗梯田，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_UHD.jpg&rf=LaDigue_UHD.jpg "乌布的德格拉朗梯田，印度尼西亚")
-
----
-### 05月27日：伸向天空
-#### 纳米比亚的植物（© Fotofeeling/DEEPOL by plainpicture）
-
-![伸向天空](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_800x480.jpg&rf=LaDigue_800x480.jpg "伸向天空")
-
-箭袋树是一种罕见的植物，生长于气候恶劣干旱的纳米比亚。有趣的是，箭袋树其实根本不是树，而是一种高度濒危的芦荟植物，属于多肉植物。当地土著桑人会将箭袋树的枝干掏空，做成箭袋在狩猎时使用，故名箭袋树。如果你在纳米比亚的冬季（5月到7月）参观箭袋树森林，就能欣赏到这些独特的植物开出鲜黄的花朵。
-
-箭袋树被土著桑人称为“choje”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ae%ad%e8%a2%8b%e6%a0%91&form=hpcapt&filters=HpDate:"20230526_1600" "Bing Wallpaper 2023 5月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230527_AloeDichotomum"&FORM=HPQUIZ "必应主页测验 2023 5月 27")
-[下载480](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_800x480.jpg&rf=LaDigue_800x480.jpg "纳米比亚的植物")
-[下载720](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_1280x720.jpg&rf=LaDigue_1280x720.jpg "纳米比亚的植物")
-[下载1080](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳米比亚的植物")
-[下载UHD](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_UHD.jpg&rf=LaDigue_UHD.jpg "纳米比亚的植物")
 
 ---
