@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月12日：大弯的生日
+#### 仙人掌植物，得克萨斯州大弯国家公园，美国（© Tim Fitzharris/Minden Pictures）
+
+![大弯的生日](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_800x480.jpg&rf=LaDigue_800x480.jpg "大弯的生日")
+
+今天是位于得克萨斯州的大弯国家公园的88岁生日。这个巨大的国家公园建立于1935年，已迎来了无数的自然爱好者和冒险者。公园的南边边界是划分得克萨斯州和墨西哥的格兰德河。如果你在地图上看一下这个公园和格兰德河，你就会明白这个公园名字的由来了。
+
+大弯国家公园有超过1200种植物、超过450种鸟类、56种爬行动物和75种哺乳动物。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e5%bc%af%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad%ef%bc%8c%e5%be%97%e5%85%8b%e8%90%a8%e6%96%af%e5%b7%9e&form=hpcapt&filters=HpDate:"20230611_1600" "Bing Wallpaper 2023 6月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230612_BigBendAnniv"&FORM=HPQUIZ "必应主页测验 2023 6月 12")
+[下载480](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_800x480.jpg&rf=LaDigue_800x480.jpg "仙人掌植物，得克萨斯州大弯国家公园，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_1280x720.jpg&rf=LaDigue_1280x720.jpg "仙人掌植物，得克萨斯州大弯国家公园，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "仙人掌植物，得克萨斯州大弯国家公园，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_UHD.jpg&rf=LaDigue_UHD.jpg "仙人掌植物，得克萨斯州大弯国家公园，美国")
+
+---
 ### 06月11日：伺机而动
 #### 巨鹭，克鲁格国家公园，南非（© Johan Swanepoel/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Antilles_ZH-CN8267285876_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨克马兰大湾，瓜德罗普岛国家公园，小安的列斯群岛")
 [下载1080](https://cn.bing.com/th?id=OHR.Antilles_ZH-CN8267285876_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨克马兰大湾，瓜德罗普岛国家公园，小安的列斯群岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.Antilles_ZH-CN8267285876_UHD.jpg&rf=LaDigue_UHD.jpg "萨克马兰大湾，瓜德罗普岛国家公园，小安的列斯群岛")
-
----
-### 05月28日：俯瞰层叠的梯田
-#### 乌布的德格拉朗梯田，印度尼西亚（© Cavan Images/Adobe Stock）
-
-![俯瞰层叠的梯田](https://cn.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_800x480.jpg&rf=LaDigue_800x480.jpg "俯瞰层叠的梯田")
-
-稻米在巴厘岛文化中扮演着重要角色，特加拉朗梯田是巴厘岛最著名的稻田之一。德格拉朗梯田利用独特的供水系统进行水稻种植，优化了水的配置及使用。传统的巴厘岛灌溉系统，被称为苏巴克（Subak），效率极高，目前已被联合国教科文组织列为世界遗产。从空中俯瞰特加拉朗梯田，田野风光令人惊叹。如果你要去巴厘岛，一定要去特加拉朗梯田看看。
-
-德格拉朗梯田位于巴厘岛的乌布市，面积61.8平方公里，人口53760人。层叠的梯田是该地区著名的旅游景点。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%b0%e5%ba%a6%e5%b0%bc%e8%a5%bf%e4%ba%9a%e4%b9%8c%e5%b8%83&form=hpcapt&filters=HpDate:"20230527_1600" "Bing Wallpaper 2023 5月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230528_TegallalangTerrace"&FORM=HPQUIZ "必应主页测验 2023 5月 28")
-[下载480](https://cn.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_800x480.jpg&rf=LaDigue_800x480.jpg "乌布的德格拉朗梯田，印度尼西亚")
-[下载720](https://cn.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌布的德格拉朗梯田，印度尼西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌布的德格拉朗梯田，印度尼西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_UHD.jpg&rf=LaDigue_UHD.jpg "乌布的德格拉朗梯田，印度尼西亚")
 
 ---
