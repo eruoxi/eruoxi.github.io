@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月13日：你是否有勇气进入这片茂密的沼泽
+#### 奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国（© Emmer Photo/Alamy）
+
+![你是否有勇气进入这片茂密的沼泽](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_800x480.jpg&rf=LaDigue_800x480.jpg "你是否有勇气进入这片茂密的沼泽")
+
+奥克弗诺基沼泽大部分位于佐治亚州东南部，是全美最大的淡水沼泽地。这片巨大又独特的生态系统覆盖了700平方英里的土地，生活着各种各样的野生动物，比如鹭、鹤、麻鸦、美洲短吻鳄、啄木鸟、乌龟、蛇、青蛙等。宁静的水域被有机物腐烂产生的单宁染成棕色。这片区域曾经是塞米诺尔印第安人的领地。到了现代，这片沼泽的一大部分已经被商业化了，这里的泥煤矿藏被作为燃料开采。
+
+奥克弗诺基经常被直译为“震颤的大地”，但是这个名字很有可能源于希奇蒂语"oki fanôːki"，意为“冒泡的水”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a5%a5%e5%85%8b%e5%bc%97%e8%af%ba%e5%9f%ba%e6%b2%bc%e6%b3%bd&form=hpcapt&filters=HpDate:"20230612_1600" "Bing Wallpaper 2023 6月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230613_OkefenokeeSwamp"&FORM=HPQUIZ "必应主页测验 2023 6月 13")
+[下载480](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_800x480.jpg&rf=LaDigue_800x480.jpg "奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_UHD.jpg&rf=LaDigue_UHD.jpg "奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国")
+
+---
 ### 06月12日：大弯的生日
 #### 仙人掌植物，得克萨斯州大弯国家公园，美国（© Tim Fitzharris/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥")
 [下载1080](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_UHD.jpg&rf=LaDigue_UHD.jpg "埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥")
-
----
-### 05月29日：人间天堂
-#### 萨克马兰大湾，瓜德罗普岛国家公园，小安的列斯群岛（© Hemis/Alamy）
-
-![人间天堂](https://cn.bing.com/th?id=OHR.Antilles_ZH-CN8267285876_800x480.jpg&rf=LaDigue_800x480.jpg "人间天堂")
-
-瓜德罗普是一个十多个洒满阳光的岛屿组成的群岛，可以提供各种各样的度假选择，有无人海滩也有丛林密布的高山。瓜德罗普国家公园是法国海外领地瓜德罗普的一处国家公园，位于东加勒比海地区的背风群岛。萨克马兰大湾自然保护区是与国家公园相邻的一处海洋保护区，和国家公园一起受统一管理。瓜德罗普国家公园大致可以被分成三种生态系统：热带雨林、海岸森林和红树林。
-
-瓜德罗普群岛可以让访客窥见瓜德罗普旧时的样子。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%93%9c%e5%be%b7%e7%bd%97%e6%99%ae%e5%b2%9b&form=hpcapt&filters=HpDate:"20230528_1600" "Bing Wallpaper 2023 5月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230529_Antilles"&FORM=HPQUIZ "必应主页测验 2023 5月 29")
-[下载480](https://cn.bing.com/th?id=OHR.Antilles_ZH-CN8267285876_800x480.jpg&rf=LaDigue_800x480.jpg "萨克马兰大湾，瓜德罗普岛国家公园，小安的列斯群岛")
-[下载720](https://cn.bing.com/th?id=OHR.Antilles_ZH-CN8267285876_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨克马兰大湾，瓜德罗普岛国家公园，小安的列斯群岛")
-[下载1080](https://cn.bing.com/th?id=OHR.Antilles_ZH-CN8267285876_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨克马兰大湾，瓜德罗普岛国家公园，小安的列斯群岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.Antilles_ZH-CN8267285876_UHD.jpg&rf=LaDigue_UHD.jpg "萨克马兰大湾，瓜德罗普岛国家公园，小安的列斯群岛")
 
 ---
