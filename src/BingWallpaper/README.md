@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月14日：巴洛克风盛宴
+#### 多瑙河畔的帕绍市，巴伐利亚，德国（© Scott Wilson/Alamy）
+
+![巴洛克风盛宴](https://cn.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_800x480.jpg&rf=LaDigue_800x480.jpg "巴洛克风盛宴")
+
+帕绍位于德国的下巴伐利亚州，因为多瑙河、因河和伊尔茨河在此交汇，帕绍又被称作“三河之城”。帕绍以其哥特风格和巴洛克风格的建筑闻名。多瑙河和伊尔茨河之间的山上坐落着上韦斯特城堡和下韦斯特城堡，俯瞰着这座城市。
+
+很多沿多瑙河航行的内河游船都从帕绍启航，顺流而下前往维也纳。这是一条经典历史路线，帝王之路。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%be%b7%e5%9b%bd%e5%b8%95%e7%bb%8d&form=hpcapt&filters=HpDate:"20230613_1600" "Bing Wallpaper 2023 6月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230614_PassauSunsetJune"&FORM=HPQUIZ "必应主页测验 2023 6月 14")
+[下载480](https://cn.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_800x480.jpg&rf=LaDigue_800x480.jpg "多瑙河畔的帕绍市，巴伐利亚，德国")
+[下载720](https://cn.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_1280x720.jpg&rf=LaDigue_1280x720.jpg "多瑙河畔的帕绍市，巴伐利亚，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多瑙河畔的帕绍市，巴伐利亚，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_UHD.jpg&rf=LaDigue_UHD.jpg "多瑙河畔的帕绍市，巴伐利亚，德国")
+
+---
 ### 06月13日：你是否有勇气进入这片茂密的沼泽
 #### 奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国（© Emmer Photo/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WorldOtterDay_ZH-CN8607141093_1280x720.jpg&rf=LaDigue_1280x720.jpg "海獭宝宝，威廉王子湾，美国阿拉斯加州")
 [下载1080](https://cn.bing.com/th?id=OHR.WorldOtterDay_ZH-CN8607141093_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海獭宝宝，威廉王子湾，美国阿拉斯加州")
 [下载UHD](https://cn.bing.com/th?id=OHR.WorldOtterDay_ZH-CN8607141093_UHD.jpg&rf=LaDigue_UHD.jpg "海獭宝宝，威廉王子湾，美国阿拉斯加州")
-
----
-### 05月30日：墨西哥的隐秘海滩
-#### 埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥（© ferrantraite/Getty Images）
-
-![墨西哥的隐秘海滩](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_800x480.jpg&rf=LaDigue_800x480.jpg "墨西哥的隐秘海滩")
-
-这张绝美的照片是在埃莫海滩拍摄的，这里又被称为“隐秘海滩”，位于墨西哥巴亚尔塔港西北处的偏远海岛，这里以其纯净的美景和独特的地貌而闻名。这处海滩只能通过一个自然侵蚀形成的隧道到达。沙滩和周围的岩壁组成了一个仰望天空的天窗，碧蓝的天空、绿松石色的海水、长满鲜花的崖壁相互映衬，景色独一无二。埃莫海滩又称“爱情海滩”，已经是一个热门的旅游目的地，但是为了保护这里的自然风景和生态环境，当地限制了游客数量。
-
-埃莫海滩位于一个开放的洒满阳光的环形山中，只有在退潮的时候才能进入，也被称为“隐秘海滩”或者“爱情海滩”。这个特殊的地质构造是20世纪00年代的炸弹爆炸和后续的自然侵蚀形成的。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8e%9b%e4%b8%bd%e5%9f%83%e5%a1%94%e6%96%af%e7%be%a4%e5%b2%9b%e5%9f%83%e8%8e%ab%e6%b5%b7%e6%bb%a9&form=hpcapt&filters=HpDate:"20230529_1600" "Bing Wallpaper 2023 5月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230530_HiddenBeach"&FORM=HPQUIZ "必应主页测验 2023 5月 30")
-[下载480](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_800x480.jpg&rf=LaDigue_800x480.jpg "埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥")
-[下载720](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥")
-[下载1080](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥")
-[下载UHD](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_UHD.jpg&rf=LaDigue_UHD.jpg "埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥")
 
 ---
