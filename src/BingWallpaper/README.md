@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月15日：一闪一闪亮晶晶（的小虫子）
+#### 同步萤火虫，大烟山国家公园，田纳西州，美国（© Floris Van Bruegel/Minden Pictures）
+
+![一闪一闪亮晶晶（的小虫子）](https://cn.bing.com/th?id=OHR.SmokyFireflies_ZH-CN3840923626_800x480.jpg&rf=LaDigue_800x480.jpg "一闪一闪亮晶晶（的小虫子）")
+
+让自己沉浸在大自然中绝对是阴沉的一天的最佳解药。我们周围的动植物、景色、声音和气味可以安抚我们的精神、身体和灵魂。想象自己沉浸在若虚若幻的情境中，好像站在神秘森林里，被高耸树木、潺潺溪流还有闪烁的萤火虫环绕。这片神秘的森林就是大烟山国家公园，这里每年五月和六月是萤火虫季。今天是大烟山国家公园的创立日，也正好是自然摄影日，可能没有什么比在今天拍摄萤火虫更应景了。
+
+科学家们发现，同步萤火虫中的雄性会同步他们的闪烁频率，方便同种的雌性萤火虫找到它们。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%90%a4%e7%81%ab%e8%99%ab&form=hpcapt&filters=HpDate:"20230614_1600" "Bing Wallpaper 2023 6月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230615_SmokyFireflies"&FORM=HPQUIZ "必应主页测验 2023 6月 15")
+[下载480](https://cn.bing.com/th?id=OHR.SmokyFireflies_ZH-CN3840923626_800x480.jpg&rf=LaDigue_800x480.jpg "同步萤火虫，大烟山国家公园，田纳西州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SmokyFireflies_ZH-CN3840923626_1280x720.jpg&rf=LaDigue_1280x720.jpg "同步萤火虫，大烟山国家公园，田纳西州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SmokyFireflies_ZH-CN3840923626_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "同步萤火虫，大烟山国家公园，田纳西州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SmokyFireflies_ZH-CN3840923626_UHD.jpg&rf=LaDigue_UHD.jpg "同步萤火虫，大烟山国家公园，田纳西州，美国")
+
+---
 ### 06月14日：巴洛克风盛宴
 #### 多瑙河畔的帕绍市，巴伐利亚，德国（© Scott Wilson/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ReefAwareness_ZH-CN8840949729_1280x720.jpg&rf=LaDigue_1280x720.jpg "大堡礁的航拍图，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ReefAwareness_ZH-CN8840949729_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大堡礁的航拍图，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ReefAwareness_ZH-CN8840949729_UHD.jpg&rf=LaDigue_UHD.jpg "大堡礁的航拍图，澳大利亚")
-
----
-### 05月31日：一脸好奇的海獭宝宝
-#### 海獭宝宝，威廉王子湾，美国阿拉斯加州（© Donald M. Jones/Minden Pictures）
-
-![一脸好奇的海獭宝宝](https://cn.bing.com/th?id=OHR.WorldOtterDay_ZH-CN8607141093_800x480.jpg&rf=LaDigue_800x480.jpg "一脸好奇的海獭宝宝")
-
-观察可爱的海獭在海里嬉戏是件赏心悦事。除了可爱之外，海獭还对维护近海生态系统平衡有着非常重要的作用。如果没有海獭捕食海胆的话，海胆会吃光重要的海藻森林，从而夺走许多海洋动物的藏身地和食物。但不幸的是，海獭现在正面临着灭绝的风险。让我们重视并了解如何保护这种可爱又有着重要作用的小动物吧。
-
-海獭每天要进食自身体重25%的食物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e7%8d%ad&form=hpcapt&filters=HpDate:"20230530_1600" "Bing Wallpaper 2023 5月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230531_WorldOtterDay"&FORM=HPQUIZ "必应主页测验 2023 5月 31")
-[下载480](https://cn.bing.com/th?id=OHR.WorldOtterDay_ZH-CN8607141093_800x480.jpg&rf=LaDigue_800x480.jpg "海獭宝宝，威廉王子湾，美国阿拉斯加州")
-[下载720](https://cn.bing.com/th?id=OHR.WorldOtterDay_ZH-CN8607141093_1280x720.jpg&rf=LaDigue_1280x720.jpg "海獭宝宝，威廉王子湾，美国阿拉斯加州")
-[下载1080](https://cn.bing.com/th?id=OHR.WorldOtterDay_ZH-CN8607141093_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海獭宝宝，威廉王子湾，美国阿拉斯加州")
-[下载UHD](https://cn.bing.com/th?id=OHR.WorldOtterDay_ZH-CN8607141093_UHD.jpg&rf=LaDigue_UHD.jpg "海獭宝宝，威廉王子湾，美国阿拉斯加州")
 
 ---
