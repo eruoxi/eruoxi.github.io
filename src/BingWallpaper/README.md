@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月16日：鹰嘴海龟
+#### 游泳的鹰嘴海龟， 冲绳，日本（© Robert Mallon/Getty Images）
+
+![鹰嘴海龟](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_800x480.jpg&rf=LaDigue_800x480.jpg "鹰嘴海龟")
+
+世界海龟日快乐！今天，世界各地的人们聚集在一起清理近岸海洋垃圾，守护海龟及其他海洋生物的栖息之所，帮助它们恢复干净的水域。鹰嘴海龟分布非常广泛，最大的亚种群分布在加勒比海、印度洋和印度洋-太平洋海域。
+
+鹰嘴海龟因其窄而尖的喙而得名，它还有个更知名的名称：玳瑁。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%b9%b0%e5%98%b4%e6%b5%b7%e9%be%9f&form=hpcapt&filters=HpDate:"20230615_1600" "Bing Wallpaper 2023 6月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230616_HawksbillTurtle"&FORM=HPQUIZ "必应主页测验 2023 6月 16")
+[下载480](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_800x480.jpg&rf=LaDigue_800x480.jpg "游泳的鹰嘴海龟， 冲绳，日本")
+[下载720](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_1280x720.jpg&rf=LaDigue_1280x720.jpg "游泳的鹰嘴海龟， 冲绳，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "游泳的鹰嘴海龟， 冲绳，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_UHD.jpg&rf=LaDigue_UHD.jpg "游泳的鹰嘴海龟， 冲绳，日本")
+
+---
 ### 06月15日：一闪一闪亮晶晶（的小虫子）
 #### 同步萤火虫，大烟山国家公园，田纳西州，美国（© Floris Van Bruegel/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_1280x720.jpg&rf=LaDigue_1280x720.jpg "沙丘中的南非剑羚，纳米比亚")
 [下载1080](https://cn.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙丘中的南非剑羚，纳米比亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_UHD.jpg&rf=LaDigue_UHD.jpg "沙丘中的南非剑羚，纳米比亚")
-
----
-### 06月01日：一望无际的湛蓝
-#### 大堡礁的航拍图，澳大利亚（© AirPano LLC/Amazing Aerial Agency）
-
-![一望无际的湛蓝](https://cn.bing.com/th?id=OHR.ReefAwareness_ZH-CN8840949729_800x480.jpg&rf=LaDigue_800x480.jpg "一望无际的湛蓝")
-
-澳大利亚的大堡礁是世界上最大的珊瑚礁，沿澳大利亚海岸蔓延1430英里。许多海洋生物生活在这个珊瑚礁生态系统中，包括鲸鱼、海豚、海龟以及1500多种鱼类。遗憾的是，这处世界自然遗产正受到气候变化、污染和过度捕捞的威胁。每年的六月一日是世界珊瑚礁日，旨在让人们意识到海洋珊瑚礁系统的脆弱性和重要性，提醒我们每一个人、每一个组织和企业保护这些宝藏、维持自然的平衡。
-
-大堡礁岛上有215种鸟类在此筑巢或栖息。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e5%a0%a1%e7%a4%81&form=hpcapt&filters=HpDate:"20230531_1600" "Bing Wallpaper 2023 6月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230601_ReefAwareness"&FORM=HPQUIZ "必应主页测验 2023 6月 1")
-[下载480](https://cn.bing.com/th?id=OHR.ReefAwareness_ZH-CN8840949729_800x480.jpg&rf=LaDigue_800x480.jpg "大堡礁的航拍图，澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.ReefAwareness_ZH-CN8840949729_1280x720.jpg&rf=LaDigue_1280x720.jpg "大堡礁的航拍图，澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.ReefAwareness_ZH-CN8840949729_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大堡礁的航拍图，澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.ReefAwareness_ZH-CN8840949729_UHD.jpg&rf=LaDigue_UHD.jpg "大堡礁的航拍图，澳大利亚")
 
 ---
