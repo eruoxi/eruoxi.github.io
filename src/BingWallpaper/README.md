@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月17日：桨叶动力
+#### 在加利福尼亚州圣地亚哥举行的“为团结划桨”活动（© Brandon Colbert Photography/Getty Images）
+
+![桨叶动力](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_800x480.jpg&rf=LaDigue_800x480.jpg "桨叶动力")
+
+国际冲浪日通过激发人们对冲浪的热情来促进对海洋的保护。 每年 6 月的第三个星期六，人们都会聚集在一起参加冲浪比赛、烧烤、海滩清理和其他活动，以帮助恢复和保护海洋环境。 为一项事业走到一起是全球冲浪社区的标志，无论是为了自然还是为了反对不公正，正如他们在 2020 年加利福尼亚州恩西尼塔斯举行的“为团结划桨”聚会上所做的那样，如图所示。
+
+比赛和奖品也是庆祝活动的一部分，与冲浪相关的行业会捐赠冲浪板和潜水服等奖品。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e5%86%b2%e6%b5%aa%e6%97%a5&form=hpcapt&filters=HpDate:"20230616_1600" "Bing Wallpaper 2023 6月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230617_SurfSanDiego"&FORM=HPQUIZ "必应主页测验 2023 6月 17")
+[下载480](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_800x480.jpg&rf=LaDigue_800x480.jpg "在加利福尼亚州圣地亚哥举行的“为团结划桨”活动")
+[下载720](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_1280x720.jpg&rf=LaDigue_1280x720.jpg "在加利福尼亚州圣地亚哥举行的“为团结划桨”活动")
+[下载1080](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在加利福尼亚州圣地亚哥举行的“为团结划桨”活动")
+[下载UHD](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_UHD.jpg&rf=LaDigue_UHD.jpg "在加利福尼亚州圣地亚哥举行的“为团结划桨”活动")
+
+---
 ### 06月16日：鹰嘴海龟
 #### 游泳的鹰嘴海龟， 冲绳，日本（© Robert Mallon/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_1280x720.jpg&rf=LaDigue_1280x720.jpg "大峡谷国家公园的南凯巴布步道，亚利桑那州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大峡谷国家公园的南凯巴布步道，亚利桑那州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_UHD.jpg&rf=LaDigue_UHD.jpg "大峡谷国家公园的南凯巴布步道，亚利桑那州，美国")
-
----
-### 06月02日：被沙海包围
-#### 沙丘中的南非剑羚，纳米比亚（© Sergey Gorshkov/Alamy）
-
-![被沙海包围](https://cn.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_800x480.jpg&rf=LaDigue_800x480.jpg "被沙海包围")
-
-“生命总会找到出路。”虽然《侏罗纪公园》中的马尔科姆博士是在谈论恐龙繁殖，但这句话也适用于生命如何在地球上最恶劣的环境中存活。极端生物是一种可以生活在极端环境下的生物，包括高温、低温或其他超出生命所能适应的条件。例如，在寒冷的北极地区，企鹅和北极熊可以生存；在炎热的沙漠中，骆驼可以不喝一滴水存活几个月；在高酸高温高压的海洋环境中，海洋微生物依然可以茁壮成长。
-
-纳米比亚的南非剑羚，也称为大羚羊，是生活在南非干旱地区的本地动物。照片中的这只羚羊不需要直接喝水生存，而是从所吃的植物中获取水分。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%97%e9%9d%9e%e5%89%91%e7%be%9a&form=hpcapt&filters=HpDate:"20230601_1600" "Bing Wallpaper 2023 6月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230602_GemsbokNamibia"&FORM=HPQUIZ "必应主页测验 2023 6月 2")
-[下载480](https://cn.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_800x480.jpg&rf=LaDigue_800x480.jpg "沙丘中的南非剑羚，纳米比亚")
-[下载720](https://cn.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_1280x720.jpg&rf=LaDigue_1280x720.jpg "沙丘中的南非剑羚，纳米比亚")
-[下载1080](https://cn.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙丘中的南非剑羚，纳米比亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_UHD.jpg&rf=LaDigue_UHD.jpg "沙丘中的南非剑羚，纳米比亚")
 
 ---
