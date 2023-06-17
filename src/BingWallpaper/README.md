@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月18日：值班爸爸
+#### 普通燕鸥父亲和宝宝，长岛，纽约州，美国（© Vicki Jauron, Babylon and Beyond Photography/Getty Images）
+
+![值班爸爸](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_800x480.jpg&rf=LaDigue_800x480.jpg "值班爸爸")
+
+也许是受到1908年首届母亲节的启发，美国华盛顿州的索诺拉·斯马特·多德认为父亲们也应该拥有自己的庆祝活动，于是她提出了父亲节。1910年，首届父亲节庆祝活动举行，并在六年后得到了美国总统伍德罗·威尔逊的认可。到了20世纪20年代，父亲节一度不再流行，但最终由于营销而重新流行起来，并被理查德·尼克松总统设定为永久性国家纪念日。父亲的形象，就像今天图片中的燕鸥爸爸一样，努力工作，为我们遮风挡雨。
+
+它们是所有鸟类中迁徙距离最长的候鸟，平均每年往返飞行3.5万公里。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%88%b6%e4%ba%b2%e8%8a%82&form=hpcapt&filters=HpDate:"20230617_1600" "Bing Wallpaper 2023 6月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230618_TernFather"&FORM=HPQUIZ "必应主页测验 2023 6月 18")
+[下载480](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_800x480.jpg&rf=LaDigue_800x480.jpg "普通燕鸥父亲和宝宝，长岛，纽约州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_1280x720.jpg&rf=LaDigue_1280x720.jpg "普通燕鸥父亲和宝宝，长岛，纽约州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普通燕鸥父亲和宝宝，长岛，纽约州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg&rf=LaDigue_UHD.jpg "普通燕鸥父亲和宝宝，长岛，纽约州，美国")
+
+---
 ### 06月17日：桨叶动力
 #### 在加利福尼亚州圣地亚哥举行的“为团结划桨”活动（© Brandon Colbert Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MauiBeach_ZH-CN1435658101_1280x720.jpg&rf=LaDigue_1280x720.jpg "怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MauiBeach_ZH-CN1435658101_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MauiBeach_ZH-CN1435658101_UHD.jpg&rf=LaDigue_UHD.jpg "怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国")
-
----
-### 06月03日：一睹最壮观的峡谷
-#### 大峡谷国家公园的南凯巴布步道，亚利桑那州，美国（© Roman Khomlyak/Getty Images）
-
-![一睹最壮观的峡谷](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_800x480.jpg&rf=LaDigue_800x480.jpg "一睹最壮观的峡谷")
-
-今天是美国国家步道日，也是远足的最佳时机，也提醒大家要保护远足路线，让每个人都能享受这份快乐。想找个绝佳的地方活动活动吗？今天照片里位于大峡谷的南凯巴布步道就是个好去处。这条路线从被称为“烟囱”的急转弯开始，通向一个陡峭狭窄的下坡路，等待你的将是一次令人振奋的旅程。新鲜空气和运动可以改善你的情绪和睡眠，增强体力和耐力，并降低患心脏病的风险。此外，环境的变化还可以激发创造力，启发新思路。
-
-由于沿途非常陡峭，并且缺乏树荫和饮用水（除了起点），南凯巴布步道比光明天使步道更艰险，但沿途的风景也更加壮丽。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e5%b3%a1%e8%b0%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230602_1600" "Bing Wallpaper 2023 6月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230603_SouthKaibabTrail"&FORM=HPQUIZ "必应主页测验 2023 6月 3")
-[下载480](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_800x480.jpg&rf=LaDigue_800x480.jpg "大峡谷国家公园的南凯巴布步道，亚利桑那州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_1280x720.jpg&rf=LaDigue_1280x720.jpg "大峡谷国家公园的南凯巴布步道，亚利桑那州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大峡谷国家公园的南凯巴布步道，亚利桑那州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_UHD.jpg&rf=LaDigue_UHD.jpg "大峡谷国家公园的南凯巴布步道，亚利桑那州，美国")
 
 ---
