@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月19日：这只小可爱在哪里?
+#### 奔跑在诺曼底草地上的小狍，法国（© Gerard Lacz/Minden）
+
+![这只小可爱在哪里?](https://cn.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_800x480.jpg&rf=LaDigue_800x480.jpg "这只小可爱在哪里?")
+
+獐子（Capreolus capreolus），也被称为狍子、西方狍子或欧洲狍子，是鹿的一种。该物种的雄性有时被称为 "獐"。它主要以草、叶、浆果和嫩芽为食。它特别喜欢非常年轻的、水分含量高的嫩草，即前一天下过雨的草。
+
+体格健壮的雄袍子鹿角长达20-25厘米，有两个或三个角，很少有四个角。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8b%8d&form=hpcapt&filters=HpDate:"20230618_1600" "Bing Wallpaper 2023 6月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230619_Fawn"&FORM=HPQUIZ "必应主页测验 2023 6月 19")
+[下载480](https://cn.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_800x480.jpg&rf=LaDigue_800x480.jpg "奔跑在诺曼底草地上的小狍，法国")
+[下载720](https://cn.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_1280x720.jpg&rf=LaDigue_1280x720.jpg "奔跑在诺曼底草地上的小狍，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奔跑在诺曼底草地上的小狍，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_UHD.jpg&rf=LaDigue_UHD.jpg "奔跑在诺曼底草地上的小狍，法国")
+
+---
 ### 06月18日：值班爸爸
 #### 普通燕鸥父亲和宝宝，长岛，纽约州，美国（© Vicki Jauron, Babylon and Beyond Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_1280x720.jpg&rf=LaDigue_1280x720.jpg "辛华达峡谷的瀑布，贾斯珀国家公园，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "辛华达峡谷的瀑布，贾斯珀国家公园，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_UHD.jpg&rf=LaDigue_UHD.jpg "辛华达峡谷的瀑布，贾斯珀国家公园，加拿大")
-
----
-### 06月04日：热带天堂的黑沙滩
-#### 怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国（© Matt Anderson Photography/Getty Images）
-
-![热带天堂的黑沙滩](https://cn.bing.com/th?id=OHR.MauiBeach_ZH-CN1435658101_800x480.jpg&rf=LaDigue_800x480.jpg "热带天堂的黑沙滩")
-
-黑色沙滩通常是怎样形成的？有两种情况：第一种情况，海浪冲刷海滩时，深色的、较重的矿物质留了下来；第二种情况则发生在怀阿纳帕纳帕州立公园的这片沙滩，玄武岩（一种黑色的火山岩）被海浪侵蚀成细小的颗粒，形成了令人惊叹的黑色沙滩。你可以在茂宜岛东侧，哈纳之路的尽头找到这个海滩。类似的黑沙滩遍布世界各地，包括阿拉斯加、加利福尼亚、希腊、哥斯达黎加、意大利、冰岛、印度尼西亚和新西兰等地。
-
-怀阿纳帕纳帕（Waiʻanapanapa）在夏威夷语中的意思是“闪光的水”，指的是附近的淡水溪流和波光粼粼的水池。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%80%80%e9%98%bf%e7%ba%b3%e5%b8%95%e7%ba%b3%e5%b8%95%e5%b7%9e%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230603_1600" "Bing Wallpaper 2023 6月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230604_MauiBeach"&FORM=HPQUIZ "必应主页测验 2023 6月 4")
-[下载480](https://cn.bing.com/th?id=OHR.MauiBeach_ZH-CN1435658101_800x480.jpg&rf=LaDigue_800x480.jpg "怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国")
-[下载720](https://cn.bing.com/th?id=OHR.MauiBeach_ZH-CN1435658101_1280x720.jpg&rf=LaDigue_1280x720.jpg "怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.MauiBeach_ZH-CN1435658101_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MauiBeach_ZH-CN1435658101_UHD.jpg&rf=LaDigue_UHD.jpg "怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国")
 
 ---
