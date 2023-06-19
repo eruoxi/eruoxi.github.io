@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月20日：这只顶级掠食者是什么?
+#### 秃鹰，通加斯国家森林，阿拉斯加，美国（© Jaynes Gallery/Shutterstock）
+
+![这只顶级掠食者是什么?](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_800x480.jpg&rf=LaDigue_800x480.jpg "这只顶级掠食者是什么?")
+
+秃鹰又名白头海雕、白头鹰，是力量、决心和勇气的象征。1782年6月20日，美国通过了一项法令，将白头鹰定为国鸟。为了进一步保护白头鹰，1995年，时任美国总统比尔·克林顿宣布每年的6月20日为“白头鹰日”。白头鹰，因其白色的头部而得名，曾是濒临灭绝的鸟类，但是随着保护工作的开展和濒危物种法案的实施，白头鹰的数量实现了成倍增长。
+
+秃鹰实际上并不真的秃，而“秃”的英文“bald”的旧意其实是“白头”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%a7%83%e9%b9%b0&form=hpcapt&filters=HpDate:"20230619_1600" "Bing Wallpaper 2023 6月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230620_EagleTree"&FORM=HPQUIZ "必应主页测验 2023 6月 20")
+[下载480](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_800x480.jpg&rf=LaDigue_800x480.jpg "秃鹰，通加斯国家森林，阿拉斯加，美国")
+[下载720](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_1280x720.jpg&rf=LaDigue_1280x720.jpg "秃鹰，通加斯国家森林，阿拉斯加，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秃鹰，通加斯国家森林，阿拉斯加，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_UHD.jpg&rf=LaDigue_UHD.jpg "秃鹰，通加斯国家森林，阿拉斯加，美国")
+
+---
 ### 06月19日：这只小可爱在哪里?
 #### 奔跑在诺曼底草地上的小狍，法国（© Gerard Lacz/Minden）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃特尔塔海岸的白垩悬崖，诺曼底，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃特尔塔海岸的白垩悬崖，诺曼底，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_UHD.jpg&rf=LaDigue_UHD.jpg "埃特尔塔海岸的白垩悬崖，诺曼底，法国")
-
----
-### 06月05日：风景如画的瀑布
-#### 辛华达峡谷的瀑布，贾斯珀国家公园，加拿大（© Delpixart/Getty Images）
-
-![风景如画的瀑布](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_800x480.jpg&rf=LaDigue_800x480.jpg "风景如画的瀑布")
-
-辛华达瀑布位于加拿大艾伯塔省贾斯珀国家公园，落差约为18.5米。从著名的冰原大道下来，通过一条600米的通道便可到达该瀑布。
-
-贾斯珀国家公园于1984年被联合国教科文组织列为世界遗产。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%b4%be%e6%96%af%e7%8f%80%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230604_1600" "Bing Wallpaper 2023 6月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230605_WaterfallsSunwaptaValley"&FORM=HPQUIZ "必应主页测验 2023 6月 5")
-[下载480](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_800x480.jpg&rf=LaDigue_800x480.jpg "辛华达峡谷的瀑布，贾斯珀国家公园，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_1280x720.jpg&rf=LaDigue_1280x720.jpg "辛华达峡谷的瀑布，贾斯珀国家公园，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "辛华达峡谷的瀑布，贾斯珀国家公园，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_UHD.jpg&rf=LaDigue_UHD.jpg "辛华达峡谷的瀑布，贾斯珀国家公园，加拿大")
 
 ---
