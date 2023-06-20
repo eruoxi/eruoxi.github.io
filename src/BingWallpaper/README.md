@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月21日：夏日仙境
+#### 夏日盛开的荷花（© pandemin/Getty Images）
+
+![夏日仙境](https://cn.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_800x480.jpg&rf=LaDigue_800x480.jpg "夏日仙境")
+
+夏至是二十四节气中的一个，也是一年中白昼最长的一天。在这一天，太阳直射北回归线，北半球的温度达到最高，而南半球则是冬至。夏至的日期通常在公历6月21日或22日，不同地区有不同的习俗和活动来庆祝这个节气。在中国，夏至被认为是阴阳转化的重要时刻，也是祭祀天地和祖先的日子。人们会吃面条、鸡蛋、荔枝等食物来祈求健康和长寿，也会烧香、挂艾草、泡药浴等来驱除瘟疫和邪气。
+
+“荷”被称为“活化石”，是被子植物中起源最早的植物之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%8f%e8%87%b3&form=hpcapt&filters=HpDate:"20230620_1600" "Bing Wallpaper 2023 6月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230621_SummerSolstice2023"&FORM=HPQUIZ "必应主页测验 2023 6月 21")
+[下载480](https://cn.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_800x480.jpg&rf=LaDigue_800x480.jpg "夏日盛开的荷花")
+[下载720](https://cn.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_1280x720.jpg&rf=LaDigue_1280x720.jpg "夏日盛开的荷花")
+[下载1080](https://cn.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夏日盛开的荷花")
+[下载UHD](https://cn.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_UHD.jpg&rf=LaDigue_UHD.jpg "夏日盛开的荷花")
+
+---
 ### 06月20日：这只顶级掠食者是什么?
 #### 秃鹰，通加斯国家森林，阿拉斯加，美国（© Jaynes Gallery/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_1280x720.jpg&rf=LaDigue_1280x720.jpg "普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州")
 [下载1080](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_UHD.jpg&rf=LaDigue_UHD.jpg "普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州")
-
----
-### 06月06日：诺曼底登陆日
-#### 埃特尔塔海岸的白垩悬崖，诺曼底，法国（© MarcelloLand/Getty Images）
-
-![诺曼底登陆日](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_800x480.jpg&rf=LaDigue_800x480.jpg "诺曼底登陆日")
-
-第二次世界大战期间，1944年6月6日，经过数月计划和无数次的拖延，盟军在法国诺曼底海滩登陆，诺曼底战役由此拉开序幕。这是历史上最雄心勃勃的军事袭击之一，为盟军战胜轴心国奠定了坚实基础。
-
-1927年，法国两位飞行员驾驶双翼飞机“白鸟”跨越大西洋，途经埃特尔塔之后，他们便神秘失踪了。埃特尔塔也因此闻名于世。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9f%83%e7%89%b9%e5%b0%94%e5%a1%94%e6%b5%b7%e5%b2%b8&form=hpcapt&filters=HpDate:"20230605_1600" "Bing Wallpaper 2023 6月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230606_CliffsEtretat"&FORM=HPQUIZ "必应主页测验 2023 6月 6")
-[下载480](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_800x480.jpg&rf=LaDigue_800x480.jpg "埃特尔塔海岸的白垩悬崖，诺曼底，法国")
-[下载720](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃特尔塔海岸的白垩悬崖，诺曼底，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃特尔塔海岸的白垩悬崖，诺曼底，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_UHD.jpg&rf=LaDigue_UHD.jpg "埃特尔塔海岸的白垩悬崖，诺曼底，法国")
 
 ---
