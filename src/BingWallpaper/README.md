@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月22日：仲夏端午
+#### 中国传统节日端午节（© timekeep/Shutterstock）
+
+![仲夏端午](https://cn.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_800x480.jpg&rf=LaDigue_800x480.jpg "仲夏端午")
+
+端午节的起源涵盖了古老星象文化、龙图腾祭祀、人文哲学等方面的内容，蕴含着深邃丰厚的文化内涵，在传承发展中杂糅了多种民俗为一体，各地因地域文化不同而又存在着习俗内容或细节上的差异。
+
+2009年9月，端午节成为中国第一个入选世界非物质文化遗产的节日。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ab%af%e5%8d%88%e8%8a%82&form=hpcapt&filters=HpDate:"20230621_1600" "Bing Wallpaper 2023 6月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230622_DragonBoatFestival2023"&FORM=HPQUIZ "必应主页测验 2023 6月 22")
+[下载480](https://cn.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_800x480.jpg&rf=LaDigue_800x480.jpg "中国传统节日端午节")
+[下载720](https://cn.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_1280x720.jpg&rf=LaDigue_1280x720.jpg "中国传统节日端午节")
+[下载1080](https://cn.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国传统节日端午节")
+[下载UHD](https://cn.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_UHD.jpg&rf=LaDigue_UHD.jpg "中国传统节日端午节")
+
+---
 ### 06月21日：夏日仙境
 #### 夏日盛开的荷花（© pandemin/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_1280x720.jpg&rf=LaDigue_1280x720.jpg "座头鲸")
 [下载1080](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "座头鲸")
 [下载UHD](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_UHD.jpg&rf=LaDigue_UHD.jpg "座头鲸")
-
----
-### 06月07日：如果这些墙会说话······
-#### 普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州（© Ian Shive/Tandem Stills + Motion）
-
-![如果这些墙会说话······](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_800x480.jpg&rf=LaDigue_800x480.jpg "如果这些墙会说话······")
-
-数百年来，新墨西哥州的查科峡谷一直是普韦布洛人祖先的主要文化中心，他们的族群在这里扎根并繁荣起来。然而，由于高地沙漠冬季漫长、少雨且生长季节短暂，在这里生活并非易事。尽管面临这些挑战，普韦布洛人还是找到了在这个条件艰苦的地方繁荣发展的方法。今天，查科文化国家历史公园让我们得以窥见古老的普韦布洛人的文化、传统和价值观。该遗址是史前时代举办典礼的公共建筑的所在地，建筑风格具有普韦布洛文化的独特特征。这些建筑仿照古代的悬崖民居，由石灰石块或土坯砖建造而成。
-
-查科文化国家历史公园是美国最重要的保留了前哥伦布时期文化和历史的地区之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9f%a5%e7%a7%91%e6%96%87%e5%8c%96%e5%9b%bd%e5%ae%b6%e5%8e%86%e5%8f%b2%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230606_1600" "Bing Wallpaper 2023 6月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230607_ChacoCulture"&FORM=HPQUIZ "必应主页测验 2023 6月 7")
-[下载480](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_800x480.jpg&rf=LaDigue_800x480.jpg "普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州")
-[下载720](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_1280x720.jpg&rf=LaDigue_1280x720.jpg "普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州")
-[下载1080](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州")
-[下载UHD](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_UHD.jpg&rf=LaDigue_UHD.jpg "普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州")
 
 ---
