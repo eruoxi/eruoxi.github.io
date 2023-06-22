@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月23日：蝴蝶翩跹
+#### 帝王蝶在野花中取食（© bookguy/Getty Images）
+
+![蝴蝶翩跹](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_800x480.jpg&rf=LaDigue_800x480.jpg "蝴蝶翩跹")
+
+传粉动物周旨在向那些至关重要的传粉动物致敬。你也许会问，为什么传粉很重要呢？因为，我们日常食用的水果和蔬菜大多都是开花植物，很多都需要某种动物去传粉。传粉不仅有利于生物多样性，还能改善农作物的质量和数量，提高收成。仅在美国，每年就有价值近200亿美元的产品在生产过程中需要传粉。你可以通过尽量减少或者避免使用杀虫剂来庆祝这一周，顺便还可以为这些勤劳的传粉者创造出一个适宜生存的环境。
+
+帝王蝶每秒可以扇动翅膀12次，也就是每分钟近720次。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%9d%e7%8e%8b%e8%9d%b6&form=hpcapt&filters=HpDate:"20230622_1600" "Bing Wallpaper 2023 6月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230623_PollinatorMonarch"&FORM=HPQUIZ "必应主页测验 2023 6月 23")
+[下载480](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_800x480.jpg&rf=LaDigue_800x480.jpg "帝王蝶在野花中取食")
+[下载720](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_1280x720.jpg&rf=LaDigue_1280x720.jpg "帝王蝶在野花中取食")
+[下载1080](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帝王蝶在野花中取食")
+[下载UHD](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_UHD.jpg&rf=LaDigue_UHD.jpg "帝王蝶在野花中取食")
+
+---
 ### 06月22日：仲夏端午
 #### 中国传统节日端午节（© timekeep/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡帕多西亚, 土耳其")
 [下载1080](https://cn.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡帕多西亚, 土耳其")
 [下载UHD](https://cn.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_UHD.jpg&rf=LaDigue_UHD.jpg "卡帕多西亚, 土耳其")
-
----
-### 06月08日：座头鲸唱歌的地方
-#### 座头鲸（© Philip Thurston/Getty Images）
-
-![座头鲸唱歌的地方](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_800x480.jpg&rf=LaDigue_800x480.jpg "座头鲸唱歌的地方")
-
-海洋覆盖了地球表面70%以上的面积，因此海洋在调节地球气候和生态系统方面发挥着至关重要的作用。这些浩瀚的海洋支撑着巨大的海洋生物生态系统，美丽的座头鲸也在其中。座头鲸因其“唱歌”而闻名，研究认为这可能是一种孤独的表现。好消息是，随着商业捕鲸活动的结束，鲸鱼的数量有所上升，鲸鱼们也就不太需要再唱孤独之歌了。
-
-雄性座头鲸被称为公鲸，而雌性则被称为母鲸。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%ba%a7%e5%a4%b4%e9%b2%b8&form=hpcapt&filters=HpDate:"20230607_1600" "Bing Wallpaper 2023 6月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230608_PlayfulHumpback"&FORM=HPQUIZ "必应主页测验 2023 6月 8")
-[下载480](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_800x480.jpg&rf=LaDigue_800x480.jpg "座头鲸")
-[下载720](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_1280x720.jpg&rf=LaDigue_1280x720.jpg "座头鲸")
-[下载1080](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "座头鲸")
-[下载UHD](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_UHD.jpg&rf=LaDigue_UHD.jpg "座头鲸")
 
 ---
