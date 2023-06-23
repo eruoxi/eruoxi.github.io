@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月24日：海湾之美
+#### 芽富湾，芽庄，越南（© Thang Tat Nguyen/Getty Images）
+
+![海湾之美](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_800x480.jpg&rf=LaDigue_800x480.jpg "海湾之美")
+
+芽富湾是越南芽庄市附近的一块宝地。世界各地的游客来到这个迷人的海湾，在美丽的岛屿周围浮潜，品尝美味的海鲜，享受惊险的水上运动等等。芽庄海湾的汉门群岛是越南唯一的官方海洋保护区所在地。猴子岛和兰屿也是芽富湾两个颇受欢迎的岛屿。顾名思义，猴子岛是数以万计的猴子的家园，比如灰毛猴、红脸猴等，而兰屿则生长着各种各样的兰花。
+
+芽庄的汉门海洋保护区是全球首批被世界自然保护联盟承认的四个海洋保护区之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8a%bd%e5%ba%84&form=hpcapt&filters=HpDate:"20230623_1600" "Bing Wallpaper 2023 6月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230624_NhaTrang"&FORM=HPQUIZ "必应主页测验 2023 6月 24")
+[下载480](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_800x480.jpg&rf=LaDigue_800x480.jpg "芽富湾，芽庄，越南")
+[下载720](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_1280x720.jpg&rf=LaDigue_1280x720.jpg "芽富湾，芽庄，越南")
+[下载1080](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "芽富湾，芽庄，越南")
+[下载UHD](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_UHD.jpg&rf=LaDigue_UHD.jpg "芽富湾，芽庄，越南")
+
+---
 ### 06月23日：蝴蝶翩跹
 #### 帝王蝶在野花中取食（© bookguy/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PortugalDay_ZH-CN2939429166_1280x720.jpg&rf=LaDigue_1280x720.jpg "波尔图大教堂, 葡萄牙")
 [下载1080](https://cn.bing.com/th?id=OHR.PortugalDay_ZH-CN2939429166_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波尔图大教堂, 葡萄牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.PortugalDay_ZH-CN2939429166_UHD.jpg&rf=LaDigue_UHD.jpg "波尔图大教堂, 葡萄牙")
-
----
-### 06月09日：与太阳一同升起
-#### 卡帕多西亚, 土耳其（© Anton Petrus/Getty Images）
-
-![与太阳一同升起](https://cn.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_800x480.jpg&rf=LaDigue_800x480.jpg "与太阳一同升起")
-
-如果你去土耳其旅行，一定要去卡帕多西亚打卡，这是一个位于土耳其中部的历史名胜古迹。卡帕多西亚的一个神奇时刻是观看几十个热气球升入黎明的天空。如果你喜欢冒险，你还可以坐上热气球观光。卡帕多西亚遍布着神秘的高耸岩层，高可达130英尺，由数百万年前火山喷发而形成，被称为“精灵烟囟”。这里还有一个你从热气球上无法看到景点，那就是地下城德林库尤，德林库尤的房屋、市场、办公室以及公共场所完全位于地下，整座城市的历史可以追溯到公元前1400年。这座地下城曾为市民提供庇护，让他们免受掠夺和入侵。在你体验卡帕多西亚的古代奇观时，你会更容易理解这个世界有多古老。
-
-卡帕多西亚以其独特的岩层、历史遗产和观光热气球而闻名。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e5%b8%95%e5%a4%9a%e8%a5%bf%e4%ba%9a&form=hpcapt&filters=HpDate:"20230608_1600" "Bing Wallpaper 2023 6月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230609_BalloonsTurkey"&FORM=HPQUIZ "必应主页测验 2023 6月 9")
-[下载480](https://cn.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_800x480.jpg&rf=LaDigue_800x480.jpg "卡帕多西亚, 土耳其")
-[下载720](https://cn.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡帕多西亚, 土耳其")
-[下载1080](https://cn.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡帕多西亚, 土耳其")
-[下载UHD](https://cn.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_UHD.jpg&rf=LaDigue_UHD.jpg "卡帕多西亚, 土耳其")
 
 ---
