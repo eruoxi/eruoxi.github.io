@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月25日：一座宝库
+#### 佩特拉的宝库，约旦（© WitthayaP/Shutterstock）
+
+![一座宝库](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_800x480.jpg&rf=LaDigue_800x480.jpg "一座宝库")
+
+卡兹尼神殿是约旦佩特拉的一座神殿，在阿拉伯语中意为 "宝库"。多年以来，佩特拉一直不为世界所知，只有住在周边沙漠里的贝都因人才知晓它的存在。大约2000年前，佩特拉的原住民纳巴泰人用砂岩修建了这座神殿，并给其建造了一个具有蓄水池、水道和其他设施的供水系统，令人啧啧称奇。卡兹尼神殿是纳巴泰建筑的缩影，高141英尺，还有一个令人着迷的美丽门洞，高耸的柱子上刻有狮身人面兽一类的神话生物。据说纳巴泰国王阿雷塔斯四世长眠于此。
+
+佩特拉的“宝库”曾在众多好莱坞电影中出现过，比如1989年的电影《夺宝奇兵3：圣战骑兵》。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bd%a9%e7%89%b9%e6%8b%89&form=hpcapt&filters=HpDate:"20230624_1600" "Bing Wallpaper 2023 6月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230625_PetraTreasury"&FORM=HPQUIZ "必应主页测验 2023 6月 25")
+[下载480](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_800x480.jpg&rf=LaDigue_800x480.jpg "佩特拉的宝库，约旦")
+[下载720](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_1280x720.jpg&rf=LaDigue_1280x720.jpg "佩特拉的宝库，约旦")
+[下载1080](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩特拉的宝库，约旦")
+[下载UHD](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_UHD.jpg&rf=LaDigue_UHD.jpg "佩特拉的宝库，约旦")
+
+---
 ### 06月24日：海湾之美
 #### 芽富湾，芽庄，越南（© Thang Tat Nguyen/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_1280x720.jpg&rf=LaDigue_1280x720.jpg "巨鹭，克鲁格国家公园，南非")
 [下载1080](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巨鹭，克鲁格国家公园，南非")
 [下载UHD](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_UHD.jpg&rf=LaDigue_UHD.jpg "巨鹭，克鲁格国家公园，南非")
-
----
-### 06月10日：波尔图的青花瓷美景
-#### 波尔图大教堂, 葡萄牙（© Reinhard Schmid/Huber/eStock Photo）
-
-![波尔图的青花瓷美景](https://cn.bing.com/th?id=OHR.PortugalDay_ZH-CN2939429166_800x480.jpg&rf=LaDigue_800x480.jpg "波尔图的青花瓷美景")
-
-波尔图大教堂坐落在可以俯瞰杜罗河的山顶上，是葡萄牙第二大城市波尔图最著名的地标之一。这座罗马天主教堂建于12世纪，具有兼收并蓄的建筑风格，融合了罗马风、哥特风和巴洛克风的元素。大教堂内用蓝白相间的阿兹雷荷瓷砖装饰出了一幅幅《圣经》中的一些场景。这些瓷砖遍布葡萄牙各个城市的每个角落，在公寓楼、教堂和公共建筑上都随处可见。
-
-波尔图大教堂坐落在老城区的一个广场上，广场中心有一根柱子，曾是用于给罪犯上绞刑的地方。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b3%a2%e5%b0%94%e5%9b%be%e5%a4%a7%e6%95%99%e5%a0%82&form=hpcapt&filters=HpDate:"20230609_1600" "Bing Wallpaper 2023 6月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230610_PortugalDay"&FORM=HPQUIZ "必应主页测验 2023 6月 10")
-[下载480](https://cn.bing.com/th?id=OHR.PortugalDay_ZH-CN2939429166_800x480.jpg&rf=LaDigue_800x480.jpg "波尔图大教堂, 葡萄牙")
-[下载720](https://cn.bing.com/th?id=OHR.PortugalDay_ZH-CN2939429166_1280x720.jpg&rf=LaDigue_1280x720.jpg "波尔图大教堂, 葡萄牙")
-[下载1080](https://cn.bing.com/th?id=OHR.PortugalDay_ZH-CN2939429166_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波尔图大教堂, 葡萄牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.PortugalDay_ZH-CN2939429166_UHD.jpg&rf=LaDigue_UHD.jpg "波尔图大教堂, 葡萄牙")
 
 ---
