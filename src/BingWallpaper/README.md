@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月26日：奢华的迷宫
+#### 维朗德里城堡及花园，卢瓦尔河谷，法国（© VLADJ55/Shutterstock）
+
+![奢华的迷宫](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_800x480.jpg&rf=LaDigue_800x480.jpg "奢华的迷宫")
+
+法国的维朗德里城堡以其精美绝伦的花园出名。它的花园也被认为是一个文艺复兴时期园林设计的典范。花园被细分成了不同的区域，有着几何纹路、生机盎然的花床、静谧的水景和精心修建的树篱。每个区域都有其主题，有的有装饰性，有的有实用性，缤纷的色彩和纹路相交织，美不胜收。城堡的花园体现了建筑设计和自然的和谐关系，其美景和艺术创造力使游客为之着迷。
+
+维朗德里城堡在1934年被认定为一处历史纪念地。2000年，它又被列入世界遗产。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%bb%b4%e6%9c%97%e5%be%b7%e9%87%8c%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20230625_1600" "Bing Wallpaper 2023 6月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230626_VillandryGarden"&FORM=HPQUIZ "必应主页测验 2023 6月 26")
+[下载480](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_800x480.jpg&rf=LaDigue_800x480.jpg "维朗德里城堡及花园，卢瓦尔河谷，法国")
+[下载720](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_1280x720.jpg&rf=LaDigue_1280x720.jpg "维朗德里城堡及花园，卢瓦尔河谷，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维朗德里城堡及花园，卢瓦尔河谷，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_UHD.jpg&rf=LaDigue_UHD.jpg "维朗德里城堡及花园，卢瓦尔河谷，法国")
+
+---
 ### 06月25日：一座宝库
 #### 佩特拉的宝库，约旦（© WitthayaP/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_1280x720.jpg&rf=LaDigue_1280x720.jpg "仙人掌植物，得克萨斯州大弯国家公园，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "仙人掌植物，得克萨斯州大弯国家公园，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_UHD.jpg&rf=LaDigue_UHD.jpg "仙人掌植物，得克萨斯州大弯国家公园，美国")
-
----
-### 06月11日：伺机而动
-#### 巨鹭，克鲁格国家公园，南非（© Johan Swanepoel/Alamy）
-
-![伺机而动](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_800x480.jpg&rf=LaDigue_800x480.jpg "伺机而动")
-
-今天照片中的是世界上最大的鹭科鸟类——巨鹭，它正在南非克鲁格国家公园等待猎物游过。这种涉水鸟由于体型巨大（身高可达5英尺，翼展可达7英尺）而被称为巨鹭。它们以其异常缓慢的狩猎动作和对湖泊沼泽等水生栖息地的偏好而闻名。巨鹭在深水中觅食，以鲻鱼和罗非鱼等大型鱼类为食。它们也吃小动物，包括青蛙、蛇和蜥蜴。巨鹭不会因季节而迁徙，常见于撒哈拉以南的非洲地区，在亚洲的西部和南部地区也有少量巨鹭。
-
-比起在陆地上空飞行，巨鹭更喜欢沿着水道飞行，算是名副其实的水生鸟类，它们很少远离水源去冒险。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%a8%e9%b9%ad&form=hpcapt&filters=HpDate:"20230610_1600" "Bing Wallpaper 2023 6月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230611_GoliathHeron"&FORM=HPQUIZ "必应主页测验 2023 6月 11")
-[下载480](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_800x480.jpg&rf=LaDigue_800x480.jpg "巨鹭，克鲁格国家公园，南非")
-[下载720](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_1280x720.jpg&rf=LaDigue_1280x720.jpg "巨鹭，克鲁格国家公园，南非")
-[下载1080](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巨鹭，克鲁格国家公园，南非")
-[下载UHD](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_UHD.jpg&rf=LaDigue_UHD.jpg "巨鹭，克鲁格国家公园，南非")
 
 ---
