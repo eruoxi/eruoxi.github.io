@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月27日：红石的土地
+#### 塞多纳，亚利桑那州，美国（© Jonathan Ross/Getty Images）
+
+![红石的土地](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_800x480.jpg&rf=LaDigue_800x480.jpg "红石的土地")
+
+从你踏入塞多纳的那一刻起，你将会震撼于其绝妙的景色和从沙漠中突兀而出的红色砂石悬崖。冒险爱好者热爱这里的美景和宁静。塞多纳还遍地是美洲原住民的历史。尽管由于缺少文字记述，我们对于这个地区最早的定居者知之甚少，他们被称为“祖先普韦布洛人”。普遍认为他们在1400年前在此定居。大部分有关这些古代先民的信息来自于考古遗迹和文物，包括大规模的普韦布洛人定居点遗址。
+
+塞多纳地处亚利桑那州北部，冬季温和，夏季炎热。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a1%9e%e5%a4%9a%e7%ba%b3&form=hpcapt&filters=HpDate:"20230626_1600" "Bing Wallpaper 2023 6月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230627_SedonaSunset"&FORM=HPQUIZ "必应主页测验 2023 6月 27")
+[下载480](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_800x480.jpg&rf=LaDigue_800x480.jpg "塞多纳，亚利桑那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞多纳，亚利桑那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞多纳，亚利桑那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_UHD.jpg&rf=LaDigue_UHD.jpg "塞多纳，亚利桑那州，美国")
+
+---
 ### 06月26日：奢华的迷宫
 #### 维朗德里城堡及花园，卢瓦尔河谷，法国（© VLADJ55/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_UHD.jpg&rf=LaDigue_UHD.jpg "奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国")
-
----
-### 06月12日：大弯的生日
-#### 仙人掌植物，得克萨斯州大弯国家公园，美国（© Tim Fitzharris/Minden Pictures）
-
-![大弯的生日](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_800x480.jpg&rf=LaDigue_800x480.jpg "大弯的生日")
-
-今天是位于得克萨斯州的大弯国家公园的88岁生日。这个巨大的国家公园建立于1935年，已迎来了无数的自然爱好者和冒险者。公园的南边边界是划分得克萨斯州和墨西哥的格兰德河。如果你在地图上看一下这个公园和格兰德河，你就会明白这个公园名字的由来了。
-
-大弯国家公园有超过1200种植物、超过450种鸟类、56种爬行动物和75种哺乳动物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e5%bc%af%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad%ef%bc%8c%e5%be%97%e5%85%8b%e8%90%a8%e6%96%af%e5%b7%9e&form=hpcapt&filters=HpDate:"20230611_1600" "Bing Wallpaper 2023 6月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230612_BigBendAnniv"&FORM=HPQUIZ "必应主页测验 2023 6月 12")
-[下载480](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_800x480.jpg&rf=LaDigue_800x480.jpg "仙人掌植物，得克萨斯州大弯国家公园，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_1280x720.jpg&rf=LaDigue_1280x720.jpg "仙人掌植物，得克萨斯州大弯国家公园，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "仙人掌植物，得克萨斯州大弯国家公园，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_UHD.jpg&rf=LaDigue_UHD.jpg "仙人掌植物，得克萨斯州大弯国家公园，美国")
 
 ---
