@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月28日：天堂之景！
+#### 韦尔纳扎，五渔村，意大利（© Rubin Versigny/Getty Images）
+
+![天堂之景！](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_800x480.jpg&rf=LaDigue_800x480.jpg "天堂之景！")
+
+韦尔纳扎是组成五渔村国家公园的第二个村镇。五渔村在1997年被联合国教科文组织列为世界文化遗产地。韦尔纳扎是利古里亚海岸上的一颗明珠，镇上的特色建筑非常值得一看，这里还有一条2公里长的步道，通往一座圣母堂，非常适合徒步爱好者。
+
+2021年的动画电影《夏日友晴天》中的海滨小镇就以韦尔纳扎为原型。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%9f%a6%e5%b0%94%e7%ba%b3%e6%89%8e&form=hpcapt&filters=HpDate:"20230627_1600" "Bing Wallpaper 2023 6月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230628_ItalyCinqueTerre"&FORM=HPQUIZ "必应主页测验 2023 6月 28")
+[下载480](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_800x480.jpg&rf=LaDigue_800x480.jpg "韦尔纳扎，五渔村，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_1280x720.jpg&rf=LaDigue_1280x720.jpg "韦尔纳扎，五渔村，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦尔纳扎，五渔村，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_UHD.jpg&rf=LaDigue_UHD.jpg "韦尔纳扎，五渔村，意大利")
+
+---
 ### 06月27日：红石的土地
 #### 塞多纳，亚利桑那州，美国（© Jonathan Ross/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_1280x720.jpg&rf=LaDigue_1280x720.jpg "多瑙河畔的帕绍市，巴伐利亚，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多瑙河畔的帕绍市，巴伐利亚，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_UHD.jpg&rf=LaDigue_UHD.jpg "多瑙河畔的帕绍市，巴伐利亚，德国")
-
----
-### 06月13日：你是否有勇气进入这片茂密的沼泽
-#### 奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国（© Emmer Photo/Alamy）
-
-![你是否有勇气进入这片茂密的沼泽](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_800x480.jpg&rf=LaDigue_800x480.jpg "你是否有勇气进入这片茂密的沼泽")
-
-奥克弗诺基沼泽大部分位于佐治亚州东南部，是全美最大的淡水沼泽地。这片巨大又独特的生态系统覆盖了700平方英里的土地，生活着各种各样的野生动物，比如鹭、鹤、麻鸦、美洲短吻鳄、啄木鸟、乌龟、蛇、青蛙等。宁静的水域被有机物腐烂产生的单宁染成棕色。这片区域曾经是塞米诺尔印第安人的领地。到了现代，这片沼泽的一大部分已经被商业化了，这里的泥煤矿藏被作为燃料开采。
-
-奥克弗诺基经常被直译为“震颤的大地”，但是这个名字很有可能源于希奇蒂语"oki fanôːki"，意为“冒泡的水”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a5%a5%e5%85%8b%e5%bc%97%e8%af%ba%e5%9f%ba%e6%b2%bc%e6%b3%bd&form=hpcapt&filters=HpDate:"20230612_1600" "Bing Wallpaper 2023 6月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230613_OkefenokeeSwamp"&FORM=HPQUIZ "必应主页测验 2023 6月 13")
-[下载480](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_800x480.jpg&rf=LaDigue_800x480.jpg "奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_UHD.jpg&rf=LaDigue_UHD.jpg "奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国")
 
 ---
