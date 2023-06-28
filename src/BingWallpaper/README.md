@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月29日：赞美热带
+#### 巴尼亚群岛，苏门答腊，印度尼西亚（© fbxx/Getty Imagesz）
+
+![赞美热带](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_800x480.jpg&rf=LaDigue_800x480.jpg "赞美热带")
+
+巴尼亚群岛位于印度洋海域，每年吸引数百万游客。巴尼亚群岛由99个小岛组成，这些小岛大部分都无人居住，甚至还没有名字，岛上目之所及都是纯净的沙滩、茂盛的树木和透彻的海水。这个纯净的热带天堂还非常适宜冲浪，这因此成为了完美的度假目的地，适合任何想要在平静和放松之余来一点冒险的人们。
+
+班卡卢岛是重要的海龟栖息地，绿海龟、棱皮龟和其他种类的海龟会来这里筑巢产卵。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e5%b0%bc%e4%ba%9a%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20230628_1600" "Bing Wallpaper 2023 6月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230629_BanyakIslands"&FORM=HPQUIZ "必应主页测验 2023 6月 29")
+[下载480](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_800x480.jpg&rf=LaDigue_800x480.jpg "巴尼亚群岛，苏门答腊，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴尼亚群岛，苏门答腊，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴尼亚群岛，苏门答腊，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg&rf=LaDigue_UHD.jpg "巴尼亚群岛，苏门答腊，印度尼西亚")
+
+---
 ### 06月28日：天堂之景！
 #### 韦尔纳扎，五渔村，意大利（© Rubin Versigny/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SmokyFireflies_ZH-CN3840923626_1280x720.jpg&rf=LaDigue_1280x720.jpg "同步萤火虫，大烟山国家公园，田纳西州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SmokyFireflies_ZH-CN3840923626_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "同步萤火虫，大烟山国家公园，田纳西州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SmokyFireflies_ZH-CN3840923626_UHD.jpg&rf=LaDigue_UHD.jpg "同步萤火虫，大烟山国家公园，田纳西州，美国")
-
----
-### 06月14日：巴洛克风盛宴
-#### 多瑙河畔的帕绍市，巴伐利亚，德国（© Scott Wilson/Alamy）
-
-![巴洛克风盛宴](https://cn.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_800x480.jpg&rf=LaDigue_800x480.jpg "巴洛克风盛宴")
-
-帕绍位于德国的下巴伐利亚州，因为多瑙河、因河和伊尔茨河在此交汇，帕绍又被称作“三河之城”。帕绍以其哥特风格和巴洛克风格的建筑闻名。多瑙河和伊尔茨河之间的山上坐落着上韦斯特城堡和下韦斯特城堡，俯瞰着这座城市。
-
-很多沿多瑙河航行的内河游船都从帕绍启航，顺流而下前往维也纳。这是一条经典历史路线，帝王之路。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%be%b7%e5%9b%bd%e5%b8%95%e7%bb%8d&form=hpcapt&filters=HpDate:"20230613_1600" "Bing Wallpaper 2023 6月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230614_PassauSunsetJune"&FORM=HPQUIZ "必应主页测验 2023 6月 14")
-[下载480](https://cn.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_800x480.jpg&rf=LaDigue_800x480.jpg "多瑙河畔的帕绍市，巴伐利亚，德国")
-[下载720](https://cn.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_1280x720.jpg&rf=LaDigue_1280x720.jpg "多瑙河畔的帕绍市，巴伐利亚，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多瑙河畔的帕绍市，巴伐利亚，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_UHD.jpg&rf=LaDigue_UHD.jpg "多瑙河畔的帕绍市，巴伐利亚，德国")
 
 ---
