@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月01日：超凡脱俗的风景
+#### 从意大利圣天使城堡俯瞰罗马（© sborisov/Getty Images）
+
+![超凡脱俗的风景](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_800x480.jpg&rf=LaDigue_800x480.jpg "超凡脱俗的风景")
+
+今天的照片是从圣天使堡（又称哈德良陵墓）拍下的罗马美景。圣天使堡是由罗马帝国皇帝哈德良所修建，用作自己和后代的陵墓。除他之外，还有许多皇帝被葬在这里，公元217年的卡拉卡拉是最后一位。
+
+罗马圣天使堡的盛名，在很大程度上要归功于改编自丹·布朗的长篇小说《天使与魔鬼》的电影。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%bd%97%e9%a9%ac&form=hpcapt&filters=HpDate:"20230630_1600" "Bing Wallpaper 2023 7月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230701_RomeView"&FORM=HPQUIZ "必应主页测验 2023 7月 1")
+[下载480](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_800x480.jpg&rf=LaDigue_800x480.jpg "从意大利圣天使城堡俯瞰罗马")
+[下载720](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_1280x720.jpg&rf=LaDigue_1280x720.jpg "从意大利圣天使城堡俯瞰罗马")
+[下载1080](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从意大利圣天使城堡俯瞰罗马")
+[下载UHD](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_UHD.jpg&rf=LaDigue_UHD.jpg "从意大利圣天使城堡俯瞰罗马")
+
+---
 ### 06月30日：孩子，你把鱼扔哪儿了？
 #### 棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州（© Carlos Carreno/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_1280x720.jpg&rf=LaDigue_1280x720.jpg "在加利福尼亚州圣地亚哥举行的“为团结划桨”活动")
 [下载1080](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在加利福尼亚州圣地亚哥举行的“为团结划桨”活动")
 [下载UHD](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_UHD.jpg&rf=LaDigue_UHD.jpg "在加利福尼亚州圣地亚哥举行的“为团结划桨”活动")
-
----
-### 06月16日：鹰嘴海龟
-#### 游泳的鹰嘴海龟， 冲绳，日本（© Robert Mallon/Getty Images）
-
-![鹰嘴海龟](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_800x480.jpg&rf=LaDigue_800x480.jpg "鹰嘴海龟")
-
-世界海龟日快乐！今天，世界各地的人们聚集在一起清理近岸海洋垃圾，守护海龟及其他海洋生物的栖息之所，帮助它们恢复干净的水域。鹰嘴海龟分布非常广泛，最大的亚种群分布在加勒比海、印度洋和印度洋-太平洋海域。
-
-鹰嘴海龟因其窄而尖的喙而得名，它还有个更知名的名称：玳瑁。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%b9%b0%e5%98%b4%e6%b5%b7%e9%be%9f&form=hpcapt&filters=HpDate:"20230615_1600" "Bing Wallpaper 2023 6月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230616_HawksbillTurtle"&FORM=HPQUIZ "必应主页测验 2023 6月 16")
-[下载480](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_800x480.jpg&rf=LaDigue_800x480.jpg "游泳的鹰嘴海龟， 冲绳，日本")
-[下载720](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_1280x720.jpg&rf=LaDigue_1280x720.jpg "游泳的鹰嘴海龟， 冲绳，日本")
-[下载1080](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "游泳的鹰嘴海龟， 冲绳，日本")
-[下载UHD](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_UHD.jpg&rf=LaDigue_UHD.jpg "游泳的鹰嘴海龟， 冲绳，日本")
 
 ---
