@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月02日：一年已过半
+#### 费吕沃湖水道桥，荷兰（© Frolova_Elena/Shutterstock）
+
+![一年已过半](https://cn.bing.com/th?id=OHR.HalfwayBoats_ZH-CN3563044251_800x480.jpg&rf=LaDigue_800x480.jpg "一年已过半")
+
+平年有365天，今天恰好是中间日，也就是平年的中间点。中间日，在平年的7月2日的中午开始，在闰年的7月2日的午夜开始。2023年是平年，所以你去吃午饭的时候正好是一年的中间点哦。
+
+费吕沃湖水道桥是按抗震标准建造的，它已经成功通过了里氏6.5级地震的测试。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%b4%b9%e5%90%95%e6%b2%83%e6%b9%96%e6%b0%b4%e9%81%93%e6%a1%a5&form=hpcapt&filters=HpDate:"20230701_1600" "Bing Wallpaper 2023 7月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230702_HalfwayBoats"&FORM=HPQUIZ "必应主页测验 2023 7月 2")
+[下载480](https://cn.bing.com/th?id=OHR.HalfwayBoats_ZH-CN3563044251_800x480.jpg&rf=LaDigue_800x480.jpg "费吕沃湖水道桥，荷兰")
+[下载720](https://cn.bing.com/th?id=OHR.HalfwayBoats_ZH-CN3563044251_1280x720.jpg&rf=LaDigue_1280x720.jpg "费吕沃湖水道桥，荷兰")
+[下载1080](https://cn.bing.com/th?id=OHR.HalfwayBoats_ZH-CN3563044251_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "费吕沃湖水道桥，荷兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.HalfwayBoats_ZH-CN3563044251_UHD.jpg&rf=LaDigue_UHD.jpg "费吕沃湖水道桥，荷兰")
+
+---
 ### 07月01日：超凡脱俗的风景
 #### 从意大利圣天使城堡俯瞰罗马（© sborisov/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_1280x720.jpg&rf=LaDigue_1280x720.jpg "普通燕鸥父亲和宝宝，长岛，纽约州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普通燕鸥父亲和宝宝，长岛，纽约州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg&rf=LaDigue_UHD.jpg "普通燕鸥父亲和宝宝，长岛，纽约州，美国")
-
----
-### 06月17日：桨叶动力
-#### 在加利福尼亚州圣地亚哥举行的“为团结划桨”活动（© Brandon Colbert Photography/Getty Images）
-
-![桨叶动力](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_800x480.jpg&rf=LaDigue_800x480.jpg "桨叶动力")
-
-国际冲浪日通过激发人们对冲浪的热情来促进对海洋的保护。 每年 6 月的第三个星期六，人们都会聚集在一起参加冲浪比赛、烧烤、海滩清理和其他活动，以帮助恢复和保护海洋环境。 为一项事业走到一起是全球冲浪社区的标志，无论是为了自然还是为了反对不公正，正如他们在 2020 年加利福尼亚州恩西尼塔斯举行的“为团结划桨”聚会上所做的那样，如图所示。
-
-比赛和奖品也是庆祝活动的一部分，与冲浪相关的行业会捐赠冲浪板和潜水服等奖品。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e5%86%b2%e6%b5%aa%e6%97%a5&form=hpcapt&filters=HpDate:"20230616_1600" "Bing Wallpaper 2023 6月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230617_SurfSanDiego"&FORM=HPQUIZ "必应主页测验 2023 6月 17")
-[下载480](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_800x480.jpg&rf=LaDigue_800x480.jpg "在加利福尼亚州圣地亚哥举行的“为团结划桨”活动")
-[下载720](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_1280x720.jpg&rf=LaDigue_1280x720.jpg "在加利福尼亚州圣地亚哥举行的“为团结划桨”活动")
-[下载1080](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在加利福尼亚州圣地亚哥举行的“为团结划桨”活动")
-[下载UHD](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_UHD.jpg&rf=LaDigue_UHD.jpg "在加利福尼亚州圣地亚哥举行的“为团结划桨”活动")
 
 ---
