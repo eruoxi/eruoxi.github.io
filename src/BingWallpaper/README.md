@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月03日：天气热得让人想嗷嗷叫！
+#### 班夫的土狼，加拿大（© Harry Collins/Getty Images）
+
+![天气热得让人想嗷嗷叫！](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_800x480.jpg&rf=LaDigue_800x480.jpg "天气热得让人想嗷嗷叫！")
+
+热得够呛了吧？夏天，地球向太阳倾斜的角度变大，我们因此进入了北半球一年中最炎热的时节。在英语里，三伏天被称为“dog days”，这个词源自天狼星，也就是大犬座α星。夏季的黎明时分，我们可以在东方的地平线上看到天狼星。作为大犬星座的一部分，天狼星是夜空中最亮的恒星。不过，今天图片中的动物可并非犬类，而是一只郊狼。
+
+班夫国家公园是加拿大最古老的国家公园，它建成于1885年，当时名叫落基山脉公园。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%9f%e7%8b%bc&form=hpcapt&filters=HpDate:"20230702_1600" "Bing Wallpaper 2023 7月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230703_CoyoteBanff"&FORM=HPQUIZ "必应主页测验 2023 7月 3")
+[下载480](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_800x480.jpg&rf=LaDigue_800x480.jpg "班夫的土狼，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_1280x720.jpg&rf=LaDigue_1280x720.jpg "班夫的土狼，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "班夫的土狼，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_UHD.jpg&rf=LaDigue_UHD.jpg "班夫的土狼，加拿大")
+
+---
 ### 07月02日：一年已过半
 #### 费吕沃湖水道桥，荷兰（© Frolova_Elena/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_1280x720.jpg&rf=LaDigue_1280x720.jpg "奔跑在诺曼底草地上的小狍，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奔跑在诺曼底草地上的小狍，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_UHD.jpg&rf=LaDigue_UHD.jpg "奔跑在诺曼底草地上的小狍，法国")
-
----
-### 06月18日：值班爸爸
-#### 普通燕鸥父亲和宝宝，长岛，纽约州，美国（© Vicki Jauron, Babylon and Beyond Photography/Getty Images）
-
-![值班爸爸](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_800x480.jpg&rf=LaDigue_800x480.jpg "值班爸爸")
-
-也许是受到1908年首届母亲节的启发，美国华盛顿州的索诺拉·斯马特·多德认为父亲们也应该拥有自己的庆祝活动，于是她提出了父亲节。1910年，首届父亲节庆祝活动举行，并在六年后得到了美国总统伍德罗·威尔逊的认可。到了20世纪20年代，父亲节一度不再流行，但最终由于营销而重新流行起来，并被理查德·尼克松总统设定为永久性国家纪念日。父亲的形象，就像今天图片中的燕鸥爸爸一样，努力工作，为我们遮风挡雨。
-
-它们是所有鸟类中迁徙距离最长的候鸟，平均每年往返飞行3.5万公里。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%88%b6%e4%ba%b2%e8%8a%82&form=hpcapt&filters=HpDate:"20230617_1600" "Bing Wallpaper 2023 6月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230618_TernFather"&FORM=HPQUIZ "必应主页测验 2023 6月 18")
-[下载480](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_800x480.jpg&rf=LaDigue_800x480.jpg "普通燕鸥父亲和宝宝，长岛，纽约州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_1280x720.jpg&rf=LaDigue_1280x720.jpg "普通燕鸥父亲和宝宝，长岛，纽约州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普通燕鸥父亲和宝宝，长岛，纽约州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg&rf=LaDigue_UHD.jpg "普通燕鸥父亲和宝宝，长岛，纽约州，美国")
 
 ---
