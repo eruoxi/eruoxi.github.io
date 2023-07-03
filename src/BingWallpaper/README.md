@@ -1,8 +1,25 @@
 ## Bing Wallpaper(最近15天)
+### 07月04日：体验孤独与奇迹
+#### 草原国家公园，萨斯喀彻温省，加拿大（© Robert Postma/Getty Images）
+
+![体验孤独与奇迹](https://cn.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_800x480.jpg&rf=LaDigue_800x480.jpg "体验孤独与奇迹")
+
+萨斯喀彻温省位于加拿大中心地带，是加拿大仅有的两个内陆省份之一。
+
+冰川融水侵蚀形成了草原国家公园的许多特色景观，包括著名的法国人河谷、七十英里孤峰和岩石溪的荒地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8d%89%e5%8e%9f%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230703_1600" "Bing Wallpaper 2023 7月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230704_GrasslandsNationalParkSaskachewan"&FORM=HPQUIZ "必应主页测验 2023 7月 4")
+[下载480](https://cn.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_800x480.jpg&rf=LaDigue_800x480.jpg "草原国家公园，萨斯喀彻温省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_1280x720.jpg&rf=LaDigue_1280x720.jpg "草原国家公园，萨斯喀彻温省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "草原国家公园，萨斯喀彻温省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_UHD.jpg&rf=LaDigue_UHD.jpg "草原国家公园，萨斯喀彻温省，加拿大")
+
+---
 ### 07月03日：天气热得让人想嗷嗷叫！
 #### 班夫的土狼，加拿大（© Harry Collins/Getty Images）
 
-![天气热得让人想嗷嗷叫！](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_800x480.jpg&rf=LaDigue_800x480.jpg "天气热得让人想嗷嗷叫！")
+![天气热得让人想嗷嗷叫！](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN7537137739_800x480.jpg&rf=LaDigue_800x480.jpg "天气热得让人想嗷嗷叫！")
 
 热得够呛了吧？夏天，地球向太阳倾斜的角度变大，我们因此进入了北半球一年中最炎热的时节。在英语里，三伏天被称为“dog days”，这个词源自天狼星，也就是大犬座α星。夏季的黎明时分，我们可以在东方的地平线上看到天狼星。作为大犬星座的一部分，天狼星是夜空中最亮的恒星。不过，今天图片中的动物可并非犬类，而是一只郊狼。
 
@@ -10,10 +27,10 @@
 
 [Bing搜索](https://cn.bing.com/search?q=%e5%9c%9f%e7%8b%bc&form=hpcapt&filters=HpDate:"20230702_1600" "Bing Wallpaper 2023 7月 3")
 [必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230703_CoyoteBanff"&FORM=HPQUIZ "必应主页测验 2023 7月 3")
-[下载480](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_800x480.jpg&rf=LaDigue_800x480.jpg "班夫的土狼，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_1280x720.jpg&rf=LaDigue_1280x720.jpg "班夫的土狼，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "班夫的土狼，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_UHD.jpg&rf=LaDigue_UHD.jpg "班夫的土狼，加拿大")
+[下载480](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN7537137739_800x480.jpg&rf=LaDigue_800x480.jpg "班夫的土狼，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN7537137739_1280x720.jpg&rf=LaDigue_1280x720.jpg "班夫的土狼，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN7537137739_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "班夫的土狼，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN7537137739_UHD.jpg&rf=LaDigue_UHD.jpg "班夫的土狼，加拿大")
 
 ---
 ### 07月02日：一年已过半
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_1280x720.jpg&rf=LaDigue_1280x720.jpg "秃鹰，通加斯国家森林，阿拉斯加，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秃鹰，通加斯国家森林，阿拉斯加，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_UHD.jpg&rf=LaDigue_UHD.jpg "秃鹰，通加斯国家森林，阿拉斯加，美国")
-
----
-### 06月19日：这只小可爱在哪里?
-#### 奔跑在诺曼底草地上的小狍，法国（© Gerard Lacz/Minden）
-
-![这只小可爱在哪里?](https://cn.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_800x480.jpg&rf=LaDigue_800x480.jpg "这只小可爱在哪里?")
-
-獐子（Capreolus capreolus），也被称为狍子、西方狍子或欧洲狍子，是鹿的一种。该物种的雄性有时被称为 "獐"。它主要以草、叶、浆果和嫩芽为食。它特别喜欢非常年轻的、水分含量高的嫩草，即前一天下过雨的草。
-
-体格健壮的雄袍子鹿角长达20-25厘米，有两个或三个角，很少有四个角。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8b%8d&form=hpcapt&filters=HpDate:"20230618_1600" "Bing Wallpaper 2023 6月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230619_Fawn"&FORM=HPQUIZ "必应主页测验 2023 6月 19")
-[下载480](https://cn.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_800x480.jpg&rf=LaDigue_800x480.jpg "奔跑在诺曼底草地上的小狍，法国")
-[下载720](https://cn.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_1280x720.jpg&rf=LaDigue_1280x720.jpg "奔跑在诺曼底草地上的小狍，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奔跑在诺曼底草地上的小狍，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_UHD.jpg&rf=LaDigue_UHD.jpg "奔跑在诺曼底草地上的小狍，法国")
 
 ---
