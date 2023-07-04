@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月05日：挑选你的乐园
+#### 蒂莫尼港海滩，科孚岛，希腊（© nantonov/Getty Images）
+
+![挑选你的乐园](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_800x480.jpg&rf=LaDigue_800x480.jpg "挑选你的乐园")
+
+蒂莫尼港海滩位于希腊科孚岛的西北部海岸，是一个具有自然魅力的迷人目的地。从历史悠久的阿菲奥纳斯村出发，通过风景优美的徒步旅行路线或乘船前往，这个隐藏着的如宝石般的海岛拥有两个令人惊叹的海湾，形成了独特的双重海滩体验。蒂莫尼港拥有晶莹剔透的绿松石水域和引人注目的悬崖，呈现出如画的海岸全景。在海滩周围，郁郁葱葱的橄榄树和柏树为这里增添了迷人的氛围。尽管像科孚岛这样的希腊岛屿似乎是永恒的、古老的，但它们在地球的历史上相对较新。一个主要的理论是，大约在530万年前，一场大洪水从大西洋涌入非洲和欧洲之间，这一事件被称为赞克尔期洪水。湖泊变成了海洋，以前的山顶变成了岛屿。
+
+科孚岛以北无人居住的迪亚彭蒂亚群岛是水手们最喜欢的目的地，是所有喜欢潜水和钓鱼的人的理想选择。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e5%ad%9a%e5%b2%9b&form=hpcapt&filters=HpDate:"20230704_1600" "Bing Wallpaper 2023 7月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230705_CorfuBeach"&FORM=HPQUIZ "必应主页测验 2023 7月 5")
+[下载480](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_800x480.jpg&rf=LaDigue_800x480.jpg "蒂莫尼港海滩，科孚岛，希腊")
+[下载720](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒂莫尼港海滩，科孚岛，希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒂莫尼港海滩，科孚岛，希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_UHD.jpg&rf=LaDigue_UHD.jpg "蒂莫尼港海滩，科孚岛，希腊")
+
+---
 ### 07月04日：体验孤独与奇迹
 #### 草原国家公园，萨斯喀彻温省，加拿大（© Robert Postma/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_1280x720.jpg&rf=LaDigue_1280x720.jpg "夏日盛开的荷花")
 [下载1080](https://cn.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夏日盛开的荷花")
 [下载UHD](https://cn.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_UHD.jpg&rf=LaDigue_UHD.jpg "夏日盛开的荷花")
-
----
-### 06月20日：这只顶级掠食者是什么?
-#### 秃鹰，通加斯国家森林，阿拉斯加，美国（© Jaynes Gallery/Shutterstock）
-
-![这只顶级掠食者是什么?](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_800x480.jpg&rf=LaDigue_800x480.jpg "这只顶级掠食者是什么?")
-
-秃鹰又名白头海雕、白头鹰，是力量、决心和勇气的象征。1782年6月20日，美国通过了一项法令，将白头鹰定为国鸟。为了进一步保护白头鹰，1995年，时任美国总统比尔·克林顿宣布每年的6月20日为“白头鹰日”。白头鹰，因其白色的头部而得名，曾是濒临灭绝的鸟类，但是随着保护工作的开展和濒危物种法案的实施，白头鹰的数量实现了成倍增长。
-
-秃鹰实际上并不真的秃，而“秃”的英文“bald”的旧意其实是“白头”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a7%83%e9%b9%b0&form=hpcapt&filters=HpDate:"20230619_1600" "Bing Wallpaper 2023 6月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230620_EagleTree"&FORM=HPQUIZ "必应主页测验 2023 6月 20")
-[下载480](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_800x480.jpg&rf=LaDigue_800x480.jpg "秃鹰，通加斯国家森林，阿拉斯加，美国")
-[下载720](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_1280x720.jpg&rf=LaDigue_1280x720.jpg "秃鹰，通加斯国家森林，阿拉斯加，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秃鹰，通加斯国家森林，阿拉斯加，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_UHD.jpg&rf=LaDigue_UHD.jpg "秃鹰，通加斯国家森林，阿拉斯加，美国")
 
 ---
