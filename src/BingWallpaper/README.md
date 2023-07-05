@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月06日：接吻的企鹅
+#### 南跳岩企鹅，福克兰群岛（© Tony Beck/Getty Images）
+
+![接吻的企鹅](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_800x480.jpg&rf=LaDigue_800x480.jpg "接吻的企鹅")
+
+这张照片完美地捕捉到了两只南跳岩企鹅温柔地亲吻对方的温馨瞬间。今天是国际接吻日，这张照片实在是非常应景。我们为什么要亲吻？对此有各种各样的解释：接吻会让我们的大脑产生化学反应；远古时父母会嚼碎食物喂给孩子吃，后来演变为接吻；接吻是为了嗅闻彼此的味道……当然，没有任何科学的解释能阐释出接吻的魔力。我们创作了无数关于接吻的歌曲，这或许也是我们尝试描述接吻的魔力的一种方式吧。
+
+它们之所以叫跳岩企鹅，是因为它们不像其他企鹅那样靠腹部滑行或借助鳍状翅膀笨拙地爬过障碍物，而是会尝试跳过巨石和裂缝。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%97%e8%b7%b3%e5%b2%a9%e4%bc%81%e9%b9%85&form=hpcapt&filters=HpDate:"20230705_1600" "Bing Wallpaper 2023 7月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230706_KissingPenguins"&FORM=HPQUIZ "必应主页测验 2023 7月 6")
+[下载480](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_800x480.jpg&rf=LaDigue_800x480.jpg "南跳岩企鹅，福克兰群岛")
+[下载720](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_1280x720.jpg&rf=LaDigue_1280x720.jpg "南跳岩企鹅，福克兰群岛")
+[下载1080](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南跳岩企鹅，福克兰群岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg&rf=LaDigue_UHD.jpg "南跳岩企鹅，福克兰群岛")
+
+---
 ### 07月05日：挑选你的乐园
 #### 蒂莫尼港海滩，科孚岛，希腊（© nantonov/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_1280x720.jpg&rf=LaDigue_1280x720.jpg "中国传统节日端午节")
 [下载1080](https://cn.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国传统节日端午节")
 [下载UHD](https://cn.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_UHD.jpg&rf=LaDigue_UHD.jpg "中国传统节日端午节")
-
----
-### 06月21日：夏日仙境
-#### 夏日盛开的荷花（© pandemin/Getty Images）
-
-![夏日仙境](https://cn.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_800x480.jpg&rf=LaDigue_800x480.jpg "夏日仙境")
-
-夏至是二十四节气中的一个，也是一年中白昼最长的一天。在这一天，太阳直射北回归线，北半球的温度达到最高，而南半球则是冬至。夏至的日期通常在公历6月21日或22日，不同地区有不同的习俗和活动来庆祝这个节气。在中国，夏至被认为是阴阳转化的重要时刻，也是祭祀天地和祖先的日子。人们会吃面条、鸡蛋、荔枝等食物来祈求健康和长寿，也会烧香、挂艾草、泡药浴等来驱除瘟疫和邪气。
-
-“荷”被称为“活化石”，是被子植物中起源最早的植物之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%8f%e8%87%b3&form=hpcapt&filters=HpDate:"20230620_1600" "Bing Wallpaper 2023 6月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230621_SummerSolstice2023"&FORM=HPQUIZ "必应主页测验 2023 6月 21")
-[下载480](https://cn.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_800x480.jpg&rf=LaDigue_800x480.jpg "夏日盛开的荷花")
-[下载720](https://cn.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_1280x720.jpg&rf=LaDigue_1280x720.jpg "夏日盛开的荷花")
-[下载1080](https://cn.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夏日盛开的荷花")
-[下载UHD](https://cn.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_UHD.jpg&rf=LaDigue_UHD.jpg "夏日盛开的荷花")
 
 ---
