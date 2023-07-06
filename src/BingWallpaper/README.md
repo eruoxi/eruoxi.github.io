@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月07日：巧克力爱好者最爱的水果
+#### 安班加的可可豆荚，马达加斯加（© pierivb/Getty Images）
+
+![巧克力爱好者最爱的水果](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_800x480.jpg&rf=LaDigue_800x480.jpg "巧克力爱好者最爱的水果")
+
+很少有人能拒绝巧克力的浓郁美味。每年的7月7日是世界巧克力日，就让我们在今天毫无愧疚地享受巧克力的美味吧。
+
+可可树主要分为三个品种：佛拉斯特罗、克里奥罗和崔尼塔利奥。佛拉斯特罗是最常用的品种，占了世界上可可豆总产量的80%-90%。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8f%af%e5%8f%af%e8%b1%86&form=hpcapt&filters=HpDate:"20230706_1600" "Bing Wallpaper 2023 7月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230707_CocoaPods"&FORM=HPQUIZ "必应主页测验 2023 7月 7")
+[下载480](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_800x480.jpg&rf=LaDigue_800x480.jpg "安班加的可可豆荚，马达加斯加")
+[下载720](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_1280x720.jpg&rf=LaDigue_1280x720.jpg "安班加的可可豆荚，马达加斯加")
+[下载1080](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安班加的可可豆荚，马达加斯加")
+[下载UHD](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_UHD.jpg&rf=LaDigue_UHD.jpg "安班加的可可豆荚，马达加斯加")
+
+---
 ### 07月06日：接吻的企鹅
 #### 南跳岩企鹅，福克兰群岛（© Tony Beck/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_1280x720.jpg&rf=LaDigue_1280x720.jpg "帝王蝶在野花中取食")
 [下载1080](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帝王蝶在野花中取食")
 [下载UHD](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_UHD.jpg&rf=LaDigue_UHD.jpg "帝王蝶在野花中取食")
-
----
-### 06月22日：仲夏端午
-#### 中国传统节日端午节（© timekeep/Shutterstock）
-
-![仲夏端午](https://cn.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_800x480.jpg&rf=LaDigue_800x480.jpg "仲夏端午")
-
-端午节的起源涵盖了古老星象文化、龙图腾祭祀、人文哲学等方面的内容，蕴含着深邃丰厚的文化内涵，在传承发展中杂糅了多种民俗为一体，各地因地域文化不同而又存在着习俗内容或细节上的差异。
-
-2009年9月，端午节成为中国第一个入选世界非物质文化遗产的节日。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ab%af%e5%8d%88%e8%8a%82&form=hpcapt&filters=HpDate:"20230621_1600" "Bing Wallpaper 2023 6月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230622_DragonBoatFestival2023"&FORM=HPQUIZ "必应主页测验 2023 6月 22")
-[下载480](https://cn.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_800x480.jpg&rf=LaDigue_800x480.jpg "中国传统节日端午节")
-[下载720](https://cn.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_1280x720.jpg&rf=LaDigue_1280x720.jpg "中国传统节日端午节")
-[下载1080](https://cn.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国传统节日端午节")
-[下载UHD](https://cn.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_UHD.jpg&rf=LaDigue_UHD.jpg "中国传统节日端午节")
 
 ---
