@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月08日：树林中的避难所
+#### 米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州（© Eddie Brady/Getty Images）
+
+![树林中的避难所](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_800x480.jpg&rf=LaDigue_800x480.jpg "树林中的避难所")
+
+位于阿肯色州贝拉维斯塔的米尔德里德-B-库珀纪念教堂是该国最迷人的建筑之一。这座教堂建于1988年，以一位受人爱戴的社区成员的名字命名，由E.Fay Jones设计，其特点是独特的设计理念，将现代主义原则与大自然的壮丽完美融合。这一设计理念的结果是为人们缔造了一个和谐的空间，其木制建筑与自然环境融为一体。小教堂被郁郁葱葱的树木所包围，阳光透过彩色玻璃照射进来，成为沉思和祈祷的完美圣地。它也是建筑激发和提升人类精神能力的一个有力证明。
+
+Fay Jones 在阿肯色州西北部制作了两件著名的建筑艺术品。 第一个是贝拉维斯塔自己的 米尔德里德-B-库珀纪念教堂，另一个是位于阿肯色州尤里卡斯普林斯的荆棘冠教堂。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e8%82%af%e8%89%b2%e5%b7%9e&form=hpcapt&filters=HpDate:"20230707_1600" "Bing Wallpaper 2023 7月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230708_CooperChapel"&FORM=HPQUIZ "必应主页测验 2023 7月 8")
+[下载480](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_800x480.jpg&rf=LaDigue_800x480.jpg "米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州")
+[下载720](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_1280x720.jpg&rf=LaDigue_1280x720.jpg "米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州")
+[下载1080](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州")
+[下载UHD](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_UHD.jpg&rf=LaDigue_UHD.jpg "米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州")
+
+---
 ### 07月07日：巧克力爱好者最爱的水果
 #### 安班加的可可豆荚，马达加斯加（© pierivb/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_1280x720.jpg&rf=LaDigue_1280x720.jpg "芽富湾，芽庄，越南")
 [下载1080](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "芽富湾，芽庄，越南")
 [下载UHD](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_UHD.jpg&rf=LaDigue_UHD.jpg "芽富湾，芽庄，越南")
-
----
-### 06月23日：蝴蝶翩跹
-#### 帝王蝶在野花中取食（© bookguy/Getty Images）
-
-![蝴蝶翩跹](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_800x480.jpg&rf=LaDigue_800x480.jpg "蝴蝶翩跹")
-
-传粉动物周旨在向那些至关重要的传粉动物致敬。你也许会问，为什么传粉很重要呢？因为，我们日常食用的水果和蔬菜大多都是开花植物，很多都需要某种动物去传粉。传粉不仅有利于生物多样性，还能改善农作物的质量和数量，提高收成。仅在美国，每年就有价值近200亿美元的产品在生产过程中需要传粉。你可以通过尽量减少或者避免使用杀虫剂来庆祝这一周，顺便还可以为这些勤劳的传粉者创造出一个适宜生存的环境。
-
-帝王蝶每秒可以扇动翅膀12次，也就是每分钟近720次。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%9d%e7%8e%8b%e8%9d%b6&form=hpcapt&filters=HpDate:"20230622_1600" "Bing Wallpaper 2023 6月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230623_PollinatorMonarch"&FORM=HPQUIZ "必应主页测验 2023 6月 23")
-[下载480](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_800x480.jpg&rf=LaDigue_800x480.jpg "帝王蝶在野花中取食")
-[下载720](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_1280x720.jpg&rf=LaDigue_1280x720.jpg "帝王蝶在野花中取食")
-[下载1080](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帝王蝶在野花中取食")
-[下载UHD](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_UHD.jpg&rf=LaDigue_UHD.jpg "帝王蝶在野花中取食")
 
 ---
