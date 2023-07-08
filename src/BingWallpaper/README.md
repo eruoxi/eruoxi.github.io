@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月09日：河湾
+#### 克罗夫附近的摩泽尔河，德国（© Jorg Greuel/Getty Images）
+
+![河湾](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_800x480.jpg&rf=LaDigue_800x480.jpg "河湾")
+
+摩泽尔河是奔腾的莱茵河的一条支流，贯穿欧洲迷人的土地，流经法国、卢森堡和德国。河流雕刻出令人惊叹的山谷，两岸点缀着城镇和历史建筑。郁郁葱葱、沐浴阳光的葡萄藤爬满河流两岸的山坡，这里出产一些世界上最优质的葡萄酒，包括雷司令、白皮诺、灰皮诺。缓缓流动、波光粼粼的河水造就了宁静的氛围，吸引游客来此游船休闲或在岸边漫步。摩泽尔河是自然爱好者、葡萄酒爱好者和历史爱好者共同的圣地。
+
+酿酒是克罗夫的主要产业之一。这里种植的葡萄大部分是雷司令。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%91%a9%e6%b3%bd%e5%b0%94%e6%b2%b3&form=hpcapt&filters=HpDate:"20230708_1600" "Bing Wallpaper 2023 7月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230709_MoselleRiver"&FORM=HPQUIZ "必应主页测验 2023 7月 9")
+[下载480](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_800x480.jpg&rf=LaDigue_800x480.jpg "克罗夫附近的摩泽尔河，德国")
+[下载720](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_1280x720.jpg&rf=LaDigue_1280x720.jpg "克罗夫附近的摩泽尔河，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克罗夫附近的摩泽尔河，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_UHD.jpg&rf=LaDigue_UHD.jpg "克罗夫附近的摩泽尔河，德国")
+
+---
 ### 07月08日：树林中的避难所
 #### 米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州（© Eddie Brady/Getty Images）
 
@@ -235,22 +252,5 @@ Fay Jones 在阿肯色州西北部制作了两件著名的建筑艺术品。 第
 [下载720](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_1280x720.jpg&rf=LaDigue_1280x720.jpg "佩特拉的宝库，约旦")
 [下载1080](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩特拉的宝库，约旦")
 [下载UHD](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_UHD.jpg&rf=LaDigue_UHD.jpg "佩特拉的宝库，约旦")
-
----
-### 06月24日：海湾之美
-#### 芽富湾，芽庄，越南（© Thang Tat Nguyen/Getty Images）
-
-![海湾之美](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_800x480.jpg&rf=LaDigue_800x480.jpg "海湾之美")
-
-芽富湾是越南芽庄市附近的一块宝地。世界各地的游客来到这个迷人的海湾，在美丽的岛屿周围浮潜，品尝美味的海鲜，享受惊险的水上运动等等。芽庄海湾的汉门群岛是越南唯一的官方海洋保护区所在地。猴子岛和兰屿也是芽富湾两个颇受欢迎的岛屿。顾名思义，猴子岛是数以万计的猴子的家园，比如灰毛猴、红脸猴等，而兰屿则生长着各种各样的兰花。
-
-芽庄的汉门海洋保护区是全球首批被世界自然保护联盟承认的四个海洋保护区之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8a%bd%e5%ba%84&form=hpcapt&filters=HpDate:"20230623_1600" "Bing Wallpaper 2023 6月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230624_NhaTrang"&FORM=HPQUIZ "必应主页测验 2023 6月 24")
-[下载480](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_800x480.jpg&rf=LaDigue_800x480.jpg "芽富湾，芽庄，越南")
-[下载720](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_1280x720.jpg&rf=LaDigue_1280x720.jpg "芽富湾，芽庄，越南")
-[下载1080](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "芽富湾，芽庄，越南")
-[下载UHD](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_UHD.jpg&rf=LaDigue_UHD.jpg "芽富湾，芽庄，越南")
 
 ---
