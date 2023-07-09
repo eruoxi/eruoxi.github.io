@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月10日：飘着香气的紫色海洋
+#### 萨默塞特郡的薰衣草田，英国（© Doug Chinnery/Getty Images）
+
+![飘着香气的紫色海洋](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_800x480.jpg&rf=LaDigue_800x480.jpg "飘着香气的紫色海洋")
+
+英国西南部风景如画的萨默塞特郡以其迷人的薰衣草田而闻名。这些薰衣草田动人的色彩和迷人的花香令人神魂颠倒。2000年前，罗马人将薰衣草带到英国。薰衣草除了好看，对于罗马人来说还有很多实用用途，包括烹饪、驱虫和抗菌。自古以来，很多香水都会采用薰衣草，相传伊丽莎白一世女王就曾用过薰衣草香水。在今天的英国，薰衣草田依旧常见，让人见之忘俗。
+
+英国薰衣草中可以提炼出一种香甜的精油，可用于制作药膏、香水和化妆品。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%96%b0%e8%a1%a3%e8%8d%89&form=hpcapt&filters=HpDate:"20230709_1600" "Bing Wallpaper 2023 7月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230710_SomersetLavender"&FORM=HPQUIZ "必应主页测验 2023 7月 10")
+[下载480](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_800x480.jpg&rf=LaDigue_800x480.jpg "萨默塞特郡的薰衣草田，英国")
+[下载720](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨默塞特郡的薰衣草田，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨默塞特郡的薰衣草田，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg&rf=LaDigue_UHD.jpg "萨默塞特郡的薰衣草田，英国")
+
+---
 ### 07月09日：河湾
 #### 克罗夫附近的摩泽尔河，德国（© Jorg Greuel/Getty Images）
 
@@ -235,22 +252,5 @@ Fay Jones 在阿肯色州西北部制作了两件著名的建筑艺术品。 第
 [下载720](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_1280x720.jpg&rf=LaDigue_1280x720.jpg "维朗德里城堡及花园，卢瓦尔河谷，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维朗德里城堡及花园，卢瓦尔河谷，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_UHD.jpg&rf=LaDigue_UHD.jpg "维朗德里城堡及花园，卢瓦尔河谷，法国")
-
----
-### 06月25日：一座宝库
-#### 佩特拉的宝库，约旦（© WitthayaP/Shutterstock）
-
-![一座宝库](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_800x480.jpg&rf=LaDigue_800x480.jpg "一座宝库")
-
-卡兹尼神殿是约旦佩特拉的一座神殿，在阿拉伯语中意为 "宝库"。多年以来，佩特拉一直不为世界所知，只有住在周边沙漠里的贝都因人才知晓它的存在。大约2000年前，佩特拉的原住民纳巴泰人用砂岩修建了这座神殿，并给其建造了一个具有蓄水池、水道和其他设施的供水系统，令人啧啧称奇。卡兹尼神殿是纳巴泰建筑的缩影，高141英尺，还有一个令人着迷的美丽门洞，高耸的柱子上刻有狮身人面兽一类的神话生物。据说纳巴泰国王阿雷塔斯四世长眠于此。
-
-佩特拉的“宝库”曾在众多好莱坞电影中出现过，比如1989年的电影《夺宝奇兵3：圣战骑兵》。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bd%a9%e7%89%b9%e6%8b%89&form=hpcapt&filters=HpDate:"20230624_1600" "Bing Wallpaper 2023 6月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230625_PetraTreasury"&FORM=HPQUIZ "必应主页测验 2023 6月 25")
-[下载480](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_800x480.jpg&rf=LaDigue_800x480.jpg "佩特拉的宝库，约旦")
-[下载720](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_1280x720.jpg&rf=LaDigue_1280x720.jpg "佩特拉的宝库，约旦")
-[下载1080](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩特拉的宝库，约旦")
-[下载UHD](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_UHD.jpg&rf=LaDigue_UHD.jpg "佩特拉的宝库，约旦")
 
 ---
