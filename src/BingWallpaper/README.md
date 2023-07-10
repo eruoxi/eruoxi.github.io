@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月11日：万家灯火
+#### Hong Kong SAR（© leungchopan/Getty Images）
+
+![万家灯火](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_800x480.jpg&rf=LaDigue_800x480.jpg "万家灯火")
+
+三十六年前的今天，世界迎来了第 50 亿人口。 现在地球人口已经达到 80 亿，而且还在不断增加，这个问题继续存在：我们会用完空间、食物和其他必要的资源吗？ 在今天，我们可以反思地球能够维持多少生命，以及我们个人和集体的生活如何影响我们的地方、国家和全球环境。
+
+世界人口增长率在 1965 年至 1970 年间达到顶峰，当时人口平均每年增长 2.1%。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a6%99%e6%b8%af%e7%89%b9%e5%88%ab%e8%a1%8c%e6%94%bf%e5%8c%ba&form=hpcapt&filters=HpDate:"20230710_1600" "Bing Wallpaper 2023 7月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230711_WorldPopDay"&FORM=HPQUIZ "必应主页测验 2023 7月 11")
+[下载480](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_800x480.jpg&rf=LaDigue_800x480.jpg "Hong Kong SAR")
+[下载720](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_1280x720.jpg&rf=LaDigue_1280x720.jpg "Hong Kong SAR")
+[下载1080](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Hong Kong SAR")
+[下载UHD](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_UHD.jpg&rf=LaDigue_UHD.jpg "Hong Kong SAR")
+
+---
 ### 07月10日：飘着香气的紫色海洋
 #### 萨默塞特郡的薰衣草田，英国（© Doug Chinnery/Getty Images）
 
@@ -235,22 +252,5 @@ Fay Jones 在阿肯色州西北部制作了两件著名的建筑艺术品。 第
 [下载720](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞多纳，亚利桑那州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞多纳，亚利桑那州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_UHD.jpg&rf=LaDigue_UHD.jpg "塞多纳，亚利桑那州，美国")
-
----
-### 06月26日：奢华的迷宫
-#### 维朗德里城堡及花园，卢瓦尔河谷，法国（© VLADJ55/Shutterstock）
-
-![奢华的迷宫](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_800x480.jpg&rf=LaDigue_800x480.jpg "奢华的迷宫")
-
-法国的维朗德里城堡以其精美绝伦的花园出名。它的花园也被认为是一个文艺复兴时期园林设计的典范。花园被细分成了不同的区域，有着几何纹路、生机盎然的花床、静谧的水景和精心修建的树篱。每个区域都有其主题，有的有装饰性，有的有实用性，缤纷的色彩和纹路相交织，美不胜收。城堡的花园体现了建筑设计和自然的和谐关系，其美景和艺术创造力使游客为之着迷。
-
-维朗德里城堡在1934年被认定为一处历史纪念地。2000年，它又被列入世界遗产。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%bb%b4%e6%9c%97%e5%be%b7%e9%87%8c%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20230625_1600" "Bing Wallpaper 2023 6月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230626_VillandryGarden"&FORM=HPQUIZ "必应主页测验 2023 6月 26")
-[下载480](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_800x480.jpg&rf=LaDigue_800x480.jpg "维朗德里城堡及花园，卢瓦尔河谷，法国")
-[下载720](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_1280x720.jpg&rf=LaDigue_1280x720.jpg "维朗德里城堡及花园，卢瓦尔河谷，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维朗德里城堡及花园，卢瓦尔河谷，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_UHD.jpg&rf=LaDigue_UHD.jpg "维朗德里城堡及花园，卢瓦尔河谷，法国")
 
 ---
