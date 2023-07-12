@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月13日：行走在彩虹岩石上
+#### 张掖国家地质公园，甘肃，中国（© TONNAJA/Getty Images）
+
+![行走在彩虹岩石上](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_800x480.jpg&rf=LaDigue_800x480.jpg "行走在彩虹岩石上")
+
+7月13日是国际岩石日。为什么要给岩石设立一个节日呢？因为自石器时代以来，岩石就在人类历史中扮演着重要角色。它们是人类最早的工具，也是自然的记录，包裹着古代生物的化石，也留下了地质变化的印记。中国张掖丹霞国家地质公园的彩虹山就是一个很好的例子。这里的沉积岩经过数百万年的风化和侵蚀，最终形成了这片色彩斑斓的风景，红、橙、黄、紫各色疏密相生，组合有序。变质岩、沉积岩、火成岩等等各种各样的岩石帮助形成了我们今天所生活的世界。
+
+张掖丹霞地貌以色彩斑斓的岩石而闻名。这些岩石是沙岩和其他矿物质的沉积物，形成于2400万年前，岩石光滑、锋利，高达数百米。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%bc%a0%e6%8e%96%e5%9b%bd%e5%ae%b6%e5%9c%b0%e8%b4%a8%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230712_1600" "Bing Wallpaper 2023 7月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230713_ZhangyeGeopark"&FORM=HPQUIZ "必应主页测验 2023 7月 13")
+[下载480](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_800x480.jpg&rf=LaDigue_800x480.jpg "张掖国家地质公园，甘肃，中国")
+[下载720](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_1280x720.jpg&rf=LaDigue_1280x720.jpg "张掖国家地质公园，甘肃，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "张掖国家地质公园，甘肃，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_UHD.jpg&rf=LaDigue_UHD.jpg "张掖国家地质公园，甘肃，中国")
+
+---
 ### 07月12日：世界上最独特的海滩？
 #### “我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚（© Lubos Paukeje/Alamy）
 
@@ -235,22 +252,5 @@ Fay Jones 在阿肯色州西北部制作了两件著名的建筑艺术品。 第
 [下载720](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴尼亚群岛，苏门答腊，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴尼亚群岛，苏门答腊，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg&rf=LaDigue_UHD.jpg "巴尼亚群岛，苏门答腊，印度尼西亚")
-
----
-### 06月28日：天堂之景！
-#### 韦尔纳扎，五渔村，意大利（© Rubin Versigny/Getty Images）
-
-![天堂之景！](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_800x480.jpg&rf=LaDigue_800x480.jpg "天堂之景！")
-
-韦尔纳扎是组成五渔村国家公园的第二个村镇。五渔村在1997年被联合国教科文组织列为世界文化遗产地。韦尔纳扎是利古里亚海岸上的一颗明珠，镇上的特色建筑非常值得一看，这里还有一条2公里长的步道，通往一座圣母堂，非常适合徒步爱好者。
-
-2021年的动画电影《夏日友晴天》中的海滨小镇就以韦尔纳扎为原型。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%9f%a6%e5%b0%94%e7%ba%b3%e6%89%8e&form=hpcapt&filters=HpDate:"20230627_1600" "Bing Wallpaper 2023 6月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230628_ItalyCinqueTerre"&FORM=HPQUIZ "必应主页测验 2023 6月 28")
-[下载480](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_800x480.jpg&rf=LaDigue_800x480.jpg "韦尔纳扎，五渔村，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_1280x720.jpg&rf=LaDigue_1280x720.jpg "韦尔纳扎，五渔村，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦尔纳扎，五渔村，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_UHD.jpg&rf=LaDigue_UHD.jpg "韦尔纳扎，五渔村，意大利")
 
 ---
