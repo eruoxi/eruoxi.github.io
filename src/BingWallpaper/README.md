@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月14日：一群鲨鱼正在狩猎
+#### 乌翅真鲨，马尔代夫（© Filippo Bacci/Getty Images）
+
+![一群鲨鱼正在狩猎](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_800x480.jpg&rf=LaDigue_800x480.jpg "一群鲨鱼正在狩猎")
+
+今天是鲨鱼保护日。据化石记录显示，鲨鱼已经在海洋中繁衍生息了至少4.2亿年。世界上有500多种鲨鱼，其中三分之一面临灭绝风险。每一种鲨鱼都有一套适应其所在环境的独特方法：锤头鲨拥有360度视野，光滑的灰鲭鲨是所有鲨鱼中游速最快的，黑尖礁鲨可以伪装成珊瑚礁……这些生物展示了惊人的多样性。在大多数人的印象中，鲨鱼性情凶猛和攻击力强，是无情的“海洋杀手”。但其实也有性情温和的鲨鱼，比如护士鲨。今天，让我们行动起来，共同倡导保护这些被人们误解的海洋生物！
+
+大多数情况下，乌翅真鲨的性情温和，很容易被游泳者吓跑。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e5%b0%94%e4%bb%a3%e5%a4%ab%e4%b9%8c%e7%bf%85%e7%9c%9f%e9%b2%a8&form=hpcapt&filters=HpDate:"20230713_1600" "Bing Wallpaper 2023 7月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230714_BlacktipSharks"&FORM=HPQUIZ "必应主页测验 2023 7月 14")
+[下载480](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_800x480.jpg&rf=LaDigue_800x480.jpg "乌翅真鲨，马尔代夫")
+[下载720](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌翅真鲨，马尔代夫")
+[下载1080](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌翅真鲨，马尔代夫")
+[下载UHD](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_UHD.jpg&rf=LaDigue_UHD.jpg "乌翅真鲨，马尔代夫")
+
+---
 ### 07月13日：行走在彩虹岩石上
 #### 张掖国家地质公园，甘肃，中国（© TONNAJA/Getty Images）
 
@@ -235,22 +252,5 @@ Fay Jones 在阿肯色州西北部制作了两件著名的建筑艺术品。 第
 [下载720](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_1280x720.jpg&rf=LaDigue_1280x720.jpg "棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州")
 [下载1080](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州")
 [下载UHD](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_UHD.jpg&rf=LaDigue_UHD.jpg "棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州")
-
----
-### 06月29日：赞美热带
-#### 巴尼亚群岛，苏门答腊，印度尼西亚（© fbxx/Getty Imagesz）
-
-![赞美热带](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_800x480.jpg&rf=LaDigue_800x480.jpg "赞美热带")
-
-巴尼亚群岛位于印度洋海域，每年吸引数百万游客。巴尼亚群岛由99个小岛组成，这些小岛大部分都无人居住，甚至还没有名字，岛上目之所及都是纯净的沙滩、茂盛的树木和透彻的海水。这个纯净的热带天堂还非常适宜冲浪，这因此成为了完美的度假目的地，适合任何想要在平静和放松之余来一点冒险的人们。
-
-班卡卢岛是重要的海龟栖息地，绿海龟、棱皮龟和其他种类的海龟会来这里筑巢产卵。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e5%b0%bc%e4%ba%9a%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20230628_1600" "Bing Wallpaper 2023 6月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230629_BanyakIslands"&FORM=HPQUIZ "必应主页测验 2023 6月 29")
-[下载480](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_800x480.jpg&rf=LaDigue_800x480.jpg "巴尼亚群岛，苏门答腊，印度尼西亚")
-[下载720](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴尼亚群岛，苏门答腊，印度尼西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴尼亚群岛，苏门答腊，印度尼西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg&rf=LaDigue_UHD.jpg "巴尼亚群岛，苏门答腊，印度尼西亚")
 
 ---
