@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月15日：明信片般完美的风景
+#### 卡斯泰尔梅扎诺，意大利（© Rudy Balasko/Shutterstock）
+
+![明信片般完美的风景](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_800x480.jpg&rf=LaDigue_800x480.jpg "明信片般完美的风景")
+
+坐落在多洛米蒂山脉的崎岖峭壁上，意大利古老的村庄卡斯泰尔梅扎诺散发着迷人的魅力。这座村庄已被列为世界遗产，它历经过封建领主的统治和大大小小的战争，狭窄的小巷和古老的建筑里都有历史故事。据说，公元11世纪左右诺曼人定居于此，并建造了一座城堡，该村庄由此得名。此外，卡斯泰尔梅扎诺还有各种冒险活动，你可以来一次“天使飞行”，在山脉之间感受高空滑索。不过，感受这个小村庄的惬意的最佳方式，可能只需一杯咖啡：喝着咖啡看着太阳从雄伟的山峰后冉冉升起，与街灯一同照亮傍山而建的一排排房屋。
+
+“七石之路”是一条文学步道，灵感来自米莫·萨马蒂诺（Mimmo Sammartino）的《维托与女巫跳舞》(Vito ballava con le strehe)一书，取材于口头流传的古老故事。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e5%8d%a1%e6%96%af%e6%b3%b0%e5%b0%94%e6%a2%85%e6%89%8e%e8%af%ba&form=hpcapt&filters=HpDate:"20230714_1600" "Bing Wallpaper 2023 7月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230715_CastelmazzanoSunrise"&FORM=HPQUIZ "必应主页测验 2023 7月 15")
+[下载480](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_800x480.jpg&rf=LaDigue_800x480.jpg "卡斯泰尔梅扎诺，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡斯泰尔梅扎诺，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡斯泰尔梅扎诺，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg&rf=LaDigue_UHD.jpg "卡斯泰尔梅扎诺，意大利")
+
+---
 ### 07月14日：一群鲨鱼正在狩猎
 #### 乌翅真鲨，马尔代夫（© Filippo Bacci/Getty Images）
 
@@ -235,22 +252,5 @@ Fay Jones 在阿肯色州西北部制作了两件著名的建筑艺术品。 第
 [下载720](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_1280x720.jpg&rf=LaDigue_1280x720.jpg "从意大利圣天使城堡俯瞰罗马")
 [下载1080](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从意大利圣天使城堡俯瞰罗马")
 [下载UHD](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_UHD.jpg&rf=LaDigue_UHD.jpg "从意大利圣天使城堡俯瞰罗马")
-
----
-### 06月30日：孩子，你把鱼扔哪儿了？
-#### 棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州（© Carlos Carreno/Getty Images）
-
-![孩子，你把鱼扔哪儿了？](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_800x480.jpg&rf=LaDigue_800x480.jpg "孩子，你把鱼扔哪儿了？")
-
-在阿拉斯加州克拉克湖国家公园和自然保护区的原始林区中，棕熊统治着一切，它们是原始荒野的标志性象征。棕熊的体型庞大，一只成年雄性棕熊的体重可以超过1000磅，站立高度可达10英尺。棕熊的毛色从金黄色到深棕色不等，皮毛厚实蓬松，为它们抵御阿拉斯加严寒的冬天提供了保障。
-
-野生棕熊主要在黄昏和夜间活动。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a3%95%e7%86%8a&form=hpcapt&filters=HpDate:"20230629_1600" "Bing Wallpaper 2023 6月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230630_ClamBears"&FORM=HPQUIZ "必应主页测验 2023 6月 30")
-[下载480](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_800x480.jpg&rf=LaDigue_800x480.jpg "棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州")
-[下载720](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_1280x720.jpg&rf=LaDigue_1280x720.jpg "棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州")
-[下载1080](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州")
-[下载UHD](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_UHD.jpg&rf=LaDigue_UHD.jpg "棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州")
 
 ---
