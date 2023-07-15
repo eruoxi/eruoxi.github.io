@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月16日：溪水潺潺
+#### 熊洞溪，卡茨基尔山脉，纽约，美国（© GummyBone/Getty Images）
+
+![溪水潺潺](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_800x480.jpg&rf=LaDigue_800x480.jpg "溪水潺潺")
+
+卡茨基尔山脉坐落在纽约州北部，面积超过4000平方英里，以令人惊叹的美景闻名。连绵不绝的山峰和古老的森林勾勒出迷人的背景，山谷孕育着蜿蜒流动的小溪，就像我们今天看到的熊洞溪。该地区拥有众多迂回曲折的徒步旅行路线，穿越茂密的林地，通向令人敬畏的壮丽景色。卡茨基尔在文化史上也占有重要地位，多年来一直吸引着世界各地的艺术家和梦想家。从标志性的度假胜地到迷人的小村庄，这里独特的魅力一直吸引着源源不断的游客到访。
+
+20世纪中期，卡茨基尔山脉的避暑胜地，被称为“罗宋汤带”，是许多纽约犹太家庭的夏季度假地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e8%8c%a8%e5%9f%ba%e5%b0%94%e5%b1%b1%e8%84%89&form=hpcapt&filters=HpDate:"20230715_1600" "Bing Wallpaper 2023 7月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230716_BearHoleBrook"&FORM=HPQUIZ "必应主页测验 2023 7月 16")
+[下载480](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_800x480.jpg&rf=LaDigue_800x480.jpg "熊洞溪，卡茨基尔山脉，纽约，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_1280x720.jpg&rf=LaDigue_1280x720.jpg "熊洞溪，卡茨基尔山脉，纽约，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "熊洞溪，卡茨基尔山脉，纽约，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_UHD.jpg&rf=LaDigue_UHD.jpg "熊洞溪，卡茨基尔山脉，纽约，美国")
+
+---
 ### 07月15日：明信片般完美的风景
 #### 卡斯泰尔梅扎诺，意大利（© Rudy Balasko/Shutterstock）
 
@@ -235,22 +252,5 @@ Fay Jones 在阿肯色州西北部制作了两件著名的建筑艺术品。 第
 [下载720](https://cn.bing.com/th?id=OHR.HalfwayBoats_ZH-CN3563044251_1280x720.jpg&rf=LaDigue_1280x720.jpg "费吕沃湖水道桥，荷兰")
 [下载1080](https://cn.bing.com/th?id=OHR.HalfwayBoats_ZH-CN3563044251_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "费吕沃湖水道桥，荷兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.HalfwayBoats_ZH-CN3563044251_UHD.jpg&rf=LaDigue_UHD.jpg "费吕沃湖水道桥，荷兰")
-
----
-### 07月01日：超凡脱俗的风景
-#### 从意大利圣天使城堡俯瞰罗马（© sborisov/Getty Images）
-
-![超凡脱俗的风景](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_800x480.jpg&rf=LaDigue_800x480.jpg "超凡脱俗的风景")
-
-今天的照片是从圣天使堡（又称哈德良陵墓）拍下的罗马美景。圣天使堡是由罗马帝国皇帝哈德良所修建，用作自己和后代的陵墓。除他之外，还有许多皇帝被葬在这里，公元217年的卡拉卡拉是最后一位。
-
-罗马圣天使堡的盛名，在很大程度上要归功于改编自丹·布朗的长篇小说《天使与魔鬼》的电影。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%bd%97%e9%a9%ac&form=hpcapt&filters=HpDate:"20230630_1600" "Bing Wallpaper 2023 7月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230701_RomeView"&FORM=HPQUIZ "必应主页测验 2023 7月 1")
-[下载480](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_800x480.jpg&rf=LaDigue_800x480.jpg "从意大利圣天使城堡俯瞰罗马")
-[下载720](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_1280x720.jpg&rf=LaDigue_1280x720.jpg "从意大利圣天使城堡俯瞰罗马")
-[下载1080](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从意大利圣天使城堡俯瞰罗马")
-[下载UHD](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_UHD.jpg&rf=LaDigue_UHD.jpg "从意大利圣天使城堡俯瞰罗马")
 
 ---
