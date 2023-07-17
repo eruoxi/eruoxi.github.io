@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月18日：这只鸟长着尖尖的嘴
+#### 双角犀鸟，考艾国家公园，泰国（© kajornyot wildlife photography/Shutterstock）
+
+![这只鸟长着尖尖的嘴](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_800x480.jpg&rf=LaDigue_800x480.jpg "这只鸟长着尖尖的嘴")
+
+双角犀鸟是一种生活在东南亚热带森林的珍贵鸟类。其体型庞大，可长达4英尺，重达9磅，但是它们非常敏捷，能够在茂密的森林中自由飞行。双角犀鸟有着极为醒目的黑色和黄色羽毛，喙上长着一个独特的盔突，这有助于增强它们鸣叫的分贝，使声音传得更远。这种鸟主要以各种水果和种子为食，但也捕食小型哺乳动物、爬行动物和昆虫。有趣的是，雌犀鸟在孵化期会将自己封闭在一个树洞内，只留下一个小口，雄犀鸟通过这个小口把食物递给雌犀鸟。在东南亚的许多文化中，这些华丽的鸟儿被视为神圣的动物，还有各种与之相关的节日。
+
+双角犀鸟主要以各种水果为食，其中无花果是尤为重要的食物来源。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8f%8c%e8%a7%92%e7%8a%80%e9%b8%9f&form=hpcapt&filters=HpDate:"20230717_1600" "Bing Wallpaper 2023 7月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230718_BucerosBicornis"&FORM=HPQUIZ "必应主页测验 2023 7月 18")
+[下载480](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_800x480.jpg&rf=LaDigue_800x480.jpg "双角犀鸟，考艾国家公园，泰国")
+[下载720](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_1280x720.jpg&rf=LaDigue_1280x720.jpg "双角犀鸟，考艾国家公园，泰国")
+[下载1080](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "双角犀鸟，考艾国家公园，泰国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_UHD.jpg&rf=LaDigue_UHD.jpg "双角犀鸟，考艾国家公园，泰国")
+
+---
 ### 07月17日：古老的中世纪奇迹
 #### 乌特湖的克拉夫特城堡，卡文郡，爱尔兰（© 4H4 PH/Shutterstock）
 
@@ -235,22 +252,5 @@ Fay Jones 在阿肯色州西北部制作了两件著名的建筑艺术品。 第
 [下载720](https://cn.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_1280x720.jpg&rf=LaDigue_1280x720.jpg "草原国家公园，萨斯喀彻温省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "草原国家公园，萨斯喀彻温省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_UHD.jpg&rf=LaDigue_UHD.jpg "草原国家公园，萨斯喀彻温省，加拿大")
-
----
-### 07月03日：天气热得让人想嗷嗷叫！
-#### 班夫的土狼，加拿大（© Harry Collins/Getty Images）
-
-![天气热得让人想嗷嗷叫！](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN7537137739_800x480.jpg&rf=LaDigue_800x480.jpg "天气热得让人想嗷嗷叫！")
-
-热得够呛了吧？夏天，地球向太阳倾斜的角度变大，我们因此进入了北半球一年中最炎热的时节。在英语里，三伏天被称为“dog days”，这个词源自天狼星，也就是大犬座α星。夏季的黎明时分，我们可以在东方的地平线上看到天狼星。作为大犬星座的一部分，天狼星是夜空中最亮的恒星。不过，今天图片中的动物可并非犬类，而是一只郊狼。
-
-班夫国家公园是加拿大最古老的国家公园，它建成于1885年，当时名叫落基山脉公园。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%9f%e7%8b%bc&form=hpcapt&filters=HpDate:"20230702_1600" "Bing Wallpaper 2023 7月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230703_CoyoteBanff"&FORM=HPQUIZ "必应主页测验 2023 7月 3")
-[下载480](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN7537137739_800x480.jpg&rf=LaDigue_800x480.jpg "班夫的土狼，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN7537137739_1280x720.jpg&rf=LaDigue_1280x720.jpg "班夫的土狼，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN7537137739_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "班夫的土狼，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN7537137739_UHD.jpg&rf=LaDigue_UHD.jpg "班夫的土狼，加拿大")
 
 ---
