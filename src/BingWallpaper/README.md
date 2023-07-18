@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月19日：这片湖泊可不是海市蜃楼
+#### 敦煌月牙泉，甘肃省，中国（© R7 Photo/Shutterstock）
+
+![这片湖泊可不是海市蜃楼](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_800x480.jpg&rf=LaDigue_800x480.jpg "这片湖泊可不是海市蜃楼")
+
+月牙泉位于中国甘肃省敦煌市附近，是隐藏在广袤戈壁滩上的一个摄人心魄的自然奇观。数百年来，这片因独特的月牙形状而闻名的绿洲，一直是一个重要的水源地。人们认为，月牙泉是风蚀形成的，其水源是地下泉水。由于附近有山脉遮挡，月牙泉才不会被该地的风沙所淹没。当地采取了许多保护措施，确保月牙泉不会干涸。游客不仅可以在湖上划船、骑骆驼在沙漠徜徉，还可以在附近的莫高窟欣赏古代佛教壁画及雕塑。
+
+自汉朝起，月牙泉就是“敦煌八景”之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%95%a6%e7%85%8c%e6%9c%88%e7%89%99%e6%b3%89&form=hpcapt&filters=HpDate:"20230718_1600" "Bing Wallpaper 2023 7月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230719_CrescentLake"&FORM=HPQUIZ "必应主页测验 2023 7月 19")
+[下载480](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_800x480.jpg&rf=LaDigue_800x480.jpg "敦煌月牙泉，甘肃省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_1280x720.jpg&rf=LaDigue_1280x720.jpg "敦煌月牙泉，甘肃省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "敦煌月牙泉，甘肃省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg&rf=LaDigue_UHD.jpg "敦煌月牙泉，甘肃省，中国")
+
+---
 ### 07月18日：这只鸟长着尖尖的嘴
 #### 双角犀鸟，考艾国家公园，泰国（© kajornyot wildlife photography/Shutterstock）
 
@@ -235,22 +252,5 @@ Fay Jones 在阿肯色州西北部制作了两件著名的建筑艺术品。 第
 [下载720](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒂莫尼港海滩，科孚岛，希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒂莫尼港海滩，科孚岛，希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_UHD.jpg&rf=LaDigue_UHD.jpg "蒂莫尼港海滩，科孚岛，希腊")
-
----
-### 07月04日：体验孤独与奇迹
-#### 草原国家公园，萨斯喀彻温省，加拿大（© Robert Postma/Getty Images）
-
-![体验孤独与奇迹](https://cn.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_800x480.jpg&rf=LaDigue_800x480.jpg "体验孤独与奇迹")
-
-萨斯喀彻温省位于加拿大中心地带，是加拿大仅有的两个内陆省份之一。
-
-冰川融水侵蚀形成了草原国家公园的许多特色景观，包括著名的法国人河谷、七十英里孤峰和岩石溪的荒地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8d%89%e5%8e%9f%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230703_1600" "Bing Wallpaper 2023 7月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230704_GrasslandsNationalParkSaskachewan"&FORM=HPQUIZ "必应主页测验 2023 7月 4")
-[下载480](https://cn.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_800x480.jpg&rf=LaDigue_800x480.jpg "草原国家公园，萨斯喀彻温省，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_1280x720.jpg&rf=LaDigue_1280x720.jpg "草原国家公园，萨斯喀彻温省，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "草原国家公园，萨斯喀彻温省，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_UHD.jpg&rf=LaDigue_UHD.jpg "草原国家公园，萨斯喀彻温省，加拿大")
 
 ---
