@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月20日：为我们的近邻月球而庆祝
+#### 从美国宇航局猎户座飞船上看到的月球（© NASA）
+
+![为我们的近邻月球而庆祝](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_800x480.jpg&rf=LaDigue_800x480.jpg "为我们的近邻月球而庆祝")
+
+为了纪念1969年7月20日人类首次成功登陆月球，7月20日被定为国际月球日。这个节日不仅让人们回顾我们过去在月球探索上取得的卓越成就，也让人们关注我们如今在月球探索方面的获得的进步。图片上的美国宇航局研制的猎户座飞船正是这种进步的一个实证。这座飞船是为深空探索而设计的，它在2022年执行了一次无人绕月飞行，将在2024年进行一次载人绕月飞行，并计划在2025年载宇航员重返月球。这个节日的意义还在于让大家意识到月球的重要性，并了解人类未来在太空探索和太空殖民方面的潜力。
+
+人类在地球上只能看到59%的月球表面。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%9c%88%e7%90%83&form=hpcapt&filters=HpDate:"20230719_1600" "Bing Wallpaper 2023 7月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230720_MoonDayArtemis"&FORM=HPQUIZ "必应主页测验 2023 7月 20")
+[下载480](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_800x480.jpg&rf=LaDigue_800x480.jpg "从美国宇航局猎户座飞船上看到的月球")
+[下载720](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_1280x720.jpg&rf=LaDigue_1280x720.jpg "从美国宇航局猎户座飞船上看到的月球")
+[下载1080](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从美国宇航局猎户座飞船上看到的月球")
+[下载UHD](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_UHD.jpg&rf=LaDigue_UHD.jpg "从美国宇航局猎户座飞船上看到的月球")
+
+---
 ### 07月19日：这片湖泊可不是海市蜃楼
 #### 敦煌月牙泉，甘肃省，中国（© R7 Photo/Shutterstock）
 
@@ -235,22 +252,5 @@ Fay Jones 在阿肯色州西北部制作了两件著名的建筑艺术品。 第
 [下载720](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_1280x720.jpg&rf=LaDigue_1280x720.jpg "南跳岩企鹅，福克兰群岛")
 [下载1080](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南跳岩企鹅，福克兰群岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg&rf=LaDigue_UHD.jpg "南跳岩企鹅，福克兰群岛")
-
----
-### 07月05日：挑选你的乐园
-#### 蒂莫尼港海滩，科孚岛，希腊（© nantonov/Getty Images）
-
-![挑选你的乐园](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_800x480.jpg&rf=LaDigue_800x480.jpg "挑选你的乐园")
-
-蒂莫尼港海滩位于希腊科孚岛的西北部海岸，是一个具有自然魅力的迷人目的地。从历史悠久的阿菲奥纳斯村出发，通过风景优美的徒步旅行路线或乘船前往，这个隐藏着的如宝石般的海岛拥有两个令人惊叹的海湾，形成了独特的双重海滩体验。蒂莫尼港拥有晶莹剔透的绿松石水域和引人注目的悬崖，呈现出如画的海岸全景。在海滩周围，郁郁葱葱的橄榄树和柏树为这里增添了迷人的氛围。尽管像科孚岛这样的希腊岛屿似乎是永恒的、古老的，但它们在地球的历史上相对较新。一个主要的理论是，大约在530万年前，一场大洪水从大西洋涌入非洲和欧洲之间，这一事件被称为赞克尔期洪水。湖泊变成了海洋，以前的山顶变成了岛屿。
-
-科孚岛以北无人居住的迪亚彭蒂亚群岛是水手们最喜欢的目的地，是所有喜欢潜水和钓鱼的人的理想选择。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e5%ad%9a%e5%b2%9b&form=hpcapt&filters=HpDate:"20230704_1600" "Bing Wallpaper 2023 7月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230705_CorfuBeach"&FORM=HPQUIZ "必应主页测验 2023 7月 5")
-[下载480](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_800x480.jpg&rf=LaDigue_800x480.jpg "蒂莫尼港海滩，科孚岛，希腊")
-[下载720](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒂莫尼港海滩，科孚岛，希腊")
-[下载1080](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒂莫尼港海滩，科孚岛，希腊")
-[下载UHD](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_UHD.jpg&rf=LaDigue_UHD.jpg "蒂莫尼港海滩，科孚岛，希腊")
 
 ---
