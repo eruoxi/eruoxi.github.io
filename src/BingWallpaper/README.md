@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月21日：将散落的岛屿连接在一起
+#### 斯托尔桑德特大桥，挪威（© Morten Falch Sortland/Getty Images）
+
+![将散落的岛屿连接在一起](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_800x480.jpg&rf=LaDigue_800x480.jpg "将散落的岛屿连接在一起")
+
+挪威的大西洋海滨公路连接了一系列大大小小的岛屿，一路上风景如画，设置有8座桥梁，其中最长的桥梁就是图上的这座斯托尔桑德特大桥。这座被自然美景环绕的桥梁，也是一个建筑奇迹。当地天气变幻莫测，这座桥在建设过程中就历经了12次飓风，最终奇迹般地建成了。斯托尔桑德特大桥有一个突兀的陡坡和急转弯，会给人造成一种大桥突然消失在海洋中的错觉，令司机们瞠目结舌，心如擂鼓。挪威斯托尔桑德特大桥与周围的天然美景融合得天衣无缝，很好地展示了挪威建筑工程的辉煌成就。
+
+这座桥以急转弯和过山车式的驾驶体验而闻名。无论从哪个角度看，这座桥的形状似乎都不太一样，也许这就是它的特别之处。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%8c%aa%e5%a8%81%e6%96%af%e6%89%98%e5%b0%94%e6%a1%91%e5%be%b7%e7%89%b9%e5%a4%a7%e6%a1%a5&form=hpcapt&filters=HpDate:"20230720_1600" "Bing Wallpaper 2023 7月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230721_BridgeNorway"&FORM=HPQUIZ "必应主页测验 2023 7月 21")
+[下载480](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_800x480.jpg&rf=LaDigue_800x480.jpg "斯托尔桑德特大桥，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯托尔桑德特大桥，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯托尔桑德特大桥，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_UHD.jpg&rf=LaDigue_UHD.jpg "斯托尔桑德特大桥，挪威")
+
+---
 ### 07月20日：为我们的近邻月球而庆祝
 #### 从美国宇航局猎户座飞船上看到的月球（© NASA）
 
@@ -235,22 +252,5 @@ Fay Jones 在阿肯色州西北部制作了两件著名的建筑艺术品。 第
 [下载720](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_1280x720.jpg&rf=LaDigue_1280x720.jpg "安班加的可可豆荚，马达加斯加")
 [下载1080](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安班加的可可豆荚，马达加斯加")
 [下载UHD](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_UHD.jpg&rf=LaDigue_UHD.jpg "安班加的可可豆荚，马达加斯加")
-
----
-### 07月06日：接吻的企鹅
-#### 南跳岩企鹅，福克兰群岛（© Tony Beck/Getty Images）
-
-![接吻的企鹅](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_800x480.jpg&rf=LaDigue_800x480.jpg "接吻的企鹅")
-
-这张照片完美地捕捉到了两只南跳岩企鹅温柔地亲吻对方的温馨瞬间。今天是国际接吻日，这张照片实在是非常应景。我们为什么要亲吻？对此有各种各样的解释：接吻会让我们的大脑产生化学反应；远古时父母会嚼碎食物喂给孩子吃，后来演变为接吻；接吻是为了嗅闻彼此的味道……当然，没有任何科学的解释能阐释出接吻的魔力。我们创作了无数关于接吻的歌曲，这或许也是我们尝试描述接吻的魔力的一种方式吧。
-
-它们之所以叫跳岩企鹅，是因为它们不像其他企鹅那样靠腹部滑行或借助鳍状翅膀笨拙地爬过障碍物，而是会尝试跳过巨石和裂缝。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%97%e8%b7%b3%e5%b2%a9%e4%bc%81%e9%b9%85&form=hpcapt&filters=HpDate:"20230705_1600" "Bing Wallpaper 2023 7月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230706_KissingPenguins"&FORM=HPQUIZ "必应主页测验 2023 7月 6")
-[下载480](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_800x480.jpg&rf=LaDigue_800x480.jpg "南跳岩企鹅，福克兰群岛")
-[下载720](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_1280x720.jpg&rf=LaDigue_1280x720.jpg "南跳岩企鹅，福克兰群岛")
-[下载1080](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南跳岩企鹅，福克兰群岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg&rf=LaDigue_UHD.jpg "南跳岩企鹅，福克兰群岛")
 
 ---
