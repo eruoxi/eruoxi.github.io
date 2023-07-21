@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月22日：想出去玩吗？
+#### 在一棵秃柏树上吊床露营，佛罗里达州，美国（© Mac Stone/Tandem Stills + Motion）
+
+![想出去玩吗？](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_800x480.jpg&rf=LaDigue_800x480.jpg "想出去玩吗？")
+
+传统的吊床是由中美洲人发明的，最初是用来在睡觉时保护自己免受危险的昆虫和动物的袭击。如今，吊床是一个用来增添乐趣的工具。由布料、网或绳子等各种各样的材料制作而成的吊床，是旅行者最好的伙伴。在佛罗里达州，秃柏树就是一个挂吊床的绝佳去处。
+
+在阿波罗12号及其后来的任务中，吊床让月球上的宇航员获得了舒适的睡眠环境。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%90%8a%e5%ba%8a%e9%9c%b2%e8%90%a5&form=hpcapt&filters=HpDate:"20230721_1600" "Bing Wallpaper 2023 7月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230722_HammockDay"&FORM=HPQUIZ "必应主页测验 2023 7月 22")
+[下载480](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_800x480.jpg&rf=LaDigue_800x480.jpg "在一棵秃柏树上吊床露营，佛罗里达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_1280x720.jpg&rf=LaDigue_1280x720.jpg "在一棵秃柏树上吊床露营，佛罗里达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在一棵秃柏树上吊床露营，佛罗里达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_UHD.jpg&rf=LaDigue_UHD.jpg "在一棵秃柏树上吊床露营，佛罗里达州，美国")
+
+---
 ### 07月21日：将散落的岛屿连接在一起
 #### 斯托尔桑德特大桥，挪威（© Morten Falch Sortland/Getty Images）
 
@@ -235,22 +252,5 @@ Fay Jones 在阿肯色州西北部制作了两件著名的建筑艺术品。 第
 [下载720](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_1280x720.jpg&rf=LaDigue_1280x720.jpg "米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州")
 [下载1080](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州")
 [下载UHD](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_UHD.jpg&rf=LaDigue_UHD.jpg "米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州")
-
----
-### 07月07日：巧克力爱好者最爱的水果
-#### 安班加的可可豆荚，马达加斯加（© pierivb/Getty Images）
-
-![巧克力爱好者最爱的水果](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_800x480.jpg&rf=LaDigue_800x480.jpg "巧克力爱好者最爱的水果")
-
-很少有人能拒绝巧克力的浓郁美味。每年的7月7日是世界巧克力日，就让我们在今天毫无愧疚地享受巧克力的美味吧。
-
-可可树主要分为三个品种：佛拉斯特罗、克里奥罗和崔尼塔利奥。佛拉斯特罗是最常用的品种，占了世界上可可豆总产量的80%-90%。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8f%af%e5%8f%af%e8%b1%86&form=hpcapt&filters=HpDate:"20230706_1600" "Bing Wallpaper 2023 7月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230707_CocoaPods"&FORM=HPQUIZ "必应主页测验 2023 7月 7")
-[下载480](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_800x480.jpg&rf=LaDigue_800x480.jpg "安班加的可可豆荚，马达加斯加")
-[下载720](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_1280x720.jpg&rf=LaDigue_1280x720.jpg "安班加的可可豆荚，马达加斯加")
-[下载1080](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安班加的可可豆荚，马达加斯加")
-[下载UHD](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_UHD.jpg&rf=LaDigue_UHD.jpg "安班加的可可豆荚，马达加斯加")
 
 ---
