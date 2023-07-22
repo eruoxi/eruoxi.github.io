@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月23日：你好，你在找“茶”吗?
+#### 爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡（© Jeremy Woodhouse/Getty Images）
+
+![你好，你在找“茶”吗?](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_800x480.jpg&rf=LaDigue_800x480.jpg "你好，你在找“茶”吗?")
+
+从中国的功夫茶到英国的红茶，世界各地的茶文化丰富而迷人。近年来，茶叶旅游越来越受欢迎，人们参观茶庄和茶园，体验茶文化，并了解茶叶的历史。这张照片里的爱丁堡茶园就是这样的一个地方。凭借其殖民时代的建筑和薄雾笼罩的茶园，这片坐落于斯里兰卡的努沃勒埃利耶的高地赢得了“小英格兰”的称号。这个地方也因出产部分世界上最精良的橙白毫（一种红茶）而闻名天下。
+
+斯里兰卡的许多建筑都保留了殖民时期的特征，如女王小屋、将军府、格兰德酒店、希尔俱乐部酒店、圣安德鲁斯酒店和邮局镇。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8a%aa%e6%b2%83%e5%8b%92%e5%9f%83%e5%88%a9%e8%80%b6&form=hpcapt&filters=HpDate:"20230722_1600" "Bing Wallpaper 2023 7月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230723_TeaEstate"&FORM=HPQUIZ "必应主页测验 2023 7月 23")
+[下载480](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_800x480.jpg&rf=LaDigue_800x480.jpg "爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡")
+[下载720](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_1280x720.jpg&rf=LaDigue_1280x720.jpg "爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡")
+[下载1080](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡")
+[下载UHD](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_UHD.jpg&rf=LaDigue_UHD.jpg "爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡")
+
+---
 ### 07月22日：想出去玩吗？
 #### 在一棵秃柏树上吊床露营，佛罗里达州，美国（© Mac Stone/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@ Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛�
 [下载720](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_1280x720.jpg&rf=LaDigue_1280x720.jpg "克罗夫附近的摩泽尔河，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克罗夫附近的摩泽尔河，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_UHD.jpg&rf=LaDigue_UHD.jpg "克罗夫附近的摩泽尔河，德国")
-
----
-### 07月08日：树林中的避难所
-#### 米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州（© Eddie Brady/Getty Images）
-
-![树林中的避难所](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_800x480.jpg&rf=LaDigue_800x480.jpg "树林中的避难所")
-
-位于阿肯色州贝拉维斯塔的米尔德里德-B-库珀纪念教堂是该国最迷人的建筑之一。这座教堂建于1988年，以一位受人爱戴的社区成员的名字命名，由E.Fay Jones设计，其特点是独特的设计理念，将现代主义原则与大自然的壮丽完美融合。这一设计理念的结果是为人们缔造了一个和谐的空间，其木制建筑与自然环境融为一体。小教堂被郁郁葱葱的树木所包围，阳光透过彩色玻璃照射进来，成为沉思和祈祷的完美圣地。它也是建筑激发和提升人类精神能力的一个有力证明。
-
-Fay Jones 在阿肯色州西北部制作了两件著名的建筑艺术品。 第一个是贝拉维斯塔自己的 米尔德里德-B-库珀纪念教堂，另一个是位于阿肯色州尤里卡斯普林斯的荆棘冠教堂。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e8%82%af%e8%89%b2%e5%b7%9e&form=hpcapt&filters=HpDate:"20230707_1600" "Bing Wallpaper 2023 7月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230708_CooperChapel"&FORM=HPQUIZ "必应主页测验 2023 7月 8")
-[下载480](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_800x480.jpg&rf=LaDigue_800x480.jpg "米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州")
-[下载720](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_1280x720.jpg&rf=LaDigue_1280x720.jpg "米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州")
-[下载1080](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州")
-[下载UHD](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_UHD.jpg&rf=LaDigue_UHD.jpg "米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州")
 
 ---
