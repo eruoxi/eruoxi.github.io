@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月24日：堂/表兄弟姐妹日
+#### 斑马，塔兰吉雷国家公园，坦桑尼亚（© cinoby/Getty Images）
+
+![堂/表兄弟姐妹日](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_800x480.jpg&rf=LaDigue_800x480.jpg "堂/表兄弟姐妹日")
+
+当我们赞美家庭成员时，父母和亲兄弟姐妹通常会得到最多的关注。但是今天，让我们在堂/表兄弟姐妹日，为堂/表兄弟姐妹们唱起赞歌！这些大家庭中的成员在我们的家庭结构和我们的心中有着特殊的位置。他们不是亲兄弟姐妹，但是又更甚朋友：童年时，父母们在一边聊闲天，而他们就是和我们一起冒险的战友。也许你已经和你的堂/表兄弟姐妹疏远了，又或者你们依旧亲密。无论如何，今天都非常适合去和他们打声招呼，回忆过去。就像这些斑马一样：它们中有几只很可能就是堂/表兄弟姐妹关系，正齐聚在坦桑尼亚的大草原上胡闹。
+
+每只斑马身上的条纹皆不相同。对于这些条纹的功能有很多种假说，最具事实支撑的可能是用于防止被蚊虫叮咬。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%91%e9%a9%ac&form=hpcapt&filters=HpDate:"20230723_1600" "Bing Wallpaper 2023 7月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230724_ZebraCousins"&FORM=HPQUIZ "必应主页测验 2023 7月 24")
+[下载480](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_800x480.jpg&rf=LaDigue_800x480.jpg "斑马，塔兰吉雷国家公园，坦桑尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_1280x720.jpg&rf=LaDigue_1280x720.jpg "斑马，塔兰吉雷国家公园，坦桑尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斑马，塔兰吉雷国家公园，坦桑尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_UHD.jpg&rf=LaDigue_UHD.jpg "斑马，塔兰吉雷国家公园，坦桑尼亚")
+
+---
 ### 07月23日：你好，你在找“茶”吗?
 #### 爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡（© Jeremy Woodhouse/Getty Images）
 
@@ -235,22 +252,5 @@ Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛�
 [下载720](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨默塞特郡的薰衣草田，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨默塞特郡的薰衣草田，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg&rf=LaDigue_UHD.jpg "萨默塞特郡的薰衣草田，英国")
-
----
-### 07月09日：河湾
-#### 克罗夫附近的摩泽尔河，德国（© Jorg Greuel/Getty Images）
-
-![河湾](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_800x480.jpg&rf=LaDigue_800x480.jpg "河湾")
-
-摩泽尔河是奔腾的莱茵河的一条支流，贯穿欧洲迷人的土地，流经法国、卢森堡和德国。河流雕刻出令人惊叹的山谷，两岸点缀着城镇和历史建筑。郁郁葱葱、沐浴阳光的葡萄藤爬满河流两岸的山坡，这里出产一些世界上最优质的葡萄酒，包括雷司令、白皮诺、灰皮诺。缓缓流动、波光粼粼的河水造就了宁静的氛围，吸引游客来此游船休闲或在岸边漫步。摩泽尔河是自然爱好者、葡萄酒爱好者和历史爱好者共同的圣地。
-
-酿酒是克罗夫的主要产业之一。这里种植的葡萄大部分是雷司令。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%91%a9%e6%b3%bd%e5%b0%94%e6%b2%b3&form=hpcapt&filters=HpDate:"20230708_1600" "Bing Wallpaper 2023 7月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230709_MoselleRiver"&FORM=HPQUIZ "必应主页测验 2023 7月 9")
-[下载480](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_800x480.jpg&rf=LaDigue_800x480.jpg "克罗夫附近的摩泽尔河，德国")
-[下载720](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_1280x720.jpg&rf=LaDigue_1280x720.jpg "克罗夫附近的摩泽尔河，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克罗夫附近的摩泽尔河，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_UHD.jpg&rf=LaDigue_UHD.jpg "克罗夫附近的摩泽尔河，德国")
 
 ---
