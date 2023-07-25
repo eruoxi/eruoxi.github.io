@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月26日：和这些耐盐植物问好！
+#### 朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国（© Amazing Aerial Premium/Shutterstock）
+
+![和这些耐盐植物问好！](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_800x480.jpg&rf=LaDigue_800x480.jpg "和这些耐盐植物问好！")
+
+由于炎热的沙漠气候和降雨的缺乏，自然植被在阿联酋非常稀少。但严酷的环境并没有阻止坚韧的红树林在这个国家的海岸线上生长。红树林属于耐盐植物，可以过滤掉它们生长的海水中的最多90%的盐分。尽管它们适应能力惊人，但红树林在全球仍然受到生存威胁。过去的40年，红树林的覆盖量减半，它们消失的速度是森林整体消失速度的3到5倍。联合国通过设立国际红树林保护日、科研基金、世界遗产地等方式以逆转这个趋势。因为红树林非常重要，它们可以防止海水侵蚀陆地，同时还为鱼类、甲壳类动物以及一系列陆地动物提供栖息地。
+
+红树林植物科最早出现于白垩纪晚期至古新世期间，并且由于板块漂移的原因在全球都有广泛分布。已知最古老的红树林棕榈树化石可以追溯到七千五百万年前。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a2%e6%a0%91&form=hpcapt&filters=HpDate:"20230725_1600" "Bing Wallpaper 2023 7月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230726_MangrovePark"&FORM=HPQUIZ "必应主页测验 2023 7月 26")
+[下载480](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_800x480.jpg&rf=LaDigue_800x480.jpg "朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国")
+[下载720](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_1280x720.jpg&rf=LaDigue_1280x720.jpg "朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国")
+[下载1080](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_UHD.jpg&rf=LaDigue_UHD.jpg "朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国")
+
+---
 ### 07月25日：粉红色，很好看
 #### 托雷维耶哈潟湖，阿利坎特，西班牙（© Juan Maria Coy Vergara/Getty Images）
 
@@ -235,22 +252,5 @@ Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛�
 [下载720](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_1280x720.jpg&rf=LaDigue_1280x720.jpg "“我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "“我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_UHD.jpg&rf=LaDigue_UHD.jpg "“我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚")
-
----
-### 07月11日：万家灯火
-#### Hong Kong SAR（© leungchopan/Getty Images）
-
-![万家灯火](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_800x480.jpg&rf=LaDigue_800x480.jpg "万家灯火")
-
-三十六年前的今天，世界迎来了第 50 亿人口。 现在地球人口已经达到 80 亿，而且还在不断增加，这个问题继续存在：我们会用完空间、食物和其他必要的资源吗？ 在今天，我们可以反思地球能够维持多少生命，以及我们个人和集体的生活如何影响我们的地方、国家和全球环境。
-
-世界人口增长率在 1965 年至 1970 年间达到顶峰，当时人口平均每年增长 2.1%。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a6%99%e6%b8%af%e7%89%b9%e5%88%ab%e8%a1%8c%e6%94%bf%e5%8c%ba&form=hpcapt&filters=HpDate:"20230710_1600" "Bing Wallpaper 2023 7月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230711_WorldPopDay"&FORM=HPQUIZ "必应主页测验 2023 7月 11")
-[下载480](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_800x480.jpg&rf=LaDigue_800x480.jpg "Hong Kong SAR")
-[下载720](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_1280x720.jpg&rf=LaDigue_1280x720.jpg "Hong Kong SAR")
-[下载1080](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Hong Kong SAR")
-[下载UHD](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_UHD.jpg&rf=LaDigue_UHD.jpg "Hong Kong SAR")
 
 ---
