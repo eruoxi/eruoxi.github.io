@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月27日：凯旋的姿态
+#### 卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国（© Jon Hicks/Getty Images）
+
+![凯旋的姿态](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_800x480.jpg&rf=LaDigue_800x480.jpg "凯旋的姿态")
+
+巴黎有一条历史中轴线，以卢浮宫博物馆为起点，一直延伸到新凯旋门，沿线是大片公园、花园和历史建筑。今天这张照片展示的卡鲁赛尔凯旋门就在这条轴线上。不过，千万不要把这个拱门和历史轴线中心的雄狮凯旋门混淆哦。你可以从这个拱门出发，经过杜伊勒里花园，沿着香榭丽舍大街到凯旋门。另外，如果照片左侧的雕像吸引了你的注意力的话，和马背上的国王路易十四打声招呼吧。
+
+这个拱门始建于1806-1808年间，由皇帝拿破仑一世下令建造，依照了罗马的康斯坦丁拱门（建于公元312年）的形制，用作皇家居所杜伊勒里宫的大门。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e9%b2%81%e5%a1%9e%e5%b0%94%e5%87%af%e6%97%8b%e9%97%a8&form=hpcapt&filters=HpDate:"20230726_1600" "Bing Wallpaper 2023 7月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230727_ParisLouvre"&FORM=HPQUIZ "必应主页测验 2023 7月 27")
+[下载480](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_800x480.jpg&rf=LaDigue_800x480.jpg "卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国")
+[下载720](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_UHD.jpg&rf=LaDigue_UHD.jpg "卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国")
+
+---
 ### 07月26日：和这些耐盐植物问好！
 #### 朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国（© Amazing Aerial Premium/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_1280x720.jpg&rf=LaDigue_1280x720.jpg "张掖国家地质公园，甘肃，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "张掖国家地质公园，甘肃，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_UHD.jpg&rf=LaDigue_UHD.jpg "张掖国家地质公园，甘肃，中国")
-
----
-### 07月12日：世界上最独特的海滩？
-#### “我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚（© Lubos Paukeje/Alamy）
-
-![世界上最独特的海滩？](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_800x480.jpg&rf=LaDigue_800x480.jpg "世界上最独特的海滩？")
-
-Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛上。 这个沙洲被印度洋碧绿的海水所环绕，是游客沐浴阳光和享受金色沙滩的热门目的地。 在海浪之下，海洋生物创造了一个充满活力的海底世界，非常适合浮潜。 坦桑尼亚的岛屿是奔巴角鸮和非洲鱼雕等一系列野生动物的家园。 在 Nakupenda 以北，您可以在 Changuu 岛上遇到一个乌龟保护区，而他们的海龟表亲则在周围水域游泳。
-
-桑给巴尔的旅游业包括旅游业及其对桑给巴尔的翁古迦岛（国际上称为桑给巴尔）和奔巴岛的影响，桑给巴尔是联合共和国的一个半自治地区。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9d%a6%e6%a1%91%e5%b0%bc%e4%ba%9a%e6%a1%91%e7%bb%99%e5%b7%b4%e5%b0%94&form=hpcapt&filters=HpDate:"20230711_1600" "Bing Wallpaper 2023 7月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230712_NakupendaBeach"&FORM=HPQUIZ "必应主页测验 2023 7月 12")
-[下载480](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_800x480.jpg&rf=LaDigue_800x480.jpg "“我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_1280x720.jpg&rf=LaDigue_1280x720.jpg "“我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "“我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_UHD.jpg&rf=LaDigue_UHD.jpg "“我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚")
 
 ---
