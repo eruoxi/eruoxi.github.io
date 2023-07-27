@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月28日：美丽的蓝色岛屿
+#### 圣布拉斯群岛，巴拿马（© bgremler/Shutterstock）
+
+![美丽的蓝色岛屿](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_800x480.jpg&rf=LaDigue_800x480.jpg "美丽的蓝色岛屿")
+
+圣布拉斯群岛坐落在巴拿马北部海岸，由360多个岛屿组成，面朝加勒比海。群岛以清澈纯净的海水闻名，是浮潜、冲浪、潜水和岛屿探险的理想乐园。美丽的珊瑚礁环绕着岛屿，为丰富多样的海洋生物提供了栖息地。当地原住民库纳人是岛屿上的主要居民，他们古老悠久的生活方式非常独特，至今穿着传统但充满活力的服饰，住在被称为bohíos的茅草屋，还掌握着技法复杂、被称为mola的服饰图案拼布刺绣艺术。
+
+在欧洲人到来之前，当地原住民库纳人很少穿衣服，他们喜欢用五颜六色的图案装饰自己的身体。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e5%b8%83%e6%8b%89%e6%96%af%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20230727_1600" "Bing Wallpaper 2023 7月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230728_SanBlasIslands"&FORM=HPQUIZ "必应主页测验 2023 7月 28")
+[下载480](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_800x480.jpg&rf=LaDigue_800x480.jpg "圣布拉斯群岛，巴拿马")
+[下载720](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣布拉斯群岛，巴拿马")
+[下载1080](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣布拉斯群岛，巴拿马")
+[下载UHD](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_UHD.jpg&rf=LaDigue_UHD.jpg "圣布拉斯群岛，巴拿马")
+
+---
 ### 07月27日：凯旋的姿态
 #### 卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国（© Jon Hicks/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌翅真鲨，马尔代夫")
 [下载1080](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌翅真鲨，马尔代夫")
 [下载UHD](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_UHD.jpg&rf=LaDigue_UHD.jpg "乌翅真鲨，马尔代夫")
-
----
-### 07月13日：行走在彩虹岩石上
-#### 张掖国家地质公园，甘肃，中国（© TONNAJA/Getty Images）
-
-![行走在彩虹岩石上](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_800x480.jpg&rf=LaDigue_800x480.jpg "行走在彩虹岩石上")
-
-7月13日是国际岩石日。为什么要给岩石设立一个节日呢？因为自石器时代以来，岩石就在人类历史中扮演着重要角色。它们是人类最早的工具，也是自然的记录，包裹着古代生物的化石，也留下了地质变化的印记。中国张掖丹霞国家地质公园的彩虹山就是一个很好的例子。这里的沉积岩经过数百万年的风化和侵蚀，最终形成了这片色彩斑斓的风景，红、橙、黄、紫各色疏密相生，组合有序。变质岩、沉积岩、火成岩等等各种各样的岩石帮助形成了我们今天所生活的世界。
-
-张掖丹霞地貌以色彩斑斓的岩石而闻名。这些岩石是沙岩和其他矿物质的沉积物，形成于2400万年前，岩石光滑、锋利，高达数百米。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%bc%a0%e6%8e%96%e5%9b%bd%e5%ae%b6%e5%9c%b0%e8%b4%a8%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230712_1600" "Bing Wallpaper 2023 7月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230713_ZhangyeGeopark"&FORM=HPQUIZ "必应主页测验 2023 7月 13")
-[下载480](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_800x480.jpg&rf=LaDigue_800x480.jpg "张掖国家地质公园，甘肃，中国")
-[下载720](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_1280x720.jpg&rf=LaDigue_1280x720.jpg "张掖国家地质公园，甘肃，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "张掖国家地质公园，甘肃，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_UHD.jpg&rf=LaDigue_UHD.jpg "张掖国家地质公园，甘肃，中国")
 
 ---
