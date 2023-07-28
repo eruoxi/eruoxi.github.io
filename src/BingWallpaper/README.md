@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月29日：国际老虎日
+#### 孟加拉虎，兰坦波尔国家公园，印度（© Andy Rouse/Minden Pictures）
+
+![国际老虎日](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_800x480.jpg&rf=LaDigue_800x480.jpg "国际老虎日")
+
+每年的7月29日为国际老虎日，这是一个全球性的活动，旨在倡导对老虎及其栖息地的保护。栖息地丧失、偷猎和非法野生动物贸易，使野生老虎的生存状况堪忧，有的老虎种类甚至濒临灭绝。今天这张照片里的是孟加拉虎，是印度的标志性动物，也是老虎的濒危亚种之一。作为顶级捕食者，孟加拉虎主要捕食白斑鹿、野猪和印度野牛等，从而控制了这些动物的数量，因此孟加拉虎在维持生态平衡方面有着重要作用。据统计，野生老虎的数量目前约在2500~3000只之间。所以，提高人们对老虎的保护意识至关重要。行动起来，一起守护“丛林之王”！
+
+孟加拉虎是孟加拉和印度的国兽。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%ad%9f%e5%8a%a0%e6%8b%89%e8%99%8e&form=hpcapt&filters=HpDate:"20230728_1600" "Bing Wallpaper 2023 7月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230729_TigerIndia"&FORM=HPQUIZ "必应主页测验 2023 7月 29")
+[下载480](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_800x480.jpg&rf=LaDigue_800x480.jpg "孟加拉虎，兰坦波尔国家公园，印度")
+[下载720](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_1280x720.jpg&rf=LaDigue_1280x720.jpg "孟加拉虎，兰坦波尔国家公园，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "孟加拉虎，兰坦波尔国家公园，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_UHD.jpg&rf=LaDigue_UHD.jpg "孟加拉虎，兰坦波尔国家公园，印度")
+
+---
 ### 07月28日：美丽的蓝色岛屿
 #### 圣布拉斯群岛，巴拿马（© bgremler/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡斯泰尔梅扎诺，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡斯泰尔梅扎诺，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg&rf=LaDigue_UHD.jpg "卡斯泰尔梅扎诺，意大利")
-
----
-### 07月14日：一群鲨鱼正在狩猎
-#### 乌翅真鲨，马尔代夫（© Filippo Bacci/Getty Images）
-
-![一群鲨鱼正在狩猎](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_800x480.jpg&rf=LaDigue_800x480.jpg "一群鲨鱼正在狩猎")
-
-今天是鲨鱼保护日。据化石记录显示，鲨鱼已经在海洋中繁衍生息了至少4.2亿年。世界上有500多种鲨鱼，其中三分之一面临灭绝风险。每一种鲨鱼都有一套适应其所在环境的独特方法：锤头鲨拥有360度视野，光滑的灰鲭鲨是所有鲨鱼中游速最快的，黑尖礁鲨可以伪装成珊瑚礁……这些生物展示了惊人的多样性。在大多数人的印象中，鲨鱼性情凶猛和攻击力强，是无情的“海洋杀手”。但其实也有性情温和的鲨鱼，比如护士鲨。今天，让我们行动起来，共同倡导保护这些被人们误解的海洋生物！
-
-大多数情况下，乌翅真鲨的性情温和，很容易被游泳者吓跑。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e5%b0%94%e4%bb%a3%e5%a4%ab%e4%b9%8c%e7%bf%85%e7%9c%9f%e9%b2%a8&form=hpcapt&filters=HpDate:"20230713_1600" "Bing Wallpaper 2023 7月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230714_BlacktipSharks"&FORM=HPQUIZ "必应主页测验 2023 7月 14")
-[下载480](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_800x480.jpg&rf=LaDigue_800x480.jpg "乌翅真鲨，马尔代夫")
-[下载720](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌翅真鲨，马尔代夫")
-[下载1080](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌翅真鲨，马尔代夫")
-[下载UHD](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_UHD.jpg&rf=LaDigue_UHD.jpg "乌翅真鲨，马尔代夫")
 
 ---
