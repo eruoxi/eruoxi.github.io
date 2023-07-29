@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月30日：宛若仙境的帕卢斯田园
+#### 帕卢斯的农田，华盛顿州，美国（© EJ-J/Getty Images）
+
+![宛若仙境的帕卢斯田园](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_800x480.jpg&rf=LaDigue_800x480.jpg "宛若仙境的帕卢斯田园")
+
+美国的帕卢斯地区以风景如画的景观和独特的地质特征而闻名。延绵起伏的丘陵田原一望无际，错落有致、金绿相间的麦浪美不胜收，相比意大利的托斯卡纳和法国乡村也毫不逊色。帕卢斯是一个农业区，当地土壤肥沃和气候适宜，盛产小麦、大麦、豌豆和小扁豆等。
+
+帕卢斯曾是一望无际的广阔草原，生长着蓝穗小麦草、爱达荷羊茅等多年生牧草。如今几乎所有的帕卢斯草原都已被开垦为农田，成片的旱雀麦覆盖着大地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%95%e5%8d%a2%e6%96%af&form=hpcapt&filters=HpDate:"20230729_1600" "Bing Wallpaper 2023 7月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230730_PalouseHills"&FORM=HPQUIZ "必应主页测验 2023 7月 30")
+[下载480](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_800x480.jpg&rf=LaDigue_800x480.jpg "帕卢斯的农田，华盛顿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕卢斯的农田，华盛顿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕卢斯的农田，华盛顿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_UHD.jpg&rf=LaDigue_UHD.jpg "帕卢斯的农田，华盛顿州，美国")
+
+---
 ### 07月29日：国际老虎日
 #### 孟加拉虎，兰坦波尔国家公园，印度（© Andy Rouse/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_1280x720.jpg&rf=LaDigue_1280x720.jpg "熊洞溪，卡茨基尔山脉，纽约，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "熊洞溪，卡茨基尔山脉，纽约，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_UHD.jpg&rf=LaDigue_UHD.jpg "熊洞溪，卡茨基尔山脉，纽约，美国")
-
----
-### 07月15日：明信片般完美的风景
-#### 卡斯泰尔梅扎诺，意大利（© Rudy Balasko/Shutterstock）
-
-![明信片般完美的风景](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_800x480.jpg&rf=LaDigue_800x480.jpg "明信片般完美的风景")
-
-坐落在多洛米蒂山脉的崎岖峭壁上，意大利古老的村庄卡斯泰尔梅扎诺散发着迷人的魅力。这座村庄已被列为世界遗产，它历经过封建领主的统治和大大小小的战争，狭窄的小巷和古老的建筑里都有历史故事。据说，公元11世纪左右诺曼人定居于此，并建造了一座城堡，该村庄由此得名。此外，卡斯泰尔梅扎诺还有各种冒险活动，你可以来一次“天使飞行”，在山脉之间感受高空滑索。不过，感受这个小村庄的惬意的最佳方式，可能只需一杯咖啡：喝着咖啡看着太阳从雄伟的山峰后冉冉升起，与街灯一同照亮傍山而建的一排排房屋。
-
-“七石之路”是一条文学步道，灵感来自米莫·萨马蒂诺（Mimmo Sammartino）的《维托与女巫跳舞》(Vito ballava con le strehe)一书，取材于口头流传的古老故事。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e5%8d%a1%e6%96%af%e6%b3%b0%e5%b0%94%e6%a2%85%e6%89%8e%e8%af%ba&form=hpcapt&filters=HpDate:"20230714_1600" "Bing Wallpaper 2023 7月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230715_CastelmazzanoSunrise"&FORM=HPQUIZ "必应主页测验 2023 7月 15")
-[下载480](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_800x480.jpg&rf=LaDigue_800x480.jpg "卡斯泰尔梅扎诺，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡斯泰尔梅扎诺，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡斯泰尔梅扎诺，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg&rf=LaDigue_UHD.jpg "卡斯泰尔梅扎诺，意大利")
 
 ---
