@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月31日：有人在家吗?
+#### 霍金山州立公园的岩石屋，俄亥俄州，美国（© Kenneth Keifer/Getty Images）
+
+![有人在家吗?](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_800x480.jpg&rf=LaDigue_800x480.jpg "有人在家吗?")
+
+美丽宽敞的岩石屋是霍金山州立公园唯一的真正洞穴。该洞穴之所以被命名为岩石屋，是因为它曾在不同时期被不同的居住者用作避难所。岩石屋坐落在悬崖半山腰处，便于防御。早在欧洲移民到来之前，这里常被美洲原住民用于避难和举行仪式。
+
+3.3亿多年前，这个公园还被大西洋的海水覆盖着。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bf%84%e4%ba%a5%e4%bf%84%e5%b7%9e&form=hpcapt&filters=HpDate:"20230730_1600" "Bing Wallpaper 2023 7月 31")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230731_RockHouse"&FORM=HPQUIZ "必应主页测验 2023 7月 31")
+[下载480](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_800x480.jpg&rf=LaDigue_800x480.jpg "霍金山州立公园的岩石屋，俄亥俄州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_1280x720.jpg&rf=LaDigue_1280x720.jpg "霍金山州立公园的岩石屋，俄亥俄州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "霍金山州立公园的岩石屋，俄亥俄州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_UHD.jpg&rf=LaDigue_UHD.jpg "霍金山州立公园的岩石屋，俄亥俄州，美国")
+
+---
 ### 07月30日：宛若仙境的帕卢斯田园
 #### 帕卢斯的农田，华盛顿州，美国（© EJ-J/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌特湖的克拉夫特城堡，卡文郡，爱尔兰")
 [下载1080](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌特湖的克拉夫特城堡，卡文郡，爱尔兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_UHD.jpg&rf=LaDigue_UHD.jpg "乌特湖的克拉夫特城堡，卡文郡，爱尔兰")
-
----
-### 07月16日：溪水潺潺
-#### 熊洞溪，卡茨基尔山脉，纽约，美国（© GummyBone/Getty Images）
-
-![溪水潺潺](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_800x480.jpg&rf=LaDigue_800x480.jpg "溪水潺潺")
-
-卡茨基尔山脉坐落在纽约州北部，面积超过4000平方英里，以令人惊叹的美景闻名。连绵不绝的山峰和古老的森林勾勒出迷人的背景，山谷孕育着蜿蜒流动的小溪，就像我们今天看到的熊洞溪。该地区拥有众多迂回曲折的徒步旅行路线，穿越茂密的林地，通向令人敬畏的壮丽景色。卡茨基尔在文化史上也占有重要地位，多年来一直吸引着世界各地的艺术家和梦想家。从标志性的度假胜地到迷人的小村庄，这里独特的魅力一直吸引着源源不断的游客到访。
-
-20世纪中期，卡茨基尔山脉的避暑胜地，被称为“罗宋汤带”，是许多纽约犹太家庭的夏季度假地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e8%8c%a8%e5%9f%ba%e5%b0%94%e5%b1%b1%e8%84%89&form=hpcapt&filters=HpDate:"20230715_1600" "Bing Wallpaper 2023 7月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230716_BearHoleBrook"&FORM=HPQUIZ "必应主页测验 2023 7月 16")
-[下载480](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_800x480.jpg&rf=LaDigue_800x480.jpg "熊洞溪，卡茨基尔山脉，纽约，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_1280x720.jpg&rf=LaDigue_1280x720.jpg "熊洞溪，卡茨基尔山脉，纽约，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "熊洞溪，卡茨基尔山脉，纽约，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_UHD.jpg&rf=LaDigue_UHD.jpg "熊洞溪，卡茨基尔山脉，纽约，美国")
 
 ---
