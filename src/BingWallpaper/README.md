@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月01日：德纳里山的力量无可否认
+#### 从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州（© Andrew Peacock/Tandem Stills + Motion）
+
+![德纳里山的力量无可否认](https://cn.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_800x480.jpg&rf=LaDigue_800x480.jpg "德纳里山的力量无可否认")
+
+今天是美国登山日。为了攀登高峰和征服困难地形，登山者们需要专业的训练和丰富的经验，登山途中更是一段艰辛的旅程。但是，登上山顶俯瞰山下风景的那一刻，所有的艰辛都是值得的。今天图片中展示的是北美最高峰德纳里山，海拔超2万英尺，位于阿拉斯加的德纳里国家公园和保护区。“德纳里”一词源于阿萨巴斯卡语，是“至高者”的意思。
+
+德纳里山（原名麦金莱山），是北美洲的第一高峰。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%be%b7%e7%ba%b3%e9%87%8c%e5%b1%b1&form=hpcapt&filters=HpDate:"20230731_1600" "Bing Wallpaper 2023 8月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230801_DenaliClimber"&FORM=HPQUIZ "必应主页测验 2023 8月 1")
+[下载480](https://cn.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_800x480.jpg&rf=LaDigue_800x480.jpg "从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州")
+[下载720](https://cn.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_1280x720.jpg&rf=LaDigue_1280x720.jpg "从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州")
+[下载1080](https://cn.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州")
+[下载UHD](https://cn.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_UHD.jpg&rf=LaDigue_UHD.jpg "从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州")
+
+---
 ### 07月31日：有人在家吗?
 #### 霍金山州立公园的岩石屋，俄亥俄州，美国（© Kenneth Keifer/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_1280x720.jpg&rf=LaDigue_1280x720.jpg "双角犀鸟，考艾国家公园，泰国")
 [下载1080](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "双角犀鸟，考艾国家公园，泰国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_UHD.jpg&rf=LaDigue_UHD.jpg "双角犀鸟，考艾国家公园，泰国")
-
----
-### 07月17日：古老的中世纪奇迹
-#### 乌特湖的克拉夫特城堡，卡文郡，爱尔兰（© 4H4 PH/Shutterstock）
-
-![古老的中世纪奇迹](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_800x480.jpg&rf=LaDigue_800x480.jpg "古老的中世纪奇迹")
-
-克拉夫特城堡位于爱尔兰卡文郡，坐落在一个湖中小岛上。据说，这座城堡起初是由盎格鲁-诺曼人在13世纪初建造的。城堡的圆柱形结构美观且实用，既能控制水道，又能为周围区域提供防御。在接下来的几个世纪里，这座城堡和周围的土地几经易主，直到1653年被炸毁遗弃，只剩断壁残垣。克拉夫特城堡是爱尔兰中世纪遗产的象征，对于历史爱好者和城堡爱好者来说是必看之地。
-
-卡文郡是许多河流的源头。爱尔兰最长的河流香农河，就发源于卡文郡西北部。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e6%96%87%e9%83%a1&form=hpcapt&filters=HpDate:"20230716_1600" "Bing Wallpaper 2023 7月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230717_CavanCastle"&FORM=HPQUIZ "必应主页测验 2023 7月 17")
-[下载480](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_800x480.jpg&rf=LaDigue_800x480.jpg "乌特湖的克拉夫特城堡，卡文郡，爱尔兰")
-[下载720](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌特湖的克拉夫特城堡，卡文郡，爱尔兰")
-[下载1080](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌特湖的克拉夫特城堡，卡文郡，爱尔兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_UHD.jpg&rf=LaDigue_UHD.jpg "乌特湖的克拉夫特城堡，卡文郡，爱尔兰")
 
 ---
