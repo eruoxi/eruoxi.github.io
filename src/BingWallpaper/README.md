@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月02日：大自然色调的调色板
+#### 圆顶礁国家公园的砂岩山丘，犹他州，美国（© Amazing Aerial Premium/Shutterstock）
+
+![大自然色调的调色板](https://cn.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_800x480.jpg&rf=LaDigue_800x480.jpg "大自然色调的调色板")
+
+在圆顶礁国家公园，到处都是犹他州红岩地区崎岖壮丽的景色。这座隐藏在美国西南部的宝藏公园占地超过20万英亩，就像是一幅由高耸的悬崖、曲折的峡谷、色彩斑斓的砂岩山丘和广阔的沙漠景观组成的画卷。公园里最著名的，就是诞生于5000万到7000万年前的、绵延近100英里的褶皱地形。圆顶礁国家公园也是各种动植物的家园，其中还包括了行踪不定的沙漠大角羊和230多种鸟类。
+
+圆顶礁以其色彩斑斓又丰富多样的地形而闻名于世，孤峰、峡谷、巨石、山脊……令人目不暇接。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%86%e9%a1%b6%e7%a4%81%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230801_1600" "Bing Wallpaper 2023 8月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230802_CapitolButte"&FORM=HPQUIZ "必应主页测验 2023 8月 2")
+[下载480](https://cn.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_800x480.jpg&rf=LaDigue_800x480.jpg "圆顶礁国家公园的砂岩山丘，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_1280x720.jpg&rf=LaDigue_1280x720.jpg "圆顶礁国家公园的砂岩山丘，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圆顶礁国家公园的砂岩山丘，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_UHD.jpg&rf=LaDigue_UHD.jpg "圆顶礁国家公园的砂岩山丘，犹他州，美国")
+
+---
 ### 08月01日：德纳里山的力量无可否认
 #### 从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州（© Andrew Peacock/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_1280x720.jpg&rf=LaDigue_1280x720.jpg "敦煌月牙泉，甘肃省，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "敦煌月牙泉，甘肃省，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg&rf=LaDigue_UHD.jpg "敦煌月牙泉，甘肃省，中国")
-
----
-### 07月18日：这只鸟长着尖尖的嘴
-#### 双角犀鸟，考艾国家公园，泰国（© kajornyot wildlife photography/Shutterstock）
-
-![这只鸟长着尖尖的嘴](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_800x480.jpg&rf=LaDigue_800x480.jpg "这只鸟长着尖尖的嘴")
-
-双角犀鸟是一种生活在东南亚热带森林的珍贵鸟类。其体型庞大，可长达4英尺，重达9磅，但是它们非常敏捷，能够在茂密的森林中自由飞行。双角犀鸟有着极为醒目的黑色和黄色羽毛，喙上长着一个独特的盔突，这有助于增强它们鸣叫的分贝，使声音传得更远。这种鸟主要以各种水果和种子为食，但也捕食小型哺乳动物、爬行动物和昆虫。有趣的是，雌犀鸟在孵化期会将自己封闭在一个树洞内，只留下一个小口，雄犀鸟通过这个小口把食物递给雌犀鸟。在东南亚的许多文化中，这些华丽的鸟儿被视为神圣的动物，还有各种与之相关的节日。
-
-双角犀鸟主要以各种水果为食，其中无花果是尤为重要的食物来源。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8f%8c%e8%a7%92%e7%8a%80%e9%b8%9f&form=hpcapt&filters=HpDate:"20230717_1600" "Bing Wallpaper 2023 7月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230718_BucerosBicornis"&FORM=HPQUIZ "必应主页测验 2023 7月 18")
-[下载480](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_800x480.jpg&rf=LaDigue_800x480.jpg "双角犀鸟，考艾国家公园，泰国")
-[下载720](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_1280x720.jpg&rf=LaDigue_1280x720.jpg "双角犀鸟，考艾国家公园，泰国")
-[下载1080](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "双角犀鸟，考艾国家公园，泰国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_UHD.jpg&rf=LaDigue_UHD.jpg "双角犀鸟，考艾国家公园，泰国")
 
 ---
