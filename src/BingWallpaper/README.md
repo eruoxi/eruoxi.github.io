@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月04日：一扇通向过去的窗
+#### 廷特恩修道院，威尔士（© matthibcn/Getty Images）
+
+![一扇通向过去的窗](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_800x480.jpg&rf=LaDigue_800x480.jpg "一扇通向过去的窗")
+
+位于威尔士蒙茅斯郡的廷特恩修道院有着悠久的历史。这座哥特式建筑杰作始建于1131年，最初是木结构的，后来人们又在1269年用石头重新修建了这座修道院。16世纪，亨利八世与天主教会决裂后，随着修道院的解散，这座建筑也被遗弃。在中世纪的历史上，这座修道院可谓是平平无奇。但在其后的几百年间，它复杂的建筑结构和周围浪漫的田园风光声名远播，如今，这座修道院已成为了英国的标志性建筑物。多年以来，从画家透纳到诗人威廉·华兹华斯，无数艺术家都被这座修道院吸引。
+
+廷特恩修道院是英国历史第二悠久的熙笃会修道院。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%94%e5%a3%ab%e5%bb%b7%e7%89%b9%e6%81%a9%e4%bf%ae%e9%81%93%e9%99%a2&form=hpcapt&filters=HpDate:"20230803_1600" "Bing Wallpaper 2023 8月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230804_GothicRuins"&FORM=HPQUIZ "必应主页测验 2023 8月 4")
+[下载480](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_800x480.jpg&rf=LaDigue_800x480.jpg "廷特恩修道院，威尔士")
+[下载720](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_1280x720.jpg&rf=LaDigue_1280x720.jpg "廷特恩修道院，威尔士")
+[下载1080](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "廷特恩修道院，威尔士")
+[下载UHD](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_UHD.jpg&rf=LaDigue_UHD.jpg "廷特恩修道院，威尔士")
+
+---
 ### 08月03日：绿松石般的泉水
 #### 泽伦西自然保护区，斯洛文尼亚（© Andrey Danilovich/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯托尔桑德特大桥，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯托尔桑德特大桥，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_UHD.jpg&rf=LaDigue_UHD.jpg "斯托尔桑德特大桥，挪威")
-
----
-### 07月20日：为我们的近邻月球而庆祝
-#### 从美国宇航局猎户座飞船上看到的月球（© NASA）
-
-![为我们的近邻月球而庆祝](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_800x480.jpg&rf=LaDigue_800x480.jpg "为我们的近邻月球而庆祝")
-
-为了纪念1969年7月20日人类首次成功登陆月球，7月20日被定为国际月球日。这个节日不仅让人们回顾我们过去在月球探索上取得的卓越成就，也让人们关注我们如今在月球探索方面的获得的进步。图片上的美国宇航局研制的猎户座飞船正是这种进步的一个实证。这座飞船是为深空探索而设计的，它在2022年执行了一次无人绕月飞行，将在2024年进行一次载人绕月飞行，并计划在2025年载宇航员重返月球。这个节日的意义还在于让大家意识到月球的重要性，并了解人类未来在太空探索和太空殖民方面的潜力。
-
-人类在地球上只能看到59%的月球表面。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9c%88%e7%90%83&form=hpcapt&filters=HpDate:"20230719_1600" "Bing Wallpaper 2023 7月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230720_MoonDayArtemis"&FORM=HPQUIZ "必应主页测验 2023 7月 20")
-[下载480](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_800x480.jpg&rf=LaDigue_800x480.jpg "从美国宇航局猎户座飞船上看到的月球")
-[下载720](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_1280x720.jpg&rf=LaDigue_1280x720.jpg "从美国宇航局猎户座飞船上看到的月球")
-[下载1080](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从美国宇航局猎户座飞船上看到的月球")
-[下载UHD](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_UHD.jpg&rf=LaDigue_UHD.jpg "从美国宇航局猎户座飞船上看到的月球")
 
 ---
