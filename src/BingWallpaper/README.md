@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月05日：海鹦繁殖季
+#### 大西洋海鹦，冰岛（© Peter Hering/Minden Pictures）
+
+![海鹦繁殖季](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_800x480.jpg&rf=LaDigue_800x480.jpg "海鹦繁殖季")
+
+今天的照片中的海鹦拍摄于冰岛海岸。如果你在每年的6月到9月去冰岛旅游，你可能会看到小海鹦被扔下悬崖。不要被吓到，这是世界上最大的海鹦繁殖地——冰岛韦斯特曼纳群岛每年的传统：居民们用手电筒在悬崖、港口和海滨地区寻找被城镇灯光迷惑而误入歧途的海鹦宝宝。接着，他们会戴着手套把海鹦宝宝们捡起来，在日落之前把它们带到悬崖上，然后再把它们从悬崖上扔下去，这样海鹦宝宝们就可以奔向大海，回到它们的自然栖息地。
+
+大西洋海鹦在寒冷的北部海域度过秋冬，在晚春繁殖季节开始时重返沿海地区。它在悬崖顶上筑巢，挖好一个洞，在洞里产下一颗白色的蛋。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e8%a5%bf%e6%b4%8b%e6%b5%b7%e9%b9%a6&form=hpcapt&filters=HpDate:"20230804_1600" "Bing Wallpaper 2023 8月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230805_AtlanticPuffin"&FORM=HPQUIZ "必应主页测验 2023 8月 5")
+[下载480](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_800x480.jpg&rf=LaDigue_800x480.jpg "大西洋海鹦，冰岛")
+[下载720](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_1280x720.jpg&rf=LaDigue_1280x720.jpg "大西洋海鹦，冰岛")
+[下载1080](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大西洋海鹦，冰岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_UHD.jpg&rf=LaDigue_UHD.jpg "大西洋海鹦，冰岛")
+
+---
 ### 08月04日：一扇通向过去的窗
 #### 廷特恩修道院，威尔士（© matthibcn/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_1280x720.jpg&rf=LaDigue_1280x720.jpg "在一棵秃柏树上吊床露营，佛罗里达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在一棵秃柏树上吊床露营，佛罗里达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_UHD.jpg&rf=LaDigue_UHD.jpg "在一棵秃柏树上吊床露营，佛罗里达州，美国")
-
----
-### 07月21日：将散落的岛屿连接在一起
-#### 斯托尔桑德特大桥，挪威（© Morten Falch Sortland/Getty Images）
-
-![将散落的岛屿连接在一起](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_800x480.jpg&rf=LaDigue_800x480.jpg "将散落的岛屿连接在一起")
-
-挪威的大西洋海滨公路连接了一系列大大小小的岛屿，一路上风景如画，设置有8座桥梁，其中最长的桥梁就是图上的这座斯托尔桑德特大桥。这座被自然美景环绕的桥梁，也是一个建筑奇迹。当地天气变幻莫测，这座桥在建设过程中就历经了12次飓风，最终奇迹般地建成了。斯托尔桑德特大桥有一个突兀的陡坡和急转弯，会给人造成一种大桥突然消失在海洋中的错觉，令司机们瞠目结舌，心如擂鼓。挪威斯托尔桑德特大桥与周围的天然美景融合得天衣无缝，很好地展示了挪威建筑工程的辉煌成就。
-
-这座桥以急转弯和过山车式的驾驶体验而闻名。无论从哪个角度看，这座桥的形状似乎都不太一样，也许这就是它的特别之处。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%8c%aa%e5%a8%81%e6%96%af%e6%89%98%e5%b0%94%e6%a1%91%e5%be%b7%e7%89%b9%e5%a4%a7%e6%a1%a5&form=hpcapt&filters=HpDate:"20230720_1600" "Bing Wallpaper 2023 7月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230721_BridgeNorway"&FORM=HPQUIZ "必应主页测验 2023 7月 21")
-[下载480](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_800x480.jpg&rf=LaDigue_800x480.jpg "斯托尔桑德特大桥，挪威")
-[下载720](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯托尔桑德特大桥，挪威")
-[下载1080](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯托尔桑德特大桥，挪威")
-[下载UHD](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_UHD.jpg&rf=LaDigue_UHD.jpg "斯托尔桑德特大桥，挪威")
 
 ---
