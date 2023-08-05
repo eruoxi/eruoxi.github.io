@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月06日：一面反映大自然之美的镜子
+#### 镜池，长野，日本（© Shoji Fujita/Getty Images）
+
+![一面反映大自然之美的镜子](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_800x480.jpg&rf=LaDigue_800x480.jpg "一面反映大自然之美的镜子")
+
+迷人的镜池坐落在日本长野。水池周围清幽的环境完美倒映在这个人工水库的镜面般的湖水中。被郁郁葱葱的绿色植物和户隐山脉所包围的镜池，四季的风景都各有千秋。在樱花盛开的季节，瓣瓣樱花会随着微风在湖面起伏。秋日，周围橙黄的树木倒映在湖面上，仿佛湖中也有一片人间仙境。
+
+长野的善光寺始建于7世纪，是一个重要的朝圣地。善光寺供奉着一尊日本最古老的佛像，被称为密佛，从不对外展示，仅每六年向公众展示一次其复制品。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%95%bf%e9%87%8e&form=hpcapt&filters=HpDate:"20230805_1600" "Bing Wallpaper 2023 8月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230806_NaganoPond"&FORM=HPQUIZ "必应主页测验 2023 8月 6")
+[下载480](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_800x480.jpg&rf=LaDigue_800x480.jpg "镜池，长野，日本")
+[下载720](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_1280x720.jpg&rf=LaDigue_1280x720.jpg "镜池，长野，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "镜池，长野，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_UHD.jpg&rf=LaDigue_UHD.jpg "镜池，长野，日本")
+
+---
 ### 08月05日：海鹦繁殖季
 #### 大西洋海鹦，冰岛（© Peter Hering/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_1280x720.jpg&rf=LaDigue_1280x720.jpg "爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡")
 [下载1080](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡")
 [下载UHD](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_UHD.jpg&rf=LaDigue_UHD.jpg "爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡")
-
----
-### 07月22日：想出去玩吗？
-#### 在一棵秃柏树上吊床露营，佛罗里达州，美国（© Mac Stone/Tandem Stills + Motion）
-
-![想出去玩吗？](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_800x480.jpg&rf=LaDigue_800x480.jpg "想出去玩吗？")
-
-传统的吊床是由中美洲人发明的，最初是用来在睡觉时保护自己免受危险的昆虫和动物的袭击。如今，吊床是一个用来增添乐趣的工具。由布料、网或绳子等各种各样的材料制作而成的吊床，是旅行者最好的伙伴。在佛罗里达州，秃柏树就是一个挂吊床的绝佳去处。
-
-在阿波罗12号及其后来的任务中，吊床让月球上的宇航员获得了舒适的睡眠环境。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%90%8a%e5%ba%8a%e9%9c%b2%e8%90%a5&form=hpcapt&filters=HpDate:"20230721_1600" "Bing Wallpaper 2023 7月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230722_HammockDay"&FORM=HPQUIZ "必应主页测验 2023 7月 22")
-[下载480](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_800x480.jpg&rf=LaDigue_800x480.jpg "在一棵秃柏树上吊床露营，佛罗里达州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_1280x720.jpg&rf=LaDigue_1280x720.jpg "在一棵秃柏树上吊床露营，佛罗里达州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在一棵秃柏树上吊床露营，佛罗里达州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_UHD.jpg&rf=LaDigue_UHD.jpg "在一棵秃柏树上吊床露营，佛罗里达州，美国")
 
 ---
