@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月07日：地上一点，天上万千
+#### 博迪岛灯塔，马头城，北卡罗来纳州，美国（© Michael Ver Sprill/Getty Images）
+
+![地上一点，天上万千](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_800x480.jpg&rf=LaDigue_800x480.jpg "地上一点，天上万千")
+
+作为信标、警告、亦是希望和回家的象征，灯塔已经存在了几千年。几个世纪以来，科技一直在进步，如今的灯塔技术远非几百年前的灯塔可比，人们在20英里之外就能看见现代灯塔的灯光。今天照片里展示的是始建于1872年的博迪岛灯塔，它俯瞰一片被称为大西洋坟场的海域。自建成之日起它就在和头顶群星争辉，指引水手回到安全的港湾。
+
+这个灯塔曾出现在1963年-1964年的美国鸭票（候鸟狩猎和保护印花票）的背景上。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%9a%e8%bf%aa%e5%b2%9b%e7%81%af%e5%a1%94&form=hpcapt&filters=HpDate:"20230806_1600" "Bing Wallpaper 2023 8月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230807_BodieNC"&FORM=HPQUIZ "必应主页测验 2023 8月 7")
+[下载480](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_800x480.jpg&rf=LaDigue_800x480.jpg "博迪岛灯塔，马头城，北卡罗来纳州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_1280x720.jpg&rf=LaDigue_1280x720.jpg "博迪岛灯塔，马头城，北卡罗来纳州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博迪岛灯塔，马头城，北卡罗来纳州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_UHD.jpg&rf=LaDigue_UHD.jpg "博迪岛灯塔，马头城，北卡罗来纳州，美国")
+
+---
 ### 08月06日：一面反映大自然之美的镜子
 #### 镜池，长野，日本（© Shoji Fujita/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_1280x720.jpg&rf=LaDigue_1280x720.jpg "斑马，塔兰吉雷国家公园，坦桑尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斑马，塔兰吉雷国家公园，坦桑尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_UHD.jpg&rf=LaDigue_UHD.jpg "斑马，塔兰吉雷国家公园，坦桑尼亚")
-
----
-### 07月23日：你好，你在找“茶”吗?
-#### 爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡（© Jeremy Woodhouse/Getty Images）
-
-![你好，你在找“茶”吗?](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_800x480.jpg&rf=LaDigue_800x480.jpg "你好，你在找“茶”吗?")
-
-从中国的功夫茶到英国的红茶，世界各地的茶文化丰富而迷人。近年来，茶叶旅游越来越受欢迎，人们参观茶庄和茶园，体验茶文化，并了解茶叶的历史。这张照片里的爱丁堡茶园就是这样的一个地方。凭借其殖民时代的建筑和薄雾笼罩的茶园，这片坐落于斯里兰卡的努沃勒埃利耶的高地赢得了“小英格兰”的称号。这个地方也因出产部分世界上最精良的橙白毫（一种红茶）而闻名天下。
-
-斯里兰卡的许多建筑都保留了殖民时期的特征，如女王小屋、将军府、格兰德酒店、希尔俱乐部酒店、圣安德鲁斯酒店和邮局镇。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8a%aa%e6%b2%83%e5%8b%92%e5%9f%83%e5%88%a9%e8%80%b6&form=hpcapt&filters=HpDate:"20230722_1600" "Bing Wallpaper 2023 7月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230723_TeaEstate"&FORM=HPQUIZ "必应主页测验 2023 7月 23")
-[下载480](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_800x480.jpg&rf=LaDigue_800x480.jpg "爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡")
-[下载720](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_1280x720.jpg&rf=LaDigue_1280x720.jpg "爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡")
-[下载1080](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡")
-[下载UHD](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_UHD.jpg&rf=LaDigue_UHD.jpg "爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡")
 
 ---
