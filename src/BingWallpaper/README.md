@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月09日：壮观的自然古迹
+#### 马苏阿的甜面包海蚀柱，撒丁岛，意大利（© DaLiu/Getty Images）
+
+![壮观的自然古迹](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_800x480.jpg&rf=LaDigue_800x480.jpg "壮观的自然古迹")
+
+马苏阿是意大利伊格莱西亚斯市的一个小镇，周围环绕着地中海植物群，两侧是高耸的石灰岩悬崖。 那些喜欢钓鱼、浮潜或水肺潜水的人会喜欢这个位置，因为这里晶莹剔透的海水和极佳的能见度。然而，壮丽的甜面包海蚀柱是一个巨大的石堆，从海滩前的水面上浮现出来——事实证明是它是该海湾的主要景点。它的名字来源于巴西里约热内卢的一个命名为甜面包的海蚀柱岩层，由于与它惊人的相似，游客们都会与它联系在一起。尽管甜面包海蚀柱的表面积只有30平方米，但它却异常高大，高出海面133米。小岛的西北和东南两侧有天然的拱门和画廊，石头是在这些地方被侵蚀而雕刻出来的。 如果有人敢的话，一艘小船可以穿过那里的一条隧道。
+
+撒丁岛拥有独特的意大利文化，同时也是欧洲最古老的地区之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%92%92%e4%b8%81%e5%b2%9b&form=hpcapt&filters=HpDate:"20230808_1600" "Bing Wallpaper 2023 8月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230809_PandiZucchero"&FORM=HPQUIZ "必应主页测验 2023 8月 9")
+[下载480](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_800x480.jpg&rf=LaDigue_800x480.jpg "马苏阿的甜面包海蚀柱，撒丁岛，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_1280x720.jpg&rf=LaDigue_1280x720.jpg "马苏阿的甜面包海蚀柱，撒丁岛，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马苏阿的甜面包海蚀柱，撒丁岛，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_UHD.jpg&rf=LaDigue_UHD.jpg "马苏阿的甜面包海蚀柱，撒丁岛，意大利")
+
+---
 ### 08月08日：恍若童话世界，胜似人间仙境
 #### 五花海，阿坝九寨沟旅游景区，四川省，中国（© Michael Ver Sprill/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_1280x720.jpg&rf=LaDigue_1280x720.jpg "朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国")
 [下载1080](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_UHD.jpg&rf=LaDigue_UHD.jpg "朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国")
-
----
-### 07月25日：粉红色，很好看
-#### 托雷维耶哈潟湖，阿利坎特，西班牙（© Juan Maria Coy Vergara/Getty Images）
-
-![粉红色，很好看](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_800x480.jpg&rf=LaDigue_800x480.jpg "粉红色，很好看")
-
-大自然中的水是什么颜色？我们的第一反应通常是蓝色或绿色。但是你见过粉色的水吗？这片粉红湖泊就是西班牙阿利坎特的托雷维耶哈潟湖。这个湖泊的含盐度非常高，湖面上还有自然形成的盐结晶团，使它成为富含胡萝卜素的微生物藻类繁殖的完美家园，因此才形成了这片粉红的水域。这里的甲壳类动物吃掉这些藻类后，也会变成粉色，进而又被火烈鸟吃掉，最终让火烈鸟也变成了粉色。
-
-水中的高盐度使这里成为了一个放松的好地方，可以享受轻松在水上漂浮的乐趣。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%89%98%e9%9b%b7%e7%bb%b4%e8%80%b6%e5%93%88&form=hpcapt&filters=HpDate:"20230724_1600" "Bing Wallpaper 2023 7月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230725_LasLagunas"&FORM=HPQUIZ "必应主页测验 2023 7月 25")
-[下载480](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_800x480.jpg&rf=LaDigue_800x480.jpg "托雷维耶哈潟湖，阿利坎特，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_1280x720.jpg&rf=LaDigue_1280x720.jpg "托雷维耶哈潟湖，阿利坎特，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "托雷维耶哈潟湖，阿利坎特，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_UHD.jpg&rf=LaDigue_UHD.jpg "托雷维耶哈潟湖，阿利坎特，西班牙")
 
 ---
