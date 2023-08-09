@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月10日：丛林之王？还真不是
+#### 马赛马拉的一头狮子，肯尼亚（© Federico Veronesi/Minden Pictures）
+
+![丛林之王？还真不是](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_800x480.jpg&rf=LaDigue_800x480.jpg "丛林之王？还真不是")
+
+狮子被称作“丛林之王”，但是在今天，也就是世界狮子日，我们得纠正这个说法：狮子其实并不生活在丛林中。狮子是草原和平原的王者，是凶猛的猎手。当它们没有狩猎时，这些威武的生物又会显露出相当有欺骗性的可爱一面来。它们会小憩、打闹、互相梳理毛发，然后下一秒又会突然去追逐羚羊，甚至是河马。就像是1994年的经典电影《狮子王》的片头曲里面唱的，这就是生命的循环。
+
+狮子是唯一一种群居的猫科动物，不过也有一些狮子会选择独居。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%9d%9e%e6%b4%b2%e7%8b%ae&form=hpcapt&filters=HpDate:"20230809_1600" "Bing Wallpaper 2023 8月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230810_WorldLionDay"&FORM=HPQUIZ "必应主页测验 2023 8月 10")
+[下载480](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_800x480.jpg&rf=LaDigue_800x480.jpg "马赛马拉的一头狮子，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_1280x720.jpg&rf=LaDigue_1280x720.jpg "马赛马拉的一头狮子，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉的一头狮子，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉的一头狮子，肯尼亚")
+
+---
 ### 08月09日：壮观的自然古迹
 #### 马苏阿的甜面包海蚀柱，撒丁岛，意大利（© DaLiu/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_UHD.jpg&rf=LaDigue_UHD.jpg "卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国")
-
----
-### 07月26日：和这些耐盐植物问好！
-#### 朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国（© Amazing Aerial Premium/Shutterstock）
-
-![和这些耐盐植物问好！](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_800x480.jpg&rf=LaDigue_800x480.jpg "和这些耐盐植物问好！")
-
-由于炎热的沙漠气候和降雨的缺乏，自然植被在阿联酋非常稀少。但严酷的环境并没有阻止坚韧的红树林在这个国家的海岸线上生长。红树林属于耐盐植物，可以过滤掉它们生长的海水中的最多90%的盐分。尽管它们适应能力惊人，但红树林在全球仍然受到生存威胁。过去的40年，红树林的覆盖量减半，它们消失的速度是森林整体消失速度的3到5倍。联合国通过设立国际红树林保护日、科研基金、世界遗产地等方式以逆转这个趋势。因为红树林非常重要，它们可以防止海水侵蚀陆地，同时还为鱼类、甲壳类动物以及一系列陆地动物提供栖息地。
-
-红树林植物科最早出现于白垩纪晚期至古新世期间，并且由于板块漂移的原因在全球都有广泛分布。已知最古老的红树林棕榈树化石可以追溯到七千五百万年前。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a2%e6%a0%91&form=hpcapt&filters=HpDate:"20230725_1600" "Bing Wallpaper 2023 7月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230726_MangrovePark"&FORM=HPQUIZ "必应主页测验 2023 7月 26")
-[下载480](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_800x480.jpg&rf=LaDigue_800x480.jpg "朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国")
-[下载720](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_1280x720.jpg&rf=LaDigue_1280x720.jpg "朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国")
-[下载1080](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_UHD.jpg&rf=LaDigue_UHD.jpg "朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国")
 
 ---
