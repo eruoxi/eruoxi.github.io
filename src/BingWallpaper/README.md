@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月11日：独一无二的一朵“水花”
+#### '朱庇特艺术园的“入口”水池，爱丁堡，苏格兰（© Owen Humphreys/PA Images/Alamy）
+
+![独一无二的一朵“水花”](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_800x480.jpg&rf=LaDigue_800x480.jpg "独一无二的一朵“水花”")
+
+今天这张照片看起来像是AI生成的未来星球，但其实这是一个名为“入口”的水池，拍摄于苏格兰爱丁堡的朱庇特艺术园。这件艺术品直径约9米，集景观雕塑和功能游泳池于一体，于2019年作为爱丁堡艺术节的一部分向公众开放。水池呈水花形，由11000多块手绘瓷砖制成，这些瓷砖产自葡萄牙传统陶瓷作坊。
+
+这个名为“入口”的水池是一件非凡的艺术品，直径9米，由手绘葡萄牙瓷砖拼贴而成，整体风格鲜明、充满活力。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%88%b1%e4%b8%81%e5%a0%a1%e8%89%ba%e6%9c%af%e8%8a%82&form=hpcapt&filters=HpDate:"20230810_1600" "Bing Wallpaper 2023 8月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230811_JupiterArtland"&FORM=HPQUIZ "必应主页测验 2023 8月 11")
+[下载480](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_800x480.jpg&rf=LaDigue_800x480.jpg "'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰")
+[下载720](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_1280x720.jpg&rf=LaDigue_1280x720.jpg "'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_UHD.jpg&rf=LaDigue_UHD.jpg "'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰")
+
+---
 ### 08月10日：丛林之王？还真不是
 #### 马赛马拉的一头狮子，肯尼亚（© Federico Veronesi/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣布拉斯群岛，巴拿马")
 [下载1080](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣布拉斯群岛，巴拿马")
 [下载UHD](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_UHD.jpg&rf=LaDigue_UHD.jpg "圣布拉斯群岛，巴拿马")
-
----
-### 07月27日：凯旋的姿态
-#### 卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国（© Jon Hicks/Getty Images）
-
-![凯旋的姿态](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_800x480.jpg&rf=LaDigue_800x480.jpg "凯旋的姿态")
-
-巴黎有一条历史中轴线，以卢浮宫博物馆为起点，一直延伸到新凯旋门，沿线是大片公园、花园和历史建筑。今天这张照片展示的卡鲁赛尔凯旋门就在这条轴线上。不过，千万不要把这个拱门和历史轴线中心的雄狮凯旋门混淆哦。你可以从这个拱门出发，经过杜伊勒里花园，沿着香榭丽舍大街到凯旋门。另外，如果照片左侧的雕像吸引了你的注意力的话，和马背上的国王路易十四打声招呼吧。
-
-这个拱门始建于1806-1808年间，由皇帝拿破仑一世下令建造，依照了罗马的康斯坦丁拱门（建于公元312年）的形制，用作皇家居所杜伊勒里宫的大门。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e9%b2%81%e5%a1%9e%e5%b0%94%e5%87%af%e6%97%8b%e9%97%a8&form=hpcapt&filters=HpDate:"20230726_1600" "Bing Wallpaper 2023 7月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230727_ParisLouvre"&FORM=HPQUIZ "必应主页测验 2023 7月 27")
-[下载480](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_800x480.jpg&rf=LaDigue_800x480.jpg "卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国")
-[下载720](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_UHD.jpg&rf=LaDigue_UHD.jpg "卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国")
 
 ---
