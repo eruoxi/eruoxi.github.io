@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月12日：保护温柔的巨人
+#### 大象家族，安波塞利国家公园，肯尼亚（© Ibrahim Suha Derbent/Getty Images）
+
+![保护温柔的巨人](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_800x480.jpg&rf=LaDigue_800x480.jpg "保护温柔的巨人")
+
+作为地球上最大的陆地动物，非洲象拥有非凡的外形和独特的行为。研究发现，大象可以在镜子里认出自己；小象会换乳牙；失去家人时，大象也会表现出悲伤等情绪……每年8月12日的世界大象日不仅是为了赞美它们，也是为了引起人们对大象生存处境的关注。今天这张照片拍摄于肯尼亚的安波塞利国家公园，这里是为数不多的仍存在大量非洲象群的栖息地之一。
+
+大象是非常聪明的动物，其智商被认为可以与灵长类动物相媲美。研究发现，它们似乎拥有自我意识，并且会对垂死和死去的同伴表现出关心。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%a4%a7%e8%b1%a1%e6%97%a5&form=hpcapt&filters=HpDate:"20230811_1600" "Bing Wallpaper 2023 8月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230812_ThreeElephants"&FORM=HPQUIZ "必应主页测验 2023 8月 12")
+[下载480](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_800x480.jpg&rf=LaDigue_800x480.jpg "大象家族，安波塞利国家公园，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_1280x720.jpg&rf=LaDigue_1280x720.jpg "大象家族，安波塞利国家公园，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大象家族，安波塞利国家公园，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_UHD.jpg&rf=LaDigue_UHD.jpg "大象家族，安波塞利国家公园，肯尼亚")
+
+---
 ### 08月11日：独一无二的一朵“水花”
 #### '朱庇特艺术园的“入口”水池，爱丁堡，苏格兰（© Owen Humphreys/PA Images/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_1280x720.jpg&rf=LaDigue_1280x720.jpg "孟加拉虎，兰坦波尔国家公园，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "孟加拉虎，兰坦波尔国家公园，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_UHD.jpg&rf=LaDigue_UHD.jpg "孟加拉虎，兰坦波尔国家公园，印度")
-
----
-### 07月28日：美丽的蓝色岛屿
-#### 圣布拉斯群岛，巴拿马（© bgremler/Shutterstock）
-
-![美丽的蓝色岛屿](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_800x480.jpg&rf=LaDigue_800x480.jpg "美丽的蓝色岛屿")
-
-圣布拉斯群岛坐落在巴拿马北部海岸，由360多个岛屿组成，面朝加勒比海。群岛以清澈纯净的海水闻名，是浮潜、冲浪、潜水和岛屿探险的理想乐园。美丽的珊瑚礁环绕着岛屿，为丰富多样的海洋生物提供了栖息地。当地原住民库纳人是岛屿上的主要居民，他们古老悠久的生活方式非常独特，至今穿着传统但充满活力的服饰，住在被称为bohíos的茅草屋，还掌握着技法复杂、被称为mola的服饰图案拼布刺绣艺术。
-
-在欧洲人到来之前，当地原住民库纳人很少穿衣服，他们喜欢用五颜六色的图案装饰自己的身体。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e5%b8%83%e6%8b%89%e6%96%af%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20230727_1600" "Bing Wallpaper 2023 7月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230728_SanBlasIslands"&FORM=HPQUIZ "必应主页测验 2023 7月 28")
-[下载480](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_800x480.jpg&rf=LaDigue_800x480.jpg "圣布拉斯群岛，巴拿马")
-[下载720](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣布拉斯群岛，巴拿马")
-[下载1080](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣布拉斯群岛，巴拿马")
-[下载UHD](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_UHD.jpg&rf=LaDigue_UHD.jpg "圣布拉斯群岛，巴拿马")
 
 ---
