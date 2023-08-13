@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月14日：躲猫猫，我看见你了!
+#### 叶片上的小壁虎（© Darren Greenwood/Alamy）
+
+![躲猫猫，我看见你了!](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_800x480.jpg&rf=LaDigue_800x480.jpg "躲猫猫，我看见你了!")
+
+当你试图吸引人们关注世界蜥蜴日这项活动时，你不会想要用吉拉毒蜥、巨蜥，或者更常见的、但仍不讨喜的鬣蜥作为开场白。不，你想要的是一只可爱的小壁虎，就像我们在这张照片中看到的那样。壁虎有1500多种，大小不一，与其他蜥蜴不同的是，它们可以通过发声吸引配偶、威吓敌人和进行各种社交互动。
+
+斐济冠状鬣蜥是一种蜥蜴，在20世纪80年代的电影《蓝色泻湖》拍摄期间被发现。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a3%81%e8%99%8e%e8%9c%a5%e8%9c%b4&form=hpcapt&filters=HpDate:"20230813_1600" "Bing Wallpaper 2023 8月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230814_GeckoLeaf"&FORM=HPQUIZ "必应主页测验 2023 8月 14")
+[下载480](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_800x480.jpg&rf=LaDigue_800x480.jpg "叶片上的小壁虎")
+[下载720](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_1280x720.jpg&rf=LaDigue_1280x720.jpg "叶片上的小壁虎")
+[下载1080](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "叶片上的小壁虎")
+[下载UHD](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_UHD.jpg&rf=LaDigue_UHD.jpg "叶片上的小壁虎")
+
+---
 ### 08月13日：抬头看，它来了
 #### 英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国（© Joshua Meador/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_1280x720.jpg&rf=LaDigue_1280x720.jpg "霍金山州立公园的岩石屋，俄亥俄州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "霍金山州立公园的岩石屋，俄亥俄州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_UHD.jpg&rf=LaDigue_UHD.jpg "霍金山州立公园的岩石屋，俄亥俄州，美国")
-
----
-### 07月30日：宛若仙境的帕卢斯田园
-#### 帕卢斯的农田，华盛顿州，美国（© EJ-J/Getty Images）
-
-![宛若仙境的帕卢斯田园](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_800x480.jpg&rf=LaDigue_800x480.jpg "宛若仙境的帕卢斯田园")
-
-美国的帕卢斯地区以风景如画的景观和独特的地质特征而闻名。延绵起伏的丘陵田原一望无际，错落有致、金绿相间的麦浪美不胜收，相比意大利的托斯卡纳和法国乡村也毫不逊色。帕卢斯是一个农业区，当地土壤肥沃和气候适宜，盛产小麦、大麦、豌豆和小扁豆等。
-
-帕卢斯曾是一望无际的广阔草原，生长着蓝穗小麦草、爱达荷羊茅等多年生牧草。如今几乎所有的帕卢斯草原都已被开垦为农田，成片的旱雀麦覆盖着大地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%95%e5%8d%a2%e6%96%af&form=hpcapt&filters=HpDate:"20230729_1600" "Bing Wallpaper 2023 7月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230730_PalouseHills"&FORM=HPQUIZ "必应主页测验 2023 7月 30")
-[下载480](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_800x480.jpg&rf=LaDigue_800x480.jpg "帕卢斯的农田，华盛顿州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕卢斯的农田，华盛顿州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕卢斯的农田，华盛顿州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_UHD.jpg&rf=LaDigue_UHD.jpg "帕卢斯的农田，华盛顿州，美国")
 
 ---
