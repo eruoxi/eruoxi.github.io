@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月15日：发光的矩形广场
+#### 四月九日广场，陶尔米纳，西西里岛，意大利（© rudi1976/Alamy）
+
+![发光的矩形广场](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_800x480.jpg&rf=LaDigue_800x480.jpg "发光的矩形广场")
+
+陶尔米纳，一颗镶嵌在西西里岛上的美丽明珠，毗邻古希腊殖民地纳克索斯，被爱奥尼亚海和风景如画的伊索拉贝拉岛所环绕。自19世纪以来，这个美丽的小镇一直是旅游胜地。
+
+陶尔米纳会在夏季组织许多展览和活动，古剧场经常举办戏剧演出或古典音乐会，电影银丝带奖颁奖典礼等文化盛会也会在此举行。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%99%b6%e5%b0%94%e7%b1%b3%e7%ba%b3&form=hpcapt&filters=HpDate:"20230814_1600" "Bing Wallpaper 2023 8月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230815_TaorminaSquare"&FORM=HPQUIZ "必应主页测验 2023 8月 15")
+[下载480](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_800x480.jpg&rf=LaDigue_800x480.jpg "四月九日广场，陶尔米纳，西西里岛，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_1280x720.jpg&rf=LaDigue_1280x720.jpg "四月九日广场，陶尔米纳，西西里岛，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "四月九日广场，陶尔米纳，西西里岛，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_UHD.jpg&rf=LaDigue_UHD.jpg "四月九日广场，陶尔米纳，西西里岛，意大利")
+
+---
 ### 08月14日：躲猫猫，我看见你了!
 #### 叶片上的小壁虎（© Darren Greenwood/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_1280x720.jpg&rf=LaDigue_1280x720.jpg "从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州")
 [下载1080](https://cn.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州")
 [下载UHD](https://cn.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_UHD.jpg&rf=LaDigue_UHD.jpg "从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州")
-
----
-### 07月31日：有人在家吗?
-#### 霍金山州立公园的岩石屋，俄亥俄州，美国（© Kenneth Keifer/Getty Images）
-
-![有人在家吗?](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_800x480.jpg&rf=LaDigue_800x480.jpg "有人在家吗?")
-
-美丽宽敞的岩石屋是霍金山州立公园唯一的真正洞穴。该洞穴之所以被命名为岩石屋，是因为它曾在不同时期被不同的居住者用作避难所。岩石屋坐落在悬崖半山腰处，便于防御。早在欧洲移民到来之前，这里常被美洲原住民用于避难和举行仪式。
-
-3.3亿多年前，这个公园还被大西洋的海水覆盖着。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bf%84%e4%ba%a5%e4%bf%84%e5%b7%9e&form=hpcapt&filters=HpDate:"20230730_1600" "Bing Wallpaper 2023 7月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230731_RockHouse"&FORM=HPQUIZ "必应主页测验 2023 7月 31")
-[下载480](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_800x480.jpg&rf=LaDigue_800x480.jpg "霍金山州立公园的岩石屋，俄亥俄州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_1280x720.jpg&rf=LaDigue_1280x720.jpg "霍金山州立公园的岩石屋，俄亥俄州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "霍金山州立公园的岩石屋，俄亥俄州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_UHD.jpg&rf=LaDigue_UHD.jpg "霍金山州立公园的岩石屋，俄亥俄州，美国")
 
 ---
