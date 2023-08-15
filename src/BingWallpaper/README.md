@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月16日：一把通向岛屿的钥匙
+#### 基韦斯特的七英里大桥，佛罗里达州，美国（© Evgeny Vasenev/Cavan Images）
+
+![一把通向岛屿的钥匙](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_800x480.jpg&rf=LaDigue_800x480.jpg "一把通向岛屿的钥匙")
+
+很久很久以前，佛罗里达州住着一位富有的实业家，名叫亨利·弗拉格勒。他启动了一项艰巨的工程：修建一条连接佛罗里达大陆和基韦斯特的跨海铁路。最终，七英里桥于1912年正式落成，被称为世界第八大奇迹。然而，奇迹并不长久，1935年，这座大桥遭遇飓风从而停止了运营。后来，这座桥被卖给了美国政府，经历重建后摇身一变，成了一条汽车高速公路，于1938年重新开放。
+
+费格与马勒工程集团不仅设计了七英里大桥，还设计了比这座桥高出许多的阳光高架桥。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%83%e8%8b%b1%e9%87%8c%e5%a4%a7%e6%a1%a5&form=hpcapt&filters=HpDate:"20230815_1600" "Bing Wallpaper 2023 8月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230816_KeyWestBridge"&FORM=HPQUIZ "必应主页测验 2023 8月 16")
+[下载480](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_800x480.jpg&rf=LaDigue_800x480.jpg "基韦斯特的七英里大桥，佛罗里达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_1280x720.jpg&rf=LaDigue_1280x720.jpg "基韦斯特的七英里大桥，佛罗里达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "基韦斯特的七英里大桥，佛罗里达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_UHD.jpg&rf=LaDigue_UHD.jpg "基韦斯特的七英里大桥，佛罗里达州，美国")
+
+---
 ### 08月15日：发光的矩形广场
 #### 四月九日广场，陶尔米纳，西西里岛，意大利（© rudi1976/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_1280x720.jpg&rf=LaDigue_1280x720.jpg "圆顶礁国家公园的砂岩山丘，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圆顶礁国家公园的砂岩山丘，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_UHD.jpg&rf=LaDigue_UHD.jpg "圆顶礁国家公园的砂岩山丘，犹他州，美国")
-
----
-### 08月01日：德纳里山的力量无可否认
-#### 从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州（© Andrew Peacock/Tandem Stills + Motion）
-
-![德纳里山的力量无可否认](https://cn.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_800x480.jpg&rf=LaDigue_800x480.jpg "德纳里山的力量无可否认")
-
-今天是美国登山日。为了攀登高峰和征服困难地形，登山者们需要专业的训练和丰富的经验，登山途中更是一段艰辛的旅程。但是，登上山顶俯瞰山下风景的那一刻，所有的艰辛都是值得的。今天图片中展示的是北美最高峰德纳里山，海拔超2万英尺，位于阿拉斯加的德纳里国家公园和保护区。“德纳里”一词源于阿萨巴斯卡语，是“至高者”的意思。
-
-德纳里山（原名麦金莱山），是北美洲的第一高峰。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%be%b7%e7%ba%b3%e9%87%8c%e5%b1%b1&form=hpcapt&filters=HpDate:"20230731_1600" "Bing Wallpaper 2023 8月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230801_DenaliClimber"&FORM=HPQUIZ "必应主页测验 2023 8月 1")
-[下载480](https://cn.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_800x480.jpg&rf=LaDigue_800x480.jpg "从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州")
-[下载720](https://cn.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_1280x720.jpg&rf=LaDigue_1280x720.jpg "从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州")
-[下载1080](https://cn.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州")
-[下载UHD](https://cn.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_UHD.jpg&rf=LaDigue_UHD.jpg "从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州")
 
 ---
