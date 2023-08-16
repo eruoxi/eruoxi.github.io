@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月17日：听它咆哮！
+#### 罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省（© Laurens Verhoeven/Getty Images）
+
+![听它咆哮！](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_800x480.jpg&rf=LaDigue_800x480.jpg "听它咆哮！")
+
+罕肯瀑布 (Helmcken Falls) 坐落在威尔斯格雷省立公园 (Wells Gray Province Park) 内，是一处令人惊叹的自然奇观。 威尔斯格雷省立公园就是为了保护这座优美的瀑布而建立的。为政府工作的土地测量员罗伯特·亨利·李发现了这处大自然带给我们的天然珍宝。这座雄伟的瀑布是加拿大第五高的瀑布，从陡峭的大约有141米的高度火山岩悬崖上倾泻而下，释放出飘逸的雾气，在阳光下翩翩起舞，也形成了彩虹与瀑布相互映衬的绝美景观。
+
+威尔斯格雷省立公园本身就是一个未开垦的荒野保护区，点缀着郁郁葱葱的高山草甸、古老的森林和生机勃勃的野花。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%94%e6%96%af%e6%a0%bc%e9%9b%b7%e7%9c%81%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230816_1600" "Bing Wallpaper 2023 8月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230817_HelmckenWaterfall"&FORM=HPQUIZ "必应主页测验 2023 8月 17")
+[下载480](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_800x480.jpg&rf=LaDigue_800x480.jpg "罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省")
+[下载720](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_1280x720.jpg&rf=LaDigue_1280x720.jpg "罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省")
+[下载1080](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省")
+[下载UHD](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_UHD.jpg&rf=LaDigue_UHD.jpg "罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省")
+
+---
 ### 08月16日：一把通向岛屿的钥匙
 #### 基韦斯特的七英里大桥，佛罗里达州，美国（© Evgeny Vasenev/Cavan Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ZelenciSprings_ZH-CN8022746409_1280x720.jpg&rf=LaDigue_1280x720.jpg "泽伦西自然保护区，斯洛文尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ZelenciSprings_ZH-CN8022746409_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泽伦西自然保护区，斯洛文尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ZelenciSprings_ZH-CN8022746409_UHD.jpg&rf=LaDigue_UHD.jpg "泽伦西自然保护区，斯洛文尼亚")
-
----
-### 08月02日：大自然色调的调色板
-#### 圆顶礁国家公园的砂岩山丘，犹他州，美国（© Amazing Aerial Premium/Shutterstock）
-
-![大自然色调的调色板](https://cn.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_800x480.jpg&rf=LaDigue_800x480.jpg "大自然色调的调色板")
-
-在圆顶礁国家公园，到处都是犹他州红岩地区崎岖壮丽的景色。这座隐藏在美国西南部的宝藏公园占地超过20万英亩，就像是一幅由高耸的悬崖、曲折的峡谷、色彩斑斓的砂岩山丘和广阔的沙漠景观组成的画卷。公园里最著名的，就是诞生于5000万到7000万年前的、绵延近100英里的褶皱地形。圆顶礁国家公园也是各种动植物的家园，其中还包括了行踪不定的沙漠大角羊和230多种鸟类。
-
-圆顶礁以其色彩斑斓又丰富多样的地形而闻名于世，孤峰、峡谷、巨石、山脊……令人目不暇接。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%86%e9%a1%b6%e7%a4%81%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230801_1600" "Bing Wallpaper 2023 8月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230802_CapitolButte"&FORM=HPQUIZ "必应主页测验 2023 8月 2")
-[下载480](https://cn.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_800x480.jpg&rf=LaDigue_800x480.jpg "圆顶礁国家公园的砂岩山丘，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_1280x720.jpg&rf=LaDigue_1280x720.jpg "圆顶礁国家公园的砂岩山丘，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圆顶礁国家公园的砂岩山丘，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_UHD.jpg&rf=LaDigue_UHD.jpg "圆顶礁国家公园的砂岩山丘，犹他州，美国")
 
 ---
