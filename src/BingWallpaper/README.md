@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月18日：挑战地心引力的世界奇观
+#### 哈利路亚山，张家界国家森林公园，中国（© Amazing Aerial Premium/Shutterstock）
+
+![挑战地心引力的世界奇观](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_800x480.jpg&rf=LaDigue_800x480.jpg "挑战地心引力的世界奇观")
+
+哈利路亚山是位于中国湖南省张家界国家森林公园内的一处胜景。这些石柱曾出现在电影《阿凡达》中，那些高耸的石英砂岩峰林正是悬浮山的灵感来源。2010年1月25日，张家界南天一柱被更名为《阿凡达》哈利路亚山。据了解，电影《阿凡达》中“潘多拉星球”中的大量原型来源于张家界群山，其中“南天一柱”图片就成为“哈利路亚山”即悬浮山的原型。1992年，包括“南天一柱”（哈利路亚山）在内的武陵源风景名胜区被联合国教科文组织列为世界遗产。现在，这个地方每年都吸引着数百万的游客前来欣赏该地引入入胜的美景。此外，公园里还分布着许多徒步小径和玻璃悬空栈道，以便游客们欣赏哈利路亚山的全景。
+
+1982年，张家界国家森林公园被认定为中国第一个国家森林公园。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%bc%a0%e5%ae%b6%e7%95%8c%e5%9b%bd%e5%ae%b6%e6%a3%ae%e6%9e%97%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230817_1600" "Bing Wallpaper 2023 8月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230818_AvatarMountain"&FORM=HPQUIZ "必应主页测验 2023 8月 18")
+[下载480](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_800x480.jpg&rf=LaDigue_800x480.jpg "哈利路亚山，张家界国家森林公园，中国")
+[下载720](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_1280x720.jpg&rf=LaDigue_1280x720.jpg "哈利路亚山，张家界国家森林公园，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哈利路亚山，张家界国家森林公园，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_UHD.jpg&rf=LaDigue_UHD.jpg "哈利路亚山，张家界国家森林公园，中国")
+
+---
 ### 08月17日：听它咆哮！
 #### 罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省（© Laurens Verhoeven/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_1280x720.jpg&rf=LaDigue_1280x720.jpg "廷特恩修道院，威尔士")
 [下载1080](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "廷特恩修道院，威尔士")
 [下载UHD](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_UHD.jpg&rf=LaDigue_UHD.jpg "廷特恩修道院，威尔士")
-
----
-### 08月03日：绿松石般的泉水
-#### 泽伦西自然保护区，斯洛文尼亚（© Andrey Danilovich/Getty Images）
-
-![绿松石般的泉水](https://cn.bing.com/th?id=OHR.ZelenciSprings_ZH-CN8022746409_800x480.jpg&rf=LaDigue_800x480.jpg "绿松石般的泉水")
-
-泽伦西温泉位于意大利、奥地利和斯洛文尼亚三国的交界处，多个泉眼汇集形成了这个清澈的海蓝色湖泊。在这里，游客们可以尽情欣赏大自然色彩瑰丽的调色盘。
-
-泽伦西自然保护区毗邻意大利和奥地利边境，距离斯洛文尼亚的克拉尼斯卡戈拉不到5公里。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e6%b4%9b%e6%96%87%e5%b0%bc%e4%ba%9a%e6%b3%bd%e4%bc%a6%e8%a5%bf%e8%87%aa%e7%84%b6%e4%bf%9d%e6%8a%a4%e5%8c%ba&form=hpcapt&filters=HpDate:"20230802_1600" "Bing Wallpaper 2023 8月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230803_ZelenciSprings"&FORM=HPQUIZ "必应主页测验 2023 8月 3")
-[下载480](https://cn.bing.com/th?id=OHR.ZelenciSprings_ZH-CN8022746409_800x480.jpg&rf=LaDigue_800x480.jpg "泽伦西自然保护区，斯洛文尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.ZelenciSprings_ZH-CN8022746409_1280x720.jpg&rf=LaDigue_1280x720.jpg "泽伦西自然保护区，斯洛文尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.ZelenciSprings_ZH-CN8022746409_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泽伦西自然保护区，斯洛文尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.ZelenciSprings_ZH-CN8022746409_UHD.jpg&rf=LaDigue_UHD.jpg "泽伦西自然保护区，斯洛文尼亚")
 
 ---
