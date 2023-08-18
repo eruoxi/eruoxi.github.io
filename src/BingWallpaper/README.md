@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月19日：我准备好拍特写了，松鼠先生
+#### 看着相机镜头的松鼠（© Alfredo Piedrafita/Getty Images）
+
+![我准备好拍特写了，松鼠先生](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_800x480.jpg&rf=LaDigue_800x480.jpg "我准备好拍特写了，松鼠先生")
+
+1839年的8月19日，法国画家达盖尔公布了其发明的达盖尔摄影法，即银版摄影法，这被认为是最早的具有实用价值的摄影法。因此每年的8月19日被定位世界摄影日。摄影的世界是广阔的，专业人士和业余爱好者所涉足的摄影主题和风格也是多种多样的。无论是抽象还是时尚，抑或是风景和野生动物，都可以成为摄影的主题。图上这只厚脸皮的松鼠就是一个例子。尽管随着数码相机和智能手机的问世，达盖尔摄影法之类的老式摄影法早已过时，但却仍有一些摄影师还在竭力保持老式摄影的魅力和艺术性。
+
+世界上第一张照片是由法国科学家约瑟夫·尼塞福尔·涅普斯在1826年拍摄出来的。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%91%84%e5%bd%b1&form=hpcapt&filters=HpDate:"20230818_1600" "Bing Wallpaper 2023 8月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230819_CameraSquirrel"&FORM=HPQUIZ "必应主页测验 2023 8月 19")
+[下载480](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_800x480.jpg&rf=LaDigue_800x480.jpg "看着相机镜头的松鼠")
+[下载720](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_1280x720.jpg&rf=LaDigue_1280x720.jpg "看着相机镜头的松鼠")
+[下载1080](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "看着相机镜头的松鼠")
+[下载UHD](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg&rf=LaDigue_UHD.jpg "看着相机镜头的松鼠")
+
+---
 ### 08月18日：挑战地心引力的世界奇观
 #### 哈利路亚山，张家界国家森林公园，中国（© Amazing Aerial Premium/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_1280x720.jpg&rf=LaDigue_1280x720.jpg "大西洋海鹦，冰岛")
 [下载1080](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大西洋海鹦，冰岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_UHD.jpg&rf=LaDigue_UHD.jpg "大西洋海鹦，冰岛")
-
----
-### 08月04日：一扇通向过去的窗
-#### 廷特恩修道院，威尔士（© matthibcn/Getty Images）
-
-![一扇通向过去的窗](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_800x480.jpg&rf=LaDigue_800x480.jpg "一扇通向过去的窗")
-
-位于威尔士蒙茅斯郡的廷特恩修道院有着悠久的历史。这座哥特式建筑杰作始建于1131年，最初是木结构的，后来人们又在1269年用石头重新修建了这座修道院。16世纪，亨利八世与天主教会决裂后，随着修道院的解散，这座建筑也被遗弃。在中世纪的历史上，这座修道院可谓是平平无奇。但在其后的几百年间，它复杂的建筑结构和周围浪漫的田园风光声名远播，如今，这座修道院已成为了英国的标志性建筑物。多年以来，从画家透纳到诗人威廉·华兹华斯，无数艺术家都被这座修道院吸引。
-
-廷特恩修道院是英国历史第二悠久的熙笃会修道院。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%94%e5%a3%ab%e5%bb%b7%e7%89%b9%e6%81%a9%e4%bf%ae%e9%81%93%e9%99%a2&form=hpcapt&filters=HpDate:"20230803_1600" "Bing Wallpaper 2023 8月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230804_GothicRuins"&FORM=HPQUIZ "必应主页测验 2023 8月 4")
-[下载480](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_800x480.jpg&rf=LaDigue_800x480.jpg "廷特恩修道院，威尔士")
-[下载720](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_1280x720.jpg&rf=LaDigue_1280x720.jpg "廷特恩修道院，威尔士")
-[下载1080](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "廷特恩修道院，威尔士")
-[下载UHD](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_UHD.jpg&rf=LaDigue_UHD.jpg "廷特恩修道院，威尔士")
 
 ---
