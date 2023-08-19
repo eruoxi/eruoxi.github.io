@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月20日：海上哨兵
+#### 起点灯塔，德文郡，英国（© Guy Edwardes/Minden Pictures）
+
+![海上哨兵](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_800x480.jpg&rf=LaDigue_800x480.jpg "海上哨兵")
+
+每年8月的第三个周末，世界各地的灯塔爱好者和航海历史爱好者都会聚在一起庆祝国际灯塔周，纪念这些标志性建筑的悠久历史和关键作用。人们可以走进这些灯塔，亲眼见证这些巨大的灯塔通过将灯光、仪器和精密的工程技术巧妙地结合在一起来发挥作用。
+
+起点灯塔建于1836年，伫立于英国海岸线上其中一个最凸出的半岛上。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8b%b1%e5%9b%bd%e5%be%b7%e6%96%87%e9%83%a1&form=hpcapt&filters=HpDate:"20230819_1600" "Bing Wallpaper 2023 8月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230820_StartPointLight"&FORM=HPQUIZ "必应主页测验 2023 8月 20")
+[下载480](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_800x480.jpg&rf=LaDigue_800x480.jpg "起点灯塔，德文郡，英国")
+[下载720](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_1280x720.jpg&rf=LaDigue_1280x720.jpg "起点灯塔，德文郡，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "起点灯塔，德文郡，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_UHD.jpg&rf=LaDigue_UHD.jpg "起点灯塔，德文郡，英国")
+
+---
 ### 08月19日：我准备好拍特写了，松鼠先生
 #### 看着相机镜头的松鼠（© Alfredo Piedrafita/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_1280x720.jpg&rf=LaDigue_1280x720.jpg "镜池，长野，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "镜池，长野，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_UHD.jpg&rf=LaDigue_UHD.jpg "镜池，长野，日本")
-
----
-### 08月05日：海鹦繁殖季
-#### 大西洋海鹦，冰岛（© Peter Hering/Minden Pictures）
-
-![海鹦繁殖季](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_800x480.jpg&rf=LaDigue_800x480.jpg "海鹦繁殖季")
-
-今天的照片中的海鹦拍摄于冰岛海岸。如果你在每年的6月到9月去冰岛旅游，你可能会看到小海鹦被扔下悬崖。不要被吓到，这是世界上最大的海鹦繁殖地——冰岛韦斯特曼纳群岛每年的传统：居民们用手电筒在悬崖、港口和海滨地区寻找被城镇灯光迷惑而误入歧途的海鹦宝宝。接着，他们会戴着手套把海鹦宝宝们捡起来，在日落之前把它们带到悬崖上，然后再把它们从悬崖上扔下去，这样海鹦宝宝们就可以奔向大海，回到它们的自然栖息地。
-
-大西洋海鹦在寒冷的北部海域度过秋冬，在晚春繁殖季节开始时重返沿海地区。它在悬崖顶上筑巢，挖好一个洞，在洞里产下一颗白色的蛋。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e8%a5%bf%e6%b4%8b%e6%b5%b7%e9%b9%a6&form=hpcapt&filters=HpDate:"20230804_1600" "Bing Wallpaper 2023 8月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230805_AtlanticPuffin"&FORM=HPQUIZ "必应主页测验 2023 8月 5")
-[下载480](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_800x480.jpg&rf=LaDigue_800x480.jpg "大西洋海鹦，冰岛")
-[下载720](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_1280x720.jpg&rf=LaDigue_1280x720.jpg "大西洋海鹦，冰岛")
-[下载1080](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大西洋海鹦，冰岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_UHD.jpg&rf=LaDigue_UHD.jpg "大西洋海鹦，冰岛")
 
 ---
