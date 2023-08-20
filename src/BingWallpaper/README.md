@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月21日：自内而外的光彩
+#### 翡翠湖，加拿大育空地区（© artherng/Getty Images）
+
+![自内而外的光彩](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_800x480.jpg&rf=LaDigue_800x480.jpg "自内而外的光彩")
+
+发现日是加拿大育空地区的一个年度节日，用来纪念1896年在富矿溪发现金矿，这个发现开启了克朗代克淘金热，进而推动了育空领地的建立。淘金热吸引了数以千计的淘金者来此寻找财富，推动了重大的经济和社会变革。
+
+加拿大向导汤姆·威尔逊在1882年成为了（原住民群体以外）最早发现翡翠湖的人。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e6%8b%bf%e5%a4%a7%e8%82%b2%e7%a9%ba%e5%9c%b0%e5%8c%ba&form=hpcapt&filters=HpDate:"20230820_1600" "Bing Wallpaper 2023 8月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230821_EmeraldLakeYukon"&FORM=HPQUIZ "必应主页测验 2023 8月 21")
+[下载480](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_800x480.jpg&rf=LaDigue_800x480.jpg "翡翠湖，加拿大育空地区")
+[下载720](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_1280x720.jpg&rf=LaDigue_1280x720.jpg "翡翠湖，加拿大育空地区")
+[下载1080](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "翡翠湖，加拿大育空地区")
+[下载UHD](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_UHD.jpg&rf=LaDigue_UHD.jpg "翡翠湖，加拿大育空地区")
+
+---
 ### 08月20日：海上哨兵
 #### 起点灯塔，德文郡，英国（© Guy Edwardes/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_1280x720.jpg&rf=LaDigue_1280x720.jpg "博迪岛灯塔，马头城，北卡罗来纳州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博迪岛灯塔，马头城，北卡罗来纳州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_UHD.jpg&rf=LaDigue_UHD.jpg "博迪岛灯塔，马头城，北卡罗来纳州，美国")
-
----
-### 08月06日：一面反映大自然之美的镜子
-#### 镜池，长野，日本（© Shoji Fujita/Getty Images）
-
-![一面反映大自然之美的镜子](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_800x480.jpg&rf=LaDigue_800x480.jpg "一面反映大自然之美的镜子")
-
-迷人的镜池坐落在日本长野。水池周围清幽的环境完美倒映在这个人工水库的镜面般的湖水中。被郁郁葱葱的绿色植物和户隐山脉所包围的镜池，四季的风景都各有千秋。在樱花盛开的季节，瓣瓣樱花会随着微风在湖面起伏。秋日，周围橙黄的树木倒映在湖面上，仿佛湖中也有一片人间仙境。
-
-长野的善光寺始建于7世纪，是一个重要的朝圣地。善光寺供奉着一尊日本最古老的佛像，被称为密佛，从不对外展示，仅每六年向公众展示一次其复制品。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%95%bf%e9%87%8e&form=hpcapt&filters=HpDate:"20230805_1600" "Bing Wallpaper 2023 8月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230806_NaganoPond"&FORM=HPQUIZ "必应主页测验 2023 8月 6")
-[下载480](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_800x480.jpg&rf=LaDigue_800x480.jpg "镜池，长野，日本")
-[下载720](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_1280x720.jpg&rf=LaDigue_1280x720.jpg "镜池，长野，日本")
-[下载1080](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "镜池，长野，日本")
-[下载UHD](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_UHD.jpg&rf=LaDigue_UHD.jpg "镜池，长野，日本")
 
 ---
