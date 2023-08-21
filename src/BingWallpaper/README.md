@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月22日：为罗马建筑“起立欢呼”
+#### 埃尔杰姆露天剧场，突尼斯（© Westend61/Getty Images）
+
+![为罗马建筑“起立欢呼”](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_800x480.jpg&rf=LaDigue_800x480.jpg "为罗马建筑“起立欢呼”")
+
+埃尔杰姆露天剧场位于突尼斯东部小城镇艾尔杰姆，始建于公元3世纪的罗马帝国时期，以其令人惊叹的建筑设计闻名。它由巨石砌成，可以容纳35000名观众，至今仍然是世界上最大的露天剧场之一。这座露天剧场自1979年就被列为联合国教科文组织世界遗产地，被认为是世界上保存最完好的罗马建筑之一，在体量和设计上几乎可以和罗马竞技场比肩。
+
+这个建筑曾经在电影《蒙提·派森之布莱恩的一生》和电视剧《漫漫长路》中出现。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9f%83%e5%b0%94%e6%9d%b0%e5%a7%86%e9%9c%b2%e5%a4%a9%e5%89%a7%e5%9c%ba&form=hpcapt&filters=HpDate:"20230821_1600" "Bing Wallpaper 2023 8月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230822_TunisiaAmphitheatre"&FORM=HPQUIZ "必应主页测验 2023 8月 22")
+[下载480](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_800x480.jpg&rf=LaDigue_800x480.jpg "埃尔杰姆露天剧场，突尼斯")
+[下载720](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃尔杰姆露天剧场，突尼斯")
+[下载1080](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃尔杰姆露天剧场，突尼斯")
+[下载UHD](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg&rf=LaDigue_UHD.jpg "埃尔杰姆露天剧场，突尼斯")
+
+---
 ### 08月21日：自内而外的光彩
 #### 翡翠湖，加拿大育空地区（© artherng/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LiQiu2023_ZH-CN9197909278_1280x720.jpg&rf=LaDigue_1280x720.jpg "五花海，阿坝九寨沟旅游景区，四川省，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.LiQiu2023_ZH-CN9197909278_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "五花海，阿坝九寨沟旅游景区，四川省，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LiQiu2023_ZH-CN9197909278_UHD.jpg&rf=LaDigue_UHD.jpg "五花海，阿坝九寨沟旅游景区，四川省，中国")
-
----
-### 08月07日：地上一点，天上万千
-#### 博迪岛灯塔，马头城，北卡罗来纳州，美国（© Michael Ver Sprill/Getty Images）
-
-![地上一点，天上万千](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_800x480.jpg&rf=LaDigue_800x480.jpg "地上一点，天上万千")
-
-作为信标、警告、亦是希望和回家的象征，灯塔已经存在了几千年。几个世纪以来，科技一直在进步，如今的灯塔技术远非几百年前的灯塔可比，人们在20英里之外就能看见现代灯塔的灯光。今天照片里展示的是始建于1872年的博迪岛灯塔，它俯瞰一片被称为大西洋坟场的海域。自建成之日起它就在和头顶群星争辉，指引水手回到安全的港湾。
-
-这个灯塔曾出现在1963年-1964年的美国鸭票（候鸟狩猎和保护印花票）的背景上。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%9a%e8%bf%aa%e5%b2%9b%e7%81%af%e5%a1%94&form=hpcapt&filters=HpDate:"20230806_1600" "Bing Wallpaper 2023 8月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230807_BodieNC"&FORM=HPQUIZ "必应主页测验 2023 8月 7")
-[下载480](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_800x480.jpg&rf=LaDigue_800x480.jpg "博迪岛灯塔，马头城，北卡罗来纳州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_1280x720.jpg&rf=LaDigue_1280x720.jpg "博迪岛灯塔，马头城，北卡罗来纳州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博迪岛灯塔，马头城，北卡罗来纳州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_UHD.jpg&rf=LaDigue_UHD.jpg "博迪岛灯塔，马头城，北卡罗来纳州，美国")
 
 ---
