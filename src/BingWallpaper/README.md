@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月23日：溅起一潭水花
+#### 斯科加瀑布，冰岛（© Maridav/Shutterstock）
+
+![溅起一潭水花](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_800x480.jpg&rf=LaDigue_800x480.jpg "溅起一潭水花")
+
+今天照片里的是冰岛的斯科加瀑布，它是冰岛最大的瀑布之一，有82英尺宽，垂直落差约200英尺。游客经常能在这里看到彩虹，甚至是双彩虹。传说，第一个踏足冰岛的维京人曾把一个宝箱藏在了斯科加瀑布后面，这又为这个瀑布增添了一丝神秘色彩。
+
+斯科加瀑布水量充沛，水雾漫天，因此晴天的时候，这里通常都可以看见彩虹，甚至双彩虹。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e7%a7%91%e5%8a%a0%e7%80%91%e5%b8%83&form=hpcapt&filters=HpDate:"20230822_1600" "Bing Wallpaper 2023 8月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230823_SkogafossWaterfall"&FORM=HPQUIZ "必应主页测验 2023 8月 23")
+[下载480](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_800x480.jpg&rf=LaDigue_800x480.jpg "斯科加瀑布，冰岛")
+[下载720](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯科加瀑布，冰岛")
+[下载1080](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯科加瀑布，冰岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_UHD.jpg&rf=LaDigue_UHD.jpg "斯科加瀑布，冰岛")
+
+---
 ### 08月22日：为罗马建筑“起立欢呼”
 #### 埃尔杰姆露天剧场，突尼斯（© Westend61/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_1280x720.jpg&rf=LaDigue_1280x720.jpg "马苏阿的甜面包海蚀柱，撒丁岛，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马苏阿的甜面包海蚀柱，撒丁岛，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_UHD.jpg&rf=LaDigue_UHD.jpg "马苏阿的甜面包海蚀柱，撒丁岛，意大利")
-
----
-### 08月08日：恍若童话世界，胜似人间仙境
-#### 五花海，阿坝九寨沟旅游景区，四川省，中国（© Michael Ver Sprill/Getty Images）
-
-![恍若童话世界，胜似人间仙境](https://cn.bing.com/th?id=OHR.LiQiu2023_ZH-CN9197909278_800x480.jpg&rf=LaDigue_800x480.jpg "恍若童话世界，胜似人间仙境")
-
-在立秋的这一天，我们带您来欣赏一下九寨沟五花海绝美景色。中国的秋季景色堪称四季之最，树木层林尽染，叠翠流金。虽然酷热与凉爽的分水岭并不在立秋这一天，但是人们在经历了一个夏季的高温季节后，开始期待秋日的凉爽温度，也开始期待出门欣赏秋季的美景。
-
-五花海美景是由于海底的钙华沉积、艳丽藻类，以及沉水植物的分布差异而形成的，海中斑斓的色块似无数块宝石镶嵌成的巨形佩饰，珠光宝气，雍容华贵。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b9%9d%e5%af%a8%e6%b2%9f%e4%ba%94%e8%8a%b1%e6%b5%b7&form=hpcapt&filters=HpDate:"20230807_1600" "Bing Wallpaper 2023 8月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230808_LiQiu2023"&FORM=HPQUIZ "必应主页测验 2023 8月 8")
-[下载480](https://cn.bing.com/th?id=OHR.LiQiu2023_ZH-CN9197909278_800x480.jpg&rf=LaDigue_800x480.jpg "五花海，阿坝九寨沟旅游景区，四川省，中国")
-[下载720](https://cn.bing.com/th?id=OHR.LiQiu2023_ZH-CN9197909278_1280x720.jpg&rf=LaDigue_1280x720.jpg "五花海，阿坝九寨沟旅游景区，四川省，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.LiQiu2023_ZH-CN9197909278_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "五花海，阿坝九寨沟旅游景区，四川省，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.LiQiu2023_ZH-CN9197909278_UHD.jpg&rf=LaDigue_UHD.jpg "五花海，阿坝九寨沟旅游景区，四川省，中国")
 
 ---
