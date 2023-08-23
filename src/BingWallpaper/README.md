@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月24日：自然“鳍”观
+#### 鲨鱼鳍湾，达文波特，加利福尼亚州，美国（© Jeff Lewis/Tandem Stills + Motion）
+
+![自然“鳍”观](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_800x480.jpg&rf=LaDigue_800x480.jpg "自然“鳍”观")
+
+鲨鱼鳍湾依偎在加州中部海岸小城达文波特附近海湾一隅。这个海湾中有一个形似鲨鱼鳍的海蚀柱，海湾也因此得名“鲨鱼鳍湾”。这个鲨鱼鳍状的海蚀柱曾是包围海滩的泥岩悬崖的一部分，在长年累月的海浪和大风的侵蚀作用下，最终形成了这个“鲨鱼鳍”。从一号公路上可以看到鲨鱼鳍湾，旅行者可以在此停留，一览无垠的太平洋。
+
+鲨鱼鳍湾是一处浮潜胜地，水比较浅，海湾开口处的水深最多20英尺。海湾以外的海域更适合潜水。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e8%9a%80%e6%9f%b1&form=hpcapt&filters=HpDate:"20230823_1600" "Bing Wallpaper 2023 8月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230824_SharkFinCove"&FORM=HPQUIZ "必应主页测验 2023 8月 24")
+[下载480](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_800x480.jpg&rf=LaDigue_800x480.jpg "鲨鱼鳍湾，达文波特，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_1280x720.jpg&rf=LaDigue_1280x720.jpg "鲨鱼鳍湾，达文波特，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鲨鱼鳍湾，达文波特，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_UHD.jpg&rf=LaDigue_UHD.jpg "鲨鱼鳍湾，达文波特，加利福尼亚州，美国")
+
+---
 ### 08月23日：溅起一潭水花
 #### 斯科加瀑布，冰岛（© Maridav/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_1280x720.jpg&rf=LaDigue_1280x720.jpg "马赛马拉的一头狮子，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉的一头狮子，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉的一头狮子，肯尼亚")
-
----
-### 08月09日：壮观的自然古迹
-#### 马苏阿的甜面包海蚀柱，撒丁岛，意大利（© DaLiu/Getty Images）
-
-![壮观的自然古迹](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_800x480.jpg&rf=LaDigue_800x480.jpg "壮观的自然古迹")
-
-马苏阿是意大利伊格莱西亚斯市的一个小镇，周围环绕着地中海植物群，两侧是高耸的石灰岩悬崖。 那些喜欢钓鱼、浮潜或水肺潜水的人会喜欢这个位置，因为这里晶莹剔透的海水和极佳的能见度。然而，壮丽的甜面包海蚀柱是一个巨大的石堆，从海滩前的水面上浮现出来——事实证明是它是该海湾的主要景点。它的名字来源于巴西里约热内卢的一个命名为甜面包的海蚀柱岩层，由于与它惊人的相似，游客们都会与它联系在一起。尽管甜面包海蚀柱的表面积只有30平方米，但它却异常高大，高出海面133米。小岛的西北和东南两侧有天然的拱门和画廊，石头是在这些地方被侵蚀而雕刻出来的。 如果有人敢的话，一艘小船可以穿过那里的一条隧道。
-
-撒丁岛拥有独特的意大利文化，同时也是欧洲最古老的地区之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%92%92%e4%b8%81%e5%b2%9b&form=hpcapt&filters=HpDate:"20230808_1600" "Bing Wallpaper 2023 8月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230809_PandiZucchero"&FORM=HPQUIZ "必应主页测验 2023 8月 9")
-[下载480](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_800x480.jpg&rf=LaDigue_800x480.jpg "马苏阿的甜面包海蚀柱，撒丁岛，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_1280x720.jpg&rf=LaDigue_1280x720.jpg "马苏阿的甜面包海蚀柱，撒丁岛，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马苏阿的甜面包海蚀柱，撒丁岛，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_UHD.jpg&rf=LaDigue_UHD.jpg "马苏阿的甜面包海蚀柱，撒丁岛，意大利")
 
 ---
