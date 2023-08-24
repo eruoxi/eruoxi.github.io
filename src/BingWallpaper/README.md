@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月25日：这是你的土地
+#### 黄石下瀑布，黄石国家公园，怀俄明州，美国（© Tim Fitzharris/Minden Pictures）
+
+![这是你的土地](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_800x480.jpg&rf=LaDigue_800x480.jpg "这是你的土地")
+
+虽然夏天即将结束，但现在收拾好装备，去户外探险还为时不晚。不知道该去哪里？那就去美国看看63个国家公园吧！1916年的今天，时任美国总统伍德罗·威尔逊签署《国家公园管理局组织法》，正式成立国家公园管理局，旨在“保护自然景观、野生动植物和历史遗迹，在供人们休闲娱乐的同时，不得破坏这些场所，并将之传诸后代”。无论是哪里的美景，只有小心呵护才能让这份美丽得以延续。
+
+黄石国家公园占地约3468.4平方英里（8983平方公里），由湖泊、峡谷、河流和山脉组成。黄石湖是北美最大的高海拔湖泊之一，位于大陆上最大的超级火山黄石火山口的中心。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%bb%84%e7%9f%b3%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230824_1600" "Bing Wallpaper 2023 8月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230825_YellowstoneFalls"&FORM=HPQUIZ "必应主页测验 2023 8月 25")
+[下载480](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_800x480.jpg&rf=LaDigue_800x480.jpg "黄石下瀑布，黄石国家公园，怀俄明州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄石下瀑布，黄石国家公园，怀俄明州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄石下瀑布，黄石国家公园，怀俄明州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_UHD.jpg&rf=LaDigue_UHD.jpg "黄石下瀑布，黄石国家公园，怀俄明州，美国")
+
+---
 ### 08月24日：自然“鳍”观
 #### 鲨鱼鳍湾，达文波特，加利福尼亚州，美国（© Jeff Lewis/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_1280x720.jpg&rf=LaDigue_1280x720.jpg "'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_UHD.jpg&rf=LaDigue_UHD.jpg "'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰")
-
----
-### 08月10日：丛林之王？还真不是
-#### 马赛马拉的一头狮子，肯尼亚（© Federico Veronesi/Minden Pictures）
-
-![丛林之王？还真不是](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_800x480.jpg&rf=LaDigue_800x480.jpg "丛林之王？还真不是")
-
-狮子被称作“丛林之王”，但是在今天，也就是世界狮子日，我们得纠正这个说法：狮子其实并不生活在丛林中。狮子是草原和平原的王者，是凶猛的猎手。当它们没有狩猎时，这些威武的生物又会显露出相当有欺骗性的可爱一面来。它们会小憩、打闹、互相梳理毛发，然后下一秒又会突然去追逐羚羊，甚至是河马。就像是1994年的经典电影《狮子王》的片头曲里面唱的，这就是生命的循环。
-
-狮子是唯一一种群居的猫科动物，不过也有一些狮子会选择独居。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%9d%9e%e6%b4%b2%e7%8b%ae&form=hpcapt&filters=HpDate:"20230809_1600" "Bing Wallpaper 2023 8月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230810_WorldLionDay"&FORM=HPQUIZ "必应主页测验 2023 8月 10")
-[下载480](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_800x480.jpg&rf=LaDigue_800x480.jpg "马赛马拉的一头狮子，肯尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_1280x720.jpg&rf=LaDigue_1280x720.jpg "马赛马拉的一头狮子，肯尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉的一头狮子，肯尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉的一头狮子，肯尼亚")
 
 ---
