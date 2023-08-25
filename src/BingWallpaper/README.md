@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月26日：博物馆之夜
+#### 柏林大教堂和博物馆岛，柏林，德国（© Rudy Balasko/Shutterstock）
+
+![博物馆之夜](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_800x480.jpg&rf=LaDigue_800x480.jpg "博物馆之夜")
+
+随着夏天渐渐消逝，我们开始怀念愉快的假期和多彩的夜生活。别急着回忆，欢乐的时光还没有结束！如果你在柏林，还有很多事情值得期待。比如一年一度的“博物馆长夜”活动，自1997年以来，每年八月的最后一个星期六都会举办，早已成为柏林最受欢迎的活动之一。在这个“长夜”中，博物馆的开放时间从18点直到次日凌晨，你不仅可以穿梭于各个博物馆之间欣赏世界文物，还可以喝酒跳舞，聆听音乐、参加讲座等。今天图片中的博物馆岛于1999年被列入世界文化遗产名录，岛上有柏林老博物馆、柏林新博物馆、国家美术馆、博德博物馆和佩加蒙博物馆。施普雷河环绕整座岛屿，使博物馆岛的气势更加宏伟磅礴。
+
+岛屿的南部，即格特劳登街以南的地区，通常被称为渔夫岛，是一栋高层公寓的所在地，这栋公寓修建时米特区还是东柏林的一部分。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%9f%8f%e6%9e%97%e5%8d%9a%e7%89%a9%e9%a6%86%e5%b2%9b&form=hpcapt&filters=HpDate:"20230825_1600" "Bing Wallpaper 2023 8月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230826_MuseumIsland"&FORM=HPQUIZ "必应主页测验 2023 8月 26")
+[下载480](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_800x480.jpg&rf=LaDigue_800x480.jpg "柏林大教堂和博物馆岛，柏林，德国")
+[下载720](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_1280x720.jpg&rf=LaDigue_1280x720.jpg "柏林大教堂和博物馆岛，柏林，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "柏林大教堂和博物馆岛，柏林，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_UHD.jpg&rf=LaDigue_UHD.jpg "柏林大教堂和博物馆岛，柏林，德国")
+
+---
 ### 08月25日：这是你的土地
 #### 黄石下瀑布，黄石国家公园，怀俄明州，美国（© Tim Fitzharris/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_1280x720.jpg&rf=LaDigue_1280x720.jpg "大象家族，安波塞利国家公园，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大象家族，安波塞利国家公园，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_UHD.jpg&rf=LaDigue_UHD.jpg "大象家族，安波塞利国家公园，肯尼亚")
-
----
-### 08月11日：独一无二的一朵“水花”
-#### '朱庇特艺术园的“入口”水池，爱丁堡，苏格兰（© Owen Humphreys/PA Images/Alamy）
-
-![独一无二的一朵“水花”](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_800x480.jpg&rf=LaDigue_800x480.jpg "独一无二的一朵“水花”")
-
-今天这张照片看起来像是AI生成的未来星球，但其实这是一个名为“入口”的水池，拍摄于苏格兰爱丁堡的朱庇特艺术园。这件艺术品直径约9米，集景观雕塑和功能游泳池于一体，于2019年作为爱丁堡艺术节的一部分向公众开放。水池呈水花形，由11000多块手绘瓷砖制成，这些瓷砖产自葡萄牙传统陶瓷作坊。
-
-这个名为“入口”的水池是一件非凡的艺术品，直径9米，由手绘葡萄牙瓷砖拼贴而成，整体风格鲜明、充满活力。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%88%b1%e4%b8%81%e5%a0%a1%e8%89%ba%e6%9c%af%e8%8a%82&form=hpcapt&filters=HpDate:"20230810_1600" "Bing Wallpaper 2023 8月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230811_JupiterArtland"&FORM=HPQUIZ "必应主页测验 2023 8月 11")
-[下载480](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_800x480.jpg&rf=LaDigue_800x480.jpg "'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰")
-[下载720](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_1280x720.jpg&rf=LaDigue_1280x720.jpg "'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_UHD.jpg&rf=LaDigue_UHD.jpg "'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰")
 
 ---
