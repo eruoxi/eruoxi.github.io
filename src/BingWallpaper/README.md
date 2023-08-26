@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月27日：一个酷炫的凝灰岩火山口
+#### 城山日出峰，济州岛上的凝灰岩锥，韩国（© Quynh Anh Nguyen/Getty Images）
+
+![一个酷炫的凝灰岩火山口](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_800x480.jpg&rf=LaDigue_800x480.jpg "一个酷炫的凝灰岩火山口")
+
+济州岛上充满奇观，火山、古老石像、瀑布和岩石海岸，还有今天图片中的主角，城山日出峰，是岛上罕见的凝灰岩锥，由5000年前的一次海底火山喷发而形成。城山日出峰于2007年被列入联合国教科文组织世界自然遗产名录。
+
+济州岛是一个火山岛，岛中心的汉拿山也是一座火山，海拔约1950米，是韩国的最高峰。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b5%8e%e5%b7%9e%e5%b2%9b&form=hpcapt&filters=HpDate:"20230826_1600" "Bing Wallpaper 2023 8月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230827_JejuIsland"&FORM=HPQUIZ "必应主页测验 2023 8月 27")
+[下载480](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_800x480.jpg&rf=LaDigue_800x480.jpg "城山日出峰，济州岛上的凝灰岩锥，韩国")
+[下载720](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_1280x720.jpg&rf=LaDigue_1280x720.jpg "城山日出峰，济州岛上的凝灰岩锥，韩国")
+[下载1080](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "城山日出峰，济州岛上的凝灰岩锥，韩国")
+[下载UHD](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_UHD.jpg&rf=LaDigue_UHD.jpg "城山日出峰，济州岛上的凝灰岩锥，韩国")
+
+---
 ### 08月26日：博物馆之夜
 #### 柏林大教堂和博物馆岛，柏林，德国（© Rudy Balasko/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PerseidsOregon_ZH-CN9427980491_1280x720.jpg&rf=LaDigue_1280x720.jpg "英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PerseidsOregon_ZH-CN9427980491_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PerseidsOregon_ZH-CN9427980491_UHD.jpg&rf=LaDigue_UHD.jpg "英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国")
-
----
-### 08月12日：保护温柔的巨人
-#### 大象家族，安波塞利国家公园，肯尼亚（© Ibrahim Suha Derbent/Getty Images）
-
-![保护温柔的巨人](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_800x480.jpg&rf=LaDigue_800x480.jpg "保护温柔的巨人")
-
-作为地球上最大的陆地动物，非洲象拥有非凡的外形和独特的行为。研究发现，大象可以在镜子里认出自己；小象会换乳牙；失去家人时，大象也会表现出悲伤等情绪……每年8月12日的世界大象日不仅是为了赞美它们，也是为了引起人们对大象生存处境的关注。今天这张照片拍摄于肯尼亚的安波塞利国家公园，这里是为数不多的仍存在大量非洲象群的栖息地之一。
-
-大象是非常聪明的动物，其智商被认为可以与灵长类动物相媲美。研究发现，它们似乎拥有自我意识，并且会对垂死和死去的同伴表现出关心。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%a4%a7%e8%b1%a1%e6%97%a5&form=hpcapt&filters=HpDate:"20230811_1600" "Bing Wallpaper 2023 8月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230812_ThreeElephants"&FORM=HPQUIZ "必应主页测验 2023 8月 12")
-[下载480](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_800x480.jpg&rf=LaDigue_800x480.jpg "大象家族，安波塞利国家公园，肯尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_1280x720.jpg&rf=LaDigue_1280x720.jpg "大象家族，安波塞利国家公园，肯尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大象家族，安波塞利国家公园，肯尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_UHD.jpg&rf=LaDigue_UHD.jpg "大象家族，安波塞利国家公园，肯尼亚")
 
 ---
