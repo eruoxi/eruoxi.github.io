@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月28日：小心龙出没！
+#### 洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚（© Benny Marty/Shutterstock）
+
+![小心龙出没！](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_ZH-CN8590217905_800x480.jpg&rf=LaDigue_800x480.jpg "小心龙出没！")
+
+来到克罗地亚的杜布罗夫尼克，你可能会本能地警惕入侵的舰队或空中的巨龙，不过放心，你更有可能遇到的是游客，而不是兰尼斯特家族。美剧《权力的游戏》经常在这里取景拍摄，因为杜布罗夫尼克老城是世界上保存最完好的中世纪城市之一。历史上，杜布罗夫尼克曾以“拉古萨共和国”的身份蓬勃发展了数百年，通过灵活的外交和强大的航海贸易保持独立。这颗“亚得里亚海的明珠”也经历过炮火和大地震，但重建后的城市依然充满生机。古城墙、教堂、博物馆和艺术等文化遗产都是吸引游客前往杜布罗夫尼克的原因，最近的一份报告显示，2019年，杜布罗夫尼克平均每位居民接待了36名游客。
+
+杜布罗夫尼克是《旅游休闲》杂志评选的“世界上最美丽的25个城市”之一，排名第18位。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%85%8b%e7%bd%97%e5%9c%b0%e4%ba%9a%e6%9d%9c%e5%b8%83%e7%bd%97%e5%a4%ab%e5%b0%bc%e5%85%8b&form=hpcapt&filters=HpDate:"20230827_1600" "Bing Wallpaper 2023 8月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230828_DubrovnikHarbor"&FORM=HPQUIZ "必应主页测验 2023 8月 28")
+[下载480](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_ZH-CN8590217905_800x480.jpg&rf=LaDigue_800x480.jpg "洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚")
+[下载720](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_ZH-CN8590217905_1280x720.jpg&rf=LaDigue_1280x720.jpg "洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚")
+[下载1080](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_ZH-CN8590217905_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_ZH-CN8590217905_UHD.jpg&rf=LaDigue_UHD.jpg "洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚")
+
+---
 ### 08月27日：一个酷炫的凝灰岩火山口
 #### 城山日出峰，济州岛上的凝灰岩锥，韩国（© Quynh Anh Nguyen/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_1280x720.jpg&rf=LaDigue_1280x720.jpg "叶片上的小壁虎")
 [下载1080](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "叶片上的小壁虎")
 [下载UHD](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_UHD.jpg&rf=LaDigue_UHD.jpg "叶片上的小壁虎")
-
----
-### 08月13日：抬头看，它来了
-#### 英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国（© Joshua Meador/Tandem Stills + Motion）
-
-![抬头看，它来了](https://cn.bing.com/th?id=OHR.PerseidsOregon_ZH-CN9427980491_800x480.jpg&rf=LaDigue_800x480.jpg "抬头看，它来了")
-
-当我们的祖先看到安静的夜空突然下起流星雨，他们会是什么感受？是惊惧还是惊叹？好在现在的我们已经知道，这是一场年度“灯光秀”，被称为英仙座流星雨，活跃期一般在每年的7月中旬至8月下旬。英仙座流星雨是由地球穿过斯威夫特-塔特尔彗星留下的碎片造成的，当这些碎片撞击地球大气层，就会产生炽热的流星雨。今天正是英仙座流星雨的高峰期，月亮预计只有10%的亮度，今晚可千万别错过“赏雨”哦！
-
-英仙座（Perseid）这个名字来源希腊神话英雄珀耳修斯。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8b%b1%e4%bb%99%e5%ba%a7%e6%b5%81%e6%98%9f%e9%9b%a8&form=hpcapt&filters=HpDate:"20230812_1600" "Bing Wallpaper 2023 8月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230813_PerseidsOregon"&FORM=HPQUIZ "必应主页测验 2023 8月 13")
-[下载480](https://cn.bing.com/th?id=OHR.PerseidsOregon_ZH-CN9427980491_800x480.jpg&rf=LaDigue_800x480.jpg "英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.PerseidsOregon_ZH-CN9427980491_1280x720.jpg&rf=LaDigue_1280x720.jpg "英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.PerseidsOregon_ZH-CN9427980491_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PerseidsOregon_ZH-CN9427980491_UHD.jpg&rf=LaDigue_UHD.jpg "英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国")
 
 ---
