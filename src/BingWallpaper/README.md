@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月29日：一头毛茸茸的牛
+#### 美洲野牛，大提顿国家公园，怀俄明州（© Enrique Aguirre Aves/Getty Images）
+
+![一头毛茸茸的牛](https://cn.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_800x480.jpg&rf=LaDigue_800x480.jpg "一头毛茸茸的牛")
+
+野牛是一种雄伟、巨大的生物，是美国边疆精神的真正象征。 这些强壮的动物在美国大草原上生活了数千年，在1900年之前，它们的数量估计高达6000万。定居者的狩猎导致大量的牛群大量死亡，不到100年前，野牛就濒临灭绝。然而，如今北美洲有超过300,000 头野牛。
+
+野牛的角弯曲而锋利，可能长两英尺。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e6%b4%b2%e9%87%8e%e7%89%9b&form=hpcapt&filters=HpDate:"20230828_1600" "Bing Wallpaper 2023 8月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230829_TetonBison"&FORM=HPQUIZ "必应主页测验 2023 8月 29")
+[下载480](https://cn.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_800x480.jpg&rf=LaDigue_800x480.jpg "美洲野牛，大提顿国家公园，怀俄明州")
+[下载720](https://cn.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_1280x720.jpg&rf=LaDigue_1280x720.jpg "美洲野牛，大提顿国家公园，怀俄明州")
+[下载1080](https://cn.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美洲野牛，大提顿国家公园，怀俄明州")
+[下载UHD](https://cn.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_UHD.jpg&rf=LaDigue_UHD.jpg "美洲野牛，大提顿国家公园，怀俄明州")
+
+---
 ### 08月28日：小心龙出没！
 #### 洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚（© Benny Marty/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_1280x720.jpg&rf=LaDigue_1280x720.jpg "四月九日广场，陶尔米纳，西西里岛，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "四月九日广场，陶尔米纳，西西里岛，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_UHD.jpg&rf=LaDigue_UHD.jpg "四月九日广场，陶尔米纳，西西里岛，意大利")
-
----
-### 08月14日：躲猫猫，我看见你了!
-#### 叶片上的小壁虎（© Darren Greenwood/Alamy）
-
-![躲猫猫，我看见你了!](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_800x480.jpg&rf=LaDigue_800x480.jpg "躲猫猫，我看见你了!")
-
-当你试图吸引人们关注世界蜥蜴日这项活动时，你不会想要用吉拉毒蜥、巨蜥，或者更常见的、但仍不讨喜的鬣蜥作为开场白。不，你想要的是一只可爱的小壁虎，就像我们在这张照片中看到的那样。壁虎有1500多种，大小不一，与其他蜥蜴不同的是，它们可以通过发声吸引配偶、威吓敌人和进行各种社交互动。
-
-斐济冠状鬣蜥是一种蜥蜴，在20世纪80年代的电影《蓝色泻湖》拍摄期间被发现。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a3%81%e8%99%8e%e8%9c%a5%e8%9c%b4&form=hpcapt&filters=HpDate:"20230813_1600" "Bing Wallpaper 2023 8月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230814_GeckoLeaf"&FORM=HPQUIZ "必应主页测验 2023 8月 14")
-[下载480](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_800x480.jpg&rf=LaDigue_800x480.jpg "叶片上的小壁虎")
-[下载720](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_1280x720.jpg&rf=LaDigue_1280x720.jpg "叶片上的小壁虎")
-[下载1080](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "叶片上的小壁虎")
-[下载UHD](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_UHD.jpg&rf=LaDigue_UHD.jpg "叶片上的小壁虎")
 
 ---
