@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月30日：潜水员的“大伙伴”
+#### 鲸鲨，宁加洛珊瑚礁，西澳大利亚（© Jason Edwards/Getty Images）
+
+![潜水员的“大伙伴”](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_800x480.jpg&rf=LaDigue_800x480.jpg "潜水员的“大伙伴”")
+
+跟世界上最大的鱼类——鲸鲨，打个招呼吧。每年的8月30日是世界鲸鲨日。鲸鲨的体型惊人，平均身长达39英尺，尽管名叫“鲸鲨”，但这些温和的“海中巨人”其实并非鲸类，而是鱼类。鲸鲨性格温和，潜水员和它一起游泳通常是安全的。鲸鲨通过鳃板过滤浮游生物和小鱼，属于滤食性动物。如今，鲸鲨的数量已大幅下降。据估计，在过去的75年中，鲸鲨的数量减少了63%。究其缘由，一方面是因为鲸鲨会被船只撞击或被渔网缠住，另一方面是由于鲸鲨的栖息地因污染、沿海开发和过度捕捞而遭到破坏。就让我们在世界鲸鲨日，关注鲸鲨，了解鲸鲨，一起为保护鲸鲨做出努力吧。
+
+因为鲸鲨背部有犹如星辰般的斑点，所以鲸鲨在马达加斯加被称为“marokintana”，意为“众星”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%b2%b8%e9%b2%a8&form=hpcapt&filters=HpDate:"20230829_1600" "Bing Wallpaper 2023 8月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230830_NingalooShark"&FORM=HPQUIZ "必应主页测验 2023 8月 30")
+[下载480](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_800x480.jpg&rf=LaDigue_800x480.jpg "鲸鲨，宁加洛珊瑚礁，西澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_1280x720.jpg&rf=LaDigue_1280x720.jpg "鲸鲨，宁加洛珊瑚礁，西澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鲸鲨，宁加洛珊瑚礁，西澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_UHD.jpg&rf=LaDigue_UHD.jpg "鲸鲨，宁加洛珊瑚礁，西澳大利亚")
+
+---
 ### 08月29日：一头毛茸茸的牛
 #### 美洲野牛，大提顿国家公园，怀俄明州（© Enrique Aguirre Aves/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_1280x720.jpg&rf=LaDigue_1280x720.jpg "基韦斯特的七英里大桥，佛罗里达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "基韦斯特的七英里大桥，佛罗里达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_UHD.jpg&rf=LaDigue_UHD.jpg "基韦斯特的七英里大桥，佛罗里达州，美国")
-
----
-### 08月15日：发光的矩形广场
-#### 四月九日广场，陶尔米纳，西西里岛，意大利（© rudi1976/Alamy）
-
-![发光的矩形广场](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_800x480.jpg&rf=LaDigue_800x480.jpg "发光的矩形广场")
-
-陶尔米纳，一颗镶嵌在西西里岛上的美丽明珠，毗邻古希腊殖民地纳克索斯，被爱奥尼亚海和风景如画的伊索拉贝拉岛所环绕。自19世纪以来，这个美丽的小镇一直是旅游胜地。
-
-陶尔米纳会在夏季组织许多展览和活动，古剧场经常举办戏剧演出或古典音乐会，电影银丝带奖颁奖典礼等文化盛会也会在此举行。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%99%b6%e5%b0%94%e7%b1%b3%e7%ba%b3&form=hpcapt&filters=HpDate:"20230814_1600" "Bing Wallpaper 2023 8月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230815_TaorminaSquare"&FORM=HPQUIZ "必应主页测验 2023 8月 15")
-[下载480](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_800x480.jpg&rf=LaDigue_800x480.jpg "四月九日广场，陶尔米纳，西西里岛，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_1280x720.jpg&rf=LaDigue_1280x720.jpg "四月九日广场，陶尔米纳，西西里岛，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "四月九日广场，陶尔米纳，西西里岛，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_UHD.jpg&rf=LaDigue_UHD.jpg "四月九日广场，陶尔米纳，西西里岛，意大利")
 
 ---
