@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月31日：你今天过得怎么样？
+#### 巨人柱，铁木森林国家纪念地，亚利桑那州，美国（© Jack Dykinga/Minden Pictures）
+
+![你今天过得怎么样？](https://cn.bing.com/th?id=OHR.IronwoodCactus_ZH-CN9290037977_800x480.jpg&rf=LaDigue_800x480.jpg "你今天过得怎么样？")
+
+在亚利桑那州阳光普照的天空下，大片的仙人掌在群山的映衬下格外显眼。照片上的是巨人柱仙人掌，拍摄于铁木森林国家纪念地。即使你没有亲眼见过巨人柱仙人掌，但当你听到“巨人柱”这个名字时，也能联想到它们的样子：苍绿高大的圆柱形仙人掌，直指天空。虽然巨人柱生长缓慢，但它们的寿命超过200年，有足够的时间慢慢生长，创纪录的一株巨人柱仙人掌甚至高达78英尺。曾有一株被称为“老爷爷”的仙人掌存活了约有300年，最终在20世纪90年代寿终正寝。
+
+1931年3月16日，美国亚利桑纳州将巨人柱仙人掌花定为州花。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%a8%e4%ba%ba%e6%9f%b1&form=hpcapt&filters=HpDate:"20230830_1600" "Bing Wallpaper 2023 8月 31")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230831_IronwoodCactus"&FORM=HPQUIZ "必应主页测验 2023 8月 31")
+[下载480](https://cn.bing.com/th?id=OHR.IronwoodCactus_ZH-CN9290037977_800x480.jpg&rf=LaDigue_800x480.jpg "巨人柱，铁木森林国家纪念地，亚利桑那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.IronwoodCactus_ZH-CN9290037977_1280x720.jpg&rf=LaDigue_1280x720.jpg "巨人柱，铁木森林国家纪念地，亚利桑那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.IronwoodCactus_ZH-CN9290037977_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巨人柱，铁木森林国家纪念地，亚利桑那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.IronwoodCactus_ZH-CN9290037977_UHD.jpg&rf=LaDigue_UHD.jpg "巨人柱，铁木森林国家纪念地，亚利桑那州，美国")
+
+---
 ### 08月30日：潜水员的“大伙伴”
 #### 鲸鲨，宁加洛珊瑚礁，西澳大利亚（© Jason Edwards/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_1280x720.jpg&rf=LaDigue_1280x720.jpg "罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省")
 [下载1080](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省")
 [下载UHD](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_UHD.jpg&rf=LaDigue_UHD.jpg "罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省")
-
----
-### 08月16日：一把通向岛屿的钥匙
-#### 基韦斯特的七英里大桥，佛罗里达州，美国（© Evgeny Vasenev/Cavan Images）
-
-![一把通向岛屿的钥匙](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_800x480.jpg&rf=LaDigue_800x480.jpg "一把通向岛屿的钥匙")
-
-很久很久以前，佛罗里达州住着一位富有的实业家，名叫亨利·弗拉格勒。他启动了一项艰巨的工程：修建一条连接佛罗里达大陆和基韦斯特的跨海铁路。最终，七英里桥于1912年正式落成，被称为世界第八大奇迹。然而，奇迹并不长久，1935年，这座大桥遭遇飓风从而停止了运营。后来，这座桥被卖给了美国政府，经历重建后摇身一变，成了一条汽车高速公路，于1938年重新开放。
-
-费格与马勒工程集团不仅设计了七英里大桥，还设计了比这座桥高出许多的阳光高架桥。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%83%e8%8b%b1%e9%87%8c%e5%a4%a7%e6%a1%a5&form=hpcapt&filters=HpDate:"20230815_1600" "Bing Wallpaper 2023 8月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230816_KeyWestBridge"&FORM=HPQUIZ "必应主页测验 2023 8月 16")
-[下载480](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_800x480.jpg&rf=LaDigue_800x480.jpg "基韦斯特的七英里大桥，佛罗里达州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_1280x720.jpg&rf=LaDigue_1280x720.jpg "基韦斯特的七英里大桥，佛罗里达州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "基韦斯特的七英里大桥，佛罗里达州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_UHD.jpg&rf=LaDigue_UHD.jpg "基韦斯特的七英里大桥，佛罗里达州，美国")
 
 ---
