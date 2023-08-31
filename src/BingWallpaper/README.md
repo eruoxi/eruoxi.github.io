@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月01日：火鸡尾蘑菇
+#### 火鸡尾蘑菇，布里瓦德，北卡罗来纳州，美国（© Bill Gozansky/Alamy Stock Photo）
+
+![火鸡尾蘑菇](https://cn.bing.com/th?id=OHR.TurkeyTailMush_ZH-CN9683744281_800x480.jpg&rf=LaDigue_800x480.jpg "火鸡尾蘑菇")
+
+当蘑菇委员会决定给这些用途广泛的蘑菇们设立一个全国性的节日的时候，他们认为9月是最合适的月份——因为这个时候，宾夕法尼亚州就有一个蘑菇节。美国蘑菇月旨在强调蘑菇的重要性，并鼓励大家去了解蘑菇，分辨毒蘑菇和可食用蘑菇。今天照片上这种蘑菇因长得像火鸡尾巴，因而得名火鸡尾蘑菇，在中国传统医学中可入药。最近的研究也表明，火鸡尾蘑菇还具有抗肿瘤的特性，有助于增强免疫系统。此外，蘑菇还是很有营养价值的食物，从波多贝罗蘑菇到香菇，可食用的蘑菇有成千上万种。无论是煎炒、做馅、切片、还是做披萨或是做汤，蘑菇总能在餐桌上找到它的一席之地。
+
+蘑菇可以用来给羊毛和其他天然纤维染色。在合成染料发明之前，蘑菇是许多纺织品染料的来源。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%98%91%e8%8f%87&form=hpcapt&filters=HpDate:"20230831_1600" "Bing Wallpaper 2023 9月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230901_TurkeyTailMush"&FORM=HPQUIZ "必应主页测验 2023 9月 1")
+[下载480](https://cn.bing.com/th?id=OHR.TurkeyTailMush_ZH-CN9683744281_800x480.jpg&rf=LaDigue_800x480.jpg "火鸡尾蘑菇，布里瓦德，北卡罗来纳州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.TurkeyTailMush_ZH-CN9683744281_1280x720.jpg&rf=LaDigue_1280x720.jpg "火鸡尾蘑菇，布里瓦德，北卡罗来纳州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.TurkeyTailMush_ZH-CN9683744281_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "火鸡尾蘑菇，布里瓦德，北卡罗来纳州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.TurkeyTailMush_ZH-CN9683744281_UHD.jpg&rf=LaDigue_UHD.jpg "火鸡尾蘑菇，布里瓦德，北卡罗来纳州，美国")
+
+---
 ### 08月31日：你今天过得怎么样？
 #### 巨人柱，铁木森林国家纪念地，亚利桑那州，美国（© Jack Dykinga/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_1280x720.jpg&rf=LaDigue_1280x720.jpg "哈利路亚山，张家界国家森林公园，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哈利路亚山，张家界国家森林公园，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_UHD.jpg&rf=LaDigue_UHD.jpg "哈利路亚山，张家界国家森林公园，中国")
-
----
-### 08月17日：听它咆哮！
-#### 罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省（© Laurens Verhoeven/Getty Images）
-
-![听它咆哮！](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_800x480.jpg&rf=LaDigue_800x480.jpg "听它咆哮！")
-
-罕肯瀑布 (Helmcken Falls) 坐落在威尔斯格雷省立公园 (Wells Gray Province Park) 内，是一处令人惊叹的自然奇观。 威尔斯格雷省立公园就是为了保护这座优美的瀑布而建立的。为政府工作的土地测量员罗伯特·亨利·李发现了这处大自然带给我们的天然珍宝。这座雄伟的瀑布是加拿大第五高的瀑布，从陡峭的大约有141米的高度火山岩悬崖上倾泻而下，释放出飘逸的雾气，在阳光下翩翩起舞，也形成了彩虹与瀑布相互映衬的绝美景观。
-
-威尔斯格雷省立公园本身就是一个未开垦的荒野保护区，点缀着郁郁葱葱的高山草甸、古老的森林和生机勃勃的野花。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%94%e6%96%af%e6%a0%bc%e9%9b%b7%e7%9c%81%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230816_1600" "Bing Wallpaper 2023 8月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230817_HelmckenWaterfall"&FORM=HPQUIZ "必应主页测验 2023 8月 17")
-[下载480](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_800x480.jpg&rf=LaDigue_800x480.jpg "罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省")
-[下载720](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_1280x720.jpg&rf=LaDigue_1280x720.jpg "罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省")
-[下载1080](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省")
-[下载UHD](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_UHD.jpg&rf=LaDigue_UHD.jpg "罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省")
 
 ---
