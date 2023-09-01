@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月02日：停下来喝点花蜜
+#### 艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国（© mallardg500/Getty Images）
+
+![停下来喝点花蜜](https://cn.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_800x480.jpg&rf=LaDigue_800x480.jpg "停下来喝点花蜜")
+
+每年9月的第一个星期六是美国蜂鸟日。蜂鸟羽色鲜艳，小巧精致，能在空中悬停，是自然界的奇迹之一。蜂鸟飞行振翅频率能达到53次每秒，发出标志性的嗡嗡声。由于体力消耗大，所以蜂鸟的胃口很好，每10-15分钟就要进食一次。今天照片上的是艾氏煌蜂鸟，你可以在北美西海岸找到它们的身影，而最常见到它们的地方则是加利福尼亚州。
+
+雄性艾氏煌蜂鸟的背部和前额是绿色的，两侧、臀部和尾部是铁锈色的。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%89%be%e6%b0%8f%e7%85%8c%e8%9c%82%e9%b8%9f&form=hpcapt&filters=HpDate:"20230901_1600" "Bing Wallpaper 2023 9月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230902_TinyHummer"&FORM=HPQUIZ "必应主页测验 2023 9月 2")
+[下载480](https://cn.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_800x480.jpg&rf=LaDigue_800x480.jpg "艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_1280x720.jpg&rf=LaDigue_1280x720.jpg "艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_UHD.jpg&rf=LaDigue_UHD.jpg "艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国")
+
+---
 ### 09月01日：火鸡尾蘑菇
 #### 火鸡尾蘑菇，布里瓦德，北卡罗来纳州，美国（© Bill Gozansky/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_1280x720.jpg&rf=LaDigue_1280x720.jpg "看着相机镜头的松鼠")
 [下载1080](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "看着相机镜头的松鼠")
 [下载UHD](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg&rf=LaDigue_UHD.jpg "看着相机镜头的松鼠")
-
----
-### 08月18日：挑战地心引力的世界奇观
-#### 哈利路亚山，张家界国家森林公园，中国（© Amazing Aerial Premium/Shutterstock）
-
-![挑战地心引力的世界奇观](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_800x480.jpg&rf=LaDigue_800x480.jpg "挑战地心引力的世界奇观")
-
-哈利路亚山是位于中国湖南省张家界国家森林公园内的一处胜景。这些石柱曾出现在电影《阿凡达》中，那些高耸的石英砂岩峰林正是悬浮山的灵感来源。2010年1月25日，张家界南天一柱被更名为《阿凡达》哈利路亚山。据了解，电影《阿凡达》中“潘多拉星球”中的大量原型来源于张家界群山，其中“南天一柱”图片就成为“哈利路亚山”即悬浮山的原型。1992年，包括“南天一柱”（哈利路亚山）在内的武陵源风景名胜区被联合国教科文组织列为世界遗产。现在，这个地方每年都吸引着数百万的游客前来欣赏该地引入入胜的美景。此外，公园里还分布着许多徒步小径和玻璃悬空栈道，以便游客们欣赏哈利路亚山的全景。
-
-1982年，张家界国家森林公园被认定为中国第一个国家森林公园。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%bc%a0%e5%ae%b6%e7%95%8c%e5%9b%bd%e5%ae%b6%e6%a3%ae%e6%9e%97%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230817_1600" "Bing Wallpaper 2023 8月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230818_AvatarMountain"&FORM=HPQUIZ "必应主页测验 2023 8月 18")
-[下载480](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_800x480.jpg&rf=LaDigue_800x480.jpg "哈利路亚山，张家界国家森林公园，中国")
-[下载720](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_1280x720.jpg&rf=LaDigue_1280x720.jpg "哈利路亚山，张家界国家森林公园，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哈利路亚山，张家界国家森林公园，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_UHD.jpg&rf=LaDigue_UHD.jpg "哈利路亚山，张家界国家森林公园，中国")
 
 ---
