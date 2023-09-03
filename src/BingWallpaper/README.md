@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月04日：城市中心的绿色天堂
+#### 布尔日的沼泽，法国（© Tuul & Bruno Morandi/Getty Images）
+
+![城市中心的绿色天堂](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_800x480.jpg&rf=LaDigue_800x480.jpg "城市中心的绿色天堂")
+
+布尔日沼泽位于布尔日城市的中心，占地135公顷，为人们提供了一个放松和探索的空间。在中世纪时期，这片沼泽地曾是抵御入侵的城市保护带。
+
+沼泽为很多种无脊椎动物、两栖动物、水鸟和水生哺乳动物提供了栖息地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e5%b0%94%e6%97%a5&form=hpcapt&filters=HpDate:"20230903_1600" "Bing Wallpaper 2023 9月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230904_BourgesMarsh"&FORM=HPQUIZ "必应主页测验 2023 9月 4")
+[下载480](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_800x480.jpg&rf=LaDigue_800x480.jpg "布尔日的沼泽，法国")
+[下载720](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_1280x720.jpg&rf=LaDigue_1280x720.jpg "布尔日的沼泽，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布尔日的沼泽，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_UHD.jpg&rf=LaDigue_UHD.jpg "布尔日的沼泽，法国")
+
+---
 ### 09月03日：高耸入云
 #### 曼哈顿鸟瞰图，纽约市，美国（© Wojtek Zagorski/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_1280x720.jpg&rf=LaDigue_1280x720.jpg "翡翠湖，加拿大育空地区")
 [下载1080](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "翡翠湖，加拿大育空地区")
 [下载UHD](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_UHD.jpg&rf=LaDigue_UHD.jpg "翡翠湖，加拿大育空地区")
-
----
-### 08月20日：海上哨兵
-#### 起点灯塔，德文郡，英国（© Guy Edwardes/Minden Pictures）
-
-![海上哨兵](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_800x480.jpg&rf=LaDigue_800x480.jpg "海上哨兵")
-
-每年8月的第三个周末，世界各地的灯塔爱好者和航海历史爱好者都会聚在一起庆祝国际灯塔周，纪念这些标志性建筑的悠久历史和关键作用。人们可以走进这些灯塔，亲眼见证这些巨大的灯塔通过将灯光、仪器和精密的工程技术巧妙地结合在一起来发挥作用。
-
-起点灯塔建于1836年，伫立于英国海岸线上其中一个最凸出的半岛上。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8b%b1%e5%9b%bd%e5%be%b7%e6%96%87%e9%83%a1&form=hpcapt&filters=HpDate:"20230819_1600" "Bing Wallpaper 2023 8月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230820_StartPointLight"&FORM=HPQUIZ "必应主页测验 2023 8月 20")
-[下载480](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_800x480.jpg&rf=LaDigue_800x480.jpg "起点灯塔，德文郡，英国")
-[下载720](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_1280x720.jpg&rf=LaDigue_1280x720.jpg "起点灯塔，德文郡，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "起点灯塔，德文郡，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_UHD.jpg&rf=LaDigue_UHD.jpg "起点灯塔，德文郡，英国")
 
 ---
