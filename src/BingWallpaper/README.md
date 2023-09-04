@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月05日：数字合成的照片？不是吧！
+#### 塞格拉山，塞尼亚岛，挪威（© imageBROKER/Moritz Wolf/Getty Images）
+
+![数字合成的照片？不是吧！](https://cn.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_800x480.jpg&rf=LaDigue_800x480.jpg "数字合成的照片？不是吧！")
+
+塞尼亚岛是一座美丽的岛屿，被称为“挪威缩影”，也是挪威的第二大岛，岛屿的西边是各式各样的山峰，东边则是郁郁葱葱的绿地。吉松德大桥把这座岛屿和挪威本土城市芬斯内斯连接起来。今天照片里的是塞尼亚岛上最有名的景点塞格拉山。夏天时，游客可以沿着陡峭的小径攀登至600多米高的峰顶。塞尼亚岛的景点还有安德达伦国家公园和特拉恩岛——一座位于塞尼亚岛南边的岛屿，以其宁静的氛围而出名。
+
+塞尼亚岛以其魔幻的山峰、深邃的峡湾和山谷、连绵的草地和松树林以及壮美的群岛湾而闻名。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a1%9e%e5%b0%bc%e4%ba%9a%e5%b2%9b&form=hpcapt&filters=HpDate:"20230904_1600" "Bing Wallpaper 2023 9月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230905_MountSegla"&FORM=HPQUIZ "必应主页测验 2023 9月 5")
+[下载480](https://cn.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_800x480.jpg&rf=LaDigue_800x480.jpg "塞格拉山，塞尼亚岛，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞格拉山，塞尼亚岛，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞格拉山，塞尼亚岛，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_UHD.jpg&rf=LaDigue_UHD.jpg "塞格拉山，塞尼亚岛，挪威")
+
+---
 ### 09月04日：城市中心的绿色天堂
 #### 布尔日的沼泽，法国（© Tuul & Bruno Morandi/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃尔杰姆露天剧场，突尼斯")
 [下载1080](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃尔杰姆露天剧场，突尼斯")
 [下载UHD](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg&rf=LaDigue_UHD.jpg "埃尔杰姆露天剧场，突尼斯")
-
----
-### 08月21日：自内而外的光彩
-#### 翡翠湖，加拿大育空地区（© artherng/Getty Images）
-
-![自内而外的光彩](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_800x480.jpg&rf=LaDigue_800x480.jpg "自内而外的光彩")
-
-发现日是加拿大育空地区的一个年度节日，用来纪念1896年在富矿溪发现金矿，这个发现开启了克朗代克淘金热，进而推动了育空领地的建立。淘金热吸引了数以千计的淘金者来此寻找财富，推动了重大的经济和社会变革。
-
-加拿大向导汤姆·威尔逊在1882年成为了（原住民群体以外）最早发现翡翠湖的人。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e6%8b%bf%e5%a4%a7%e8%82%b2%e7%a9%ba%e5%9c%b0%e5%8c%ba&form=hpcapt&filters=HpDate:"20230820_1600" "Bing Wallpaper 2023 8月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230821_EmeraldLakeYukon"&FORM=HPQUIZ "必应主页测验 2023 8月 21")
-[下载480](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_800x480.jpg&rf=LaDigue_800x480.jpg "翡翠湖，加拿大育空地区")
-[下载720](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_1280x720.jpg&rf=LaDigue_1280x720.jpg "翡翠湖，加拿大育空地区")
-[下载1080](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "翡翠湖，加拿大育空地区")
-[下载UHD](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_UHD.jpg&rf=LaDigue_UHD.jpg "翡翠湖，加拿大育空地区")
 
 ---
