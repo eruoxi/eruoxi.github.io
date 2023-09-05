@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月06日：准备好下锚了吗？
+#### 威尼斯旧港，克里特岛，希腊（© Gatsi/Getty Images）
+
+![准备好下锚了吗？](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_800x480.jpg&rf=LaDigue_800x480.jpg "准备好下锚了吗？")
+
+威尼斯港位于古城罗希姆诺。矗立在海港边缘的埃及灯塔以及当地的土耳其风格建筑，是历史上不同民族在这里留下的印记。这个港口于14世纪由威尼斯人建成，曾经在很长的一段时间里都是一个繁忙的商业中心。游客还可以造访始建于16世纪的罗希姆诺城堡，在城堡上俯瞰罗希姆诺的城市全景。
+
+克里特岛是希腊最大的岛屿，也是地中海第5大岛，还是世界上第88大的岛屿。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%8c%e8%85%8a%e5%85%8b%e9%87%8c%e7%89%b9%e5%b2%9b&form=hpcapt&filters=HpDate:"20230905_1600" "Bing Wallpaper 2023 9月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230906_CreteHarbor"&FORM=HPQUIZ "必应主页测验 2023 9月 6")
+[下载480](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_800x480.jpg&rf=LaDigue_800x480.jpg "威尼斯旧港，克里特岛，希腊")
+[下载720](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_1280x720.jpg&rf=LaDigue_1280x720.jpg "威尼斯旧港，克里特岛，希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "威尼斯旧港，克里特岛，希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_UHD.jpg&rf=LaDigue_UHD.jpg "威尼斯旧港，克里特岛，希腊")
+
+---
 ### 09月05日：数字合成的照片？不是吧！
 #### 塞格拉山，塞尼亚岛，挪威（© imageBROKER/Moritz Wolf/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯科加瀑布，冰岛")
 [下载1080](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯科加瀑布，冰岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_UHD.jpg&rf=LaDigue_UHD.jpg "斯科加瀑布，冰岛")
-
----
-### 08月22日：为罗马建筑“起立欢呼”
-#### 埃尔杰姆露天剧场，突尼斯（© Westend61/Getty Images）
-
-![为罗马建筑“起立欢呼”](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_800x480.jpg&rf=LaDigue_800x480.jpg "为罗马建筑“起立欢呼”")
-
-埃尔杰姆露天剧场位于突尼斯东部小城镇艾尔杰姆，始建于公元3世纪的罗马帝国时期，以其令人惊叹的建筑设计闻名。它由巨石砌成，可以容纳35000名观众，至今仍然是世界上最大的露天剧场之一。这座露天剧场自1979年就被列为联合国教科文组织世界遗产地，被认为是世界上保存最完好的罗马建筑之一，在体量和设计上几乎可以和罗马竞技场比肩。
-
-这个建筑曾经在电影《蒙提·派森之布莱恩的一生》和电视剧《漫漫长路》中出现。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9f%83%e5%b0%94%e6%9d%b0%e5%a7%86%e9%9c%b2%e5%a4%a9%e5%89%a7%e5%9c%ba&form=hpcapt&filters=HpDate:"20230821_1600" "Bing Wallpaper 2023 8月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230822_TunisiaAmphitheatre"&FORM=HPQUIZ "必应主页测验 2023 8月 22")
-[下载480](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_800x480.jpg&rf=LaDigue_800x480.jpg "埃尔杰姆露天剧场，突尼斯")
-[下载720](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃尔杰姆露天剧场，突尼斯")
-[下载1080](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃尔杰姆露天剧场，突尼斯")
-[下载UHD](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg&rf=LaDigue_UHD.jpg "埃尔杰姆露天剧场，突尼斯")
 
 ---
