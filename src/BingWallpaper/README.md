@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月07日：沙漠之舟
+#### 沙漠中的骆驼，阿拉伯联合酋长国（© Amazing Aerial Premium/Shutterstock）
+
+![沙漠之舟](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_800x480.jpg&rf=LaDigue_800x480.jpg "沙漠之舟")
+
+对于阿联酋人来说，沙漠中的骆驼长久以来都是至关紧要的，同时也代表着阿联酋人的文化遗产和习俗。骆驼是贝都因人运输水和物资的关键交通工具，对于穿越炙热的沙漠来说是必不可少的。这些单峰骆驼还曾经被作为货币使用，例如支付嫁妆或者天课（穆斯林每年的慈善课税）。它们还可以提供营养，骆驼奶在很多食谱中都是宝贵且营养的食材。最后，骆驼还可以供人驾骑、提供娱乐。由此可见，这些坚韧的动物实在是用途广泛。
+
+骆驼其实并不在驼峰中存储水分。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%aa%86%e9%a9%bc&form=hpcapt&filters=HpDate:"20230906_1600" "Bing Wallpaper 2023 9月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230907_CamelsAbove"&FORM=HPQUIZ "必应主页测验 2023 9月 7")
+[下载480](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_800x480.jpg&rf=LaDigue_800x480.jpg "沙漠中的骆驼，阿拉伯联合酋长国")
+[下载720](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_1280x720.jpg&rf=LaDigue_1280x720.jpg "沙漠中的骆驼，阿拉伯联合酋长国")
+[下载1080](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙漠中的骆驼，阿拉伯联合酋长国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_UHD.jpg&rf=LaDigue_UHD.jpg "沙漠中的骆驼，阿拉伯联合酋长国")
+
+---
 ### 09月06日：准备好下锚了吗？
 #### 威尼斯旧港，克里特岛，希腊（© Gatsi/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_1280x720.jpg&rf=LaDigue_1280x720.jpg "鲨鱼鳍湾，达文波特，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鲨鱼鳍湾，达文波特，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_UHD.jpg&rf=LaDigue_UHD.jpg "鲨鱼鳍湾，达文波特，加利福尼亚州，美国")
-
----
-### 08月23日：溅起一潭水花
-#### 斯科加瀑布，冰岛（© Maridav/Shutterstock）
-
-![溅起一潭水花](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_800x480.jpg&rf=LaDigue_800x480.jpg "溅起一潭水花")
-
-今天照片里的是冰岛的斯科加瀑布，它是冰岛最大的瀑布之一，有82英尺宽，垂直落差约200英尺。游客经常能在这里看到彩虹，甚至是双彩虹。传说，第一个踏足冰岛的维京人曾把一个宝箱藏在了斯科加瀑布后面，这又为这个瀑布增添了一丝神秘色彩。
-
-斯科加瀑布水量充沛，水雾漫天，因此晴天的时候，这里通常都可以看见彩虹，甚至双彩虹。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e7%a7%91%e5%8a%a0%e7%80%91%e5%b8%83&form=hpcapt&filters=HpDate:"20230822_1600" "Bing Wallpaper 2023 8月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230823_SkogafossWaterfall"&FORM=HPQUIZ "必应主页测验 2023 8月 23")
-[下载480](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_800x480.jpg&rf=LaDigue_800x480.jpg "斯科加瀑布，冰岛")
-[下载720](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯科加瀑布，冰岛")
-[下载1080](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯科加瀑布，冰岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_UHD.jpg&rf=LaDigue_UHD.jpg "斯科加瀑布，冰岛")
 
 ---
