@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月08日：简·奥斯汀的文学圈
+#### 巴斯圆形广场，萨默塞特 ，英国（© Gavin Hellier/Getty Images）
+
+![简·奥斯汀的文学圈](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_800x480.jpg&rf=LaDigue_800x480.jpg "简·奥斯汀的文学圈")
+
+《傲慢与偏见》的作者简·奥斯汀是世界知名的作家之一，一年一度的文化盛事简·奥斯汀节就是为了纪念这位伟大的女作家而举办的。1801年至1806年间，简·奥斯汀居住于英国巴斯，因此这个节日就在此举行。今年的简·奥斯汀节于9月8日拉开帷幕（这一天恰好也是国际扫盲日），届时，人们会穿着18世纪的英国服装在巴斯的街道上游行。
+
+简·奥斯汀23岁时，就完成了三本书的初稿。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%89%ab%e7%9b%b2%e6%97%a5&form=hpcapt&filters=HpDate:"20230907_1600" "Bing Wallpaper 2023 9月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230908_BathCircus"&FORM=HPQUIZ "必应主页测验 2023 9月 8")
+[下载480](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_800x480.jpg&rf=LaDigue_800x480.jpg "巴斯圆形广场，萨默塞特 ，英国")
+[下载720](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴斯圆形广场，萨默塞特 ，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴斯圆形广场，萨默塞特 ，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_UHD.jpg&rf=LaDigue_UHD.jpg "巴斯圆形广场，萨默塞特 ，英国")
+
+---
 ### 09月07日：沙漠之舟
 #### 沙漠中的骆驼，阿拉伯联合酋长国（© Amazing Aerial Premium/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄石下瀑布，黄石国家公园，怀俄明州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄石下瀑布，黄石国家公园，怀俄明州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_UHD.jpg&rf=LaDigue_UHD.jpg "黄石下瀑布，黄石国家公园，怀俄明州，美国")
-
----
-### 08月24日：自然“鳍”观
-#### 鲨鱼鳍湾，达文波特，加利福尼亚州，美国（© Jeff Lewis/Tandem Stills + Motion）
-
-![自然“鳍”观](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_800x480.jpg&rf=LaDigue_800x480.jpg "自然“鳍”观")
-
-鲨鱼鳍湾依偎在加州中部海岸小城达文波特附近海湾一隅。这个海湾中有一个形似鲨鱼鳍的海蚀柱，海湾也因此得名“鲨鱼鳍湾”。这个鲨鱼鳍状的海蚀柱曾是包围海滩的泥岩悬崖的一部分，在长年累月的海浪和大风的侵蚀作用下，最终形成了这个“鲨鱼鳍”。从一号公路上可以看到鲨鱼鳍湾，旅行者可以在此停留，一览无垠的太平洋。
-
-鲨鱼鳍湾是一处浮潜胜地，水比较浅，海湾开口处的水深最多20英尺。海湾以外的海域更适合潜水。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e8%9a%80%e6%9f%b1&form=hpcapt&filters=HpDate:"20230823_1600" "Bing Wallpaper 2023 8月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230824_SharkFinCove"&FORM=HPQUIZ "必应主页测验 2023 8月 24")
-[下载480](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_800x480.jpg&rf=LaDigue_800x480.jpg "鲨鱼鳍湾，达文波特，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_1280x720.jpg&rf=LaDigue_1280x720.jpg "鲨鱼鳍湾，达文波特，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鲨鱼鳍湾，达文波特，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_UHD.jpg&rf=LaDigue_UHD.jpg "鲨鱼鳍湾，达文波特，加利福尼亚州，美国")
 
 ---
