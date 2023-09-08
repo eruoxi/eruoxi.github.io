@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月09日：皇家寺庙的废墟
+#### 大城府历史公园的柴瓦塔那兰寺，泰国（© Weerasak Saeku/Getty Images）
+
+![皇家寺庙的废墟](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_800x480.jpg&rf=LaDigue_800x480.jpg "皇家寺庙的废墟")
+
+当夕阳西下，泰国的夜幕降临，大城府历史公园里的柴瓦塔那兰寺灯火通明，迎接着夜晚的到来。虽然这座寺庙并非世界遗产大城府遗址的一部分，但它也有着丰富的历史和建筑底蕴。14世纪至18世纪，暹罗大城王朝统治东南亚，国王巴萨通建造了这座圣殿，象征着宇宙的中心。从佛寺出发，可以坐船或乘车到达历史名城大城府。如今，大城府已成为历史废墟，但曾经这里是重要的商业和外交中心，周围环绕的河流是其天然的防御屏障。
+
+历史悠久的大城府建于1350年，是继素可泰之后暹罗王国的第二个首都。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%b0%e5%9b%bd%e5%a4%a7%e5%9f%8e%e5%ba%9c%e5%8e%86%e5%8f%b2%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230908_1600" "Bing Wallpaper 2023 9月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230909_AyutthayaTemple"&FORM=HPQUIZ "必应主页测验 2023 9月 9")
+[下载480](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_800x480.jpg&rf=LaDigue_800x480.jpg "大城府历史公园的柴瓦塔那兰寺，泰国")
+[下载720](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_1280x720.jpg&rf=LaDigue_1280x720.jpg "大城府历史公园的柴瓦塔那兰寺，泰国")
+[下载1080](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大城府历史公园的柴瓦塔那兰寺，泰国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_UHD.jpg&rf=LaDigue_UHD.jpg "大城府历史公园的柴瓦塔那兰寺，泰国")
+
+---
 ### 09月08日：简·奥斯汀的文学圈
 #### 巴斯圆形广场，萨默塞特 ，英国（© Gavin Hellier/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_1280x720.jpg&rf=LaDigue_1280x720.jpg "柏林大教堂和博物馆岛，柏林，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "柏林大教堂和博物馆岛，柏林，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_UHD.jpg&rf=LaDigue_UHD.jpg "柏林大教堂和博物馆岛，柏林，德国")
-
----
-### 08月25日：这是你的土地
-#### 黄石下瀑布，黄石国家公园，怀俄明州，美国（© Tim Fitzharris/Minden Pictures）
-
-![这是你的土地](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_800x480.jpg&rf=LaDigue_800x480.jpg "这是你的土地")
-
-虽然夏天即将结束，但现在收拾好装备，去户外探险还为时不晚。不知道该去哪里？那就去美国看看63个国家公园吧！1916年的今天，时任美国总统伍德罗·威尔逊签署《国家公园管理局组织法》，正式成立国家公园管理局，旨在“保护自然景观、野生动植物和历史遗迹，在供人们休闲娱乐的同时，不得破坏这些场所，并将之传诸后代”。无论是哪里的美景，只有小心呵护才能让这份美丽得以延续。
-
-黄石国家公园占地约3468.4平方英里（8983平方公里），由湖泊、峡谷、河流和山脉组成。黄石湖是北美最大的高海拔湖泊之一，位于大陆上最大的超级火山黄石火山口的中心。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%bb%84%e7%9f%b3%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230824_1600" "Bing Wallpaper 2023 8月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230825_YellowstoneFalls"&FORM=HPQUIZ "必应主页测验 2023 8月 25")
-[下载480](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_800x480.jpg&rf=LaDigue_800x480.jpg "黄石下瀑布，黄石国家公园，怀俄明州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄石下瀑布，黄石国家公园，怀俄明州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄石下瀑布，黄石国家公园，怀俄明州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_UHD.jpg&rf=LaDigue_UHD.jpg "黄石下瀑布，黄石国家公园，怀俄明州，美国")
 
 ---
