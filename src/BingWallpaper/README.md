@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月10日：长者的智慧
+#### 斯瓦尔巴群岛海上的一对海象，挪威（© Mark Smith/Getty Images）
+
+![长者的智慧](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_800x480.jpg&rf=LaDigue_800x480.jpg "长者的智慧")
+
+今天是祖父母节，你有没有给奶奶爷爷打个电话呢？自1978年以来，祖父母节成为了美国的全国性节日，旨在让人们表达对祖父母的敬意，唤起晚辈对长者的重视。祖父母们人生经验丰富，总是在家庭中扮演着智者的角色。提及智者，人们脑中通常会浮现一个留着长胡须的老人。在许多文化中，胡须也代表着智慧。今天照片里的海象也长着胡须，不过比起“象征智慧”，海象的胡须倒是有更实际的用处——寻找食物。
+
+海象长相独特，身体呈纺锤形，粗壮而肥胖，通常为红棕色。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%a5%96%e7%88%b6%e6%af%8d%e8%8a%82&form=hpcapt&filters=HpDate:"20230909_1600" "Bing Wallpaper 2023 9月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230910_WalrusSvalbard"&FORM=HPQUIZ "必应主页测验 2023 9月 10")
+[下载480](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_800x480.jpg&rf=LaDigue_800x480.jpg "斯瓦尔巴群岛海上的一对海象，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯瓦尔巴群岛海上的一对海象，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯瓦尔巴群岛海上的一对海象，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_UHD.jpg&rf=LaDigue_UHD.jpg "斯瓦尔巴群岛海上的一对海象，挪威")
+
+---
 ### 09月09日：皇家寺庙的废墟
 #### 大城府历史公园的柴瓦塔那兰寺，泰国（© Weerasak Saeku/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_1280x720.jpg&rf=LaDigue_1280x720.jpg "城山日出峰，济州岛上的凝灰岩锥，韩国")
 [下载1080](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "城山日出峰，济州岛上的凝灰岩锥，韩国")
 [下载UHD](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_UHD.jpg&rf=LaDigue_UHD.jpg "城山日出峰，济州岛上的凝灰岩锥，韩国")
-
----
-### 08月26日：博物馆之夜
-#### 柏林大教堂和博物馆岛，柏林，德国（© Rudy Balasko/Shutterstock）
-
-![博物馆之夜](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_800x480.jpg&rf=LaDigue_800x480.jpg "博物馆之夜")
-
-随着夏天渐渐消逝，我们开始怀念愉快的假期和多彩的夜生活。别急着回忆，欢乐的时光还没有结束！如果你在柏林，还有很多事情值得期待。比如一年一度的“博物馆长夜”活动，自1997年以来，每年八月的最后一个星期六都会举办，早已成为柏林最受欢迎的活动之一。在这个“长夜”中，博物馆的开放时间从18点直到次日凌晨，你不仅可以穿梭于各个博物馆之间欣赏世界文物，还可以喝酒跳舞，聆听音乐、参加讲座等。今天图片中的博物馆岛于1999年被列入世界文化遗产名录，岛上有柏林老博物馆、柏林新博物馆、国家美术馆、博德博物馆和佩加蒙博物馆。施普雷河环绕整座岛屿，使博物馆岛的气势更加宏伟磅礴。
-
-岛屿的南部，即格特劳登街以南的地区，通常被称为渔夫岛，是一栋高层公寓的所在地，这栋公寓修建时米特区还是东柏林的一部分。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9f%8f%e6%9e%97%e5%8d%9a%e7%89%a9%e9%a6%86%e5%b2%9b&form=hpcapt&filters=HpDate:"20230825_1600" "Bing Wallpaper 2023 8月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230826_MuseumIsland"&FORM=HPQUIZ "必应主页测验 2023 8月 26")
-[下载480](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_800x480.jpg&rf=LaDigue_800x480.jpg "柏林大教堂和博物馆岛，柏林，德国")
-[下载720](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_1280x720.jpg&rf=LaDigue_1280x720.jpg "柏林大教堂和博物馆岛，柏林，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "柏林大教堂和博物馆岛，柏林，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_UHD.jpg&rf=LaDigue_UHD.jpg "柏林大教堂和博物馆岛，柏林，德国")
 
 ---
