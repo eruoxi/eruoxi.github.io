@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月11日：历史、自然和美酒交汇之地
+#### 波尔多葡萄园的日出，法国（© Esperanza33/Getty Images）
+
+![历史、自然和美酒交汇之地](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_800x480.jpg&rf=LaDigue_800x480.jpg "历史、自然和美酒交汇之地")
+
+在波尔多地区，幅员辽阔的梅多克葡萄园盛产优质葡萄酒。九月是葡萄的丰收季，玛歌、波雅克、圣朱利安、圣埃斯特夫等知名产区都保留着古老的酿酒传统。
+
+梅多克值得一游，在这里，你可以了解法国葡萄酒的酿造历史，参观宏伟的著名酒庄，品尝顶级的葡萄美酒。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a2%85%e5%a4%9a%e5%85%8b%e5%9c%b0%e5%8c%ba&form=hpcapt&filters=HpDate:"20230910_1600" "Bing Wallpaper 2023 9月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230911_MarathonMedoc"&FORM=HPQUIZ "必应主页测验 2023 9月 11")
+[下载480](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_800x480.jpg&rf=LaDigue_800x480.jpg "波尔多葡萄园的日出，法国")
+[下载720](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_1280x720.jpg&rf=LaDigue_1280x720.jpg "波尔多葡萄园的日出，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波尔多葡萄园的日出，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_UHD.jpg&rf=LaDigue_UHD.jpg "波尔多葡萄园的日出，法国")
+
+---
 ### 09月10日：长者的智慧
 #### 斯瓦尔巴群岛海上的一对海象，挪威（© Mark Smith/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_ZH-CN8590217905_1280x720.jpg&rf=LaDigue_1280x720.jpg "洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚")
 [下载1080](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_ZH-CN8590217905_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_ZH-CN8590217905_UHD.jpg&rf=LaDigue_UHD.jpg "洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚")
-
----
-### 08月27日：一个酷炫的凝灰岩火山口
-#### 城山日出峰，济州岛上的凝灰岩锥，韩国（© Quynh Anh Nguyen/Getty Images）
-
-![一个酷炫的凝灰岩火山口](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_800x480.jpg&rf=LaDigue_800x480.jpg "一个酷炫的凝灰岩火山口")
-
-济州岛上充满奇观，火山、古老石像、瀑布和岩石海岸，还有今天图片中的主角，城山日出峰，是岛上罕见的凝灰岩锥，由5000年前的一次海底火山喷发而形成。城山日出峰于2007年被列入联合国教科文组织世界自然遗产名录。
-
-济州岛是一个火山岛，岛中心的汉拿山也是一座火山，海拔约1950米，是韩国的最高峰。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b5%8e%e5%b7%9e%e5%b2%9b&form=hpcapt&filters=HpDate:"20230826_1600" "Bing Wallpaper 2023 8月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230827_JejuIsland"&FORM=HPQUIZ "必应主页测验 2023 8月 27")
-[下载480](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_800x480.jpg&rf=LaDigue_800x480.jpg "城山日出峰，济州岛上的凝灰岩锥，韩国")
-[下载720](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_1280x720.jpg&rf=LaDigue_1280x720.jpg "城山日出峰，济州岛上的凝灰岩锥，韩国")
-[下载1080](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "城山日出峰，济州岛上的凝灰岩锥，韩国")
-[下载UHD](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_UHD.jpg&rf=LaDigue_UHD.jpg "城山日出峰，济州岛上的凝灰岩锥，韩国")
 
 ---
