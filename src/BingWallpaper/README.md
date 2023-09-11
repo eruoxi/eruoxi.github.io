@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月12日：下一站，地平线。
+#### 北海日落，诺德多夫，德国（© Frederick Doerschem/Getty Images）
+
+![下一站，地平线。](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_800x480.jpg&rf=LaDigue_800x480.jpg "下一站，地平线。")
+
+诺德多夫是位于德国北部海岸阿姆鲁姆岛上的一个小村庄，也是岛上最古老的村庄之一。阿姆鲁姆约有2300名居民，岛上还有许多像诺德多夫这样的渔村。坐落在北海海岸迷人风景中的诺德多夫以其丰富的海洋文化遗产而闻名。透过博物馆和灯塔，我们可以窥见这座岛屿的过去。此外，游客们还可以探索阿姆鲁姆沙丘自然保护区，这里有许多独特的野生动植物：红腹滨鹬、黑雁、知更草和茅膏菜等等。
+
+1890年，弗里德里希·冯·博德尔施温格在诺德多夫及其北部建立了多家济贫院。1925年，一场大火将村庄烧毁了大半，搭着茅草屋顶的济贫院大多已不复存在，仅存的几座旧时村舍也已挪作他用。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%af%ba%e5%be%b7%e5%a4%9a%e5%a4%ab&form=hpcapt&filters=HpDate:"20230911_1600" "Bing Wallpaper 2023 9月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230912_NorthSeaStairs"&FORM=HPQUIZ "必应主页测验 2023 9月 12")
+[下载480](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_800x480.jpg&rf=LaDigue_800x480.jpg "北海日落，诺德多夫，德国")
+[下载720](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_1280x720.jpg&rf=LaDigue_1280x720.jpg "北海日落，诺德多夫，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北海日落，诺德多夫，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_UHD.jpg&rf=LaDigue_UHD.jpg "北海日落，诺德多夫，德国")
+
+---
 ### 09月11日：历史、自然和美酒交汇之地
 #### 波尔多葡萄园的日出，法国（© Esperanza33/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_1280x720.jpg&rf=LaDigue_1280x720.jpg "美洲野牛，大提顿国家公园，怀俄明州")
 [下载1080](https://cn.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美洲野牛，大提顿国家公园，怀俄明州")
 [下载UHD](https://cn.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_UHD.jpg&rf=LaDigue_UHD.jpg "美洲野牛，大提顿国家公园，怀俄明州")
-
----
-### 08月28日：小心龙出没！
-#### 洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚（© Benny Marty/Shutterstock）
-
-![小心龙出没！](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_ZH-CN8590217905_800x480.jpg&rf=LaDigue_800x480.jpg "小心龙出没！")
-
-来到克罗地亚的杜布罗夫尼克，你可能会本能地警惕入侵的舰队或空中的巨龙，不过放心，你更有可能遇到的是游客，而不是兰尼斯特家族。美剧《权力的游戏》经常在这里取景拍摄，因为杜布罗夫尼克老城是世界上保存最完好的中世纪城市之一。历史上，杜布罗夫尼克曾以“拉古萨共和国”的身份蓬勃发展了数百年，通过灵活的外交和强大的航海贸易保持独立。这颗“亚得里亚海的明珠”也经历过炮火和大地震，但重建后的城市依然充满生机。古城墙、教堂、博物馆和艺术等文化遗产都是吸引游客前往杜布罗夫尼克的原因，最近的一份报告显示，2019年，杜布罗夫尼克平均每位居民接待了36名游客。
-
-杜布罗夫尼克是《旅游休闲》杂志评选的“世界上最美丽的25个城市”之一，排名第18位。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%85%8b%e7%bd%97%e5%9c%b0%e4%ba%9a%e6%9d%9c%e5%b8%83%e7%bd%97%e5%a4%ab%e5%b0%bc%e5%85%8b&form=hpcapt&filters=HpDate:"20230827_1600" "Bing Wallpaper 2023 8月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230828_DubrovnikHarbor"&FORM=HPQUIZ "必应主页测验 2023 8月 28")
-[下载480](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_ZH-CN8590217905_800x480.jpg&rf=LaDigue_800x480.jpg "洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚")
-[下载720](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_ZH-CN8590217905_1280x720.jpg&rf=LaDigue_1280x720.jpg "洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚")
-[下载1080](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_ZH-CN8590217905_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_ZH-CN8590217905_UHD.jpg&rf=LaDigue_UHD.jpg "洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚")
 
 ---
