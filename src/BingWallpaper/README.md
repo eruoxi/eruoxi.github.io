@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月13日：往事的低语
+#### 赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度（© Images of india/Alamy Stock Photo）
+
+![往事的低语](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_800x480.jpg&rf=LaDigue_800x480.jpg "往事的低语")
+
+汉皮位于印度卡纳塔克邦，被联合国教科文组织列入世界遗产名录。从14世纪到16世纪，维查耶纳伽尔帝国统治着这片区域。而作为维查耶纳伽尔帝国首都的汉皮，自然留下了许多古迹群，例如古老的寺庙、雄伟的宫殿和满目苍夷的废墟。在克利希那德瓦·拉亚国王的统治期间（1509年至1529年），这座城市经历了大幅扩张，新建了很多具有艺术气息的建筑，吸引着来自世界各地的游客和商人。然而，1565年，维查耶纳伽尔帝国在塔利科塔战役中战败，汉皮也随之衰落。
+
+汉皮是14世纪维查耶纳伽尔帝国的首都。据波斯和欧洲的旅行者留下的编年史记载：位于通加巴德拉河附近的汉皮曾是一座繁荣、富裕且宏伟的城市，拥有许多寺庙、农田和贸易市场。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e7%ba%b3%e5%a1%94%e5%85%8b%e9%82%a6%e8%b5%ab%e9%a9%ac%e5%ba%93%e5%a1%94%e5%b1%b1&form=hpcapt&filters=HpDate:"20230912_1600" "Bing Wallpaper 2023 9月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230913_HemakutaHill"&FORM=HPQUIZ "必应主页测验 2023 9月 13")
+[下载480](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_800x480.jpg&rf=LaDigue_800x480.jpg "赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_1280x720.jpg&rf=LaDigue_1280x720.jpg "赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_UHD.jpg&rf=LaDigue_UHD.jpg "赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度")
+
+---
 ### 09月12日：下一站，地平线。
 #### 北海日落，诺德多夫，德国（© Frederick Doerschem/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_1280x720.jpg&rf=LaDigue_1280x720.jpg "鲸鲨，宁加洛珊瑚礁，西澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鲸鲨，宁加洛珊瑚礁，西澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_UHD.jpg&rf=LaDigue_UHD.jpg "鲸鲨，宁加洛珊瑚礁，西澳大利亚")
-
----
-### 08月29日：一头毛茸茸的牛
-#### 美洲野牛，大提顿国家公园，怀俄明州（© Enrique Aguirre Aves/Getty Images）
-
-![一头毛茸茸的牛](https://cn.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_800x480.jpg&rf=LaDigue_800x480.jpg "一头毛茸茸的牛")
-
-野牛是一种雄伟、巨大的生物，是美国边疆精神的真正象征。 这些强壮的动物在美国大草原上生活了数千年，在1900年之前，它们的数量估计高达6000万。定居者的狩猎导致大量的牛群大量死亡，不到100年前，野牛就濒临灭绝。然而，如今北美洲有超过300,000 头野牛。
-
-野牛的角弯曲而锋利，可能长两英尺。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e6%b4%b2%e9%87%8e%e7%89%9b&form=hpcapt&filters=HpDate:"20230828_1600" "Bing Wallpaper 2023 8月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230829_TetonBison"&FORM=HPQUIZ "必应主页测验 2023 8月 29")
-[下载480](https://cn.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_800x480.jpg&rf=LaDigue_800x480.jpg "美洲野牛，大提顿国家公园，怀俄明州")
-[下载720](https://cn.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_1280x720.jpg&rf=LaDigue_1280x720.jpg "美洲野牛，大提顿国家公园，怀俄明州")
-[下载1080](https://cn.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美洲野牛，大提顿国家公园，怀俄明州")
-[下载UHD](https://cn.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_UHD.jpg&rf=LaDigue_UHD.jpg "美洲野牛，大提顿国家公园，怀俄明州")
 
 ---
