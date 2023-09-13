@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月14日：只是两个朋友在玩闹而已
+#### 普氏野马，哈斯台国家公园，蒙古国（© Ondrej Prosicky/Shutterstock）
+
+![只是两个朋友在玩闹而已](https://cn.bing.com/th?id=OHR.MongoliaHorses_ZH-CN7660582867_800x480.jpg&rf=LaDigue_800x480.jpg "只是两个朋友在玩闹而已")
+
+蒙古的哈斯台国家公是普氏野马的家园。这种马非常特殊和稀有，被认为是如今仅存的真正的纯种野马。普氏野马有浅黄棕色的皮毛、短而硬的鬃毛和短腿，因此很容易被辨认出来。有趣的是，普氏野马有66条染色体，而家马只有64条染色体。不过，普氏野马可以与家马交配，产生杂交品种。这些杂交马有65条染色体，也可以繁衍后代。
+
+普氏野马是世界上唯一现存野马品种，是有着6000万年进化史的野生动物“活化石”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%99%ae%e6%b0%8f%e9%87%8e%e9%a9%ac&form=hpcapt&filters=HpDate:"20230913_1600" "Bing Wallpaper 2023 9月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230914_MongoliaHorses"&FORM=HPQUIZ "必应主页测验 2023 9月 14")
+[下载480](https://cn.bing.com/th?id=OHR.MongoliaHorses_ZH-CN7660582867_800x480.jpg&rf=LaDigue_800x480.jpg "普氏野马，哈斯台国家公园，蒙古国")
+[下载720](https://cn.bing.com/th?id=OHR.MongoliaHorses_ZH-CN7660582867_1280x720.jpg&rf=LaDigue_1280x720.jpg "普氏野马，哈斯台国家公园，蒙古国")
+[下载1080](https://cn.bing.com/th?id=OHR.MongoliaHorses_ZH-CN7660582867_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普氏野马，哈斯台国家公园，蒙古国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MongoliaHorses_ZH-CN7660582867_UHD.jpg&rf=LaDigue_UHD.jpg "普氏野马，哈斯台国家公园，蒙古国")
+
+---
 ### 09月13日：往事的低语
 #### 赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度（© Images of india/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.IronwoodCactus_ZH-CN9290037977_1280x720.jpg&rf=LaDigue_1280x720.jpg "巨人柱，铁木森林国家纪念地，亚利桑那州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.IronwoodCactus_ZH-CN9290037977_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巨人柱，铁木森林国家纪念地，亚利桑那州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.IronwoodCactus_ZH-CN9290037977_UHD.jpg&rf=LaDigue_UHD.jpg "巨人柱，铁木森林国家纪念地，亚利桑那州，美国")
-
----
-### 08月30日：潜水员的“大伙伴”
-#### 鲸鲨，宁加洛珊瑚礁，西澳大利亚（© Jason Edwards/Getty Images）
-
-![潜水员的“大伙伴”](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_800x480.jpg&rf=LaDigue_800x480.jpg "潜水员的“大伙伴”")
-
-跟世界上最大的鱼类——鲸鲨，打个招呼吧。每年的8月30日是世界鲸鲨日。鲸鲨的体型惊人，平均身长达39英尺，尽管名叫“鲸鲨”，但这些温和的“海中巨人”其实并非鲸类，而是鱼类。鲸鲨性格温和，潜水员和它一起游泳通常是安全的。鲸鲨通过鳃板过滤浮游生物和小鱼，属于滤食性动物。如今，鲸鲨的数量已大幅下降。据估计，在过去的75年中，鲸鲨的数量减少了63%。究其缘由，一方面是因为鲸鲨会被船只撞击或被渔网缠住，另一方面是由于鲸鲨的栖息地因污染、沿海开发和过度捕捞而遭到破坏。就让我们在世界鲸鲨日，关注鲸鲨，了解鲸鲨，一起为保护鲸鲨做出努力吧。
-
-因为鲸鲨背部有犹如星辰般的斑点，所以鲸鲨在马达加斯加被称为“marokintana”，意为“众星”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%b2%b8%e9%b2%a8&form=hpcapt&filters=HpDate:"20230829_1600" "Bing Wallpaper 2023 8月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230830_NingalooShark"&FORM=HPQUIZ "必应主页测验 2023 8月 30")
-[下载480](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_800x480.jpg&rf=LaDigue_800x480.jpg "鲸鲨，宁加洛珊瑚礁，西澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_1280x720.jpg&rf=LaDigue_1280x720.jpg "鲸鲨，宁加洛珊瑚礁，西澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鲸鲨，宁加洛珊瑚礁，西澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_UHD.jpg&rf=LaDigue_UHD.jpg "鲸鲨，宁加洛珊瑚礁，西澳大利亚")
 
 ---
