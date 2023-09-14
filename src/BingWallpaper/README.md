@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月15日：山谷女王
+#### 格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰（© Peter Zelei/Getty Images）
+
+![山谷女王](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_800x480.jpg&rf=LaDigue_800x480.jpg "山谷女王")
+
+格莱纳里夫森林公园是北爱尔兰安特里姆郡境内的一个1185公顷大的森林。它是格莱纳里夫山谷的一部分。格莱纳里夫被称为山谷女王，是安特里姆九个山谷中的一个。格莱纳里夫森林公园内有人工林地、湖泊、户外活动场地和保护区。
+
+格莱纳里夫森林是很多受保护动物的家园，尤其是红松鼠、白尾鹞和爱尔兰野兔。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%88%b1%e5%b0%94%e5%85%b0%e5%ae%89%e7%89%b9%e9%87%8c%e5%a7%86%e9%83%a1&form=hpcapt&filters=HpDate:"20230914_1600" "Bing Wallpaper 2023 9月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230915_GlenariffForest"&FORM=HPQUIZ "必应主页测验 2023 9月 15")
+[下载480](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_800x480.jpg&rf=LaDigue_800x480.jpg "格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰")
+[下载720](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_1280x720.jpg&rf=LaDigue_1280x720.jpg "格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰")
+[下载1080](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_UHD.jpg&rf=LaDigue_UHD.jpg "格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰")
+
+---
 ### 09月14日：只是两个朋友在玩闹而已
 #### 普氏野马，哈斯台国家公园，蒙古国（© Ondrej Prosicky/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TurkeyTailMush_ZH-CN9683744281_1280x720.jpg&rf=LaDigue_1280x720.jpg "火鸡尾蘑菇，布里瓦德，北卡罗来纳州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.TurkeyTailMush_ZH-CN9683744281_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "火鸡尾蘑菇，布里瓦德，北卡罗来纳州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.TurkeyTailMush_ZH-CN9683744281_UHD.jpg&rf=LaDigue_UHD.jpg "火鸡尾蘑菇，布里瓦德，北卡罗来纳州，美国")
-
----
-### 08月31日：你今天过得怎么样？
-#### 巨人柱，铁木森林国家纪念地，亚利桑那州，美国（© Jack Dykinga/Minden Pictures）
-
-![你今天过得怎么样？](https://cn.bing.com/th?id=OHR.IronwoodCactus_ZH-CN9290037977_800x480.jpg&rf=LaDigue_800x480.jpg "你今天过得怎么样？")
-
-在亚利桑那州阳光普照的天空下，大片的仙人掌在群山的映衬下格外显眼。照片上的是巨人柱仙人掌，拍摄于铁木森林国家纪念地。即使你没有亲眼见过巨人柱仙人掌，但当你听到“巨人柱”这个名字时，也能联想到它们的样子：苍绿高大的圆柱形仙人掌，直指天空。虽然巨人柱生长缓慢，但它们的寿命超过200年，有足够的时间慢慢生长，创纪录的一株巨人柱仙人掌甚至高达78英尺。曾有一株被称为“老爷爷”的仙人掌存活了约有300年，最终在20世纪90年代寿终正寝。
-
-1931年3月16日，美国亚利桑纳州将巨人柱仙人掌花定为州花。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%a8%e4%ba%ba%e6%9f%b1&form=hpcapt&filters=HpDate:"20230830_1600" "Bing Wallpaper 2023 8月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230831_IronwoodCactus"&FORM=HPQUIZ "必应主页测验 2023 8月 31")
-[下载480](https://cn.bing.com/th?id=OHR.IronwoodCactus_ZH-CN9290037977_800x480.jpg&rf=LaDigue_800x480.jpg "巨人柱，铁木森林国家纪念地，亚利桑那州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.IronwoodCactus_ZH-CN9290037977_1280x720.jpg&rf=LaDigue_1280x720.jpg "巨人柱，铁木森林国家纪念地，亚利桑那州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.IronwoodCactus_ZH-CN9290037977_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巨人柱，铁木森林国家纪念地，亚利桑那州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.IronwoodCactus_ZH-CN9290037977_UHD.jpg&rf=LaDigue_UHD.jpg "巨人柱，铁木森林国家纪念地，亚利桑那州，美国")
 
 ---
