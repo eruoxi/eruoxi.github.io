@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月16日：系好你的安全带！
+#### 施布吕根山口，格劳宾登州，瑞士（© Roberto Moiola/Getty Images）
+
+![系好你的安全带！](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_800x480.jpg&rf=LaDigue_800x480.jpg "系好你的安全带！")
+
+今天的照片展示的是位于勒蓬廷阿尔卑斯山脉上的一条公路线——施布吕根山口。山口位于瑞士和意大利的边境，海拔6936英尺，其蜿蜒的山路是欧洲海拔最高的公路之一。虽然现代的施布吕根山口建于1818-1823年，但其历史可追溯至罗马时代。自从1967年附近的圣贝纳迪诺公路隧道开通后，这个山口就变得安静多了。如今，这条有着51个急转弯的公路会在冬季保持关闭。因此，如果您想去一览壮观的山景、体验惊险的山路旅程，可以将行程定在6月至10月中旬哦。
+
+阿瑟·柯南·道尔在《显赫的委托人》中也提到了这个山口，这是一篇发表于1924年的关于福尔摩斯探案的短篇小说。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%bd%e5%b8%83%e5%90%95%e6%a0%b9&form=hpcapt&filters=HpDate:"20230915_1600" "Bing Wallpaper 2023 9月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230916_SplugenPass"&FORM=HPQUIZ "必应主页测验 2023 9月 16")
+[下载480](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_800x480.jpg&rf=LaDigue_800x480.jpg "施布吕根山口，格劳宾登州，瑞士")
+[下载720](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_1280x720.jpg&rf=LaDigue_1280x720.jpg "施布吕根山口，格劳宾登州，瑞士")
+[下载1080](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "施布吕根山口，格劳宾登州，瑞士")
+[下载UHD](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_UHD.jpg&rf=LaDigue_UHD.jpg "施布吕根山口，格劳宾登州，瑞士")
+
+---
 ### 09月15日：山谷女王
 #### 格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰（© Peter Zelei/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_1280x720.jpg&rf=LaDigue_1280x720.jpg "艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_UHD.jpg&rf=LaDigue_UHD.jpg "艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国")
-
----
-### 09月01日：火鸡尾蘑菇
-#### 火鸡尾蘑菇，布里瓦德，北卡罗来纳州，美国（© Bill Gozansky/Alamy Stock Photo）
-
-![火鸡尾蘑菇](https://cn.bing.com/th?id=OHR.TurkeyTailMush_ZH-CN9683744281_800x480.jpg&rf=LaDigue_800x480.jpg "火鸡尾蘑菇")
-
-当蘑菇委员会决定给这些用途广泛的蘑菇们设立一个全国性的节日的时候，他们认为9月是最合适的月份——因为这个时候，宾夕法尼亚州就有一个蘑菇节。美国蘑菇月旨在强调蘑菇的重要性，并鼓励大家去了解蘑菇，分辨毒蘑菇和可食用蘑菇。今天照片上这种蘑菇因长得像火鸡尾巴，因而得名火鸡尾蘑菇，在中国传统医学中可入药。最近的研究也表明，火鸡尾蘑菇还具有抗肿瘤的特性，有助于增强免疫系统。此外，蘑菇还是很有营养价值的食物，从波多贝罗蘑菇到香菇，可食用的蘑菇有成千上万种。无论是煎炒、做馅、切片、还是做披萨或是做汤，蘑菇总能在餐桌上找到它的一席之地。
-
-蘑菇可以用来给羊毛和其他天然纤维染色。在合成染料发明之前，蘑菇是许多纺织品染料的来源。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%98%91%e8%8f%87&form=hpcapt&filters=HpDate:"20230831_1600" "Bing Wallpaper 2023 9月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230901_TurkeyTailMush"&FORM=HPQUIZ "必应主页测验 2023 9月 1")
-[下载480](https://cn.bing.com/th?id=OHR.TurkeyTailMush_ZH-CN9683744281_800x480.jpg&rf=LaDigue_800x480.jpg "火鸡尾蘑菇，布里瓦德，北卡罗来纳州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.TurkeyTailMush_ZH-CN9683744281_1280x720.jpg&rf=LaDigue_1280x720.jpg "火鸡尾蘑菇，布里瓦德，北卡罗来纳州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.TurkeyTailMush_ZH-CN9683744281_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "火鸡尾蘑菇，布里瓦德，北卡罗来纳州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.TurkeyTailMush_ZH-CN9683744281_UHD.jpg&rf=LaDigue_UHD.jpg "火鸡尾蘑菇，布里瓦德，北卡罗来纳州，美国")
 
 ---
