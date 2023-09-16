@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月17日：杂色短尾鴗
+#### 杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴（© Bruno D'Amicis/Minden Pictures）
+
+![杂色短尾鴗](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_800x480.jpg&rf=LaDigue_800x480.jpg "杂色短尾鴗")
+
+小巧多彩的杂色短尾鴗只栖息在古巴及其邻近岛屿上。杂色短尾鴗色彩鲜艳而独特：闪闪发光的绿色背部，浅灰色的腹部，红色的喉咙，粉色的胁腹、蓝色的颈部两侧以及红黑色的鸟喙。尽管它们的羽毛五颜六色，但小巧的体型让它们很难被看见。不过它们却很容易被听到，柔和的鸟啼声会提示你附近可能有一只杂色短尾鴗。
+
+通过分析鸟鸣声的变化，科学家发现杂色短尾鴗分为古巴东部和西部两个种群。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%9d%82%e8%89%b2%e7%9f%ad%e5%b0%be%e9%b4%97&form=hpcapt&filters=HpDate:"20230916_1600" "Bing Wallpaper 2023 9月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230917_CubanTody"&FORM=HPQUIZ "必应主页测验 2023 9月 17")
+[下载480](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_800x480.jpg&rf=LaDigue_800x480.jpg "杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴")
+[下载720](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_1280x720.jpg&rf=LaDigue_1280x720.jpg "杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴")
+[下载1080](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴")
+[下载UHD](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg&rf=LaDigue_UHD.jpg "杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴")
+
+---
 ### 09月16日：系好你的安全带！
 #### 施布吕根山口，格劳宾登州，瑞士（© Roberto Moiola/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_1280x720.jpg&rf=LaDigue_1280x720.jpg "曼哈顿鸟瞰图，纽约市，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼哈顿鸟瞰图，纽约市，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_UHD.jpg&rf=LaDigue_UHD.jpg "曼哈顿鸟瞰图，纽约市，美国")
-
----
-### 09月02日：停下来喝点花蜜
-#### 艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国（© mallardg500/Getty Images）
-
-![停下来喝点花蜜](https://cn.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_800x480.jpg&rf=LaDigue_800x480.jpg "停下来喝点花蜜")
-
-每年9月的第一个星期六是美国蜂鸟日。蜂鸟羽色鲜艳，小巧精致，能在空中悬停，是自然界的奇迹之一。蜂鸟飞行振翅频率能达到53次每秒，发出标志性的嗡嗡声。由于体力消耗大，所以蜂鸟的胃口很好，每10-15分钟就要进食一次。今天照片上的是艾氏煌蜂鸟，你可以在北美西海岸找到它们的身影，而最常见到它们的地方则是加利福尼亚州。
-
-雄性艾氏煌蜂鸟的背部和前额是绿色的，两侧、臀部和尾部是铁锈色的。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%89%be%e6%b0%8f%e7%85%8c%e8%9c%82%e9%b8%9f&form=hpcapt&filters=HpDate:"20230901_1600" "Bing Wallpaper 2023 9月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230902_TinyHummer"&FORM=HPQUIZ "必应主页测验 2023 9月 2")
-[下载480](https://cn.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_800x480.jpg&rf=LaDigue_800x480.jpg "艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_1280x720.jpg&rf=LaDigue_1280x720.jpg "艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_UHD.jpg&rf=LaDigue_UHD.jpg "艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国")
 
 ---
