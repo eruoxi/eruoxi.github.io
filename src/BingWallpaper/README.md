@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月18日：黑夜里的“彩虹”
+#### 西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙（© Daniel Garrido/Getty Images）
+
+![黑夜里的“彩虹”](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_800x480.jpg&rf=LaDigue_800x480.jpg "黑夜里的“彩虹”")
+
+美国一年里有两次天文日，分别是春季天文日（4月中旬到5月中旬）和秋季天文日（9月中旬至10月中旬）。在这个特别的节日，科学博物馆、天文台、天文俱乐部和天文馆将举办专业人士主持的讲座、展览和工坊活动。对夜空的科学观测从早期文明时代就开始了，而天文学被称为最早的自然科学学科，是研究天体及相关现象的学科。今天照片里的是葡萄牙的西南阿连特茹和维森廷海岸自然公园，这里远离光污染，是个观星的好地方哦。
+
+天文日被定在9月中旬至10月中旬的一个周六，这样它就能尽可能的接近上弦月。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e8%bf%9e%e7%89%b9%e8%8c%b9&form=hpcapt&filters=HpDate:"20230917_1600" "Bing Wallpaper 2023 9月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230918_MilkyWayPortugal"&FORM=HPQUIZ "必应主页测验 2023 9月 18")
+[下载480](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_800x480.jpg&rf=LaDigue_800x480.jpg "西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙")
+[下载720](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_1280x720.jpg&rf=LaDigue_1280x720.jpg "西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙")
+[下载1080](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_UHD.jpg&rf=LaDigue_UHD.jpg "西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙")
+
+---
 ### 09月17日：杂色短尾鴗
 #### 杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴（© Bruno D'Amicis/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_1280x720.jpg&rf=LaDigue_1280x720.jpg "布尔日的沼泽，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布尔日的沼泽，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_UHD.jpg&rf=LaDigue_UHD.jpg "布尔日的沼泽，法国")
-
----
-### 09月03日：高耸入云
-#### 曼哈顿鸟瞰图，纽约市，美国（© Wojtek Zagorski/Getty Images）
-
-![高耸入云](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_800x480.jpg&rf=LaDigue_800x480.jpg "高耸入云")
-
-每年的9月3日是摩天大楼日，同时，这一天也是现代主义建筑的先驱、被称为"摩天大楼之父"的路易斯·沙利文的诞辰。摩天大楼遍布世界各大城市，是进步、野心和人类追求新高度的象征。曼哈顿是纽约市人口稠密、充满活力的中心地带，这里有着令人目眩神迷的天际线和鳞次栉比的摩天大楼。这些建筑，比如帝国大厦、世界贸易中心一号楼和克莱斯勒大厦，构成了这座城市的建筑和文化遗产，每年都吸引着数百万游客慕名而来。
-
-曼哈顿被誉为世界文化、金融、媒体和娱乐之都。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9b%bc%e5%93%88%e9%a1%bf&form=hpcapt&filters=HpDate:"20230902_1600" "Bing Wallpaper 2023 9月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230903_ManhattanAerial"&FORM=HPQUIZ "必应主页测验 2023 9月 3")
-[下载480](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_800x480.jpg&rf=LaDigue_800x480.jpg "曼哈顿鸟瞰图，纽约市，美国")
-[下载720](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_1280x720.jpg&rf=LaDigue_1280x720.jpg "曼哈顿鸟瞰图，纽约市，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼哈顿鸟瞰图，纽约市，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_UHD.jpg&rf=LaDigue_UHD.jpg "曼哈顿鸟瞰图，纽约市，美国")
 
 ---
