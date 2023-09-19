@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月20日：桥下和桥上的水流
+#### 罗马风格的渡槽，阿卡迪亚公园，波兰（© PATSTOCK/Getty Images）
+
+![桥下和桥上的水流](https://cn.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_800x480.jpg&rf=LaDigue_800x480.jpg "桥下和桥上的水流")
+
+阿卡迪亚公园位于波兰华沙附近，是由波兰贵族海伦娜·拉齐维乌设计的英式景观公园。公园的建筑和景观沾染着古代和中世纪的气息，比如这个仿造的罗马风渡槽。园内郁郁葱葱的绿植、宁静的流水以及精雕细琢的雕塑等，都诠释着公园的自然与艺术交融之美。今天，我们依旧可以透过阿卡迪亚公园，看到海伦娜·拉齐维乌不朽的艺术构想。
+
+阿卡迪亚公园的天然泉水曾为皇家浴场公园的水景提供水源。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b8%a1%e6%a7%bd&form=hpcapt&filters=HpDate:"20230919_1600" "Bing Wallpaper 2023 9月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230920_ArkadiaPark"&FORM=HPQUIZ "必应主页测验 2023 9月 20")
+[下载480](https://cn.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_800x480.jpg&rf=LaDigue_800x480.jpg "罗马风格的渡槽，阿卡迪亚公园，波兰")
+[下载720](https://cn.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗马风格的渡槽，阿卡迪亚公园，波兰")
+[下载1080](https://cn.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗马风格的渡槽，阿卡迪亚公园，波兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_UHD.jpg&rf=LaDigue_UHD.jpg "罗马风格的渡槽，阿卡迪亚公园，波兰")
+
+---
 ### 09月19日：壁花的避风港
 #### 哈德良长城，诺森伯兰郡国家公园，英国（© daverhead/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_1280x720.jpg&rf=LaDigue_1280x720.jpg "威尼斯旧港，克里特岛，希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "威尼斯旧港，克里特岛，希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_UHD.jpg&rf=LaDigue_UHD.jpg "威尼斯旧港，克里特岛，希腊")
-
----
-### 09月05日：数字合成的照片？不是吧！
-#### 塞格拉山，塞尼亚岛，挪威（© imageBROKER/Moritz Wolf/Getty Images）
-
-![数字合成的照片？不是吧！](https://cn.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_800x480.jpg&rf=LaDigue_800x480.jpg "数字合成的照片？不是吧！")
-
-塞尼亚岛是一座美丽的岛屿，被称为“挪威缩影”，也是挪威的第二大岛，岛屿的西边是各式各样的山峰，东边则是郁郁葱葱的绿地。吉松德大桥把这座岛屿和挪威本土城市芬斯内斯连接起来。今天照片里的是塞尼亚岛上最有名的景点塞格拉山。夏天时，游客可以沿着陡峭的小径攀登至600多米高的峰顶。塞尼亚岛的景点还有安德达伦国家公园和特拉恩岛——一座位于塞尼亚岛南边的岛屿，以其宁静的氛围而出名。
-
-塞尼亚岛以其魔幻的山峰、深邃的峡湾和山谷、连绵的草地和松树林以及壮美的群岛湾而闻名。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a1%9e%e5%b0%bc%e4%ba%9a%e5%b2%9b&form=hpcapt&filters=HpDate:"20230904_1600" "Bing Wallpaper 2023 9月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230905_MountSegla"&FORM=HPQUIZ "必应主页测验 2023 9月 5")
-[下载480](https://cn.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_800x480.jpg&rf=LaDigue_800x480.jpg "塞格拉山，塞尼亚岛，挪威")
-[下载720](https://cn.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞格拉山，塞尼亚岛，挪威")
-[下载1080](https://cn.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞格拉山，塞尼亚岛，挪威")
-[下载UHD](https://cn.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_UHD.jpg&rf=LaDigue_UHD.jpg "塞格拉山，塞尼亚岛，挪威")
 
 ---
