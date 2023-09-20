@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月21日：表彰和平卫士
+#### 诺贝尔和平中心内部，奥斯陆，挪威（© Ilyas Ayub/Alamy）
+
+![表彰和平卫士](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_800x480.jpg&rf=LaDigue_800x480.jpg "表彰和平卫士")
+
+每年的9月21日，联合国都会庆祝国际和平日。国际和平日设立于1981年，联合国总部会在这天举行仪式，敲响和平钟，钟上面刻着“愿世界永久和平”的美好期望。
+
+《牛津当代历史词典》将诺贝尔和平奖描述为“世界上最知名的奖项”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%af%ba%e8%b4%9d%e5%b0%94%e5%92%8c%e5%b9%b3%e4%b8%ad%e5%bf%83&form=hpcapt&filters=HpDate:"20230920_1600" "Bing Wallpaper 2023 9月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230921_NobelNorway"&FORM=HPQUIZ "必应主页测验 2023 9月 21")
+[下载480](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_800x480.jpg&rf=LaDigue_800x480.jpg "诺贝尔和平中心内部，奥斯陆，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_1280x720.jpg&rf=LaDigue_1280x720.jpg "诺贝尔和平中心内部，奥斯陆，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "诺贝尔和平中心内部，奥斯陆，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_UHD.jpg&rf=LaDigue_UHD.jpg "诺贝尔和平中心内部，奥斯陆，挪威")
+
+---
 ### 09月20日：桥下和桥上的水流
 #### 罗马风格的渡槽，阿卡迪亚公园，波兰（© PATSTOCK/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_1280x720.jpg&rf=LaDigue_1280x720.jpg "沙漠中的骆驼，阿拉伯联合酋长国")
 [下载1080](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙漠中的骆驼，阿拉伯联合酋长国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_UHD.jpg&rf=LaDigue_UHD.jpg "沙漠中的骆驼，阿拉伯联合酋长国")
-
----
-### 09月06日：准备好下锚了吗？
-#### 威尼斯旧港，克里特岛，希腊（© Gatsi/Getty Images）
-
-![准备好下锚了吗？](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_800x480.jpg&rf=LaDigue_800x480.jpg "准备好下锚了吗？")
-
-威尼斯港位于古城罗希姆诺。矗立在海港边缘的埃及灯塔以及当地的土耳其风格建筑，是历史上不同民族在这里留下的印记。这个港口于14世纪由威尼斯人建成，曾经在很长的一段时间里都是一个繁忙的商业中心。游客还可以造访始建于16世纪的罗希姆诺城堡，在城堡上俯瞰罗希姆诺的城市全景。
-
-克里特岛是希腊最大的岛屿，也是地中海第5大岛，还是世界上第88大的岛屿。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%8c%e8%85%8a%e5%85%8b%e9%87%8c%e7%89%b9%e5%b2%9b&form=hpcapt&filters=HpDate:"20230905_1600" "Bing Wallpaper 2023 9月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230906_CreteHarbor"&FORM=HPQUIZ "必应主页测验 2023 9月 6")
-[下载480](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_800x480.jpg&rf=LaDigue_800x480.jpg "威尼斯旧港，克里特岛，希腊")
-[下载720](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_1280x720.jpg&rf=LaDigue_1280x720.jpg "威尼斯旧港，克里特岛，希腊")
-[下载1080](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "威尼斯旧港，克里特岛，希腊")
-[下载UHD](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_UHD.jpg&rf=LaDigue_UHD.jpg "威尼斯旧港，克里特岛，希腊")
 
 ---
