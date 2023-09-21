@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月22日：马尔萨拉，西西里岛的奇迹之一
+#### 马尔萨拉盐田，意大利（© javarman3/Getty Images）
+
+![马尔萨拉，西西里岛的奇迹之一](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_800x480.jpg&rf=LaDigue_800x480.jpg "马尔萨拉，西西里岛的奇迹之一")
+
+韦尔东大峡谷位于普罗旺斯的中心，是欧洲独一无二的自然奇观。马尔萨拉的斯塔尼奥内湖，自1995年起成为保护区，占地约1000公顷，是古代时期的重要盐产地。马尔萨拉盐田历史悠久，由腓尼基人在公元前1000年左右建立。如今，这个美丽的地方由世界自然基金会管理，保护着定期迁徙到马尔萨拉地区的众多鸟类。
+
+马尔萨拉建于迦太基古城利利拜乌姆的废墟上，其境内包括腓尼基古城莫西亚岛的考古遗址。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e5%b0%94%e8%90%a8%e6%8b%89&form=hpcapt&filters=HpDate:"20230921_1600" "Bing Wallpaper 2023 9月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230922_MarsalaSalt"&FORM=HPQUIZ "必应主页测验 2023 9月 22")
+[下载480](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_800x480.jpg&rf=LaDigue_800x480.jpg "马尔萨拉盐田，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_1280x720.jpg&rf=LaDigue_1280x720.jpg "马尔萨拉盐田，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马尔萨拉盐田，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_UHD.jpg&rf=LaDigue_UHD.jpg "马尔萨拉盐田，意大利")
+
+---
 ### 09月21日：表彰和平卫士
 #### 诺贝尔和平中心内部，奥斯陆，挪威（© Ilyas Ayub/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴斯圆形广场，萨默塞特 ，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴斯圆形广场，萨默塞特 ，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_UHD.jpg&rf=LaDigue_UHD.jpg "巴斯圆形广场，萨默塞特 ，英国")
-
----
-### 09月07日：沙漠之舟
-#### 沙漠中的骆驼，阿拉伯联合酋长国（© Amazing Aerial Premium/Shutterstock）
-
-![沙漠之舟](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_800x480.jpg&rf=LaDigue_800x480.jpg "沙漠之舟")
-
-对于阿联酋人来说，沙漠中的骆驼长久以来都是至关紧要的，同时也代表着阿联酋人的文化遗产和习俗。骆驼是贝都因人运输水和物资的关键交通工具，对于穿越炙热的沙漠来说是必不可少的。这些单峰骆驼还曾经被作为货币使用，例如支付嫁妆或者天课（穆斯林每年的慈善课税）。它们还可以提供营养，骆驼奶在很多食谱中都是宝贵且营养的食材。最后，骆驼还可以供人驾骑、提供娱乐。由此可见，这些坚韧的动物实在是用途广泛。
-
-骆驼其实并不在驼峰中存储水分。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%aa%86%e9%a9%bc&form=hpcapt&filters=HpDate:"20230906_1600" "Bing Wallpaper 2023 9月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230907_CamelsAbove"&FORM=HPQUIZ "必应主页测验 2023 9月 7")
-[下载480](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_800x480.jpg&rf=LaDigue_800x480.jpg "沙漠中的骆驼，阿拉伯联合酋长国")
-[下载720](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_1280x720.jpg&rf=LaDigue_1280x720.jpg "沙漠中的骆驼，阿拉伯联合酋长国")
-[下载1080](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙漠中的骆驼，阿拉伯联合酋长国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_UHD.jpg&rf=LaDigue_UHD.jpg "沙漠中的骆驼，阿拉伯联合酋长国")
 
 ---
