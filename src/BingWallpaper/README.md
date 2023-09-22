@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月23日：沐浴在秋天的色彩中
+#### 郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州（© Stephen Matera/Tandem Stills + Motion）
+
+![沐浴在秋天的色彩中](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_800x480.jpg&rf=LaDigue_800x480.jpg "沐浴在秋天的色彩中")
+
+秋天正式开始了！在北半球，今年的9月23日是秋分，这一天标志着秋天开始，太阳直射地球赤道，白昼和黑夜相等。在南半球，同样如此，但南北半球的季节是相反的，北半球秋分，南半球则是春分，正在迎接春天的到来。
+
+峡谷的下游有一处叫做“土狼天然桥”的地方，那是一个在大砂岩上凿刻出的小洞。再往下游走，就能看到悬崖拱门，这是峡谷北壁上的一座把壶柄式拱门。最后，在峡谷口的外面，史蒂文斯拱门高悬于埃斯卡兰特河之上，其开口大约有220英尺（67米）宽。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%83%8a%e7%8b%bc%e8%b0%b7&form=hpcapt&filters=HpDate:"20230922_1600" "Bing Wallpaper 2023 9月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230923_CottonwoodCanyon"&FORM=HPQUIZ "必应主页测验 2023 9月 23")
+[下载480](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_800x480.jpg&rf=LaDigue_800x480.jpg "郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州")
+[下载720](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_1280x720.jpg&rf=LaDigue_1280x720.jpg "郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州")
+[下载1080](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州")
+[下载UHD](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_UHD.jpg&rf=LaDigue_UHD.jpg "郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州")
+
+---
 ### 09月22日：马尔萨拉，西西里岛的奇迹之一
 #### 马尔萨拉盐田，意大利（© javarman3/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_1280x720.jpg&rf=LaDigue_1280x720.jpg "大城府历史公园的柴瓦塔那兰寺，泰国")
 [下载1080](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大城府历史公园的柴瓦塔那兰寺，泰国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_UHD.jpg&rf=LaDigue_UHD.jpg "大城府历史公园的柴瓦塔那兰寺，泰国")
-
----
-### 09月08日：简·奥斯汀的文学圈
-#### 巴斯圆形广场，萨默塞特 ，英国（© Gavin Hellier/Getty Images）
-
-![简·奥斯汀的文学圈](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_800x480.jpg&rf=LaDigue_800x480.jpg "简·奥斯汀的文学圈")
-
-《傲慢与偏见》的作者简·奥斯汀是世界知名的作家之一，一年一度的文化盛事简·奥斯汀节就是为了纪念这位伟大的女作家而举办的。1801年至1806年间，简·奥斯汀居住于英国巴斯，因此这个节日就在此举行。今年的简·奥斯汀节于9月8日拉开帷幕（这一天恰好也是国际扫盲日），届时，人们会穿着18世纪的英国服装在巴斯的街道上游行。
-
-简·奥斯汀23岁时，就完成了三本书的初稿。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%89%ab%e7%9b%b2%e6%97%a5&form=hpcapt&filters=HpDate:"20230907_1600" "Bing Wallpaper 2023 9月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230908_BathCircus"&FORM=HPQUIZ "必应主页测验 2023 9月 8")
-[下载480](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_800x480.jpg&rf=LaDigue_800x480.jpg "巴斯圆形广场，萨默塞特 ，英国")
-[下载720](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴斯圆形广场，萨默塞特 ，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴斯圆形广场，萨默塞特 ，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_UHD.jpg&rf=LaDigue_UHD.jpg "巴斯圆形广场，萨默塞特 ，英国")
 
 ---
