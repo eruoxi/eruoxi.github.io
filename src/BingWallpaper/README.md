@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月24日：时而潺潺细流，时而奔腾咆哮
+#### 罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大（© phototropic/Getty Images）
+
+![时而潺潺细流，时而奔腾咆哮](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_800x480.jpg&rf=LaDigue_800x480.jpg "时而潺潺细流，时而奔腾咆哮")
+
+如果你是一个喜欢大自然的环保倡导者，喜欢听河流的轰鸣声，那么，今天的世界河川日一定不要错过。继2005年至2015年联合国“生命之水” 国际行动十年之后，加拿大保育生物学家马克·安杰洛（Mark Angelo）提出了一项保护河流的全球性活动。自2005年起，联合国将每年9月的第四个星期日定为世界河川日，旨在关注和保护河流的环境、文化及生态。
+
+弗雷泽河有记录以来的最高流量是在1894年6月，当时在霍普的流量估计为每秒17000立方米(60万立方英尺/秒)。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b2%b3%e6%b5%81%e6%97%a5&form=hpcapt&filters=HpDate:"20230923_1600" "Bing Wallpaper 2023 9月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230924_FraserRiverBC"&FORM=HPQUIZ "必应主页测验 2023 9月 24")
+[下载480](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_800x480.jpg&rf=LaDigue_800x480.jpg "罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_UHD.jpg&rf=LaDigue_UHD.jpg "罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大")
+
+---
 ### 09月23日：沐浴在秋天的色彩中
 #### 郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州（© Stephen Matera/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯瓦尔巴群岛海上的一对海象，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯瓦尔巴群岛海上的一对海象，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_UHD.jpg&rf=LaDigue_UHD.jpg "斯瓦尔巴群岛海上的一对海象，挪威")
-
----
-### 09月09日：皇家寺庙的废墟
-#### 大城府历史公园的柴瓦塔那兰寺，泰国（© Weerasak Saeku/Getty Images）
-
-![皇家寺庙的废墟](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_800x480.jpg&rf=LaDigue_800x480.jpg "皇家寺庙的废墟")
-
-当夕阳西下，泰国的夜幕降临，大城府历史公园里的柴瓦塔那兰寺灯火通明，迎接着夜晚的到来。虽然这座寺庙并非世界遗产大城府遗址的一部分，但它也有着丰富的历史和建筑底蕴。14世纪至18世纪，暹罗大城王朝统治东南亚，国王巴萨通建造了这座圣殿，象征着宇宙的中心。从佛寺出发，可以坐船或乘车到达历史名城大城府。如今，大城府已成为历史废墟，但曾经这里是重要的商业和外交中心，周围环绕的河流是其天然的防御屏障。
-
-历史悠久的大城府建于1350年，是继素可泰之后暹罗王国的第二个首都。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b3%b0%e5%9b%bd%e5%a4%a7%e5%9f%8e%e5%ba%9c%e5%8e%86%e5%8f%b2%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230908_1600" "Bing Wallpaper 2023 9月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230909_AyutthayaTemple"&FORM=HPQUIZ "必应主页测验 2023 9月 9")
-[下载480](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_800x480.jpg&rf=LaDigue_800x480.jpg "大城府历史公园的柴瓦塔那兰寺，泰国")
-[下载720](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_1280x720.jpg&rf=LaDigue_1280x720.jpg "大城府历史公园的柴瓦塔那兰寺，泰国")
-[下载1080](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大城府历史公园的柴瓦塔那兰寺，泰国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_UHD.jpg&rf=LaDigue_UHD.jpg "大城府历史公园的柴瓦塔那兰寺，泰国")
 
 ---
