@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月25日：躺下来放松一下吧
+#### 巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州（© Andrew Peacock/Tandem Stills + Motion）
+
+![躺下来放松一下吧](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_800x480.jpg&rf=LaDigue_800x480.jpg "躺下来放松一下吧")
+
+当你看到海獭时，很难不微笑。它们的胡须脸，忙碌的爪子，和厚厚的毛皮给人一种毛绒玩具“活过来”的印象。海獭是鼬科动物中最重的，它们不仅可爱，而且在海藻森林生态系统中扮演着重要角色。因为海獭以海胆、蟹类等无脊椎动物为食，从而控制了它们的数量，维持海藻森林生态平衡。海獭宣传周旨在提高公众对海獭的保护意识，它们的数量一度高达30万，但遭遇大规模捕杀后，数量不足2000只。直到1911年，国际协定禁止捕捉海獭，数量慢慢回升至约125000只，但海獭仍处于濒危状态。虽然一些历史栖息地无法恢复，但好在新的栖息地已经出现，如冰川湾国家公园和自然保护区。1995年，科学家在冰川湾发现了5只海獭，如今这里有超过8000只的海獭在海藻丰富的水域狩猎、玩耍和养育幼崽。
+
+海獭的数量曾一度估计在15万到30万只之间。但在1741年到1911年期间，海獭因珍贵的毛皮被大量捕杀，导致数量急剧下降至1000-2000只，目前只剩下一些分散的种群。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e7%8d%ad&form=hpcapt&filters=HpDate:"20230924_1600" "Bing Wallpaper 2023 9月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230925_GlacierBayOtter"&FORM=HPQUIZ "必应主页测验 2023 9月 25")
+[下载480](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_800x480.jpg&rf=LaDigue_800x480.jpg "巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州")
+[下载720](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州")
+[下载1080](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州")
+[下载UHD](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_UHD.jpg&rf=LaDigue_UHD.jpg "巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州")
+
+---
 ### 09月24日：时而潺潺细流，时而奔腾咆哮
 #### 罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大（© phototropic/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_1280x720.jpg&rf=LaDigue_1280x720.jpg "波尔多葡萄园的日出，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波尔多葡萄园的日出，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_UHD.jpg&rf=LaDigue_UHD.jpg "波尔多葡萄园的日出，法国")
-
----
-### 09月10日：长者的智慧
-#### 斯瓦尔巴群岛海上的一对海象，挪威（© Mark Smith/Getty Images）
-
-![长者的智慧](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_800x480.jpg&rf=LaDigue_800x480.jpg "长者的智慧")
-
-今天是祖父母节，你有没有给奶奶爷爷打个电话呢？自1978年以来，祖父母节成为了美国的全国性节日，旨在让人们表达对祖父母的敬意，唤起晚辈对长者的重视。祖父母们人生经验丰富，总是在家庭中扮演着智者的角色。提及智者，人们脑中通常会浮现一个留着长胡须的老人。在许多文化中，胡须也代表着智慧。今天照片里的海象也长着胡须，不过比起“象征智慧”，海象的胡须倒是有更实际的用处——寻找食物。
-
-海象长相独特，身体呈纺锤形，粗壮而肥胖，通常为红棕色。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a5%96%e7%88%b6%e6%af%8d%e8%8a%82&form=hpcapt&filters=HpDate:"20230909_1600" "Bing Wallpaper 2023 9月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230910_WalrusSvalbard"&FORM=HPQUIZ "必应主页测验 2023 9月 10")
-[下载480](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_800x480.jpg&rf=LaDigue_800x480.jpg "斯瓦尔巴群岛海上的一对海象，挪威")
-[下载720](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯瓦尔巴群岛海上的一对海象，挪威")
-[下载1080](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯瓦尔巴群岛海上的一对海象，挪威")
-[下载UHD](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_UHD.jpg&rf=LaDigue_UHD.jpg "斯瓦尔巴群岛海上的一对海象，挪威")
 
 ---
