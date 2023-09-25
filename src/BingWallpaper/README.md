@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月26日：给滑板“冲浪”的波浪
+#### 日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州（© EXTREME-PHOTOGRAPHER/Getty Images）
+
+![给滑板“冲浪”的波浪](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_800x480.jpg&rf=LaDigue_800x480.jpg "给滑板“冲浪”的波浪")
+
+与意大利的“水城”威尼斯不同，加利福尼亚州的威尼斯并不以运河以及古老的鹅卵石街道而出名。相反，这里是滑板爱好者的天堂，威尼斯滑板公园位于阳光普照的威尼斯海滩旁边，见证了该州滑板运动的发展和壮大。
+
+圣莫尼卡海滩和威尼斯海滩将在 2028 年夏季奥运会期间举办滑板比赛和三人篮球比赛。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%bc%e6%96%af%e6%bb%91%e6%9d%bf%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230925_1600" "Bing Wallpaper 2023 9月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230926_VeniceSkatePark"&FORM=HPQUIZ "必应主页测验 2023 9月 26")
+[下载480](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_800x480.jpg&rf=LaDigue_800x480.jpg "日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州")
+[下载720](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州")
+[下载1080](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州")
+[下载UHD](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_UHD.jpg&rf=LaDigue_UHD.jpg "日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州")
+
+---
 ### 09月25日：躺下来放松一下吧
 #### 巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州（© Andrew Peacock/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_1280x720.jpg&rf=LaDigue_1280x720.jpg "北海日落，诺德多夫，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北海日落，诺德多夫，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_UHD.jpg&rf=LaDigue_UHD.jpg "北海日落，诺德多夫，德国")
-
----
-### 09月11日：历史、自然和美酒交汇之地
-#### 波尔多葡萄园的日出，法国（© Esperanza33/Getty Images）
-
-![历史、自然和美酒交汇之地](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_800x480.jpg&rf=LaDigue_800x480.jpg "历史、自然和美酒交汇之地")
-
-在波尔多地区，幅员辽阔的梅多克葡萄园盛产优质葡萄酒。九月是葡萄的丰收季，玛歌、波雅克、圣朱利安、圣埃斯特夫等知名产区都保留着古老的酿酒传统。
-
-梅多克值得一游，在这里，你可以了解法国葡萄酒的酿造历史，参观宏伟的著名酒庄，品尝顶级的葡萄美酒。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a2%85%e5%a4%9a%e5%85%8b%e5%9c%b0%e5%8c%ba&form=hpcapt&filters=HpDate:"20230910_1600" "Bing Wallpaper 2023 9月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230911_MarathonMedoc"&FORM=HPQUIZ "必应主页测验 2023 9月 11")
-[下载480](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_800x480.jpg&rf=LaDigue_800x480.jpg "波尔多葡萄园的日出，法国")
-[下载720](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_1280x720.jpg&rf=LaDigue_1280x720.jpg "波尔多葡萄园的日出，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波尔多葡萄园的日出，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_UHD.jpg&rf=LaDigue_UHD.jpg "波尔多葡萄园的日出，法国")
 
 ---
