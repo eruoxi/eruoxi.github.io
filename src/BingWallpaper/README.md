@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月27日：缓慢平稳地攀登悬崖
+#### 克虏伯路，卡普里岛，意大利（© Mikolaj Niemczewski/Shutterstock）
+
+![缓慢平稳地攀登悬崖](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_800x480.jpg&rf=LaDigue_800x480.jpg "缓慢平稳地攀登悬崖")
+
+克虏伯路是意大利卡普里岛上一条历史悠久的道路，以其不同寻常的蛇形设计而闻名于世。它修建于1900年至1902年，由德国实业家克虏伯出资建造，道路将卡普里镇和玛丽娜·皮科拉海滩连接起来，当年，克虏伯就是通过这条小路去巡视他的产业。克虏伯路布局错综复杂，转弯急促，坡度陡峭，是当时的工程奇迹。站在路上眺望远方，你可以看到第勒尼安海、法拉廖尼悬崖以及卡普里岛上郁郁葱葱的景观。凭借这些美景，克虏伯路吸引了无数游客前来打卡观赏。不过，由于落石造成的安全隐患，这条小路曾间歇性关闭，但在今年6月，它又重新开放了，这是九年来的首次开放。
+
+19 世纪下半叶，卡普里岛成为了欧洲艺术家、作家和名人的度假胜地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e5%8d%a1%e6%99%ae%e9%87%8c%e5%b2%9b&form=hpcapt&filters=HpDate:"20230926_1600" "Bing Wallpaper 2023 9月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230927_CapriKrupp"&FORM=HPQUIZ "必应主页测验 2023 9月 27")
+[下载480](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_800x480.jpg&rf=LaDigue_800x480.jpg "克虏伯路，卡普里岛，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_1280x720.jpg&rf=LaDigue_1280x720.jpg "克虏伯路，卡普里岛，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克虏伯路，卡普里岛，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_UHD.jpg&rf=LaDigue_UHD.jpg "克虏伯路，卡普里岛，意大利")
+
+---
 ### 09月26日：给滑板“冲浪”的波浪
 #### 日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州（© EXTREME-PHOTOGRAPHER/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_1280x720.jpg&rf=LaDigue_1280x720.jpg "赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_UHD.jpg&rf=LaDigue_UHD.jpg "赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度")
-
----
-### 09月12日：下一站，地平线。
-#### 北海日落，诺德多夫，德国（© Frederick Doerschem/Getty Images）
-
-![下一站，地平线。](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_800x480.jpg&rf=LaDigue_800x480.jpg "下一站，地平线。")
-
-诺德多夫是位于德国北部海岸阿姆鲁姆岛上的一个小村庄，也是岛上最古老的村庄之一。阿姆鲁姆约有2300名居民，岛上还有许多像诺德多夫这样的渔村。坐落在北海海岸迷人风景中的诺德多夫以其丰富的海洋文化遗产而闻名。透过博物馆和灯塔，我们可以窥见这座岛屿的过去。此外，游客们还可以探索阿姆鲁姆沙丘自然保护区，这里有许多独特的野生动植物：红腹滨鹬、黑雁、知更草和茅膏菜等等。
-
-1890年，弗里德里希·冯·博德尔施温格在诺德多夫及其北部建立了多家济贫院。1925年，一场大火将村庄烧毁了大半，搭着茅草屋顶的济贫院大多已不复存在，仅存的几座旧时村舍也已挪作他用。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%af%ba%e5%be%b7%e5%a4%9a%e5%a4%ab&form=hpcapt&filters=HpDate:"20230911_1600" "Bing Wallpaper 2023 9月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230912_NorthSeaStairs"&FORM=HPQUIZ "必应主页测验 2023 9月 12")
-[下载480](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_800x480.jpg&rf=LaDigue_800x480.jpg "北海日落，诺德多夫，德国")
-[下载720](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_1280x720.jpg&rf=LaDigue_1280x720.jpg "北海日落，诺德多夫，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北海日落，诺德多夫，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_UHD.jpg&rf=LaDigue_UHD.jpg "北海日落，诺德多夫，德国")
 
 ---
