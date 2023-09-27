@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月28日：遵命！船长！
+#### 泰国商业港口附近的集装箱船（© Suriyapong Thongsawang/Getty Images）
+
+![遵命！船长！](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_800x480.jpg&rf=LaDigue_800x480.jpg "遵命！船长！")
+
+大海是一个充满野性又混乱的“工作场所”，考虑到约80%的国家会进入海洋发展，因此，国际海事组织在1948年日内瓦举行的联合国会议上初步建立，并于10年后正式生效成立。为了纪念第一次会议，每年九月，海事工作者会聚集在一起庆祝世界海事日。这个活动提高了人们对海事安全、航运的可持续发展以及环境保护的意识。除此之外，这一天也是向海上的无名英雄——海事工人致敬的日子。
+
+一艘中等大小的集装箱船每年航行的距离约等于从地球到月球的距离：238855英里。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b5%b7%e4%ba%8b%e6%97%a5&form=hpcapt&filters=HpDate:"20230927_1600" "Bing Wallpaper 2023 9月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230928_MaritimeDay"&FORM=HPQUIZ "必应主页测验 2023 9月 28")
+[下载480](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_800x480.jpg&rf=LaDigue_800x480.jpg "泰国商业港口附近的集装箱船")
+[下载720](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_1280x720.jpg&rf=LaDigue_1280x720.jpg "泰国商业港口附近的集装箱船")
+[下载1080](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰国商业港口附近的集装箱船")
+[下载UHD](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_UHD.jpg&rf=LaDigue_UHD.jpg "泰国商业港口附近的集装箱船")
+
+---
 ### 09月27日：缓慢平稳地攀登悬崖
 #### 克虏伯路，卡普里岛，意大利（© Mikolaj Niemczewski/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MongoliaHorses_ZH-CN7660582867_1280x720.jpg&rf=LaDigue_1280x720.jpg "普氏野马，哈斯台国家公园，蒙古国")
 [下载1080](https://cn.bing.com/th?id=OHR.MongoliaHorses_ZH-CN7660582867_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普氏野马，哈斯台国家公园，蒙古国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MongoliaHorses_ZH-CN7660582867_UHD.jpg&rf=LaDigue_UHD.jpg "普氏野马，哈斯台国家公园，蒙古国")
-
----
-### 09月13日：往事的低语
-#### 赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度（© Images of india/Alamy Stock Photo）
-
-![往事的低语](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_800x480.jpg&rf=LaDigue_800x480.jpg "往事的低语")
-
-汉皮位于印度卡纳塔克邦，被联合国教科文组织列入世界遗产名录。从14世纪到16世纪，维查耶纳伽尔帝国统治着这片区域。而作为维查耶纳伽尔帝国首都的汉皮，自然留下了许多古迹群，例如古老的寺庙、雄伟的宫殿和满目苍夷的废墟。在克利希那德瓦·拉亚国王的统治期间（1509年至1529年），这座城市经历了大幅扩张，新建了很多具有艺术气息的建筑，吸引着来自世界各地的游客和商人。然而，1565年，维查耶纳伽尔帝国在塔利科塔战役中战败，汉皮也随之衰落。
-
-汉皮是14世纪维查耶纳伽尔帝国的首都。据波斯和欧洲的旅行者留下的编年史记载：位于通加巴德拉河附近的汉皮曾是一座繁荣、富裕且宏伟的城市，拥有许多寺庙、农田和贸易市场。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e7%ba%b3%e5%a1%94%e5%85%8b%e9%82%a6%e8%b5%ab%e9%a9%ac%e5%ba%93%e5%a1%94%e5%b1%b1&form=hpcapt&filters=HpDate:"20230912_1600" "Bing Wallpaper 2023 9月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230913_HemakutaHill"&FORM=HPQUIZ "必应主页测验 2023 9月 13")
-[下载480](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_800x480.jpg&rf=LaDigue_800x480.jpg "赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度")
-[下载720](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_1280x720.jpg&rf=LaDigue_1280x720.jpg "赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度")
-[下载1080](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_UHD.jpg&rf=LaDigue_UHD.jpg "赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度")
 
 ---
