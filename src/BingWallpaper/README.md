@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月01日：生日快乐
+#### 雄伟壮丽的中国长城（© Jeff_Hu/Getty Images）
+
+![生日快乐](https://cn.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_800x480.jpg&rf=LaDigue_800x480.jpg "生日快乐")
+
+十月是中国最美丽的月份之一。 这是一个丰富多彩、硕果累累的月份。 今天我们将带您欣赏中国的长城。 中国的长城是人类文明史上最伟大的建筑工程。 始建于2000多年前的春秋战国时期。 秦朝统一中国后，成为长城。 长城是世界七大奇迹之一，是中华民族古老文化的丰碑和智慧的结晶。 今天是中国的国庆节。 祝愿美丽富饶的中国更加繁荣昌盛。 生日快乐！
+
+古北口长城是中国长城史上最完整的长城体系。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e9%95%bf%e5%9f%8e&form=hpcapt&filters=HpDate:"20230930_1600" "Bing Wallpaper 2023 10月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231001_NationalDay2023"&FORM=HPQUIZ "必应主页测验 2023 10月 1")
+[下载480](https://cn.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_800x480.jpg&rf=LaDigue_800x480.jpg "雄伟壮丽的中国长城")
+[下载720](https://cn.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_1280x720.jpg&rf=LaDigue_1280x720.jpg "雄伟壮丽的中国长城")
+[下载1080](https://cn.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雄伟壮丽的中国长城")
+[下载UHD](https://cn.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_UHD.jpg&rf=LaDigue_UHD.jpg "雄伟壮丽的中国长城")
+
+---
 ### 09月30日：啊！仙纳度
 #### 仙纳度国家公园的秋色，弗吉尼亚州（© Michael Ver Sprill/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_1280x720.jpg&rf=LaDigue_1280x720.jpg "杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴")
 [下载1080](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴")
 [下载UHD](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg&rf=LaDigue_UHD.jpg "杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴")
-
----
-### 09月16日：系好你的安全带！
-#### 施布吕根山口，格劳宾登州，瑞士（© Roberto Moiola/Getty Images）
-
-![系好你的安全带！](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_800x480.jpg&rf=LaDigue_800x480.jpg "系好你的安全带！")
-
-今天的照片展示的是位于勒蓬廷阿尔卑斯山脉上的一条公路线——施布吕根山口。山口位于瑞士和意大利的边境，海拔6936英尺，其蜿蜒的山路是欧洲海拔最高的公路之一。虽然现代的施布吕根山口建于1818-1823年，但其历史可追溯至罗马时代。自从1967年附近的圣贝纳迪诺公路隧道开通后，这个山口就变得安静多了。如今，这条有着51个急转弯的公路会在冬季保持关闭。因此，如果您想去一览壮观的山景、体验惊险的山路旅程，可以将行程定在6月至10月中旬哦。
-
-阿瑟·柯南·道尔在《显赫的委托人》中也提到了这个山口，这是一篇发表于1924年的关于福尔摩斯探案的短篇小说。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%bd%e5%b8%83%e5%90%95%e6%a0%b9&form=hpcapt&filters=HpDate:"20230915_1600" "Bing Wallpaper 2023 9月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230916_SplugenPass"&FORM=HPQUIZ "必应主页测验 2023 9月 16")
-[下载480](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_800x480.jpg&rf=LaDigue_800x480.jpg "施布吕根山口，格劳宾登州，瑞士")
-[下载720](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_1280x720.jpg&rf=LaDigue_1280x720.jpg "施布吕根山口，格劳宾登州，瑞士")
-[下载1080](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "施布吕根山口，格劳宾登州，瑞士")
-[下载UHD](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_UHD.jpg&rf=LaDigue_UHD.jpg "施布吕根山口，格劳宾登州，瑞士")
 
 ---
