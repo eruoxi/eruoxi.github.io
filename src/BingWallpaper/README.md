@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月02日：普罗旺斯大峡谷
+#### 韦尔东峡谷，普罗旺斯-阿尔卑斯-蓝色海岸，法国（© luisapuccini/Getty Images）
+
+![普罗旺斯大峡谷](https://cn.bing.com/th?id=OHR.VerdonCanyon_ZH-CN8872507857_800x480.jpg&rf=LaDigue_800x480.jpg "普罗旺斯大峡谷")
+
+坐落在普罗旺斯的中心，韦尔东峡谷是欧洲独一无二的自然瑰宝。绿松石色的韦尔东河在大地上切割出壮观的石灰岩悬崖，创造出令人窒息的美景。悬崖上蜿蜒盘旋着壮丽的步道，徒步者可以在上面俯瞰令人惊叹的碧绿河水。
+
+韦尔东冥河，名字来源于希腊神话中的冥河，是韦尔东峡谷中的一处深谷。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%9f%a6%e5%b0%94%e4%b8%9c%e5%b3%a1%e8%b0%b7&form=hpcapt&filters=HpDate:"20231001_1600" "Bing Wallpaper 2023 10月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231002_VerdonCanyon"&FORM=HPQUIZ "必应主页测验 2023 10月 2")
+[下载480](https://cn.bing.com/th?id=OHR.VerdonCanyon_ZH-CN8872507857_800x480.jpg&rf=LaDigue_800x480.jpg "韦尔东峡谷，普罗旺斯-阿尔卑斯-蓝色海岸，法国")
+[下载720](https://cn.bing.com/th?id=OHR.VerdonCanyon_ZH-CN8872507857_1280x720.jpg&rf=LaDigue_1280x720.jpg "韦尔东峡谷，普罗旺斯-阿尔卑斯-蓝色海岸，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.VerdonCanyon_ZH-CN8872507857_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦尔东峡谷，普罗旺斯-阿尔卑斯-蓝色海岸，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.VerdonCanyon_ZH-CN8872507857_UHD.jpg&rf=LaDigue_UHD.jpg "韦尔东峡谷，普罗旺斯-阿尔卑斯-蓝色海岸，法国")
+
+---
 ### 10月01日：生日快乐
 #### 雄伟壮丽的中国长城（© Jeff_Hu/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_1280x720.jpg&rf=LaDigue_1280x720.jpg "西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙")
 [下载1080](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_UHD.jpg&rf=LaDigue_UHD.jpg "西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙")
-
----
-### 09月17日：杂色短尾鴗
-#### 杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴（© Bruno D'Amicis/Minden Pictures）
-
-![杂色短尾鴗](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_800x480.jpg&rf=LaDigue_800x480.jpg "杂色短尾鴗")
-
-小巧多彩的杂色短尾鴗只栖息在古巴及其邻近岛屿上。杂色短尾鴗色彩鲜艳而独特：闪闪发光的绿色背部，浅灰色的腹部，红色的喉咙，粉色的胁腹、蓝色的颈部两侧以及红黑色的鸟喙。尽管它们的羽毛五颜六色，但小巧的体型让它们很难被看见。不过它们却很容易被听到，柔和的鸟啼声会提示你附近可能有一只杂色短尾鴗。
-
-通过分析鸟鸣声的变化，科学家发现杂色短尾鴗分为古巴东部和西部两个种群。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9d%82%e8%89%b2%e7%9f%ad%e5%b0%be%e9%b4%97&form=hpcapt&filters=HpDate:"20230916_1600" "Bing Wallpaper 2023 9月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230917_CubanTody"&FORM=HPQUIZ "必应主页测验 2023 9月 17")
-[下载480](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_800x480.jpg&rf=LaDigue_800x480.jpg "杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴")
-[下载720](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_1280x720.jpg&rf=LaDigue_1280x720.jpg "杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴")
-[下载1080](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴")
-[下载UHD](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg&rf=LaDigue_UHD.jpg "杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴")
 
 ---
