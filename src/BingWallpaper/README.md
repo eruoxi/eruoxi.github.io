@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月03日：圣灵群岛之旅
+#### 白天堂海滩，圣灵群岛，昆士兰州，澳大利亚（© Coral Brunner/Shutterstock）
+
+![圣灵群岛之旅](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_ZH-CN9085371328_800x480.jpg&rf=LaDigue_800x480.jpg "圣灵群岛之旅")
+
+阳光、沙子和海洋汇聚在一起，形成了令人惊叹的圣灵群岛沙滩。圣灵群岛由74个岛屿组成，距离澳大利亚昆士兰州海岸约34英里。游客在这里可以划皮划艇、浮潜、钓鱼、露营，放松身心。它被国家公园大堡礁海洋公园包围，这确保了对这些岛屿的保护。这些岛屿曾是澳大利亚恩加罗人的家园。这个原住民群体也被称为“独木舟人”，因为他们的生活主要围绕着海洋。如今，岛上的主要游客有旅行者、潜水员、露营者和冒险者。所以，下次去澳大利亚度假时，带上防晒霜，去探索原始的白色沙滩吧！
+
+该海滩在“保持澳大利亚美丽2008年海滩挑战州赛”中被授予昆士兰州最清洁海滩奖。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%99%bd%e5%a4%a9%e5%a0%82%e6%b5%b7%e6%bb%a9&form=hpcapt&filters=HpDate:"20231002_1600" "Bing Wallpaper 2023 10月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231003_WhitsundaySwirl"&FORM=HPQUIZ "必应主页测验 2023 10月 3")
+[下载480](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_ZH-CN9085371328_800x480.jpg&rf=LaDigue_800x480.jpg "白天堂海滩，圣灵群岛，昆士兰州，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_ZH-CN9085371328_1280x720.jpg&rf=LaDigue_1280x720.jpg "白天堂海滩，圣灵群岛，昆士兰州，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_ZH-CN9085371328_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "白天堂海滩，圣灵群岛，昆士兰州，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_ZH-CN9085371328_UHD.jpg&rf=LaDigue_UHD.jpg "白天堂海滩，圣灵群岛，昆士兰州，澳大利亚")
+
+---
 ### 10月02日：普罗旺斯大峡谷
 #### 韦尔东峡谷，普罗旺斯-阿尔卑斯-蓝色海岸，法国（© luisapuccini/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HadriansWallUK_ZH-CN9203571422_1280x720.jpg&rf=LaDigue_1280x720.jpg "哈德良长城，诺森伯兰郡国家公园，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.HadriansWallUK_ZH-CN9203571422_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哈德良长城，诺森伯兰郡国家公园，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HadriansWallUK_ZH-CN9203571422_UHD.jpg&rf=LaDigue_UHD.jpg "哈德良长城，诺森伯兰郡国家公园，英国")
-
----
-### 09月18日：黑夜里的“彩虹”
-#### 西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙（© Daniel Garrido/Getty Images）
-
-![黑夜里的“彩虹”](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_800x480.jpg&rf=LaDigue_800x480.jpg "黑夜里的“彩虹”")
-
-美国一年里有两次天文日，分别是春季天文日（4月中旬到5月中旬）和秋季天文日（9月中旬至10月中旬）。在这个特别的节日，科学博物馆、天文台、天文俱乐部和天文馆将举办专业人士主持的讲座、展览和工坊活动。对夜空的科学观测从早期文明时代就开始了，而天文学被称为最早的自然科学学科，是研究天体及相关现象的学科。今天照片里的是葡萄牙的西南阿连特茹和维森廷海岸自然公园，这里远离光污染，是个观星的好地方哦。
-
-天文日被定在9月中旬至10月中旬的一个周六，这样它就能尽可能的接近上弦月。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e8%bf%9e%e7%89%b9%e8%8c%b9&form=hpcapt&filters=HpDate:"20230917_1600" "Bing Wallpaper 2023 9月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230918_MilkyWayPortugal"&FORM=HPQUIZ "必应主页测验 2023 9月 18")
-[下载480](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_800x480.jpg&rf=LaDigue_800x480.jpg "西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙")
-[下载720](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_1280x720.jpg&rf=LaDigue_1280x720.jpg "西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙")
-[下载1080](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_UHD.jpg&rf=LaDigue_UHD.jpg "西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙")
 
 ---
