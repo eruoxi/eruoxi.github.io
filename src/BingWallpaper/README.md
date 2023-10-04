@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月05日：这是怎么做到的！
+#### 巴布亚企鹅，南极洲（© Art Wolfe/Getty Images）
+
+![这是怎么做到的！](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_800x480.jpg&rf=LaDigue_800x480.jpg "这是怎么做到的！")
+
+每年的10月5日是世界教师日，这一天是所有教育工作者的庆祝日。1966年10月5日，国际劳工组织和联合国教科文组织共同审议通过了《关于教师地位的建议书》，因此当天也被设立为世界教师日。这一文件不仅肯定了教师的重要作用，而且规定了教师的权利与责任，同时提出了关于教师技能认定等方面的国际标准。
+
+在企鹅物种中，巴布亚企鹅是体型第三大的企鹅，它们的体重能够达到18磅。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e5%b8%83%e4%ba%9a%e4%bc%81%e9%b9%85&form=hpcapt&filters=HpDate:"20231004_1600" "Bing Wallpaper 2023 10月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231005_GentooJump"&FORM=HPQUIZ "必应主页测验 2023 10月 5")
+[下载480](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_800x480.jpg&rf=LaDigue_800x480.jpg "巴布亚企鹅，南极洲")
+[下载720](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴布亚企鹅，南极洲")
+[下载1080](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴布亚企鹅，南极洲")
+[下载UHD](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_UHD.jpg&rf=LaDigue_UHD.jpg "巴布亚企鹅，南极洲")
+
+---
 ### 10月04日：狼蛛星云
 #### 狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜（© NASA, ESA, CSA, STScI, Webb ERO Production Team）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_1280x720.jpg&rf=LaDigue_1280x720.jpg "诺贝尔和平中心内部，奥斯陆，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "诺贝尔和平中心内部，奥斯陆，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_UHD.jpg&rf=LaDigue_UHD.jpg "诺贝尔和平中心内部，奥斯陆，挪威")
-
----
-### 09月20日：桥下和桥上的水流
-#### 罗马风格的渡槽，阿卡迪亚公园，波兰（© PATSTOCK/Getty Images）
-
-![桥下和桥上的水流](https://cn.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_800x480.jpg&rf=LaDigue_800x480.jpg "桥下和桥上的水流")
-
-阿卡迪亚公园位于波兰华沙附近，是由波兰贵族海伦娜·拉齐维乌设计的英式景观公园。公园的建筑和景观沾染着古代和中世纪的气息，比如这个仿造的罗马风渡槽。园内郁郁葱葱的绿植、宁静的流水以及精雕细琢的雕塑等，都诠释着公园的自然与艺术交融之美。今天，我们依旧可以透过阿卡迪亚公园，看到海伦娜·拉齐维乌不朽的艺术构想。
-
-阿卡迪亚公园的天然泉水曾为皇家浴场公园的水景提供水源。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b8%a1%e6%a7%bd&form=hpcapt&filters=HpDate:"20230919_1600" "Bing Wallpaper 2023 9月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230920_ArkadiaPark"&FORM=HPQUIZ "必应主页测验 2023 9月 20")
-[下载480](https://cn.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_800x480.jpg&rf=LaDigue_800x480.jpg "罗马风格的渡槽，阿卡迪亚公园，波兰")
-[下载720](https://cn.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗马风格的渡槽，阿卡迪亚公园，波兰")
-[下载1080](https://cn.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗马风格的渡槽，阿卡迪亚公园，波兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_UHD.jpg&rf=LaDigue_UHD.jpg "罗马风格的渡槽，阿卡迪亚公园，波兰")
 
 ---
