@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月06日：大自然的威严
+#### 杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国（© Paul Massie Photography/Getty Images）
+
+![大自然的威严](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的威严")
+
+托格汉诺克瀑布公园位于纽约风景秀丽的手指湖区，是由流入卡尤加湖的溪流侵蚀雕刻而成的自然奇迹。这座美丽的公园不仅是托格汉诺克瀑布的所在地，还有迷人的小径、独特的岩石和众多野生动物。“托格汉诺克”这个名字的起源不明，但主流观点认为它结合了易洛魁语和阿尔冈昆语，大致的意思是“森林中的大瀑布”。该公园始建于1924年，在这里你既可以沿着小径徒步，欣赏瀑布和岩石的全貌，也可以在卡尤加湖潜水，亦或是带一副双筒望远镜观鸟。如果你的目光足够敏锐，就可以观测到火鸟、潜鸟以及大角鸮等当地鸟类。
+
+托格汉诺克瀑布是落基山脉以东最高的单体瀑布。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%89%98%e6%a0%bc%e6%b1%89%e8%af%ba%e5%85%8b%e7%80%91%e5%b8%83&form=hpcapt&filters=HpDate:"20231005_1600" "Bing Wallpaper 2023 10月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231006_TaughannockFalls"&FORM=HPQUIZ "必应主页测验 2023 10月 6")
+[下载480](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_800x480.jpg&rf=LaDigue_800x480.jpg "杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_1280x720.jpg&rf=LaDigue_1280x720.jpg "杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_UHD.jpg&rf=LaDigue_UHD.jpg "杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国")
+
+---
 ### 10月05日：这是怎么做到的！
 #### 巴布亚企鹅，南极洲（© Art Wolfe/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_1280x720.jpg&rf=LaDigue_1280x720.jpg "马尔萨拉盐田，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马尔萨拉盐田，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_UHD.jpg&rf=LaDigue_UHD.jpg "马尔萨拉盐田，意大利")
-
----
-### 09月21日：表彰和平卫士
-#### 诺贝尔和平中心内部，奥斯陆，挪威（© Ilyas Ayub/Alamy）
-
-![表彰和平卫士](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_800x480.jpg&rf=LaDigue_800x480.jpg "表彰和平卫士")
-
-每年的9月21日，联合国都会庆祝国际和平日。国际和平日设立于1981年，联合国总部会在这天举行仪式，敲响和平钟，钟上面刻着“愿世界永久和平”的美好期望。
-
-《牛津当代历史词典》将诺贝尔和平奖描述为“世界上最知名的奖项”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%af%ba%e8%b4%9d%e5%b0%94%e5%92%8c%e5%b9%b3%e4%b8%ad%e5%bf%83&form=hpcapt&filters=HpDate:"20230920_1600" "Bing Wallpaper 2023 9月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230921_NobelNorway"&FORM=HPQUIZ "必应主页测验 2023 9月 21")
-[下载480](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_800x480.jpg&rf=LaDigue_800x480.jpg "诺贝尔和平中心内部，奥斯陆，挪威")
-[下载720](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_1280x720.jpg&rf=LaDigue_1280x720.jpg "诺贝尔和平中心内部，奥斯陆，挪威")
-[下载1080](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "诺贝尔和平中心内部，奥斯陆，挪威")
-[下载UHD](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_UHD.jpg&rf=LaDigue_UHD.jpg "诺贝尔和平中心内部，奥斯陆，挪威")
 
 ---
