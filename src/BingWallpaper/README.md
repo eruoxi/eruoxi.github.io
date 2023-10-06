@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月07日：吃三文鱼自助餐的时间到了
+#### 灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国（© oksana.perkins/Shutterstock）
+
+![吃三文鱼自助餐的时间到了](https://cn.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_800x480.jpg&rf=LaDigue_800x480.jpg "吃三文鱼自助餐的时间到了")
+
+冬天即将来临，你准备好了吗？卡特迈国家公园的棕熊肯定准备好了，它们的努力不会白费。每年，公园都会组织一场“肥熊周”大赛，最大最胖的灰熊将加冕冠军。场地四周安置了网络摄像头，所有人都可以通过网络观看这场比赛，参赛的灰熊会吃掉大量正返回公园产卵的三文鱼。观赛途中，你可以投票给你认为最大最胖的熊。今年的比赛竞争激烈，一只叫“珠鼻”的胖熊和编号为“747”的棕熊，都曾多次夺冠，而名叫奥提斯的肥熊更是曾四度夺得“肥熊周”的冠军。
+
+灰熊被列为棕熊的亚种，是继北极熊和科迪亚克棕熊之后，体型最大的熊类。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%81%b0%e7%86%8a&form=hpcapt&filters=HpDate:"20231006_1600" "Bing Wallpaper 2023 10月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231007_GrizzlyFalls"&FORM=HPQUIZ "必应主页测验 2023 10月 7")
+[下载480](https://cn.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_800x480.jpg&rf=LaDigue_800x480.jpg "灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_1280x720.jpg&rf=LaDigue_1280x720.jpg "灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_UHD.jpg&rf=LaDigue_UHD.jpg "灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国")
+
+---
 ### 10月06日：大自然的威严
 #### 杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国（© Paul Massie Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_1280x720.jpg&rf=LaDigue_1280x720.jpg "郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州")
 [下载1080](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州")
 [下载UHD](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_UHD.jpg&rf=LaDigue_UHD.jpg "郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州")
-
----
-### 09月22日：马尔萨拉，西西里岛的奇迹之一
-#### 马尔萨拉盐田，意大利（© javarman3/Getty Images）
-
-![马尔萨拉，西西里岛的奇迹之一](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_800x480.jpg&rf=LaDigue_800x480.jpg "马尔萨拉，西西里岛的奇迹之一")
-
-韦尔东大峡谷位于普罗旺斯的中心，是欧洲独一无二的自然奇观。马尔萨拉的斯塔尼奥内湖，自1995年起成为保护区，占地约1000公顷，是古代时期的重要盐产地。马尔萨拉盐田历史悠久，由腓尼基人在公元前1000年左右建立。如今，这个美丽的地方由世界自然基金会管理，保护着定期迁徙到马尔萨拉地区的众多鸟类。
-
-马尔萨拉建于迦太基古城利利拜乌姆的废墟上，其境内包括腓尼基古城莫西亚岛的考古遗址。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e5%b0%94%e8%90%a8%e6%8b%89&form=hpcapt&filters=HpDate:"20230921_1600" "Bing Wallpaper 2023 9月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230922_MarsalaSalt"&FORM=HPQUIZ "必应主页测验 2023 9月 22")
-[下载480](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_800x480.jpg&rf=LaDigue_800x480.jpg "马尔萨拉盐田，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_1280x720.jpg&rf=LaDigue_1280x720.jpg "马尔萨拉盐田，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马尔萨拉盐田，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_UHD.jpg&rf=LaDigue_UHD.jpg "马尔萨拉盐田，意大利")
 
 ---
