@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月08日：贝壳庇护所
+#### 巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚（© Alex Mustard/Minden Pictures）
+
+![贝壳庇护所](https://cn.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_800x480.jpg&rf=LaDigue_800x480.jpg "贝壳庇护所")
+
+如果你辨认不出来图片上的东西，请不要自我怀疑。图中的条纹蛸又名椰子章鱼，是地球上最聪明的动物之一，它有一种特殊的才能，就是用贝壳和椰子壳建造极具欺骗性的庇护所。如果你往里窥探，可能会瞥见其触手上布满了圆形吸盘。章鱼们有八个这样的触手，而“Októpus”在希腊语中正是“八足”的意思，这便是其名字“八爪鱼”的由来。章鱼的触手上有吸盘，里面聚集了神经元，使得它们特别敏感。每只触手都连接着卵圆形的头部，可以单独使用，这使得章鱼能够完成许多复杂的任务。章鱼可以更改颜色、纹理以匹配周围环境来隐藏自己，这也是你不容易发现它们的另一个原因。
+
+章鱼在神话中常常以海怪的形象出现，如挪威的北海巨妖克拉肯和阿伊努人的触手卡姆依，以及古希腊的蛇发女妖。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%ab%a0%e9%b1%bc%e6%97%a5&form=hpcapt&filters=HpDate:"20231007_1600" "Bing Wallpaper 2023 10月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231008_OctoClam"&FORM=HPQUIZ "必应主页测验 2023 10月 8")
+[下载480](https://cn.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_800x480.jpg&rf=LaDigue_800x480.jpg "巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_1280x720.jpg&rf=LaDigue_1280x720.jpg "巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_UHD.jpg&rf=LaDigue_UHD.jpg "巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚")
+
+---
 ### 10月07日：吃三文鱼自助餐的时间到了
 #### 灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国（© oksana.perkins/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_UHD.jpg&rf=LaDigue_UHD.jpg "罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大")
-
----
-### 09月23日：沐浴在秋天的色彩中
-#### 郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州（© Stephen Matera/Tandem Stills + Motion）
-
-![沐浴在秋天的色彩中](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_800x480.jpg&rf=LaDigue_800x480.jpg "沐浴在秋天的色彩中")
-
-秋天正式开始了！在北半球，今年的9月23日是秋分，这一天标志着秋天开始，太阳直射地球赤道，白昼和黑夜相等。在南半球，同样如此，但南北半球的季节是相反的，北半球秋分，南半球则是春分，正在迎接春天的到来。
-
-峡谷的下游有一处叫做“土狼天然桥”的地方，那是一个在大砂岩上凿刻出的小洞。再往下游走，就能看到悬崖拱门，这是峡谷北壁上的一座把壶柄式拱门。最后，在峡谷口的外面，史蒂文斯拱门高悬于埃斯卡兰特河之上，其开口大约有220英尺（67米）宽。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%83%8a%e7%8b%bc%e8%b0%b7&form=hpcapt&filters=HpDate:"20230922_1600" "Bing Wallpaper 2023 9月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230923_CottonwoodCanyon"&FORM=HPQUIZ "必应主页测验 2023 9月 23")
-[下载480](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_800x480.jpg&rf=LaDigue_800x480.jpg "郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州")
-[下载720](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_1280x720.jpg&rf=LaDigue_1280x720.jpg "郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州")
-[下载1080](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州")
-[下载UHD](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_UHD.jpg&rf=LaDigue_UHD.jpg "郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州")
 
 ---
