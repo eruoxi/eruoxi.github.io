@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月09日：古老的事故，古代的艺术
+#### 弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国（© Dan Leeth/Alamy）
+
+![古老的事故，古代的艺术](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_800x480.jpg&rf=LaDigue_800x480.jpg "古老的事故，古代的艺术")
+
+今天是美国土著人日！弗里蒙特人是著名的原住民族群之一，他们从公元0年到1301年一直生活在今天的犹他州及其周边地区。这个庞大的族群以其独特的岩画描绘了古老的故事，展示了古代的艺术，在该地留下了永恒的印记。如今，许多美国人都会参加土著日的庆祝活动，如艺术展览、传统音乐和讲故事等。此外，恐龙国家纪念碑、弗里蒙特印第安州立公园和麦基泉岩画也能让人们了解土著人民世世代代延续下来的悠久历史。
+
+诺埃尔·莫尔斯在其1931年出版的《犹他州弗里蒙特河的古代文化》一书中，首次将一个发掘出一系列工具、艺术品、建筑和陶器的地方定义为弗里蒙特文明区。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%bc%97%e9%87%8c%e8%92%99%e7%89%b9%e5%b2%a9%e7%94%bb&form=hpcapt&filters=HpDate:"20231008_1600" "Bing Wallpaper 2023 10月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231009_FremontPetroglyph"&FORM=HPQUIZ "必应主页测验 2023 10月 9")
+[下载480](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_800x480.jpg&rf=LaDigue_800x480.jpg "弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_1280x720.jpg&rf=LaDigue_1280x720.jpg "弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_UHD.jpg&rf=LaDigue_UHD.jpg "弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国")
+
+---
 ### 10月08日：贝壳庇护所
 #### 巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚（© Alex Mustard/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州")
 [下载1080](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州")
 [下载UHD](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_UHD.jpg&rf=LaDigue_UHD.jpg "巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州")
-
----
-### 09月24日：时而潺潺细流，时而奔腾咆哮
-#### 罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大（© phototropic/Getty Images）
-
-![时而潺潺细流，时而奔腾咆哮](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_800x480.jpg&rf=LaDigue_800x480.jpg "时而潺潺细流，时而奔腾咆哮")
-
-如果你是一个喜欢大自然的环保倡导者，喜欢听河流的轰鸣声，那么，今天的世界河川日一定不要错过。继2005年至2015年联合国“生命之水” 国际行动十年之后，加拿大保育生物学家马克·安杰洛（Mark Angelo）提出了一项保护河流的全球性活动。自2005年起，联合国将每年9月的第四个星期日定为世界河川日，旨在关注和保护河流的环境、文化及生态。
-
-弗雷泽河有记录以来的最高流量是在1894年6月，当时在霍普的流量估计为每秒17000立方米(60万立方英尺/秒)。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b2%b3%e6%b5%81%e6%97%a5&form=hpcapt&filters=HpDate:"20230923_1600" "Bing Wallpaper 2023 9月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230924_FraserRiverBC"&FORM=HPQUIZ "必应主页测验 2023 9月 24")
-[下载480](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_800x480.jpg&rf=LaDigue_800x480.jpg "罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_UHD.jpg&rf=LaDigue_UHD.jpg "罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大")
 
 ---
