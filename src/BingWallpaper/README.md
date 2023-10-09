@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月10日：高高的落基山脉
+#### 索普里斯山，科罗拉多州，美国（© Jason Hatfield/Tandem Stills + Motion）
+
+![高高的落基山脉](https://cn.bing.com/th?id=OHR.SoprisSunrise_ZH-CN5935701155_800x480.jpg&rf=LaDigue_800x480.jpg "高高的落基山脉")
+
+巍峨的索普里斯山矗立在科罗拉多州落基山脉中部的一支名为埃尔克的山脉上。它位于卡本代尔镇附近，拥有两个显眼的山峰，即东索普里斯山和西索普里斯山。很多人误以为索普里斯山是一座火山，但实际上，该山体内部的岩浆并没有喷发出来，而是在约10,000英尺的地下深处结晶后形成了一个巨大的被岩石覆盖的穹顶。除了自然魅力之外，索普里斯山还是多个土著民族的圣地，比如历史上曾在该地区居住过的犹他人部落就是其中之一。因此，索普里斯山一直是落基山脉的标志性景点，吸引了众多游客和探险者前来参观。
+
+据说在大约3000万年前，也就是在现代落基山脉刚刚隆起之后，地下10,000英尺处的岩浆侵入形成了索普里斯山。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%b4%a2%e6%99%ae%e9%87%8c%e6%96%af%e5%b1%b1&form=hpcapt&filters=HpDate:"20231009_1600" "Bing Wallpaper 2023 10月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231010_SoprisSunrise"&FORM=HPQUIZ "必应主页测验 2023 10月 10")
+[下载480](https://cn.bing.com/th?id=OHR.SoprisSunrise_ZH-CN5935701155_800x480.jpg&rf=LaDigue_800x480.jpg "索普里斯山，科罗拉多州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SoprisSunrise_ZH-CN5935701155_1280x720.jpg&rf=LaDigue_1280x720.jpg "索普里斯山，科罗拉多州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SoprisSunrise_ZH-CN5935701155_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "索普里斯山，科罗拉多州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SoprisSunrise_ZH-CN5935701155_UHD.jpg&rf=LaDigue_UHD.jpg "索普里斯山，科罗拉多州，美国")
+
+---
 ### 10月09日：古老的事故，古代的艺术
 #### 弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国（© Dan Leeth/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州")
 [下载1080](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州")
 [下载UHD](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_UHD.jpg&rf=LaDigue_UHD.jpg "日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州")
-
----
-### 09月25日：躺下来放松一下吧
-#### 巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州（© Andrew Peacock/Tandem Stills + Motion）
-
-![躺下来放松一下吧](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_800x480.jpg&rf=LaDigue_800x480.jpg "躺下来放松一下吧")
-
-当你看到海獭时，很难不微笑。它们的胡须脸，忙碌的爪子，和厚厚的毛皮给人一种毛绒玩具“活过来”的印象。海獭是鼬科动物中最重的，它们不仅可爱，而且在海藻森林生态系统中扮演着重要角色。因为海獭以海胆、蟹类等无脊椎动物为食，从而控制了它们的数量，维持海藻森林生态平衡。海獭宣传周旨在提高公众对海獭的保护意识，它们的数量一度高达30万，但遭遇大规模捕杀后，数量不足2000只。直到1911年，国际协定禁止捕捉海獭，数量慢慢回升至约125000只，但海獭仍处于濒危状态。虽然一些历史栖息地无法恢复，但好在新的栖息地已经出现，如冰川湾国家公园和自然保护区。1995年，科学家在冰川湾发现了5只海獭，如今这里有超过8000只的海獭在海藻丰富的水域狩猎、玩耍和养育幼崽。
-
-海獭的数量曾一度估计在15万到30万只之间。但在1741年到1911年期间，海獭因珍贵的毛皮被大量捕杀，导致数量急剧下降至1000-2000只，目前只剩下一些分散的种群。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e7%8d%ad&form=hpcapt&filters=HpDate:"20230924_1600" "Bing Wallpaper 2023 9月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230925_GlacierBayOtter"&FORM=HPQUIZ "必应主页测验 2023 9月 25")
-[下载480](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_800x480.jpg&rf=LaDigue_800x480.jpg "巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州")
-[下载720](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州")
-[下载1080](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州")
-[下载UHD](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_UHD.jpg&rf=LaDigue_UHD.jpg "巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州")
 
 ---
