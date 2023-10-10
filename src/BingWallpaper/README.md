@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月11日：消失的回声
+#### 约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国（© Ben Herndon/Tandem Stills + Motion）
+
+![消失的回声](https://cn.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_800x480.jpg&rf=LaDigue_800x480.jpg "消失的回声")
+
+为了庆祝国际化石日，今天我们一起来了解一下位于俄勒冈州的约翰迪化石床国家纪念地中那迷人的彩绘山。一层层色彩鲜艳又富含粘土的土壤构成了彩绘山迷人的景观。此外，这些山丘还记录了该区域数百年以来的气候和生态系统的变化。在这里，游客们可以自由地参观博物馆内陈列着的动植物化石。在纪念地的克拉诺单元，人们可以一窥负鼠化石、岳齿兽化石、剑齿虎化石和海龟化石的风采，而这些遗迹也在提醒着人们，我们的星球曾活力无限、生机勃勃。
+
+彩绘山被列为俄勒冈州七大奇观之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%bd%a9%e7%bb%98%e5%b1%b1&form=hpcapt&filters=HpDate:"20231010_1600" "Bing Wallpaper 2023 10月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231011_JohnDayFossil"&FORM=HPQUIZ "必应主页测验 2023 10月 11")
+[下载480](https://cn.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_800x480.jpg&rf=LaDigue_800x480.jpg "约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_1280x720.jpg&rf=LaDigue_1280x720.jpg "约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_UHD.jpg&rf=LaDigue_UHD.jpg "约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国")
+
+---
 ### 10月10日：高高的落基山脉
 #### 索普里斯山，科罗拉多州，美国（© Jason Hatfield/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_1280x720.jpg&rf=LaDigue_1280x720.jpg "克虏伯路，卡普里岛，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克虏伯路，卡普里岛，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_UHD.jpg&rf=LaDigue_UHD.jpg "克虏伯路，卡普里岛，意大利")
-
----
-### 09月26日：给滑板“冲浪”的波浪
-#### 日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州（© EXTREME-PHOTOGRAPHER/Getty Images）
-
-![给滑板“冲浪”的波浪](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_800x480.jpg&rf=LaDigue_800x480.jpg "给滑板“冲浪”的波浪")
-
-与意大利的“水城”威尼斯不同，加利福尼亚州的威尼斯并不以运河以及古老的鹅卵石街道而出名。相反，这里是滑板爱好者的天堂，威尼斯滑板公园位于阳光普照的威尼斯海滩旁边，见证了该州滑板运动的发展和壮大。
-
-圣莫尼卡海滩和威尼斯海滩将在 2028 年夏季奥运会期间举办滑板比赛和三人篮球比赛。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%bc%e6%96%af%e6%bb%91%e6%9d%bf%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230925_1600" "Bing Wallpaper 2023 9月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230926_VeniceSkatePark"&FORM=HPQUIZ "必应主页测验 2023 9月 26")
-[下载480](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_800x480.jpg&rf=LaDigue_800x480.jpg "日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州")
-[下载720](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州")
-[下载1080](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州")
-[下载UHD](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_UHD.jpg&rf=LaDigue_UHD.jpg "日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州")
 
 ---
