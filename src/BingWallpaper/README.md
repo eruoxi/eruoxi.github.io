@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月12日：趁热打铁，勿失良机！
+#### 帕卢斯地区的老谷仓和油菜田，爱达荷州，美国（© Terry Eggers/Getty Images）
+
+![趁热打铁，勿失良机！](https://cn.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_800x480.jpg&rf=LaDigue_800x480.jpg "趁热打铁，勿失良机！")
+
+今天是农民节，让我们一起向庄稼的守护者和收割者——农民表达感激之情吧！从黄昏到黎明，从春天到冬天，农民们不知疲倦地劳作着，以确保农产品货架上始终有货。一天中，他们要完成多项任务，如：耕地、收割庄稼、喂养牲畜等等。今天的照片展示的是美国西北部帕卢斯地区的油菜花田，那里农业资源丰富，连绵起伏的山丘上种满了小麦、豆类和油菜花。而老谷仓那锈迹斑斑的屋顶和饱经风霜的木头，则无声地诉说着一代代农民耕种的艰辛与丰收的喜悦。所以，在我们吃下一顿饭之前，不妨花一点时间，感谢那些“锄禾日当午，汗滴禾下土”的农民吧。
+
+油菜花株高2至6英尺，可开出独特的黄色花朵，每朵花都能结出装着油菜籽的豆荚。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%95%e5%8d%a2%e6%96%af%e5%9c%b0%e5%8c%ba&form=hpcapt&filters=HpDate:"20231011_1600" "Bing Wallpaper 2023 10月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231012_IdahoBarn"&FORM=HPQUIZ "必应主页测验 2023 10月 12")
+[下载480](https://cn.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_800x480.jpg&rf=LaDigue_800x480.jpg "帕卢斯地区的老谷仓和油菜田，爱达荷州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕卢斯地区的老谷仓和油菜田，爱达荷州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕卢斯地区的老谷仓和油菜田，爱达荷州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_UHD.jpg&rf=LaDigue_UHD.jpg "帕卢斯地区的老谷仓和油菜田，爱达荷州，美国")
+
+---
 ### 10月11日：消失的回声
 #### 约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国（© Ben Herndon/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_1280x720.jpg&rf=LaDigue_1280x720.jpg "泰国商业港口附近的集装箱船")
 [下载1080](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰国商业港口附近的集装箱船")
 [下载UHD](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_UHD.jpg&rf=LaDigue_UHD.jpg "泰国商业港口附近的集装箱船")
-
----
-### 09月27日：缓慢平稳地攀登悬崖
-#### 克虏伯路，卡普里岛，意大利（© Mikolaj Niemczewski/Shutterstock）
-
-![缓慢平稳地攀登悬崖](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_800x480.jpg&rf=LaDigue_800x480.jpg "缓慢平稳地攀登悬崖")
-
-克虏伯路是意大利卡普里岛上一条历史悠久的道路，以其不同寻常的蛇形设计而闻名于世。它修建于1900年至1902年，由德国实业家克虏伯出资建造，道路将卡普里镇和玛丽娜·皮科拉海滩连接起来，当年，克虏伯就是通过这条小路去巡视他的产业。克虏伯路布局错综复杂，转弯急促，坡度陡峭，是当时的工程奇迹。站在路上眺望远方，你可以看到第勒尼安海、法拉廖尼悬崖以及卡普里岛上郁郁葱葱的景观。凭借这些美景，克虏伯路吸引了无数游客前来打卡观赏。不过，由于落石造成的安全隐患，这条小路曾间歇性关闭，但在今年6月，它又重新开放了，这是九年来的首次开放。
-
-19 世纪下半叶，卡普里岛成为了欧洲艺术家、作家和名人的度假胜地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e5%8d%a1%e6%99%ae%e9%87%8c%e5%b2%9b&form=hpcapt&filters=HpDate:"20230926_1600" "Bing Wallpaper 2023 9月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230927_CapriKrupp"&FORM=HPQUIZ "必应主页测验 2023 9月 27")
-[下载480](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_800x480.jpg&rf=LaDigue_800x480.jpg "克虏伯路，卡普里岛，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_1280x720.jpg&rf=LaDigue_1280x720.jpg "克虏伯路，卡普里岛，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克虏伯路，卡普里岛，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_UHD.jpg&rf=LaDigue_UHD.jpg "克虏伯路，卡普里岛，意大利")
 
 ---
