@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月13日：住在悬崖边的日子
+#### 加尔加诺半岛上的维埃斯特，阿普利亚，意大利（© Pilat666/Getty Images）
+
+![住在悬崖边的日子](https://cn.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_800x480.jpg&rf=LaDigue_800x480.jpg "住在悬崖边的日子")
+
+维埃斯特是意大利东海岸一个风景如画的小镇。它的历史是由诺曼人、拜占庭人和罗马人等不同文明编织而成的，可以追溯到数千年前。小镇的历史中心不仅有迷宫般的小巷、古色古香的建筑，还有一座可以俯瞰亚得里亚海的中世纪斯瓦比亚城堡。然而，真正吸引游客的是维埃斯特迷人的自然景观。这里以壮观的石灰石悬崖、原始的海滩和清澈的海水而闻名。事实上，维埃斯特的海水非常清澈，其水质已获得蓝旗认证。闻名遐迩的皮佐穆诺岩层有许多与之相关的传说，这些传说往往是关于一个名叫皮佐穆诺的年轻人和他的爱人克里斯塔尔达的故事的变种。维埃斯特集历史、自然奇观和休闲活动于一体，对于那些寻求纯正意大利体验的游客来说，这里仍是一个引人入胜的目的地。
+
+矗立于城堡海滩上的皮佐穆诺海蚀柱，高达26.6米，是维埃斯特最著名的地貌。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%bb%b4%e5%9f%83%e6%96%af%e7%89%b9+%e6%84%8f%e5%a4%a7%e5%88%a9&form=hpcapt&filters=HpDate:"20231012_1600" "Bing Wallpaper 2023 10月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231013_ViesteItaly"&FORM=HPQUIZ "必应主页测验 2023 10月 13")
+[下载480](https://cn.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_800x480.jpg&rf=LaDigue_800x480.jpg "加尔加诺半岛上的维埃斯特，阿普利亚，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_1280x720.jpg&rf=LaDigue_1280x720.jpg "加尔加诺半岛上的维埃斯特，阿普利亚，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加尔加诺半岛上的维埃斯特，阿普利亚，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_UHD.jpg&rf=LaDigue_UHD.jpg "加尔加诺半岛上的维埃斯特，阿普利亚，意大利")
+
+---
 ### 10月12日：趁热打铁，勿失良机！
 #### 帕卢斯地区的老谷仓和油菜田，爱达荷州，美国（© Terry Eggers/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GuiyangMoon_ZH-CN7497119092_1280x720.jpg&rf=LaDigue_1280x720.jpg "满月下的甲秀楼，中国贵州省贵阳市")
 [下载1080](https://cn.bing.com/th?id=OHR.GuiyangMoon_ZH-CN7497119092_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "满月下的甲秀楼，中国贵州省贵阳市")
 [下载UHD](https://cn.bing.com/th?id=OHR.GuiyangMoon_ZH-CN7497119092_UHD.jpg&rf=LaDigue_UHD.jpg "满月下的甲秀楼，中国贵州省贵阳市")
-
----
-### 09月28日：遵命！船长！
-#### 泰国商业港口附近的集装箱船（© Suriyapong Thongsawang/Getty Images）
-
-![遵命！船长！](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_800x480.jpg&rf=LaDigue_800x480.jpg "遵命！船长！")
-
-大海是一个充满野性又混乱的“工作场所”，考虑到约80%的国家会进入海洋发展，因此，国际海事组织在1948年日内瓦举行的联合国会议上初步建立，并于10年后正式生效成立。为了纪念第一次会议，每年九月，海事工作者会聚集在一起庆祝世界海事日。这个活动提高了人们对海事安全、航运的可持续发展以及环境保护的意识。除此之外，这一天也是向海上的无名英雄——海事工人致敬的日子。
-
-一艘中等大小的集装箱船每年航行的距离约等于从地球到月球的距离：238855英里。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b5%b7%e4%ba%8b%e6%97%a5&form=hpcapt&filters=HpDate:"20230927_1600" "Bing Wallpaper 2023 9月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230928_MaritimeDay"&FORM=HPQUIZ "必应主页测验 2023 9月 28")
-[下载480](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_800x480.jpg&rf=LaDigue_800x480.jpg "泰国商业港口附近的集装箱船")
-[下载720](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_1280x720.jpg&rf=LaDigue_1280x720.jpg "泰国商业港口附近的集装箱船")
-[下载1080](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰国商业港口附近的集装箱船")
-[下载UHD](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_UHD.jpg&rf=LaDigue_UHD.jpg "泰国商业港口附近的集装箱船")
 
 ---
