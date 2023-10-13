@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月14日：它燃烧，燃烧，燃烧
+#### "火环”日环食，多哈，卡特尔（© Sorin Furcoi/Getty Images）
+
+![它燃烧，燃烧，燃烧](https://cn.bing.com/th?id=OHR.RingEclipse_ZH-CN7063841581_800x480.jpg&rf=LaDigue_800x480.jpg "它燃烧，燃烧，燃烧")
+
+天文爱好者和科学家们都在为今天倒计时：日环食即将到来，美洲的天空将变得暗淡无光！当月球运动到太阳和地球中间，三者正好处在一条直线上，月球就会挡住太阳射向地球的光，然后月球身后的黑影正好落到地球上，这时就会发生日食现象。但为什么今天的日食会有所不同呢？那是因为月球的轨道是椭圆形的，今天的月亮将运行到离地球最远的位置上。届时，月亮将变得更小，太阳的光辉也会因此透射进来，形成一个像"火环"一样的光环。我们在图上看到的就是2019年发生在卡塔尔多哈的日环食现象，这一景象将从今天开始在美国出现，一路从俄勒冈州前往德克萨斯州。然后，它将继续前往中美洲，并在南美洲结束旅程。虽然"火环"只能在特定的路径上才能看到，但在美国的50个州的部分地区也可以看到部分日食。如果你有幸看到这场“日食秀”，请务必小心。如果没有专门的护目设备，请不要直视太阳。
+
+虽然使用普通的照相设备即可拍摄日食，但如果你想要轻松地看到太阳或者月亮的盘面，还需要使用放大倍率相当高的长焦镜头。例如，35毫米照相机就至少需要200毫米的长焦镜头。如果你想要让盘面占满整个画面，则需要使用500毫米以上的长焦镜头。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%97%a5%e7%8e%af%e9%a3%9f&form=hpcapt&filters=HpDate:"20231013_1600" "Bing Wallpaper 2023 10月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231014_RingEclipse"&FORM=HPQUIZ "必应主页测验 2023 10月 14")
+[下载480](https://cn.bing.com/th?id=OHR.RingEclipse_ZH-CN7063841581_800x480.jpg&rf=LaDigue_800x480.jpg ""火环”日环食，多哈，卡特尔")
+[下载720](https://cn.bing.com/th?id=OHR.RingEclipse_ZH-CN7063841581_1280x720.jpg&rf=LaDigue_1280x720.jpg ""火环”日环食，多哈，卡特尔")
+[下载1080](https://cn.bing.com/th?id=OHR.RingEclipse_ZH-CN7063841581_1920x1080.jpg&rf=LaDigue_1920x1080.jpg ""火环”日环食，多哈，卡特尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.RingEclipse_ZH-CN7063841581_UHD.jpg&rf=LaDigue_UHD.jpg ""火环”日环食，多哈，卡特尔")
+
+---
 ### 10月13日：住在悬崖边的日子
 #### 加尔加诺半岛上的维埃斯特，阿普利亚，意大利（© Pilat666/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_ZH-CN9885452713_1280x720.jpg&rf=LaDigue_1280x720.jpg "仙纳度国家公园的秋色，弗吉尼亚州")
 [下载1080](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_ZH-CN9885452713_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "仙纳度国家公园的秋色，弗吉尼亚州")
 [下载UHD](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_ZH-CN9885452713_UHD.jpg&rf=LaDigue_UHD.jpg "仙纳度国家公园的秋色，弗吉尼亚州")
-
----
-### 09月29日：举杯邀明月
-#### 满月下的甲秀楼，中国贵州省贵阳市（© Wang Yukun/Getty Images）
-
-![举杯邀明月](https://cn.bing.com/th?id=OHR.GuiyangMoon_ZH-CN7497119092_800x480.jpg&rf=LaDigue_800x480.jpg "举杯邀明月")
-
-今天是中秋节，是桂花浮玉的时节，是月满天街的日子。图片中的风景是位于中国贵州省贵阳市的甲秀楼，甲秀楼始建于明朝万历二十六年（1598年），取“科甲挺秀”之意，设有浮玉桥衔接两岸。此时满月映照了整个苍穹，夜空如洗，甲秀楼和周围的古建筑在明月与灯光的映衬下，投射在湖水中，颇有“书画一船烟外月，湖山十里镜中人”的意境。
-
-中秋之夜，闻着阵阵桂香，喝一杯桂花蜜酒，欢庆合家甜甜蜜蜜，已成为节日一种美的享受。到了现代，人们多是拿红酒代替。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e7%a7%8b%e8%8a%82&form=hpcapt&filters=HpDate:"20230928_1600" "Bing Wallpaper 2023 9月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230929_GuiyangMoon"&FORM=HPQUIZ "必应主页测验 2023 9月 29")
-[下载480](https://cn.bing.com/th?id=OHR.GuiyangMoon_ZH-CN7497119092_800x480.jpg&rf=LaDigue_800x480.jpg "满月下的甲秀楼，中国贵州省贵阳市")
-[下载720](https://cn.bing.com/th?id=OHR.GuiyangMoon_ZH-CN7497119092_1280x720.jpg&rf=LaDigue_1280x720.jpg "满月下的甲秀楼，中国贵州省贵阳市")
-[下载1080](https://cn.bing.com/th?id=OHR.GuiyangMoon_ZH-CN7497119092_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "满月下的甲秀楼，中国贵州省贵阳市")
-[下载UHD](https://cn.bing.com/th?id=OHR.GuiyangMoon_ZH-CN7497119092_UHD.jpg&rf=LaDigue_UHD.jpg "满月下的甲秀楼，中国贵州省贵阳市")
 
 ---
