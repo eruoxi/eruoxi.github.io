@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月15日：该位置已被占领
+#### 躲在树皮中欧洲刺猬，苏塞克斯，英国（© Jules Cox/Minden Pictures）
+
+![该位置已被占领](https://cn.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_800x480.jpg&rf=LaDigue_800x480.jpg "该位置已被占领")
+
+棕色的，圆圆的，小小的，多刺的——欢迎来到欧洲刺猬的世界！虽然图上的这只刺猬是英国唯一的刺猬品种，但在欧洲、亚洲、非洲和新西兰还能找到其他17个品种。
+
+白化刺猬或"金色"刺猬偶尔也会出现在人们的视野中。这些刺猬有一对罕见的隐性基因，导致它们拥有黑色的眼睛和乳白色的刺。然而，严格来说，他们并不是真正的白化病患者。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e6%b4%b2%e5%88%ba%e7%8c%ac&form=hpcapt&filters=HpDate:"20231014_1600" "Bing Wallpaper 2023 10月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231015_AutumnHedgehog"&FORM=HPQUIZ "必应主页测验 2023 10月 15")
+[下载480](https://cn.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_800x480.jpg&rf=LaDigue_800x480.jpg "躲在树皮中欧洲刺猬，苏塞克斯，英国")
+[下载720](https://cn.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_1280x720.jpg&rf=LaDigue_1280x720.jpg "躲在树皮中欧洲刺猬，苏塞克斯，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "躲在树皮中欧洲刺猬，苏塞克斯，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_UHD.jpg&rf=LaDigue_UHD.jpg "躲在树皮中欧洲刺猬，苏塞克斯，英国")
+
+---
 ### 10月14日：它燃烧，燃烧，燃烧
 #### "火环”日环食，多哈，卡特尔（© Sorin Furcoi/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_1280x720.jpg&rf=LaDigue_1280x720.jpg "雄伟壮丽的中国长城")
 [下载1080](https://cn.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雄伟壮丽的中国长城")
 [下载UHD](https://cn.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_UHD.jpg&rf=LaDigue_UHD.jpg "雄伟壮丽的中国长城")
-
----
-### 09月30日：啊！仙纳度
-#### 仙纳度国家公园的秋色，弗吉尼亚州（© Michael Ver Sprill/Getty Images）
-
-![啊！仙纳度](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_ZH-CN9885452713_800x480.jpg&rf=LaDigue_800x480.jpg "啊！仙纳度")
-
-漫山红遍的十月就要来了，是时候开启新的篇章了。仙纳度国家公园坐落在蓝岭山脉深处，覆盖了20万英亩的土地。在夏日将尽之际，公园正在脱胎换骨，准备向世人展现它最迷人的季节：秋季。树叶换上了最迷人的盛装：红色、橙色、还有金色……色彩交织展现出不容错过的美景。天际线大道是一条105英里长的公路，沿途有超过75处观景台，为你提供第一线的美景。你知道在仙纳度生长着超过300个种类的植物吗？糖枫、山核桃、橡树都是这场色彩游戏中的“摇滚巨星”。所以，无论你是徒步爱好者、自然摄影师、或者只想寻找宁静的避世之地，这个公园都能满足你所有需求。
-
-美国天际线大道是密西西比河以东第一条国家公园服务道路，被列为国家历史名胜名录上的国家历史地标。这是一条历史悠久的道路，也是一条国家风景名胜公路，沿途可以欣赏美丽的自然风光。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bb%99%e7%ba%b3%e5%ba%a6%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20230929_1600" "Bing Wallpaper 2023 9月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20230930_ShenandoahFoliage"&FORM=HPQUIZ "必应主页测验 2023 9月 30")
-[下载480](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_ZH-CN9885452713_800x480.jpg&rf=LaDigue_800x480.jpg "仙纳度国家公园的秋色，弗吉尼亚州")
-[下载720](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_ZH-CN9885452713_1280x720.jpg&rf=LaDigue_1280x720.jpg "仙纳度国家公园的秋色，弗吉尼亚州")
-[下载1080](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_ZH-CN9885452713_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "仙纳度国家公园的秋色，弗吉尼亚州")
-[下载UHD](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_ZH-CN9885452713_UHD.jpg&rf=LaDigue_UHD.jpg "仙纳度国家公园的秋色，弗吉尼亚州")
 
 ---
