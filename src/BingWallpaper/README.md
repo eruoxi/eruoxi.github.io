@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月16日：确实令人着迷
+#### 金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国（© Jim Patterson/Tandem Stills + Motion）
+
+![确实令人着迷](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_800x480.jpg&rf=LaDigue_800x480.jpg "确实令人着迷")
+
+华盛顿州的魔力地带拥有700多个高山湖泊和池塘。早在欧洲定居者到来之前，魔力地带是美国原住民雅基马、奇努克和韦纳奇部落的家园。20世纪的伐木和采矿浪潮改变了这里的大部分地貌。如今，成群的山羊在公园里吃草，岩雷鸟在树上栖息。落叶松的针叶变成了金黄色，给岩石地形投下了温暖的光辉，这片土地也随之发生了变化。普鲁西克峰在魔力地带中脱颖而出，它不仅是华盛顿州喀斯喀特山脉阿尔卑斯湖荒野区的一颗璀璨明珠，也是该地区和魔力地带的象征。对于经验丰富的徒步旅行者和攀岩者来说，这是一个绝佳的地点，这里有各种难度的攀岩路线，吸引着熟练的登山者或冒险者一试身手。
+
+魔力地带位于华盛顿州喀斯喀特山脉阿尔卑斯湖荒野区。该地区海拔4,500英尺（1,372米），有700多个高山湖泊和池塘，周围环绕着克什米尔峭壁的广袤山峰，堪称美国西部最佳攀岩地点之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%8e%e7%9b%9b%e9%a1%bf%e5%b7%9e&form=hpcapt&filters=HpDate:"20231015_1600" "Bing Wallpaper 2023 10月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231016_GoldenEnchantments"&FORM=HPQUIZ "必应主页测验 2023 10月 16")
+[下载480](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_800x480.jpg&rf=LaDigue_800x480.jpg "金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_1280x720.jpg&rf=LaDigue_1280x720.jpg "金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_UHD.jpg&rf=LaDigue_UHD.jpg "金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国")
+
+---
 ### 10月15日：该位置已被占领
 #### 躲在树皮中欧洲刺猬，苏塞克斯，英国（© Jules Cox/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.VerdonCanyon_ZH-CN8872507857_1280x720.jpg&rf=LaDigue_1280x720.jpg "韦尔东峡谷，普罗旺斯-阿尔卑斯-蓝色海岸，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.VerdonCanyon_ZH-CN8872507857_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦尔东峡谷，普罗旺斯-阿尔卑斯-蓝色海岸，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.VerdonCanyon_ZH-CN8872507857_UHD.jpg&rf=LaDigue_UHD.jpg "韦尔东峡谷，普罗旺斯-阿尔卑斯-蓝色海岸，法国")
-
----
-### 10月01日：生日快乐
-#### 雄伟壮丽的中国长城（© Jeff_Hu/Getty Images）
-
-![生日快乐](https://cn.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_800x480.jpg&rf=LaDigue_800x480.jpg "生日快乐")
-
-十月是中国最美丽的月份之一。 这是一个丰富多彩、硕果累累的月份。 今天我们将带您欣赏中国的长城。 中国的长城是人类文明史上最伟大的建筑工程。 始建于2000多年前的春秋战国时期。 秦朝统一中国后，成为长城。 长城是世界七大奇迹之一，是中华民族古老文化的丰碑和智慧的结晶。 今天是中国的国庆节。 祝愿美丽富饶的中国更加繁荣昌盛。 生日快乐！
-
-古北口长城是中国长城史上最完整的长城体系。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e9%95%bf%e5%9f%8e&form=hpcapt&filters=HpDate:"20230930_1600" "Bing Wallpaper 2023 10月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231001_NationalDay2023"&FORM=HPQUIZ "必应主页测验 2023 10月 1")
-[下载480](https://cn.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_800x480.jpg&rf=LaDigue_800x480.jpg "雄伟壮丽的中国长城")
-[下载720](https://cn.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_1280x720.jpg&rf=LaDigue_1280x720.jpg "雄伟壮丽的中国长城")
-[下载1080](https://cn.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雄伟壮丽的中国长城")
-[下载UHD](https://cn.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_UHD.jpg&rf=LaDigue_UHD.jpg "雄伟壮丽的中国长城")
 
 ---
