@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月18日：西沃德的财富
+#### 科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国（© Ian Shive/Tandem Stills + Motion）
+
+![西沃德的财富](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_800x480.jpg&rf=LaDigue_800x480.jpg "西沃德的财富")
+
+1867年10月18日，在美国国务卿威廉·亨利·西沃德的谈判下，俄国将阿拉斯加的领土转让给了美国。美国一共花费了720万美元，以每英亩约两美分的价格买下了阿拉斯加地区，这一段历史被称为“阿拉斯加交易”。如今，这一天被称为阿拉斯加日，以纪念阿拉斯加丰富的历史、多元的文化、未开垦的荒野和坚忍不拔的精神。
+
+该保护区没有从外部进入的道路，仅有一条通往恐怖湖水电站的私人道路。但该道路禁止公众使用。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e8%bf%aa%e4%ba%9a%e5%85%8b%e5%9b%bd%e5%ae%b6%e9%87%8e%e7%94%9f%e5%8a%a8%e7%89%a9%e4%bf%9d%e6%8a%a4%e5%8c%ba&form=hpcapt&filters=HpDate:"20231017_1600" "Bing Wallpaper 2023 10月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231018_KodiakAlaska"&FORM=HPQUIZ "必应主页测验 2023 10月 18")
+[下载480](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_800x480.jpg&rf=LaDigue_800x480.jpg "科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_1280x720.jpg&rf=LaDigue_1280x720.jpg "科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_UHD.jpg&rf=LaDigue_UHD.jpg "科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国")
+
+---
 ### 10月17日：赤血群岛的守护者
 #### 帕拉塔塔,阿雅克肖,科西嘉岛,法国（© Jon Ingall/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_1280x720.jpg&rf=LaDigue_1280x720.jpg "狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜")
 [下载1080](https://cn.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜")
 [下载UHD](https://cn.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_UHD.jpg&rf=LaDigue_UHD.jpg "狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜")
-
----
-### 10月03日：圣灵群岛之旅
-#### 白天堂海滩，圣灵群岛，昆士兰州，澳大利亚（© Coral Brunner/Shutterstock）
-
-![圣灵群岛之旅](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_ZH-CN9085371328_800x480.jpg&rf=LaDigue_800x480.jpg "圣灵群岛之旅")
-
-阳光、沙子和海洋汇聚在一起，形成了令人惊叹的圣灵群岛沙滩。圣灵群岛由74个岛屿组成，距离澳大利亚昆士兰州海岸约34英里。游客在这里可以划皮划艇、浮潜、钓鱼、露营，放松身心。它被国家公园大堡礁海洋公园包围，这确保了对这些岛屿的保护。这些岛屿曾是澳大利亚恩加罗人的家园。这个原住民群体也被称为“独木舟人”，因为他们的生活主要围绕着海洋。如今，岛上的主要游客有旅行者、潜水员、露营者和冒险者。所以，下次去澳大利亚度假时，带上防晒霜，去探索原始的白色沙滩吧！
-
-该海滩在“保持澳大利亚美丽2008年海滩挑战州赛”中被授予昆士兰州最清洁海滩奖。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%99%bd%e5%a4%a9%e5%a0%82%e6%b5%b7%e6%bb%a9&form=hpcapt&filters=HpDate:"20231002_1600" "Bing Wallpaper 2023 10月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231003_WhitsundaySwirl"&FORM=HPQUIZ "必应主页测验 2023 10月 3")
-[下载480](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_ZH-CN9085371328_800x480.jpg&rf=LaDigue_800x480.jpg "白天堂海滩，圣灵群岛，昆士兰州，澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_ZH-CN9085371328_1280x720.jpg&rf=LaDigue_1280x720.jpg "白天堂海滩，圣灵群岛，昆士兰州，澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_ZH-CN9085371328_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "白天堂海滩，圣灵群岛，昆士兰州，澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_ZH-CN9085371328_UHD.jpg&rf=LaDigue_UHD.jpg "白天堂海滩，圣灵群岛，昆士兰州，澳大利亚")
 
 ---
