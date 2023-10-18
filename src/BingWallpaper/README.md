@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月19日：去而复返
+#### Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士（© Alan Novelli/Alamy Stock Photo）
+
+![去而复返](https://cn.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_800x480.jpg&rf=LaDigue_800x480.jpg "去而复返")
+
+《霍比特人》的主角比尔博·巴金斯曾说过一句名言：不是所有流浪者都迷失了自己的方向。但在这个名为“风的城堡”的地方，暂时失去方向感也是一种乐趣！虽然这里看起来像是《指环王》三部曲中的中土世界，但它却真实存于威尔士斯诺多尼亚山峰的高处。
+
+华特·迪士尼的电影《屠龙者》中的“风的城堡”和“悬臂石”。
+
+[Bing搜索](https://cn.bing.com/search?q=Castell+y+Gwynt+Wales&form=hpcapt&filters=HpDate:"20231018_1600" "Bing Wallpaper 2023 10月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231019_CastellyGwyntUK"&FORM=HPQUIZ "必应主页测验 2023 10月 19")
+[下载480](https://cn.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_800x480.jpg&rf=LaDigue_800x480.jpg "Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士")
+[下载720](https://cn.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_1280x720.jpg&rf=LaDigue_1280x720.jpg "Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士")
+[下载1080](https://cn.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士")
+[下载UHD](https://cn.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_UHD.jpg&rf=LaDigue_UHD.jpg "Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士")
+
+---
 ### 10月18日：西沃德的财富
 #### 科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国（© Ian Shive/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴布亚企鹅，南极洲")
 [下载1080](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴布亚企鹅，南极洲")
 [下载UHD](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_UHD.jpg&rf=LaDigue_UHD.jpg "巴布亚企鹅，南极洲")
-
----
-### 10月04日：狼蛛星云
-#### 狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜（© NASA, ESA, CSA, STScI, Webb ERO Production Team）
-
-![狼蛛星云](https://cn.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_800x480.jpg&rf=LaDigue_800x480.jpg "狼蛛星云")
-
-每年10月4日至10日是世界太空周，可以让全世界的人了解太空探索和太空技术带来的诸多好处，并庆祝人类在地外取得的成就。其中令人惊叹的宇宙奇观是狼蛛星云，由美国宇航局的詹姆斯·韦伯太空望远镜拍摄。狼蛛星云是本星系群中最明亮、最大的恒星形成区，本星系群也是银河系的所在地。该星云巨大的体积和动态能量为宇宙学家和天文学家提供了大量引人注目的素材。
-
-狼蛛星云的亮度非常强，如果它像猎户座星云一样靠近地球，就会投射出明显的阴影。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8b%bc%e8%9b%9b%e6%98%9f%e4%ba%91&form=hpcapt&filters=HpDate:"20231003_1600" "Bing Wallpaper 2023 10月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231004_TarantulaNebula"&FORM=HPQUIZ "必应主页测验 2023 10月 4")
-[下载480](https://cn.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_800x480.jpg&rf=LaDigue_800x480.jpg "狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜")
-[下载720](https://cn.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_1280x720.jpg&rf=LaDigue_1280x720.jpg "狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜")
-[下载1080](https://cn.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜")
-[下载UHD](https://cn.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_UHD.jpg&rf=LaDigue_UHD.jpg "狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜")
 
 ---
