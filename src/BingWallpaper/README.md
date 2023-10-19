@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月20日：你想“挂”着玩吗？
+#### 俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马（© Suzi Eszterhas/Minden Pictures）
+
+![你想“挂”着玩吗？](https://cn.bing.com/th?id=OHR.PygmySloth_ZH-CN4739853522_800x480.jpg&rf=LaDigue_800x480.jpg "你想“挂”着玩吗？")
+
+今天就没必要像蜜蜂一样忙碌啦，因为今天是国际树懒日，是偷懒的最佳时机。今天的主角是以“懒”出圈的树懒，掌声送给它们！图片中这只三趾树懒，发型飘逸，面容友善，可能会让你产生加入其“朋友圈”的想法，但实际上，它们并不容易被发现。三趾树懒也被称为僧侣树懒或侏儒树懒，是巴拿马加勒比海沿岸的一个小岛——埃斯库多岛上的特有物种。这种树懒的体型明显小于其他种类的树懒，长约20英寸，重约5.5至7.7磅。不幸的是，在国际自然保护联盟的名单上，侏三趾树懒已被列为极度濒危物种。
+
+三趾树懒和二趾树懒一样，也是游泳健将。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a0%91%e6%87%92&form=hpcapt&filters=HpDate:"20231019_1600" "Bing Wallpaper 2023 10月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231020_PygmySloth"&FORM=HPQUIZ "必应主页测验 2023 10月 20")
+[下载480](https://cn.bing.com/th?id=OHR.PygmySloth_ZH-CN4739853522_800x480.jpg&rf=LaDigue_800x480.jpg "俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马")
+[下载720](https://cn.bing.com/th?id=OHR.PygmySloth_ZH-CN4739853522_1280x720.jpg&rf=LaDigue_1280x720.jpg "俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马")
+[下载1080](https://cn.bing.com/th?id=OHR.PygmySloth_ZH-CN4739853522_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马")
+[下载UHD](https://cn.bing.com/th?id=OHR.PygmySloth_ZH-CN4739853522_UHD.jpg&rf=LaDigue_UHD.jpg "俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马")
+
+---
 ### 10月19日：去而复返
 #### Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士（© Alan Novelli/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_1280x720.jpg&rf=LaDigue_1280x720.jpg "杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_UHD.jpg&rf=LaDigue_UHD.jpg "杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国")
-
----
-### 10月05日：这是怎么做到的！
-#### 巴布亚企鹅，南极洲（© Art Wolfe/Getty Images）
-
-![这是怎么做到的！](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_800x480.jpg&rf=LaDigue_800x480.jpg "这是怎么做到的！")
-
-每年的10月5日是世界教师日，这一天是所有教育工作者的庆祝日。1966年10月5日，国际劳工组织和联合国教科文组织共同审议通过了《关于教师地位的建议书》，因此当天也被设立为世界教师日。这一文件不仅肯定了教师的重要作用，而且规定了教师的权利与责任，同时提出了关于教师技能认定等方面的国际标准。
-
-在企鹅物种中，巴布亚企鹅是体型第三大的企鹅，它们的体重能够达到18磅。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e5%b8%83%e4%ba%9a%e4%bc%81%e9%b9%85&form=hpcapt&filters=HpDate:"20231004_1600" "Bing Wallpaper 2023 10月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231005_GentooJump"&FORM=HPQUIZ "必应主页测验 2023 10月 5")
-[下载480](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_800x480.jpg&rf=LaDigue_800x480.jpg "巴布亚企鹅，南极洲")
-[下载720](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴布亚企鹅，南极洲")
-[下载1080](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴布亚企鹅，南极洲")
-[下载UHD](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_UHD.jpg&rf=LaDigue_UHD.jpg "巴布亚企鹅，南极洲")
 
 ---
