@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月21日：哇，真是松了一口气！
+#### 波斯古城波斯波利斯的浮雕，伊朗（© Ozbalci/Getty Images）
+
+![哇，真是松了一口气！](https://cn.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_800x480.jpg&rf=LaDigue_800x480.jpg "哇，真是松了一口气！")
+
+古迹是历史的见证，更是文化的传承。每年十月的第三个星期六是国际考古日，这一天，世界各地的考古组织会举办丰富的活动，如寻宝游戏、讲座和互动研讨会，所有这些活动都是为了唤醒人们内心的冒险精神，激发大家对过去的好奇心，了解考古的意义和更多的文化遗产知识。
+
+探索波斯波利斯的历史可以追溯到17世纪初，楔形文字也随之重现于世。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%a2%e6%96%af%e6%b3%a2%e5%88%a9%e6%96%af&form=hpcapt&filters=HpDate:"20231020_1600" "Bing Wallpaper 2023 10月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231021_PersepolisRelief"&FORM=HPQUIZ "必应主页测验 2023 10月 21")
+[下载480](https://cn.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_800x480.jpg&rf=LaDigue_800x480.jpg "波斯古城波斯波利斯的浮雕，伊朗")
+[下载720](https://cn.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_1280x720.jpg&rf=LaDigue_1280x720.jpg "波斯古城波斯波利斯的浮雕，伊朗")
+[下载1080](https://cn.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波斯古城波斯波利斯的浮雕，伊朗")
+[下载UHD](https://cn.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_UHD.jpg&rf=LaDigue_UHD.jpg "波斯古城波斯波利斯的浮雕，伊朗")
+
+---
 ### 10月20日：你想“挂”着玩吗？
 #### 俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马（© Suzi Eszterhas/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_1280x720.jpg&rf=LaDigue_1280x720.jpg "灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_UHD.jpg&rf=LaDigue_UHD.jpg "灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国")
-
----
-### 10月06日：大自然的威严
-#### 杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国（© Paul Massie Photography/Getty Images）
-
-![大自然的威严](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的威严")
-
-托格汉诺克瀑布公园位于纽约风景秀丽的手指湖区，是由流入卡尤加湖的溪流侵蚀雕刻而成的自然奇迹。这座美丽的公园不仅是托格汉诺克瀑布的所在地，还有迷人的小径、独特的岩石和众多野生动物。“托格汉诺克”这个名字的起源不明，但主流观点认为它结合了易洛魁语和阿尔冈昆语，大致的意思是“森林中的大瀑布”。该公园始建于1924年，在这里你既可以沿着小径徒步，欣赏瀑布和岩石的全貌，也可以在卡尤加湖潜水，亦或是带一副双筒望远镜观鸟。如果你的目光足够敏锐，就可以观测到火鸟、潜鸟以及大角鸮等当地鸟类。
-
-托格汉诺克瀑布是落基山脉以东最高的单体瀑布。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%89%98%e6%a0%bc%e6%b1%89%e8%af%ba%e5%85%8b%e7%80%91%e5%b8%83&form=hpcapt&filters=HpDate:"20231005_1600" "Bing Wallpaper 2023 10月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231006_TaughannockFalls"&FORM=HPQUIZ "必应主页测验 2023 10月 6")
-[下载480](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_800x480.jpg&rf=LaDigue_800x480.jpg "杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_1280x720.jpg&rf=LaDigue_1280x720.jpg "杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_UHD.jpg&rf=LaDigue_UHD.jpg "杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国")
 
 ---
