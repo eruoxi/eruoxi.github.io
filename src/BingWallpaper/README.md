@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月22日：一条用桁架架起来的公路
+#### 哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国（© Dan Mihai/Getty Images）
+
+![一条用桁架架起来的公路](https://cn.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_800x480.jpg&rf=LaDigue_800x480.jpg "一条用桁架架起来的公路")
+
+1805年，梅里韦瑟·刘易斯和威廉·克拉克从圣路易斯附近出发，开始了他们传奇的北美探险。穿越平原、山脉和森林，历时近两年，他们最终抵达了这个地方，目之所及是滚滚江水西去的壮阔景象，浩浩荡荡的哥伦比亚河注入太平洋，无边无际的海水一直延伸至地平线。1811年，美国毛皮公司在附近建立了阿斯托里亚堡，这是美国在西海岸的第一个殖民地。155年后，图中的阿斯托里亚-梅格勒大桥竣工通车。这是一座横跨哥伦比亚河的连续桁架桥，101号美国国道从大桥上经过，连接洛杉矶和华盛顿奥林匹亚。来自美国7个州和加拿大2个省的水流经哥伦比亚河，穿过这座全长约21474英尺，北美最长的连续桁架桥。
+
+按流量计算，哥伦比亚河是美国第四大河流。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%93%a5%e4%bc%a6%e6%af%94%e4%ba%9a%e6%b2%b3&form=hpcapt&filters=HpDate:"20231021_1600" "Bing Wallpaper 2023 10月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231022_AstoriaBridge"&FORM=HPQUIZ "必应主页测验 2023 10月 22")
+[下载480](https://cn.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_800x480.jpg&rf=LaDigue_800x480.jpg "哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_1280x720.jpg&rf=LaDigue_1280x720.jpg "哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_UHD.jpg&rf=LaDigue_UHD.jpg "哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国")
+
+---
 ### 10月21日：哇，真是松了一口气！
 #### 波斯古城波斯波利斯的浮雕，伊朗（© Ozbalci/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_1280x720.jpg&rf=LaDigue_1280x720.jpg "巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_UHD.jpg&rf=LaDigue_UHD.jpg "巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚")
-
----
-### 10月07日：吃三文鱼自助餐的时间到了
-#### 灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国（© oksana.perkins/Shutterstock）
-
-![吃三文鱼自助餐的时间到了](https://cn.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_800x480.jpg&rf=LaDigue_800x480.jpg "吃三文鱼自助餐的时间到了")
-
-冬天即将来临，你准备好了吗？卡特迈国家公园的棕熊肯定准备好了，它们的努力不会白费。每年，公园都会组织一场“肥熊周”大赛，最大最胖的灰熊将加冕冠军。场地四周安置了网络摄像头，所有人都可以通过网络观看这场比赛，参赛的灰熊会吃掉大量正返回公园产卵的三文鱼。观赛途中，你可以投票给你认为最大最胖的熊。今年的比赛竞争激烈，一只叫“珠鼻”的胖熊和编号为“747”的棕熊，都曾多次夺冠，而名叫奥提斯的肥熊更是曾四度夺得“肥熊周”的冠军。
-
-灰熊被列为棕熊的亚种，是继北极熊和科迪亚克棕熊之后，体型最大的熊类。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%81%b0%e7%86%8a&form=hpcapt&filters=HpDate:"20231006_1600" "Bing Wallpaper 2023 10月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231007_GrizzlyFalls"&FORM=HPQUIZ "必应主页测验 2023 10月 7")
-[下载480](https://cn.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_800x480.jpg&rf=LaDigue_800x480.jpg "灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_1280x720.jpg&rf=LaDigue_1280x720.jpg "灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_UHD.jpg&rf=LaDigue_UHD.jpg "灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国")
 
 ---
