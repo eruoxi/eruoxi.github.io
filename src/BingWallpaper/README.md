@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月23日：“迷”人之境
+#### 塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国（© Alex Potemkin/Getty Images）
+
+![“迷”人之境](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_800x480.jpg&rf=LaDigue_800x480.jpg "“迷”人之境")
+
+宾夕法尼亚州波科诺斯地区的迷宫是体验美国乡村风情的绝佳选择，这里的秋季活动给游客提供了令人窒息的挑战。迷宫占地11英亩，每年都会推出新颖独特的迷宫设计，使其成为9月和10月的热门景点。
+
+塞勒斯堡是美洲黑熊、灰狐和红狐等野生动物的家园。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%ae%be%e5%a4%95%e6%b3%95%e5%b0%bc%e4%ba%9a%e5%b7%9e&form=hpcapt&filters=HpDate:"20231022_1600" "Bing Wallpaper 2023 10月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231023_PoconosMaze"&FORM=HPQUIZ "必应主页测验 2023 10月 23")
+[下载480](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_800x480.jpg&rf=LaDigue_800x480.jpg "塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_UHD.jpg&rf=LaDigue_UHD.jpg "塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国")
+
+---
 ### 10月22日：一条用桁架架起来的公路
 #### 哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国（© Dan Mihai/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_1280x720.jpg&rf=LaDigue_1280x720.jpg "弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_UHD.jpg&rf=LaDigue_UHD.jpg "弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国")
-
----
-### 10月08日：贝壳庇护所
-#### 巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚（© Alex Mustard/Minden Pictures）
-
-![贝壳庇护所](https://cn.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_800x480.jpg&rf=LaDigue_800x480.jpg "贝壳庇护所")
-
-如果你辨认不出来图片上的东西，请不要自我怀疑。图中的条纹蛸又名椰子章鱼，是地球上最聪明的动物之一，它有一种特殊的才能，就是用贝壳和椰子壳建造极具欺骗性的庇护所。如果你往里窥探，可能会瞥见其触手上布满了圆形吸盘。章鱼们有八个这样的触手，而“Októpus”在希腊语中正是“八足”的意思，这便是其名字“八爪鱼”的由来。章鱼的触手上有吸盘，里面聚集了神经元，使得它们特别敏感。每只触手都连接着卵圆形的头部，可以单独使用，这使得章鱼能够完成许多复杂的任务。章鱼可以更改颜色、纹理以匹配周围环境来隐藏自己，这也是你不容易发现它们的另一个原因。
-
-章鱼在神话中常常以海怪的形象出现，如挪威的北海巨妖克拉肯和阿伊努人的触手卡姆依，以及古希腊的蛇发女妖。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%ab%a0%e9%b1%bc%e6%97%a5&form=hpcapt&filters=HpDate:"20231007_1600" "Bing Wallpaper 2023 10月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231008_OctoClam"&FORM=HPQUIZ "必应主页测验 2023 10月 8")
-[下载480](https://cn.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_800x480.jpg&rf=LaDigue_800x480.jpg "巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚")
-[下载720](https://cn.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_1280x720.jpg&rf=LaDigue_1280x720.jpg "巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_UHD.jpg&rf=LaDigue_UHD.jpg "巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚")
 
 ---
