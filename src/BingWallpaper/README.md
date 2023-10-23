@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月24日：这片迷雾密布的树林里潜藏着什么?
+#### 桑佩伦山上的菲泽尔城堡，匈牙利（© ZGPhotography/Alamy）
+
+![这片迷雾密布的树林里潜藏着什么?](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_800x480.jpg&rf=LaDigue_800x480.jpg "这片迷雾密布的树林里潜藏着什么?")
+
+匈牙利是一个历史悠久、风景迷人的国家，也是一个拥有众多城堡的宝库。从布达佩斯那拥有富丽堂皇的建筑并可以俯瞰多瑙河美景的布达城堡，到因成功抵御近四万土耳其大军而闻名的埃格尔城堡，每座城堡都讲述着各自关于战争、皇室和文化演变的故事。
+
+位于桑佩伦山脉的陡峭山峰是许多中世纪石头城堡的基地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8c%88%e7%89%99%e5%88%a9&form=hpcapt&filters=HpDate:"20231023_1600" "Bing Wallpaper 2023 10月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231024_FuzerCastle"&FORM=HPQUIZ "必应主页测验 2023 10月 24")
+[下载480](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_800x480.jpg&rf=LaDigue_800x480.jpg "桑佩伦山上的菲泽尔城堡，匈牙利")
+[下载720](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_1280x720.jpg&rf=LaDigue_1280x720.jpg "桑佩伦山上的菲泽尔城堡，匈牙利")
+[下载1080](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "桑佩伦山上的菲泽尔城堡，匈牙利")
+[下载UHD](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_UHD.jpg&rf=LaDigue_UHD.jpg "桑佩伦山上的菲泽尔城堡，匈牙利")
+
+---
 ### 10月23日：“迷”人之境
 #### 塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国（© Alex Potemkin/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SoprisSunrise_ZH-CN5935701155_1280x720.jpg&rf=LaDigue_1280x720.jpg "索普里斯山，科罗拉多州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SoprisSunrise_ZH-CN5935701155_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "索普里斯山，科罗拉多州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SoprisSunrise_ZH-CN5935701155_UHD.jpg&rf=LaDigue_UHD.jpg "索普里斯山，科罗拉多州，美国")
-
----
-### 10月09日：古老的事故，古代的艺术
-#### 弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国（© Dan Leeth/Alamy）
-
-![古老的事故，古代的艺术](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_800x480.jpg&rf=LaDigue_800x480.jpg "古老的事故，古代的艺术")
-
-今天是美国土著人日！弗里蒙特人是著名的原住民族群之一，他们从公元0年到1301年一直生活在今天的犹他州及其周边地区。这个庞大的族群以其独特的岩画描绘了古老的故事，展示了古代的艺术，在该地留下了永恒的印记。如今，许多美国人都会参加土著日的庆祝活动，如艺术展览、传统音乐和讲故事等。此外，恐龙国家纪念碑、弗里蒙特印第安州立公园和麦基泉岩画也能让人们了解土著人民世世代代延续下来的悠久历史。
-
-诺埃尔·莫尔斯在其1931年出版的《犹他州弗里蒙特河的古代文化》一书中，首次将一个发掘出一系列工具、艺术品、建筑和陶器的地方定义为弗里蒙特文明区。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%bc%97%e9%87%8c%e8%92%99%e7%89%b9%e5%b2%a9%e7%94%bb&form=hpcapt&filters=HpDate:"20231008_1600" "Bing Wallpaper 2023 10月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231009_FremontPetroglyph"&FORM=HPQUIZ "必应主页测验 2023 10月 9")
-[下载480](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_800x480.jpg&rf=LaDigue_800x480.jpg "弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_1280x720.jpg&rf=LaDigue_1280x720.jpg "弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_UHD.jpg&rf=LaDigue_UHD.jpg "弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国")
 
 ---
