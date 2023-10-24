@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月25日：秋天的一抹金色
+#### 大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国（© Jeff Foott/Minden Pictures）
+
+![秋天的一抹金色](https://cn.bing.com/th?id=OHR.GrandStaircase_ZH-CN5928937512_800x480.jpg&rf=LaDigue_800x480.jpg "秋天的一抹金色")
+
+大阶梯-埃斯卡兰特国家纪念碑是一片由悬崖和峡谷组成的荒野，坐落在犹他州南部的中心地带。 大阶梯由五个雄伟的砂岩悬崖组成，高约 5,500 英尺，横跨纪念碑的广阔区域。 每一步都展示了地球地质历史中的不同时代，展示了地球上任何其他地方都无法比拟的时间。 考古学家发现了 7500 万年前白垩纪时期的史前文物、硅化木和化石。 在人类历史上，普韦布洛人和弗里蒙特人的祖先在这片充满挑战的地形上掌握了农耕艺术。 他们巧妙地建造了粮仓来储存和保存丰收的粮食。 如今，这里已成为自然爱好者和寻求冒险的旅行者的绝佳度假胜地。
+
+2002年，纪念碑的一名志愿者在亚利桑那州边境附近发现了一只7500万年前的恐龙化石。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e9%98%b6%e6%a2%af%e5%9f%83%e6%96%af%e5%8d%a1%e5%85%b0%e7%89%b9%e5%9b%bd%e5%ae%b6%e7%ba%aa%e5%bf%b5%e5%8c%ba&form=hpcapt&filters=HpDate:"20231024_1600" "Bing Wallpaper 2023 10月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231025_GrandStaircase"&FORM=HPQUIZ "必应主页测验 2023 10月 25")
+[下载480](https://cn.bing.com/th?id=OHR.GrandStaircase_ZH-CN5928937512_800x480.jpg&rf=LaDigue_800x480.jpg "大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.GrandStaircase_ZH-CN5928937512_1280x720.jpg&rf=LaDigue_1280x720.jpg "大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.GrandStaircase_ZH-CN5928937512_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GrandStaircase_ZH-CN5928937512_UHD.jpg&rf=LaDigue_UHD.jpg "大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国")
+
+---
 ### 10月24日：这片迷雾密布的树林里潜藏着什么?
 #### 桑佩伦山上的菲泽尔城堡，匈牙利（© ZGPhotography/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_1280x720.jpg&rf=LaDigue_1280x720.jpg "约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_UHD.jpg&rf=LaDigue_UHD.jpg "约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国")
-
----
-### 10月10日：高高的落基山脉
-#### 索普里斯山，科罗拉多州，美国（© Jason Hatfield/Tandem Stills + Motion）
-
-![高高的落基山脉](https://cn.bing.com/th?id=OHR.SoprisSunrise_ZH-CN5935701155_800x480.jpg&rf=LaDigue_800x480.jpg "高高的落基山脉")
-
-巍峨的索普里斯山矗立在科罗拉多州落基山脉中部的一支名为埃尔克的山脉上。它位于卡本代尔镇附近，拥有两个显眼的山峰，即东索普里斯山和西索普里斯山。很多人误以为索普里斯山是一座火山，但实际上，该山体内部的岩浆并没有喷发出来，而是在约10,000英尺的地下深处结晶后形成了一个巨大的被岩石覆盖的穹顶。除了自然魅力之外，索普里斯山还是多个土著民族的圣地，比如历史上曾在该地区居住过的犹他人部落就是其中之一。因此，索普里斯山一直是落基山脉的标志性景点，吸引了众多游客和探险者前来参观。
-
-据说在大约3000万年前，也就是在现代落基山脉刚刚隆起之后，地下10,000英尺处的岩浆侵入形成了索普里斯山。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%b4%a2%e6%99%ae%e9%87%8c%e6%96%af%e5%b1%b1&form=hpcapt&filters=HpDate:"20231009_1600" "Bing Wallpaper 2023 10月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231010_SoprisSunrise"&FORM=HPQUIZ "必应主页测验 2023 10月 10")
-[下载480](https://cn.bing.com/th?id=OHR.SoprisSunrise_ZH-CN5935701155_800x480.jpg&rf=LaDigue_800x480.jpg "索普里斯山，科罗拉多州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.SoprisSunrise_ZH-CN5935701155_1280x720.jpg&rf=LaDigue_1280x720.jpg "索普里斯山，科罗拉多州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SoprisSunrise_ZH-CN5935701155_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "索普里斯山，科罗拉多州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SoprisSunrise_ZH-CN5935701155_UHD.jpg&rf=LaDigue_UHD.jpg "索普里斯山，科罗拉多州，美国")
 
 ---
