@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月26日：落叶爱好者的天堂
+#### 美泉宫公园的秋叶，维也纳，奥地利（© rusm/Getty Images）
+
+![落叶爱好者的天堂](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_800x480.jpg&rf=LaDigue_800x480.jpg "落叶爱好者的天堂")
+
+1743年，玛丽亚·特蕾莎皇后决定对奥地利美泉宫进行豪华改建，直至1918年，它一直是哈布斯堡王朝皇帝们钟爱的住所。美泉宫是巴洛克时代真正的瑰宝，它拥有郁郁葱葱的花园和世界上现存最古老的公共动物园。如今，这些华丽的建筑和美丽的花园都归奥地利政府所有。公园里的小径，绿树成荫，让人远离城市的喧嚣与嘈杂，漫步其中，仿佛回到了18世纪，神秘又浪漫。
+
+维也纳美泉宫的花园及宫殿曾是许多影视作品的取景地，如20世纪50年代上映的《茜茜公主》三部曲、索菲娅·罗兰主演的《深宫春色》。此外，《007之黎明生机》中邦德（提摩西·道尔顿饰）和卡拉骑马经过宫殿花园时的场景也是在这里拍摄的。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%bb%b4%e4%b9%9f%e7%ba%b3%e7%be%8e%e6%b3%89%e5%ae%ab%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231025_1600" "Bing Wallpaper 2023 10月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231026_ViennaAutumn"&FORM=HPQUIZ "必应主页测验 2023 10月 26")
+[下载480](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_800x480.jpg&rf=LaDigue_800x480.jpg "美泉宫公园的秋叶，维也纳，奥地利")
+[下载720](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_1280x720.jpg&rf=LaDigue_1280x720.jpg "美泉宫公园的秋叶，维也纳，奥地利")
+[下载1080](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美泉宫公园的秋叶，维也纳，奥地利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_UHD.jpg&rf=LaDigue_UHD.jpg "美泉宫公园的秋叶，维也纳，奥地利")
+
+---
 ### 10月25日：秋天的一抹金色
 #### 大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国（© Jeff Foott/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕卢斯地区的老谷仓和油菜田，爱达荷州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕卢斯地区的老谷仓和油菜田，爱达荷州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_UHD.jpg&rf=LaDigue_UHD.jpg "帕卢斯地区的老谷仓和油菜田，爱达荷州，美国")
-
----
-### 10月11日：消失的回声
-#### 约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国（© Ben Herndon/Tandem Stills + Motion）
-
-![消失的回声](https://cn.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_800x480.jpg&rf=LaDigue_800x480.jpg "消失的回声")
-
-为了庆祝国际化石日，今天我们一起来了解一下位于俄勒冈州的约翰迪化石床国家纪念地中那迷人的彩绘山。一层层色彩鲜艳又富含粘土的土壤构成了彩绘山迷人的景观。此外，这些山丘还记录了该区域数百年以来的气候和生态系统的变化。在这里，游客们可以自由地参观博物馆内陈列着的动植物化石。在纪念地的克拉诺单元，人们可以一窥负鼠化石、岳齿兽化石、剑齿虎化石和海龟化石的风采，而这些遗迹也在提醒着人们，我们的星球曾活力无限、生机勃勃。
-
-彩绘山被列为俄勒冈州七大奇观之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%bd%a9%e7%bb%98%e5%b1%b1&form=hpcapt&filters=HpDate:"20231010_1600" "Bing Wallpaper 2023 10月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231011_JohnDayFossil"&FORM=HPQUIZ "必应主页测验 2023 10月 11")
-[下载480](https://cn.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_800x480.jpg&rf=LaDigue_800x480.jpg "约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_1280x720.jpg&rf=LaDigue_1280x720.jpg "约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_UHD.jpg&rf=LaDigue_UHD.jpg "约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国")
 
 ---
