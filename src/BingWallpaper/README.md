@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月27日：魔法之河深不见底
+#### 斯利加坎老桥，苏格兰斯凯岛（© Aliaume Chapelle/Tandem Stills + Motion）
+
+![魔法之河深不见底](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_800x480.jpg&rf=LaDigue_800x480.jpg "魔法之河深不见底")
+
+迷人的苏格兰斯凯岛上有一座斯利加坎老桥，在19世纪初，才华横溢的苏格兰土木工程师托马斯·特尔福德设计并建造了这座桥梁。桥拱横跨斯利加坎河，桥面仅供骑行者和行人通过，在河流下游有一座现代桥梁用于汽车通行。站在桥面那饱经风霜、朴素且长满青苔的石头上，游客可以眺望远处雄伟的库林山脉。根据当地的传说，斯利加坎河中蕴含着仙女赐予的神秘祝福，而那些敢于将脸浸入河水中的人，则会获得永久的美貌。
+
+斯利加坎是苏格兰斯凯岛上一个小型聚居地。它靠近库林山脉，是观赏黑库林山的绝佳位置。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8b%8f%e6%a0%bc%e5%85%b0%e6%96%af%e5%87%af%e5%b2%9b&form=hpcapt&filters=HpDate:"20231026_1600" "Bing Wallpaper 2023 10月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231027_OldBridgeSkye"&FORM=HPQUIZ "必应主页测验 2023 10月 27")
+[下载480](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_800x480.jpg&rf=LaDigue_800x480.jpg "斯利加坎老桥，苏格兰斯凯岛")
+[下载720](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯利加坎老桥，苏格兰斯凯岛")
+[下载1080](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯利加坎老桥，苏格兰斯凯岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_UHD.jpg&rf=LaDigue_UHD.jpg "斯利加坎老桥，苏格兰斯凯岛")
+
+---
 ### 10月26日：落叶爱好者的天堂
 #### 美泉宫公园的秋叶，维也纳，奥地利（© rusm/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_1280x720.jpg&rf=LaDigue_1280x720.jpg "加尔加诺半岛上的维埃斯特，阿普利亚，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加尔加诺半岛上的维埃斯特，阿普利亚，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_UHD.jpg&rf=LaDigue_UHD.jpg "加尔加诺半岛上的维埃斯特，阿普利亚，意大利")
-
----
-### 10月12日：趁热打铁，勿失良机！
-#### 帕卢斯地区的老谷仓和油菜田，爱达荷州，美国（© Terry Eggers/Getty Images）
-
-![趁热打铁，勿失良机！](https://cn.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_800x480.jpg&rf=LaDigue_800x480.jpg "趁热打铁，勿失良机！")
-
-今天是农民节，让我们一起向庄稼的守护者和收割者——农民表达感激之情吧！从黄昏到黎明，从春天到冬天，农民们不知疲倦地劳作着，以确保农产品货架上始终有货。一天中，他们要完成多项任务，如：耕地、收割庄稼、喂养牲畜等等。今天的照片展示的是美国西北部帕卢斯地区的油菜花田，那里农业资源丰富，连绵起伏的山丘上种满了小麦、豆类和油菜花。而老谷仓那锈迹斑斑的屋顶和饱经风霜的木头，则无声地诉说着一代代农民耕种的艰辛与丰收的喜悦。所以，在我们吃下一顿饭之前，不妨花一点时间，感谢那些“锄禾日当午，汗滴禾下土”的农民吧。
-
-油菜花株高2至6英尺，可开出独特的黄色花朵，每朵花都能结出装着油菜籽的豆荚。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%95%e5%8d%a2%e6%96%af%e5%9c%b0%e5%8c%ba&form=hpcapt&filters=HpDate:"20231011_1600" "Bing Wallpaper 2023 10月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231012_IdahoBarn"&FORM=HPQUIZ "必应主页测验 2023 10月 12")
-[下载480](https://cn.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_800x480.jpg&rf=LaDigue_800x480.jpg "帕卢斯地区的老谷仓和油菜田，爱达荷州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕卢斯地区的老谷仓和油菜田，爱达荷州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕卢斯地区的老谷仓和油菜田，爱达荷州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_UHD.jpg&rf=LaDigue_UHD.jpg "帕卢斯地区的老谷仓和油菜田，爱达荷州，美国")
 
 ---
