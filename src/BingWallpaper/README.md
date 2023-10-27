@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月28日：西班牙骑士的“劲敌”
+#### 卡斯蒂利亚-拉曼恰的风车，西班牙（© Getty Images）
+
+![西班牙骑士的“劲敌”](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_800x480.jpg&rf=LaDigue_800x480.jpg "西班牙骑士的“劲敌”")
+
+在孔苏埃格拉小镇上，到处都流传着堂吉诃德的冒险故事，他是塞万提斯笔下的英雄，是西班牙史诗小说《堂吉诃德》的主人公。这个位于卡斯蒂利亚-拉曼恰的旅游胜地因一座名为卡尔德里科的小山丘而出名。这座山丘顶部有12座白色风车，或许正是这些风车激发了塞万提斯的灵感。在小说中，塞万提斯将它们描绘成一支巨人军队。风车由石墙和木制叶片构成，其中一些风车的历史可追溯到16世纪，它们曾是碾磨谷物的工具，如今成为见证历史的活化石。
+
+《堂吉诃德》是世界上被翻译最多的书籍之一，也是有史以来最畅销的小说之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e6%96%af%e8%92%82%e5%88%a9%e4%ba%9a-%e6%8b%89%e6%9b%bc%e6%81%b0&form=hpcapt&filters=HpDate:"20231027_1600" "Bing Wallpaper 2023 10月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231028_FiveWinds"&FORM=HPQUIZ "必应主页测验 2023 10月 28")
+[下载480](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_800x480.jpg&rf=LaDigue_800x480.jpg "卡斯蒂利亚-拉曼恰的风车，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡斯蒂利亚-拉曼恰的风车，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡斯蒂利亚-拉曼恰的风车，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_UHD.jpg&rf=LaDigue_UHD.jpg "卡斯蒂利亚-拉曼恰的风车，西班牙")
+
+---
 ### 10月27日：魔法之河深不见底
 #### 斯利加坎老桥，苏格兰斯凯岛（© Aliaume Chapelle/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RingEclipse_ZH-CN7063841581_1280x720.jpg&rf=LaDigue_1280x720.jpg ""火环”日环食，多哈，卡特尔")
 [下载1080](https://cn.bing.com/th?id=OHR.RingEclipse_ZH-CN7063841581_1920x1080.jpg&rf=LaDigue_1920x1080.jpg ""火环”日环食，多哈，卡特尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.RingEclipse_ZH-CN7063841581_UHD.jpg&rf=LaDigue_UHD.jpg ""火环”日环食，多哈，卡特尔")
-
----
-### 10月13日：住在悬崖边的日子
-#### 加尔加诺半岛上的维埃斯特，阿普利亚，意大利（© Pilat666/Getty Images）
-
-![住在悬崖边的日子](https://cn.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_800x480.jpg&rf=LaDigue_800x480.jpg "住在悬崖边的日子")
-
-维埃斯特是意大利东海岸一个风景如画的小镇。它的历史是由诺曼人、拜占庭人和罗马人等不同文明编织而成的，可以追溯到数千年前。小镇的历史中心不仅有迷宫般的小巷、古色古香的建筑，还有一座可以俯瞰亚得里亚海的中世纪斯瓦比亚城堡。然而，真正吸引游客的是维埃斯特迷人的自然景观。这里以壮观的石灰石悬崖、原始的海滩和清澈的海水而闻名。事实上，维埃斯特的海水非常清澈，其水质已获得蓝旗认证。闻名遐迩的皮佐穆诺岩层有许多与之相关的传说，这些传说往往是关于一个名叫皮佐穆诺的年轻人和他的爱人克里斯塔尔达的故事的变种。维埃斯特集历史、自然奇观和休闲活动于一体，对于那些寻求纯正意大利体验的游客来说，这里仍是一个引人入胜的目的地。
-
-矗立于城堡海滩上的皮佐穆诺海蚀柱，高达26.6米，是维埃斯特最著名的地貌。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%bb%b4%e5%9f%83%e6%96%af%e7%89%b9+%e6%84%8f%e5%a4%a7%e5%88%a9&form=hpcapt&filters=HpDate:"20231012_1600" "Bing Wallpaper 2023 10月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231013_ViesteItaly"&FORM=HPQUIZ "必应主页测验 2023 10月 13")
-[下载480](https://cn.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_800x480.jpg&rf=LaDigue_800x480.jpg "加尔加诺半岛上的维埃斯特，阿普利亚，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_1280x720.jpg&rf=LaDigue_1280x720.jpg "加尔加诺半岛上的维埃斯特，阿普利亚，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加尔加诺半岛上的维埃斯特，阿普利亚，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_UHD.jpg&rf=LaDigue_UHD.jpg "加尔加诺半岛上的维埃斯特，阿普利亚，意大利")
 
 ---
