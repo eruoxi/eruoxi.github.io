@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月29日：天黑后，你还敢待在这里吗？
+#### 博纳温彻墓地，萨凡纳，佐治亚州，美国（© Kelly vanDellen/Alamy）
+
+![天黑后，你还敢待在这里吗？](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_800x480.jpg&rf=LaDigue_800x480.jpg "天黑后，你还敢待在这里吗？")
+
+公墓通常不是人们想要探索的首选地，但佐治亚州萨凡纳的博纳温彻墓地却打破了这种想法。这座城市通常被称为美国闹鬼最严重的城市，所以恐怖事物爱好者和那些缅怀逝去亲人的人都会在这里齐聚一堂。这座墓地坐落在可以俯瞰威尔明顿河的悬崖上，自1846年以来就一直存在。墓地的橡树上挂满了西班牙苔藓，笼罩着人行道、纪念碑和精美的墓穴。你是不是觉得这听起来像是走进了一部南方哥特式小说？那就对了！这个占地160英亩的墓地正是约翰·伯兰特于1994年出版的畅销书《午夜善恶花园》中的主角。从诗人康拉德·艾肯到歌词作者约翰尼·默瑟，许多名人都葬在这里。在墓地的众多居民中，你会发现小格雷西·沃森：她是一座真人大小的大理石雕像，平静地注视着往来的游客，令人毛骨悚然。据说，她的灵魂仍在该地徘徊着。你想见见她吗？
+
+畅销书《午夜善恶花园》的封面照片是由杰克·李拍摄的，照片上有一个引人遐想的年轻女孩的雕塑。这个女孩被称为“鸟女”，已经默默无闻地在墓地里呆了50多年。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bd%90%e6%b2%bb%e4%ba%9a%e5%b7%9e%e8%90%a8%e5%87%a1%e7%ba%b3&form=hpcapt&filters=HpDate:"20231028_1600" "Bing Wallpaper 2023 10月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231029_SavannahSculpture"&FORM=HPQUIZ "必应主页测验 2023 10月 29")
+[下载480](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_800x480.jpg&rf=LaDigue_800x480.jpg "博纳温彻墓地，萨凡纳，佐治亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_1280x720.jpg&rf=LaDigue_1280x720.jpg "博纳温彻墓地，萨凡纳，佐治亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博纳温彻墓地，萨凡纳，佐治亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg&rf=LaDigue_UHD.jpg "博纳温彻墓地，萨凡纳，佐治亚州，美国")
+
+---
 ### 10月28日：西班牙骑士的“劲敌”
 #### 卡斯蒂利亚-拉曼恰的风车，西班牙（© Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_1280x720.jpg&rf=LaDigue_1280x720.jpg "躲在树皮中欧洲刺猬，苏塞克斯，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "躲在树皮中欧洲刺猬，苏塞克斯，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_UHD.jpg&rf=LaDigue_UHD.jpg "躲在树皮中欧洲刺猬，苏塞克斯，英国")
-
----
-### 10月14日：它燃烧，燃烧，燃烧
-#### "火环”日环食，多哈，卡特尔（© Sorin Furcoi/Getty Images）
-
-![它燃烧，燃烧，燃烧](https://cn.bing.com/th?id=OHR.RingEclipse_ZH-CN7063841581_800x480.jpg&rf=LaDigue_800x480.jpg "它燃烧，燃烧，燃烧")
-
-天文爱好者和科学家们都在为今天倒计时：日环食即将到来，美洲的天空将变得暗淡无光！当月球运动到太阳和地球中间，三者正好处在一条直线上，月球就会挡住太阳射向地球的光，然后月球身后的黑影正好落到地球上，这时就会发生日食现象。但为什么今天的日食会有所不同呢？那是因为月球的轨道是椭圆形的，今天的月亮将运行到离地球最远的位置上。届时，月亮将变得更小，太阳的光辉也会因此透射进来，形成一个像"火环"一样的光环。我们在图上看到的就是2019年发生在卡塔尔多哈的日环食现象，这一景象将从今天开始在美国出现，一路从俄勒冈州前往德克萨斯州。然后，它将继续前往中美洲，并在南美洲结束旅程。虽然"火环"只能在特定的路径上才能看到，但在美国的50个州的部分地区也可以看到部分日食。如果你有幸看到这场“日食秀”，请务必小心。如果没有专门的护目设备，请不要直视太阳。
-
-虽然使用普通的照相设备即可拍摄日食，但如果你想要轻松地看到太阳或者月亮的盘面，还需要使用放大倍率相当高的长焦镜头。例如，35毫米照相机就至少需要200毫米的长焦镜头。如果你想要让盘面占满整个画面，则需要使用500毫米以上的长焦镜头。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%97%a5%e7%8e%af%e9%a3%9f&form=hpcapt&filters=HpDate:"20231013_1600" "Bing Wallpaper 2023 10月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231014_RingEclipse"&FORM=HPQUIZ "必应主页测验 2023 10月 14")
-[下载480](https://cn.bing.com/th?id=OHR.RingEclipse_ZH-CN7063841581_800x480.jpg&rf=LaDigue_800x480.jpg ""火环”日环食，多哈，卡特尔")
-[下载720](https://cn.bing.com/th?id=OHR.RingEclipse_ZH-CN7063841581_1280x720.jpg&rf=LaDigue_1280x720.jpg ""火环”日环食，多哈，卡特尔")
-[下载1080](https://cn.bing.com/th?id=OHR.RingEclipse_ZH-CN7063841581_1920x1080.jpg&rf=LaDigue_1920x1080.jpg ""火环”日环食，多哈，卡特尔")
-[下载UHD](https://cn.bing.com/th?id=OHR.RingEclipse_ZH-CN7063841581_UHD.jpg&rf=LaDigue_UHD.jpg ""火环”日环食，多哈，卡特尔")
 
 ---
