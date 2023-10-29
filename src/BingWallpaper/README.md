@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月30日：黑衣美人
+#### 普通乌鸦坐在树枝上（© WildMedia/Shutterstock）
+
+![黑衣美人](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_800x480.jpg&rf=LaDigue_800x480.jpg "黑衣美人")
+
+渡鸦是一种聪明且适应性强的鸟类，以其引人注目的外表和调皮的行为而闻名天下。通过其独特的楔形尾巴和富有光泽的黑色羽毛，你可以轻易地辨认出它们。作为成熟的猎人，渡鸦拥有敏锐的视力和敏捷的飞行能力，常以腐肉为食或从其他捕食者那里偷走食物。渡鸦是杂食性动物，它们的食物多种多样，包括腐肉、昆虫和小型哺乳动物。
+
+普通乌鸦是乌鸦家族中最大的成员。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%99%ae%e9%80%9a%e4%b9%8c%e9%b8%a6&form=hpcapt&filters=HpDate:"20231029_1600" "Bing Wallpaper 2023 10月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231030_AutumnRaven"&FORM=HPQUIZ "必应主页测验 2023 10月 30")
+[下载480](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_800x480.jpg&rf=LaDigue_800x480.jpg "普通乌鸦坐在树枝上")
+[下载720](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_1280x720.jpg&rf=LaDigue_1280x720.jpg "普通乌鸦坐在树枝上")
+[下载1080](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普通乌鸦坐在树枝上")
+[下载UHD](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_UHD.jpg&rf=LaDigue_UHD.jpg "普通乌鸦坐在树枝上")
+
+---
 ### 10月29日：天黑后，你还敢待在这里吗？
 #### 博纳温彻墓地，萨凡纳，佐治亚州，美国（© Kelly vanDellen/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_1280x720.jpg&rf=LaDigue_1280x720.jpg "金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_UHD.jpg&rf=LaDigue_UHD.jpg "金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国")
-
----
-### 10月15日：该位置已被占领
-#### 躲在树皮中欧洲刺猬，苏塞克斯，英国（© Jules Cox/Minden Pictures）
-
-![该位置已被占领](https://cn.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_800x480.jpg&rf=LaDigue_800x480.jpg "该位置已被占领")
-
-棕色的，圆圆的，小小的，多刺的——欢迎来到欧洲刺猬的世界！虽然图上的这只刺猬是英国唯一的刺猬品种，但在欧洲、亚洲、非洲和新西兰还能找到其他17个品种。
-
-白化刺猬或"金色"刺猬偶尔也会出现在人们的视野中。这些刺猬有一对罕见的隐性基因，导致它们拥有黑色的眼睛和乳白色的刺。然而，严格来说，他们并不是真正的白化病患者。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e6%b4%b2%e5%88%ba%e7%8c%ac&form=hpcapt&filters=HpDate:"20231014_1600" "Bing Wallpaper 2023 10月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231015_AutumnHedgehog"&FORM=HPQUIZ "必应主页测验 2023 10月 15")
-[下载480](https://cn.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_800x480.jpg&rf=LaDigue_800x480.jpg "躲在树皮中欧洲刺猬，苏塞克斯，英国")
-[下载720](https://cn.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_1280x720.jpg&rf=LaDigue_1280x720.jpg "躲在树皮中欧洲刺猬，苏塞克斯，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "躲在树皮中欧洲刺猬，苏塞克斯，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_UHD.jpg&rf=LaDigue_UHD.jpg "躲在树皮中欧洲刺猬，苏塞克斯，英国")
 
 ---
