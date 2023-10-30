@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月31日：恶灵们只想玩个开心。
+#### 万圣节南瓜灯（© Bing Image Creator）
+
+![恶灵们只想玩个开心。](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_800x480.jpg&rf=LaDigue_800x480.jpg "恶灵们只想玩个开心。")
+
+万圣节来了！当你今晚外出时，很有可能会看到一个发光的南瓜，它的名字是“jack-o'-lantern”（南瓜灯）！这个名字源于一则爱尔兰民间传说，故事的主人公是一个名叫吝啬鬼杰克的骗子，他会提着一个挖空了的芜菁做成的灯笼四处游荡。另外，南瓜雕刻也起源于爱尔兰。最初，这种雕刻可怕的面孔和复杂图案的万圣节活动是用芜菁和马铃薯完成的。当爱尔兰人移民到北美时，他们发现南瓜产量很大，而且比其他蔬菜更易于雕刻，于是就改用了南瓜。
+
+万圣节南瓜灯起源于一则爱尔兰传说，故事的主人公名叫“吝啬鬼杰克”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%87%e5%9c%a3%e8%8a%82%e5%8d%97%e7%93%9c%e7%81%af&form=hpcapt&filters=HpDate:"20231030_1600" "Bing Wallpaper 2023 10月 31")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231031_HalloweenCuteAI"&FORM=HPQUIZ "必应主页测验 2023 10月 31")
+[下载480](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_800x480.jpg&rf=LaDigue_800x480.jpg "万圣节南瓜灯")
+[下载720](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_1280x720.jpg&rf=LaDigue_1280x720.jpg "万圣节南瓜灯")
+[下载1080](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "万圣节南瓜灯")
+[下载UHD](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_UHD.jpg&rf=LaDigue_UHD.jpg "万圣节南瓜灯")
+
+---
 ### 10月30日：黑衣美人
 #### 普通乌鸦坐在树枝上（© WildMedia/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕拉塔塔,阿雅克肖,科西嘉岛,法国")
 [下载1080](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕拉塔塔,阿雅克肖,科西嘉岛,法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_UHD.jpg&rf=LaDigue_UHD.jpg "帕拉塔塔,阿雅克肖,科西嘉岛,法国")
-
----
-### 10月16日：确实令人着迷
-#### 金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国（© Jim Patterson/Tandem Stills + Motion）
-
-![确实令人着迷](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_800x480.jpg&rf=LaDigue_800x480.jpg "确实令人着迷")
-
-华盛顿州的魔力地带拥有700多个高山湖泊和池塘。早在欧洲定居者到来之前，魔力地带是美国原住民雅基马、奇努克和韦纳奇部落的家园。20世纪的伐木和采矿浪潮改变了这里的大部分地貌。如今，成群的山羊在公园里吃草，岩雷鸟在树上栖息。落叶松的针叶变成了金黄色，给岩石地形投下了温暖的光辉，这片土地也随之发生了变化。普鲁西克峰在魔力地带中脱颖而出，它不仅是华盛顿州喀斯喀特山脉阿尔卑斯湖荒野区的一颗璀璨明珠，也是该地区和魔力地带的象征。对于经验丰富的徒步旅行者和攀岩者来说，这是一个绝佳的地点，这里有各种难度的攀岩路线，吸引着熟练的登山者或冒险者一试身手。
-
-魔力地带位于华盛顿州喀斯喀特山脉阿尔卑斯湖荒野区。该地区海拔4,500英尺（1,372米），有700多个高山湖泊和池塘，周围环绕着克什米尔峭壁的广袤山峰，堪称美国西部最佳攀岩地点之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%8e%e7%9b%9b%e9%a1%bf%e5%b7%9e&form=hpcapt&filters=HpDate:"20231015_1600" "Bing Wallpaper 2023 10月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231016_GoldenEnchantments"&FORM=HPQUIZ "必应主页测验 2023 10月 16")
-[下载480](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_800x480.jpg&rf=LaDigue_800x480.jpg "金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_1280x720.jpg&rf=LaDigue_1280x720.jpg "金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_UHD.jpg&rf=LaDigue_UHD.jpg "金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国")
 
 ---
