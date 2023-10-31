@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月01日：你知道“阿尔萨斯之眼”吗？
+#### 上巴尔城堡，阿尔萨斯，法国（© Andrea Pistolesi/Getty Images）
+
+![你知道“阿尔萨斯之眼”吗？](https://cn.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_800x480.jpg&rf=LaDigue_800x480.jpg "你知道“阿尔萨斯之眼”吗？")
+
+上巴尔城堡是一座位于阿尔萨斯北部，海拔450米的中世纪堡垒。它建于1170年，几个世纪以来经历了重大改造和修复。该城堡的建造由斯特拉斯堡的主教发起，旨在监视佐恩山谷和阿尔萨斯平原，因此被赋予了富有诗意的绰号“阿尔萨斯之眼”。天气晴朗时，甚至可以看到斯特拉斯堡大教堂的尖顶。
+
+上巴尔城堡于1770年左右被废弃，但金库一直被占用，直到法国大革命。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e5%b0%94%e8%90%a8%e6%96%af%e5%a4%a7%e5%8c%ba&form=hpcapt&filters=HpDate:"20231031_1600" "Bing Wallpaper 2023 11月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231101_HautBarr"&FORM=HPQUIZ "必应主页测验 2023 11月 1")
+[下载480](https://cn.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_800x480.jpg&rf=LaDigue_800x480.jpg "上巴尔城堡，阿尔萨斯，法国")
+[下载720](https://cn.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_1280x720.jpg&rf=LaDigue_1280x720.jpg "上巴尔城堡，阿尔萨斯，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "上巴尔城堡，阿尔萨斯，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_UHD.jpg&rf=LaDigue_UHD.jpg "上巴尔城堡，阿尔萨斯，法国")
+
+---
 ### 10月31日：恶灵们只想玩个开心。
 #### 万圣节南瓜灯（© Bing Image Creator）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_1280x720.jpg&rf=LaDigue_1280x720.jpg "科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_UHD.jpg&rf=LaDigue_UHD.jpg "科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国")
-
----
-### 10月17日：赤血群岛的守护者
-#### 帕拉塔塔,阿雅克肖,科西嘉岛,法国（© Jon Ingall/Alamy）
-
-![赤血群岛的守护者](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_800x480.jpg&rf=LaDigue_800x480.jpg "赤血群岛的守护者")
-
-闭上双眼，想象一下身处在科西嘉岛美丽的日落下，聆听海浪的声音......
-
-如今，废弃的热那亚塔已成为科西嘉岛海岸线上一道独特的风景。其中一些塔楼还被法国文化部列为官方历史古迹。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%95%e6%8b%89%e5%a1%94%e5%a1%94&form=hpcapt&filters=HpDate:"20231016_1600" "Bing Wallpaper 2023 10月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231017_GenoeseTower"&FORM=HPQUIZ "必应主页测验 2023 10月 17")
-[下载480](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_800x480.jpg&rf=LaDigue_800x480.jpg "帕拉塔塔,阿雅克肖,科西嘉岛,法国")
-[下载720](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕拉塔塔,阿雅克肖,科西嘉岛,法国")
-[下载1080](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕拉塔塔,阿雅克肖,科西嘉岛,法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_UHD.jpg&rf=LaDigue_UHD.jpg "帕拉塔塔,阿雅克肖,科西嘉岛,法国")
 
 ---
