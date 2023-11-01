@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月02日：这里，此生值得一去
+#### 恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国（© Jim Patterson/Tandem Stills + Motion）
+
+![这里，此生值得一去](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_800x480.jpg&rf=LaDigue_800x480.jpg "这里，此生值得一去")
+
+沙漠烈日下，恶水盆地的盐滩绵延数英里，在加利福尼亚死亡谷国家公园内熠熠生辉。这里是北美海拔最低的地方，海报高度为-282英尺。在这个仿佛异世界般的景色中，坚硬的矿物表面像镜子一样闪闪发光，炙热的高温在上面跳舞，空气中也掀起了涟漪。盐滩由氯化钠、硼砂和其他矿物质组成，脆弱的外壳下隐藏着一层危险的泥浆层。如果冒险越过盐滩，爬上山坡，站在海拔近5500英尺的丹特观景台上，便可以看到恶水盆地的全景景观。死亡谷国家公园以其超现实的景观，为游客提供了一种真正独特的体验。尽管条件最为恶劣，但仍有一种奇特的美在这里绽放。
+
+死亡谷国家公园拥有美国最黑暗的夜空之一，是观星的理想场所。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%ad%bb%e4%ba%a1%e8%b0%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231101_1600" "Bing Wallpaper 2023 11月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231102_DeathValleySalt"&FORM=HPQUIZ "必应主页测验 2023 11月 2")
+[下载480](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_800x480.jpg&rf=LaDigue_800x480.jpg "恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_1280x720.jpg&rf=LaDigue_1280x720.jpg "恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_UHD.jpg&rf=LaDigue_UHD.jpg "恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国")
+
+---
 ### 11月01日：你知道“阿尔萨斯之眼”吗？
 #### 上巴尔城堡，阿尔萨斯，法国（© Andrea Pistolesi/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_1280x720.jpg&rf=LaDigue_1280x720.jpg "Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士")
 [下载1080](https://cn.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士")
 [下载UHD](https://cn.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_UHD.jpg&rf=LaDigue_UHD.jpg "Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士")
-
----
-### 10月18日：西沃德的财富
-#### 科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国（© Ian Shive/Tandem Stills + Motion）
-
-![西沃德的财富](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_800x480.jpg&rf=LaDigue_800x480.jpg "西沃德的财富")
-
-1867年10月18日，在美国国务卿威廉·亨利·西沃德的谈判下，俄国将阿拉斯加的领土转让给了美国。美国一共花费了720万美元，以每英亩约两美分的价格买下了阿拉斯加地区，这一段历史被称为“阿拉斯加交易”。如今，这一天被称为阿拉斯加日，以纪念阿拉斯加丰富的历史、多元的文化、未开垦的荒野和坚忍不拔的精神。
-
-该保护区没有从外部进入的道路，仅有一条通往恐怖湖水电站的私人道路。但该道路禁止公众使用。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e8%bf%aa%e4%ba%9a%e5%85%8b%e5%9b%bd%e5%ae%b6%e9%87%8e%e7%94%9f%e5%8a%a8%e7%89%a9%e4%bf%9d%e6%8a%a4%e5%8c%ba&form=hpcapt&filters=HpDate:"20231017_1600" "Bing Wallpaper 2023 10月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231018_KodiakAlaska"&FORM=HPQUIZ "必应主页测验 2023 10月 18")
-[下载480](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_800x480.jpg&rf=LaDigue_800x480.jpg "科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_1280x720.jpg&rf=LaDigue_1280x720.jpg "科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_UHD.jpg&rf=LaDigue_UHD.jpg "科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国")
 
 ---
