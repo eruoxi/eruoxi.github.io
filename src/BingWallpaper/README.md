@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月03日：发光的花朵
+#### 卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国（© Jim Patterson/Tandem Stills + Motion）
+
+![发光的花朵](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_800x480.jpg&rf=LaDigue_800x480.jpg "发光的花朵")
+
+今天是世界水母日！水母是一种没有没有心脏、骨骼和大脑的动物，大约有2000种不同的种类。世界各大海洋中都有水母的身影，它们形状各异，大小不一。图上展示的是太平洋海荨麻水母，它们栖息在加利福尼亚州和俄勒冈州的沿海水域，以鲜艳的金褐色“铃铛状”的外形和长触手而出名。1991年，颜色苍白且触手很短的海月水母还搭乘哥伦比亚号航天飞机进入太空，以便于科学家们研究它们独特的生物学特性。因为水母是包括海龟在内的许多海洋生物的主要食物来源，所以无论是哪个种类的水母，都在海洋食物链中起着至关重要的作用。遗憾的是，因气候变化、海洋污染、过度捕捞等问题，水母的种群受到破坏，而那些以水母为食的海洋生物的生存也随之受到了威胁。
+
+"Chrysaora"（金水母属）是海荨麻水母的属名，该词源自希腊神话中一位名叫“Chrysaora”（克律萨俄耳）的巨人，据说他是海神波塞冬和美杜莎的儿子。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e8%8d%a8%e9%ba%bb%e6%b0%b4%e6%af%8d&form=hpcapt&filters=HpDate:"20231102_1600" "Bing Wallpaper 2023 11月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231103_SeaNettles"&FORM=HPQUIZ "必应主页测验 2023 11月 3")
+[下载480](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_800x480.jpg&rf=LaDigue_800x480.jpg "卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_UHD.jpg&rf=LaDigue_UHD.jpg "卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国")
+
+---
 ### 11月02日：这里，此生值得一去
 #### 恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国（© Jim Patterson/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PygmySloth_ZH-CN4739853522_1280x720.jpg&rf=LaDigue_1280x720.jpg "俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马")
 [下载1080](https://cn.bing.com/th?id=OHR.PygmySloth_ZH-CN4739853522_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马")
 [下载UHD](https://cn.bing.com/th?id=OHR.PygmySloth_ZH-CN4739853522_UHD.jpg&rf=LaDigue_UHD.jpg "俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马")
-
----
-### 10月19日：去而复返
-#### Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士（© Alan Novelli/Alamy Stock Photo）
-
-![去而复返](https://cn.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_800x480.jpg&rf=LaDigue_800x480.jpg "去而复返")
-
-《霍比特人》的主角比尔博·巴金斯曾说过一句名言：不是所有流浪者都迷失了自己的方向。但在这个名为“风的城堡”的地方，暂时失去方向感也是一种乐趣！虽然这里看起来像是《指环王》三部曲中的中土世界，但它却真实存于威尔士斯诺多尼亚山峰的高处。
-
-华特·迪士尼的电影《屠龙者》中的“风的城堡”和“悬臂石”。
-
-[Bing搜索](https://cn.bing.com/search?q=Castell+y+Gwynt+Wales&form=hpcapt&filters=HpDate:"20231018_1600" "Bing Wallpaper 2023 10月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231019_CastellyGwyntUK"&FORM=HPQUIZ "必应主页测验 2023 10月 19")
-[下载480](https://cn.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_800x480.jpg&rf=LaDigue_800x480.jpg "Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士")
-[下载720](https://cn.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_1280x720.jpg&rf=LaDigue_1280x720.jpg "Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士")
-[下载1080](https://cn.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士")
-[下载UHD](https://cn.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_UHD.jpg&rf=LaDigue_UHD.jpg "Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士")
 
 ---
