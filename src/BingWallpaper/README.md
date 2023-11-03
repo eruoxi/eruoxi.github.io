@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月04日：为寒冷而生！
+#### 美洲野牛，黄石国家公园，怀俄明州，美国（© Gary Gray/Getty Images）
+
+![为寒冷而生！](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_800x480.jpg&rf=LaDigue_800x480.jpg "为寒冷而生！")
+
+临近冬季，气温持续下降，但美洲野牛却毫不在意。今天是美国的“国家野牛日”，这些体型魁梧的哺乳动物已经准备好迎雪季了。它们有蓬松的皮毛和重达2000磅的庞大身躯，这样的身体足以抵御严寒。黄石国家公园的冬季十分寒冷，而自史前时代以来，美国最大、最古老的野牛群就居住在这里。
+
+黄石国家公园的美洲野牛群最初只有25头。有证据表明，在1896年至1912年，美洲野牛群发生了两次“种群瓶颈”事件。在此期间，美洲野牛种群的数量在25至50头之间。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e6%b4%b2%e9%87%8e%e7%89%9b&form=hpcapt&filters=HpDate:"20231103_1600" "Bing Wallpaper 2023 11月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231104_BisonSnow"&FORM=HPQUIZ "必应主页测验 2023 11月 4")
+[下载480](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_800x480.jpg&rf=LaDigue_800x480.jpg "美洲野牛，黄石国家公园，怀俄明州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_1280x720.jpg&rf=LaDigue_1280x720.jpg "美洲野牛，黄石国家公园，怀俄明州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美洲野牛，黄石国家公园，怀俄明州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_UHD.jpg&rf=LaDigue_UHD.jpg "美洲野牛，黄石国家公园，怀俄明州，美国")
+
+---
 ### 11月03日：发光的花朵
 #### 卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国（© Jim Patterson/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_1280x720.jpg&rf=LaDigue_1280x720.jpg "波斯古城波斯波利斯的浮雕，伊朗")
 [下载1080](https://cn.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波斯古城波斯波利斯的浮雕，伊朗")
 [下载UHD](https://cn.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_UHD.jpg&rf=LaDigue_UHD.jpg "波斯古城波斯波利斯的浮雕，伊朗")
-
----
-### 10月20日：你想“挂”着玩吗？
-#### 俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马（© Suzi Eszterhas/Minden Pictures）
-
-![你想“挂”着玩吗？](https://cn.bing.com/th?id=OHR.PygmySloth_ZH-CN4739853522_800x480.jpg&rf=LaDigue_800x480.jpg "你想“挂”着玩吗？")
-
-今天就没必要像蜜蜂一样忙碌啦，因为今天是国际树懒日，是偷懒的最佳时机。今天的主角是以“懒”出圈的树懒，掌声送给它们！图片中这只三趾树懒，发型飘逸，面容友善，可能会让你产生加入其“朋友圈”的想法，但实际上，它们并不容易被发现。三趾树懒也被称为僧侣树懒或侏儒树懒，是巴拿马加勒比海沿岸的一个小岛——埃斯库多岛上的特有物种。这种树懒的体型明显小于其他种类的树懒，长约20英寸，重约5.5至7.7磅。不幸的是，在国际自然保护联盟的名单上，侏三趾树懒已被列为极度濒危物种。
-
-三趾树懒和二趾树懒一样，也是游泳健将。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a0%91%e6%87%92&form=hpcapt&filters=HpDate:"20231019_1600" "Bing Wallpaper 2023 10月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231020_PygmySloth"&FORM=HPQUIZ "必应主页测验 2023 10月 20")
-[下载480](https://cn.bing.com/th?id=OHR.PygmySloth_ZH-CN4739853522_800x480.jpg&rf=LaDigue_800x480.jpg "俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马")
-[下载720](https://cn.bing.com/th?id=OHR.PygmySloth_ZH-CN4739853522_1280x720.jpg&rf=LaDigue_1280x720.jpg "俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马")
-[下载1080](https://cn.bing.com/th?id=OHR.PygmySloth_ZH-CN4739853522_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马")
-[下载UHD](https://cn.bing.com/th?id=OHR.PygmySloth_ZH-CN4739853522_UHD.jpg&rf=LaDigue_UHD.jpg "俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马")
 
 ---
