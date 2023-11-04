@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月05日：宁静之地
+#### 石英岩地层，普拉亚德尔锡伦西奥，西班牙（© Jean-Philippe Delobelle/Minden Pictures）
+
+![宁静之地](https://cn.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_800x480.jpg&rf=LaDigue_800x480.jpg "宁静之地")
+
+西班牙的阿斯图里亚斯地区以其自然美景、丰富的艺术遗产和美食而闻名。此外，该地区还有许多隐藏的“宝藏”，照片上的“寂静海滩”就是其中之一。寂静海滩是一个贝壳形状的小海湾，该地不仅环境清幽，还有一个天然的露天岩石剧场。海滩远离市区，没有商业气息和喧闹的人群。在这里，险峻的悬崖和金色的沙滩是散心冥想的理想之地，而附近的洞穴和水上活动则为渴望冒险的游客提供了刺激的体验。
+
+虽然阿斯图里亚斯以海鲜而闻名，但是当地最具代表性的美食却是阿斯图里亚斯炖豆。这道炖菜食材丰富，由白豆、猪肩肉、西班牙血肠和辣香肠烩制而成。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e9%98%bf%e6%96%af%e5%9b%be%e9%87%8c%e4%ba%9a%e6%96%af&form=hpcapt&filters=HpDate:"20231104_1600" "Bing Wallpaper 2023 11月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231105_SilencioSpain"&FORM=HPQUIZ "必应主页测验 2023 11月 5")
+[下载480](https://cn.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_800x480.jpg&rf=LaDigue_800x480.jpg "石英岩地层，普拉亚德尔锡伦西奥，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_1280x720.jpg&rf=LaDigue_1280x720.jpg "石英岩地层，普拉亚德尔锡伦西奥，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "石英岩地层，普拉亚德尔锡伦西奥，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_UHD.jpg&rf=LaDigue_UHD.jpg "石英岩地层，普拉亚德尔锡伦西奥，西班牙")
+
+---
 ### 11月04日：为寒冷而生！
 #### 美洲野牛，黄石国家公园，怀俄明州，美国（© Gary Gray/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_1280x720.jpg&rf=LaDigue_1280x720.jpg "哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_UHD.jpg&rf=LaDigue_UHD.jpg "哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国")
-
----
-### 10月21日：哇，真是松了一口气！
-#### 波斯古城波斯波利斯的浮雕，伊朗（© Ozbalci/Getty Images）
-
-![哇，真是松了一口气！](https://cn.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_800x480.jpg&rf=LaDigue_800x480.jpg "哇，真是松了一口气！")
-
-古迹是历史的见证，更是文化的传承。每年十月的第三个星期六是国际考古日，这一天，世界各地的考古组织会举办丰富的活动，如寻宝游戏、讲座和互动研讨会，所有这些活动都是为了唤醒人们内心的冒险精神，激发大家对过去的好奇心，了解考古的意义和更多的文化遗产知识。
-
-探索波斯波利斯的历史可以追溯到17世纪初，楔形文字也随之重现于世。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b3%a2%e6%96%af%e6%b3%a2%e5%88%a9%e6%96%af&form=hpcapt&filters=HpDate:"20231020_1600" "Bing Wallpaper 2023 10月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231021_PersepolisRelief"&FORM=HPQUIZ "必应主页测验 2023 10月 21")
-[下载480](https://cn.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_800x480.jpg&rf=LaDigue_800x480.jpg "波斯古城波斯波利斯的浮雕，伊朗")
-[下载720](https://cn.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_1280x720.jpg&rf=LaDigue_1280x720.jpg "波斯古城波斯波利斯的浮雕，伊朗")
-[下载1080](https://cn.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波斯古城波斯波利斯的浮雕，伊朗")
-[下载UHD](https://cn.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_UHD.jpg&rf=LaDigue_UHD.jpg "波斯古城波斯波利斯的浮雕，伊朗")
 
 ---
