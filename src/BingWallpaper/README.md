@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月06日：照亮你忧郁的心
+#### 佩霍湖，百内国家公园，智利南部（© OST/Getty Images）
+
+![照亮你忧郁的心](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_800x480.jpg&rf=LaDigue_800x480.jpg "照亮你忧郁的心")
+
+蓝绿色的湖面上倒映着蔚蓝的天空，周围是嶙峋的山峰和郁郁葱葱的森林，这就是佩霍湖。这个冰川湖坐落在智利南部的百内国家公园内，是大自然的杰作。佩霍湖周围那高耸入云的百内犄角山（因形状酷似牛角而得名）和百内山丘也是一道特别的风景线。佩霍湖的湖水呈现出独特的绿松石蓝，是因为水中悬浮着被称为冰川粉或岩粉的细小岩石颗粒和矿物质。据说“Paine”（百内）一词源于特维尔切语，意为“蓝色”。1978年，百内国家公园被联合国教科文组织认定为生物圈保护区，其面积达700平方英里。徒步、划船、观星……公园里有许多精彩的游玩项目，带上你的冒险精神，向南出发，来一段“告别忧郁”之旅吧！
+
+百内国家公园是“世界尽头之路”旅游风景线上的其中一个景点，平均每年接待约252000名游客，其中54%都是外国游客。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%99%be%e5%86%85%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231105_1600" "Bing Wallpaper 2023 11月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231106_LagoPehoe"&FORM=HPQUIZ "必应主页测验 2023 11月 6")
+[下载480](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_800x480.jpg&rf=LaDigue_800x480.jpg "佩霍湖，百内国家公园，智利南部")
+[下载720](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_1280x720.jpg&rf=LaDigue_1280x720.jpg "佩霍湖，百内国家公园，智利南部")
+[下载1080](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩霍湖，百内国家公园，智利南部")
+[下载UHD](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_UHD.jpg&rf=LaDigue_UHD.jpg "佩霍湖，百内国家公园，智利南部")
+
+---
 ### 11月05日：宁静之地
 #### 石英岩地层，普拉亚德尔锡伦西奥，西班牙（© Jean-Philippe Delobelle/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_UHD.jpg&rf=LaDigue_UHD.jpg "塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国")
-
----
-### 10月22日：一条用桁架架起来的公路
-#### 哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国（© Dan Mihai/Getty Images）
-
-![一条用桁架架起来的公路](https://cn.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_800x480.jpg&rf=LaDigue_800x480.jpg "一条用桁架架起来的公路")
-
-1805年，梅里韦瑟·刘易斯和威廉·克拉克从圣路易斯附近出发，开始了他们传奇的北美探险。穿越平原、山脉和森林，历时近两年，他们最终抵达了这个地方，目之所及是滚滚江水西去的壮阔景象，浩浩荡荡的哥伦比亚河注入太平洋，无边无际的海水一直延伸至地平线。1811年，美国毛皮公司在附近建立了阿斯托里亚堡，这是美国在西海岸的第一个殖民地。155年后，图中的阿斯托里亚-梅格勒大桥竣工通车。这是一座横跨哥伦比亚河的连续桁架桥，101号美国国道从大桥上经过，连接洛杉矶和华盛顿奥林匹亚。来自美国7个州和加拿大2个省的水流经哥伦比亚河，穿过这座全长约21474英尺，北美最长的连续桁架桥。
-
-按流量计算，哥伦比亚河是美国第四大河流。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%93%a5%e4%bc%a6%e6%af%94%e4%ba%9a%e6%b2%b3&form=hpcapt&filters=HpDate:"20231021_1600" "Bing Wallpaper 2023 10月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231022_AstoriaBridge"&FORM=HPQUIZ "必应主页测验 2023 10月 22")
-[下载480](https://cn.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_800x480.jpg&rf=LaDigue_800x480.jpg "哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_1280x720.jpg&rf=LaDigue_1280x720.jpg "哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_UHD.jpg&rf=LaDigue_UHD.jpg "哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国")
 
 ---
