@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月07日：瞭望塔上，一睹奇景！
+#### Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛（© MNStudio/Shutterstock）
+
+![瞭望塔上，一睹奇景！](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_800x480.jpg&rf=LaDigue_800x480.jpg "瞭望塔上，一睹奇景！")
+
+Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺，是现代建筑魅力和创意结合的典范。站在瞭望塔上，你可以一览Kirkilai喀斯特湖的美景。Kirkilai喀斯特湖是由可溶性岩石（如石膏和石灰岩）溶解而成的自然奇观。随着时间的推移，这些岩石中的洞穴逐渐被溶蚀、坍塌，形成清澈透亮的洼地积水，最终造就了独特迷人的喀斯特风光。互相连通的湖泊与周围郁郁葱葱的植被相映成趣，为自然爱好者打造了一个绝美的天堂。
+
+比尔扎伊地区公园以天坑而闻名。目前，该公园已发现约9000个天坑，其中最著名的是深约20米的奶牛洞。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ab%8b%e9%99%b6%e5%ae%9b&form=hpcapt&filters=HpDate:"20231106_1600" "Bing Wallpaper 2023 11月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231107_KirkilaiTower"&FORM=HPQUIZ "必应主页测验 2023 11月 7")
+[下载480](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_800x480.jpg&rf=LaDigue_800x480.jpg "Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛")
+[下载720](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_1280x720.jpg&rf=LaDigue_1280x720.jpg "Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛")
+[下载1080](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛")
+[下载UHD](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_UHD.jpg&rf=LaDigue_UHD.jpg "Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛")
+
+---
 ### 11月06日：照亮你忧郁的心
 #### 佩霍湖，百内国家公园，智利南部（© OST/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_1280x720.jpg&rf=LaDigue_1280x720.jpg "桑佩伦山上的菲泽尔城堡，匈牙利")
 [下载1080](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "桑佩伦山上的菲泽尔城堡，匈牙利")
 [下载UHD](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_UHD.jpg&rf=LaDigue_UHD.jpg "桑佩伦山上的菲泽尔城堡，匈牙利")
-
----
-### 10月23日：“迷”人之境
-#### 塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国（© Alex Potemkin/Getty Images）
-
-![“迷”人之境](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_800x480.jpg&rf=LaDigue_800x480.jpg "“迷”人之境")
-
-宾夕法尼亚州波科诺斯地区的迷宫是体验美国乡村风情的绝佳选择，这里的秋季活动给游客提供了令人窒息的挑战。迷宫占地11英亩，每年都会推出新颖独特的迷宫设计，使其成为9月和10月的热门景点。
-
-塞勒斯堡是美洲黑熊、灰狐和红狐等野生动物的家园。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%ae%be%e5%a4%95%e6%b3%95%e5%b0%bc%e4%ba%9a%e5%b7%9e&form=hpcapt&filters=HpDate:"20231022_1600" "Bing Wallpaper 2023 10月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231023_PoconosMaze"&FORM=HPQUIZ "必应主页测验 2023 10月 23")
-[下载480](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_800x480.jpg&rf=LaDigue_800x480.jpg "塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_UHD.jpg&rf=LaDigue_UHD.jpg "塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国")
 
 ---
