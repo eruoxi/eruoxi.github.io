@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月08日：冬日里的壮丽美景
+#### 黄山的日落，安徽省，中国（© Nantapon Pattamakijsakul/Getty Images）
+
+![冬日里的壮丽美景](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_800x480.jpg&rf=LaDigue_800x480.jpg "冬日里的壮丽美景")
+
+立冬是中国二十四节气中的第十九个节气。 这也是冬天的开始。在南方，初冬时节一般都不是很冷。随着时间的推移，冬至后冷空气频繁南下，气温逐渐下降。入冬后，北方大部分地区将出现雨雪降温天气。华北部分地区此时常下初雪。
+
+自唐代至清末，有关黄山的诗词有2万多首，并有一个画派因此而得名。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e9%bb%84%e5%b1%b1&form=hpcapt&filters=HpDate:"20231107_1600" "Bing Wallpaper 2023 11月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231108_LiDong2023"&FORM=HPQUIZ "必应主页测验 2023 11月 8")
+[下载480](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_800x480.jpg&rf=LaDigue_800x480.jpg "黄山的日落，安徽省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄山的日落，安徽省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄山的日落，安徽省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_UHD.jpg&rf=LaDigue_UHD.jpg "黄山的日落，安徽省，中国")
+
+---
 ### 11月07日：瞭望塔上，一睹奇景！
 #### Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛（© MNStudio/Shutterstock）
 
@@ -235,22 +252,5 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.GrandStaircase_ZH-CN5928937512_1280x720.jpg&rf=LaDigue_1280x720.jpg "大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.GrandStaircase_ZH-CN5928937512_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GrandStaircase_ZH-CN5928937512_UHD.jpg&rf=LaDigue_UHD.jpg "大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国")
-
----
-### 10月24日：这片迷雾密布的树林里潜藏着什么?
-#### 桑佩伦山上的菲泽尔城堡，匈牙利（© ZGPhotography/Alamy）
-
-![这片迷雾密布的树林里潜藏着什么?](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_800x480.jpg&rf=LaDigue_800x480.jpg "这片迷雾密布的树林里潜藏着什么?")
-
-匈牙利是一个历史悠久、风景迷人的国家，也是一个拥有众多城堡的宝库。从布达佩斯那拥有富丽堂皇的建筑并可以俯瞰多瑙河美景的布达城堡，到因成功抵御近四万土耳其大军而闻名的埃格尔城堡，每座城堡都讲述着各自关于战争、皇室和文化演变的故事。
-
-位于桑佩伦山脉的陡峭山峰是许多中世纪石头城堡的基地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8c%88%e7%89%99%e5%88%a9&form=hpcapt&filters=HpDate:"20231023_1600" "Bing Wallpaper 2023 10月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231024_FuzerCastle"&FORM=HPQUIZ "必应主页测验 2023 10月 24")
-[下载480](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_800x480.jpg&rf=LaDigue_800x480.jpg "桑佩伦山上的菲泽尔城堡，匈牙利")
-[下载720](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_1280x720.jpg&rf=LaDigue_1280x720.jpg "桑佩伦山上的菲泽尔城堡，匈牙利")
-[下载1080](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "桑佩伦山上的菲泽尔城堡，匈牙利")
-[下载UHD](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_UHD.jpg&rf=LaDigue_UHD.jpg "桑佩伦山上的菲泽尔城堡，匈牙利")
 
 ---
