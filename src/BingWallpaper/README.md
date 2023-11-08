@@ -1,8 +1,25 @@
 ## Bing Wallpaper(最近15天)
+### 11月09日：秋天的影子
+#### 秋天的白桦树，德拉门，挪威（© Baac3nes/Getty Images）
+
+![秋天的影子](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_800x480.jpg&rf=LaDigue_800x480.jpg "秋天的影子")
+
+挪威有许多美丽的自然景观，白桦林就是其中之一。挪威的德拉门市坐落在峡湾之中，被“银色森林”环绕，是户外运动爱好者的天堂。白桦树在高海拔地区生长茂盛，是山区一道独特的风景线。夏去秋来，白桦树的叶子变成了金黄色和深红色，与细长的树干和洁白的树皮形成了鲜明的对比。这种季节变化令人叹为观止，所以白桦树也象征着希望和新生。白桦树不仅具有观赏价值，还为野生动物提供了栖息地和食物，也可以用作柴火和建筑材料。
+
+白桦树雌雄同株，也就是说每棵白桦树都有雄花和雌花。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%99%bd%e6%a1%a6%e6%a0%91&form=hpcapt&filters=HpDate:"20231108_1600" "Bing Wallpaper 2023 11月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231109_NorwayBirch"&FORM=HPQUIZ "必应主页测验 2023 11月 9")
+[下载480](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_800x480.jpg&rf=LaDigue_800x480.jpg "秋天的白桦树，德拉门，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋天的白桦树，德拉门，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋天的白桦树，德拉门，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg&rf=LaDigue_UHD.jpg "秋天的白桦树，德拉门，挪威")
+
+---
 ### 11月08日：冬日里的壮丽美景
 #### 黄山的日落，安徽省，中国（© Nantapon Pattamakijsakul/Getty Images）
 
-![冬日里的壮丽美景](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_800x480.jpg&rf=LaDigue_800x480.jpg "冬日里的壮丽美景")
+![冬日里的壮丽美景](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_800x480.jpg&rf=LaDigue_800x480.jpg "冬日里的壮丽美景")
 
 立冬是中国二十四节气中的第十九个节气。 这也是冬天的开始。在南方，初冬时节一般都不是很冷。随着时间的推移，冬至后冷空气频繁南下，气温逐渐下降。入冬后，北方大部分地区将出现雨雪降温天气。华北部分地区此时常下初雪。
 
@@ -10,10 +27,10 @@
 
 [Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e9%bb%84%e5%b1%b1&form=hpcapt&filters=HpDate:"20231107_1600" "Bing Wallpaper 2023 11月 8")
 [必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231108_LiDong2023"&FORM=HPQUIZ "必应主页测验 2023 11月 8")
-[下载480](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_800x480.jpg&rf=LaDigue_800x480.jpg "黄山的日落，安徽省，中国")
-[下载720](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄山的日落，安徽省，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄山的日落，安徽省，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_UHD.jpg&rf=LaDigue_UHD.jpg "黄山的日落，安徽省，中国")
+[下载480](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_800x480.jpg&rf=LaDigue_800x480.jpg "黄山的日落，安徽省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄山的日落，安徽省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄山的日落，安徽省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_UHD.jpg&rf=LaDigue_UHD.jpg "黄山的日落，安徽省，中国")
 
 ---
 ### 11月07日：瞭望塔上，一睹奇景！
@@ -235,22 +252,5 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_1280x720.jpg&rf=LaDigue_1280x720.jpg "美泉宫公园的秋叶，维也纳，奥地利")
 [下载1080](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美泉宫公园的秋叶，维也纳，奥地利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_UHD.jpg&rf=LaDigue_UHD.jpg "美泉宫公园的秋叶，维也纳，奥地利")
-
----
-### 10月25日：秋天的一抹金色
-#### 大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国（© Jeff Foott/Minden Pictures）
-
-![秋天的一抹金色](https://cn.bing.com/th?id=OHR.GrandStaircase_ZH-CN5928937512_800x480.jpg&rf=LaDigue_800x480.jpg "秋天的一抹金色")
-
-大阶梯-埃斯卡兰特国家纪念碑是一片由悬崖和峡谷组成的荒野，坐落在犹他州南部的中心地带。 大阶梯由五个雄伟的砂岩悬崖组成，高约 5,500 英尺，横跨纪念碑的广阔区域。 每一步都展示了地球地质历史中的不同时代，展示了地球上任何其他地方都无法比拟的时间。 考古学家发现了 7500 万年前白垩纪时期的史前文物、硅化木和化石。 在人类历史上，普韦布洛人和弗里蒙特人的祖先在这片充满挑战的地形上掌握了农耕艺术。 他们巧妙地建造了粮仓来储存和保存丰收的粮食。 如今，这里已成为自然爱好者和寻求冒险的旅行者的绝佳度假胜地。
-
-2002年，纪念碑的一名志愿者在亚利桑那州边境附近发现了一只7500万年前的恐龙化石。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e9%98%b6%e6%a2%af%e5%9f%83%e6%96%af%e5%8d%a1%e5%85%b0%e7%89%b9%e5%9b%bd%e5%ae%b6%e7%ba%aa%e5%bf%b5%e5%8c%ba&form=hpcapt&filters=HpDate:"20231024_1600" "Bing Wallpaper 2023 10月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231025_GrandStaircase"&FORM=HPQUIZ "必应主页测验 2023 10月 25")
-[下载480](https://cn.bing.com/th?id=OHR.GrandStaircase_ZH-CN5928937512_800x480.jpg&rf=LaDigue_800x480.jpg "大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.GrandStaircase_ZH-CN5928937512_1280x720.jpg&rf=LaDigue_1280x720.jpg "大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.GrandStaircase_ZH-CN5928937512_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.GrandStaircase_ZH-CN5928937512_UHD.jpg&rf=LaDigue_UHD.jpg "大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国")
 
 ---
