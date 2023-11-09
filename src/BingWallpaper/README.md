@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月10日：还不错的荒地
+#### 恶地国家公园，南达科他州，美国（© Grant Ordelheide/Tandem Stills + Motion）
+
+![还不错的荒地](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_800x480.jpg&rf=LaDigue_800x480.jpg "还不错的荒地")
+
+这张密集分层的图像是不是让你产生屏幕坏掉的错觉？这其实是南达科他州恶地国家公园里迷人的化石层，五彩斑斓的岩石层下隐藏着这片土地的历史，保存着古代马、骆驼、老虎和犀牛等动物的遗骸。这片以崎岖石阵和草原为装饰的不毛之地，主要是由沉积和侵蚀这两种相反的自然力量共同雕琢而成。红衬衫台，海拔3340英尺，是恶地国家公园内的最高点。该公园占地379平方英里，于1978年11月10日被指定为国家公园。如果你还想多方面地了解恶地国家公园，可以参观公园内的博物馆藏品，那里有超过360，000件物品等待你去探索！
+
+恶地国家公园因其独特的地貌和丰富的化石遗迹而闻名于世。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%81%b6%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231109_1600" "Bing Wallpaper 2023 11月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231110_BadlandsSunrise"&FORM=HPQUIZ "必应主页测验 2023 11月 10")
+[下载480](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_800x480.jpg&rf=LaDigue_800x480.jpg "恶地国家公园，南达科他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_1280x720.jpg&rf=LaDigue_1280x720.jpg "恶地国家公园，南达科他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "恶地国家公园，南达科他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_UHD.jpg&rf=LaDigue_UHD.jpg "恶地国家公园，南达科他州，美国")
+
+---
 ### 11月09日：秋天的影子
 #### 秋天的白桦树，德拉门，挪威（© Baac3nes/Getty Images）
 
@@ -235,22 +252,5 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯利加坎老桥，苏格兰斯凯岛")
 [下载1080](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯利加坎老桥，苏格兰斯凯岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_UHD.jpg&rf=LaDigue_UHD.jpg "斯利加坎老桥，苏格兰斯凯岛")
-
----
-### 10月26日：落叶爱好者的天堂
-#### 美泉宫公园的秋叶，维也纳，奥地利（© rusm/Getty Images）
-
-![落叶爱好者的天堂](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_800x480.jpg&rf=LaDigue_800x480.jpg "落叶爱好者的天堂")
-
-1743年，玛丽亚·特蕾莎皇后决定对奥地利美泉宫进行豪华改建，直至1918年，它一直是哈布斯堡王朝皇帝们钟爱的住所。美泉宫是巴洛克时代真正的瑰宝，它拥有郁郁葱葱的花园和世界上现存最古老的公共动物园。如今，这些华丽的建筑和美丽的花园都归奥地利政府所有。公园里的小径，绿树成荫，让人远离城市的喧嚣与嘈杂，漫步其中，仿佛回到了18世纪，神秘又浪漫。
-
-维也纳美泉宫的花园及宫殿曾是许多影视作品的取景地，如20世纪50年代上映的《茜茜公主》三部曲、索菲娅·罗兰主演的《深宫春色》。此外，《007之黎明生机》中邦德（提摩西·道尔顿饰）和卡拉骑马经过宫殿花园时的场景也是在这里拍摄的。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%bb%b4%e4%b9%9f%e7%ba%b3%e7%be%8e%e6%b3%89%e5%ae%ab%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231025_1600" "Bing Wallpaper 2023 10月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231026_ViennaAutumn"&FORM=HPQUIZ "必应主页测验 2023 10月 26")
-[下载480](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_800x480.jpg&rf=LaDigue_800x480.jpg "美泉宫公园的秋叶，维也纳，奥地利")
-[下载720](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_1280x720.jpg&rf=LaDigue_1280x720.jpg "美泉宫公园的秋叶，维也纳，奥地利")
-[下载1080](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美泉宫公园的秋叶，维也纳，奥地利")
-[下载UHD](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_UHD.jpg&rf=LaDigue_UHD.jpg "美泉宫公园的秋叶，维也纳，奥地利")
 
 ---
