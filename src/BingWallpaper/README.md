@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月11日：如诗如画的地方
+#### 富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利（© Achim Thomae/Getty Images）
+
+![如诗如画的地方](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_800x480.jpg&rf=LaDigue_800x480.jpg "如诗如画的地方")
+
+南蒂罗尔是意大利的一个自治省，该地区以其高品质的生活而闻名。意大利语、德语和拉丁语都是这里的官方语言，每种语言都有自己的传统和文化。此外，这里既有诸如梅拉诺、博尔扎诺以及布雷萨诺内等美丽的城市，也有科尔蒂纳丹佩佐、加迪纳山谷和阿尔塔巴迪亚之类的著名滑雪胜地，还有世界闻名的酒庄。而且不少酒庄还伴有风景如画的湖泊。说起湖泊，就不得不提到卡雷扎湖，该湖泊也被称为彩虹湖或“多洛米蒂的童话湖”，是多洛米蒂最美丽的高山湖泊之一。
+
+德语和意大利语都是南蒂罗尔的官方语言。在该省的一些东部城市，拉丁语是第三官方语言。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%97%e8%92%82%e7%bd%97%e5%b0%94&form=hpcapt&filters=HpDate:"20231110_1600" "Bing Wallpaper 2023 11月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231111_ValDiFunes"&FORM=HPQUIZ "必应主页测验 2023 11月 11")
+[下载480](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_800x480.jpg&rf=LaDigue_800x480.jpg "富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_1280x720.jpg&rf=LaDigue_1280x720.jpg "富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_UHD.jpg&rf=LaDigue_UHD.jpg "富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利")
+
+---
 ### 11月10日：还不错的荒地
 #### 恶地国家公园，南达科他州，美国（© Grant Ordelheide/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡斯蒂利亚-拉曼恰的风车，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡斯蒂利亚-拉曼恰的风车，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_UHD.jpg&rf=LaDigue_UHD.jpg "卡斯蒂利亚-拉曼恰的风车，西班牙")
-
----
-### 10月27日：魔法之河深不见底
-#### 斯利加坎老桥，苏格兰斯凯岛（© Aliaume Chapelle/Tandem Stills + Motion）
-
-![魔法之河深不见底](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_800x480.jpg&rf=LaDigue_800x480.jpg "魔法之河深不见底")
-
-迷人的苏格兰斯凯岛上有一座斯利加坎老桥，在19世纪初，才华横溢的苏格兰土木工程师托马斯·特尔福德设计并建造了这座桥梁。桥拱横跨斯利加坎河，桥面仅供骑行者和行人通过，在河流下游有一座现代桥梁用于汽车通行。站在桥面那饱经风霜、朴素且长满青苔的石头上，游客可以眺望远处雄伟的库林山脉。根据当地的传说，斯利加坎河中蕴含着仙女赐予的神秘祝福，而那些敢于将脸浸入河水中的人，则会获得永久的美貌。
-
-斯利加坎是苏格兰斯凯岛上一个小型聚居地。它靠近库林山脉，是观赏黑库林山的绝佳位置。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8b%8f%e6%a0%bc%e5%85%b0%e6%96%af%e5%87%af%e5%b2%9b&form=hpcapt&filters=HpDate:"20231026_1600" "Bing Wallpaper 2023 10月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231027_OldBridgeSkye"&FORM=HPQUIZ "必应主页测验 2023 10月 27")
-[下载480](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_800x480.jpg&rf=LaDigue_800x480.jpg "斯利加坎老桥，苏格兰斯凯岛")
-[下载720](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯利加坎老桥，苏格兰斯凯岛")
-[下载1080](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯利加坎老桥，苏格兰斯凯岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_UHD.jpg&rf=LaDigue_UHD.jpg "斯利加坎老桥，苏格兰斯凯岛")
 
 ---
