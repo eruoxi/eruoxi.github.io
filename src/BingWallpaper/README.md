@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月12日：我所有的小鸭子们
+#### 秋天池塘里的两只绿头鸭（© sun ok/Shutterstock）
+
+![我所有的小鸭子们](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_800x480.jpg&rf=LaDigue_800x480.jpg "我所有的小鸭子们")
+
+绿头鸭，又名野鸭，是世界上分布最广的鸭科动物之一。你知道在20世纪以前，绿头鸭在德国曾被称为三月鸭吗？绿头鸭有着醒目的羽毛，很容易辨认。雄性绿头鸭，被称为公鸭，以其彩色的翅膀和绿色的头部而闻名，而母鸭的颜色则是不起眼的棕色。绿头鸭以植物、昆虫和小鱼为食，并且具有很强的适应性。无论是在城市公园，还是湖泊和河流中，你都能见到它们的身影。而正是这种适应性以及色彩斑斓的羽毛，使得绿头鸭成为一种令人瞩目的鸟类。
+
+你知道绿头鸭在20世纪之前被称为三月鸭吗？
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%bb%bf%e5%a4%b4%e9%b8%ad&form=hpcapt&filters=HpDate:"20231111_1600" "Bing Wallpaper 2023 11月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231112_MallarDucks"&FORM=HPQUIZ "必应主页测验 2023 11月 12")
+[下载480](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_800x480.jpg&rf=LaDigue_800x480.jpg "秋天池塘里的两只绿头鸭")
+[下载720](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋天池塘里的两只绿头鸭")
+[下载1080](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋天池塘里的两只绿头鸭")
+[下载UHD](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_UHD.jpg&rf=LaDigue_UHD.jpg "秋天池塘里的两只绿头鸭")
+
+---
 ### 11月11日：如诗如画的地方
 #### 富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利（© Achim Thomae/Getty Images）
 
@@ -235,22 +252,5 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_1280x720.jpg&rf=LaDigue_1280x720.jpg "博纳温彻墓地，萨凡纳，佐治亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博纳温彻墓地，萨凡纳，佐治亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg&rf=LaDigue_UHD.jpg "博纳温彻墓地，萨凡纳，佐治亚州，美国")
-
----
-### 10月28日：西班牙骑士的“劲敌”
-#### 卡斯蒂利亚-拉曼恰的风车，西班牙（© Getty Images）
-
-![西班牙骑士的“劲敌”](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_800x480.jpg&rf=LaDigue_800x480.jpg "西班牙骑士的“劲敌”")
-
-在孔苏埃格拉小镇上，到处都流传着堂吉诃德的冒险故事，他是塞万提斯笔下的英雄，是西班牙史诗小说《堂吉诃德》的主人公。这个位于卡斯蒂利亚-拉曼恰的旅游胜地因一座名为卡尔德里科的小山丘而出名。这座山丘顶部有12座白色风车，或许正是这些风车激发了塞万提斯的灵感。在小说中，塞万提斯将它们描绘成一支巨人军队。风车由石墙和木制叶片构成，其中一些风车的历史可追溯到16世纪，它们曾是碾磨谷物的工具，如今成为见证历史的活化石。
-
-《堂吉诃德》是世界上被翻译最多的书籍之一，也是有史以来最畅销的小说之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e6%96%af%e8%92%82%e5%88%a9%e4%ba%9a-%e6%8b%89%e6%9b%bc%e6%81%b0&form=hpcapt&filters=HpDate:"20231027_1600" "Bing Wallpaper 2023 10月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231028_FiveWinds"&FORM=HPQUIZ "必应主页测验 2023 10月 28")
-[下载480](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_800x480.jpg&rf=LaDigue_800x480.jpg "卡斯蒂利亚-拉曼恰的风车，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡斯蒂利亚-拉曼恰的风车，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡斯蒂利亚-拉曼恰的风车，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_UHD.jpg&rf=LaDigue_UHD.jpg "卡斯蒂利亚-拉曼恰的风车，西班牙")
 
 ---
