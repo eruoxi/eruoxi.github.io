@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月13日：从树上到餐桌之上
+#### 特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙（© cinoby/Getty Images）
+
+![从树上到餐桌之上](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_800x480.jpg&rf=LaDigue_800x480.jpg "从树上到餐桌之上")
+
+巴利阿里群岛之一的西班牙马略卡岛种植橄榄的历史可以追溯到2000多年前。腓尼基人和希腊人是这里的早期定居者，他们将第一批橄榄树引进这个岛屿，北海岸的特拉蒙塔纳山脉是这些橄榄树的故乡。在伊斯兰时代，由于橄榄园的不断扩大，橄榄油开始在马略卡岛美食和烹饪传统中担任重要角色。
+
+波兰作曲家兼钢琴家弗雷德里克·肖邦  与法国作家阿曼丁·露西尔·奥罗尔·杜潘 （笔名：乔治·桑）于1838-39年冬天居住在巴尔德莫萨。在马略卡岛的时光对肖邦来说是一个多产的时期。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e9%a9%ac%e7%95%a5%e5%8d%a1%e5%b2%9b&form=hpcapt&filters=HpDate:"20231112_1600" "Bing Wallpaper 2023 11月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231113_OliveOrchard"&FORM=HPQUIZ "必应主页测验 2023 11月 13")
+[下载480](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_800x480.jpg&rf=LaDigue_800x480.jpg "特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_1280x720.jpg&rf=LaDigue_1280x720.jpg "特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_UHD.jpg&rf=LaDigue_UHD.jpg "特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙")
+
+---
 ### 11月12日：我所有的小鸭子们
 #### 秋天池塘里的两只绿头鸭（© sun ok/Shutterstock）
 
@@ -235,22 +252,5 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_1280x720.jpg&rf=LaDigue_1280x720.jpg "普通乌鸦坐在树枝上")
 [下载1080](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普通乌鸦坐在树枝上")
 [下载UHD](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_UHD.jpg&rf=LaDigue_UHD.jpg "普通乌鸦坐在树枝上")
-
----
-### 10月29日：天黑后，你还敢待在这里吗？
-#### 博纳温彻墓地，萨凡纳，佐治亚州，美国（© Kelly vanDellen/Alamy）
-
-![天黑后，你还敢待在这里吗？](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_800x480.jpg&rf=LaDigue_800x480.jpg "天黑后，你还敢待在这里吗？")
-
-公墓通常不是人们想要探索的首选地，但佐治亚州萨凡纳的博纳温彻墓地却打破了这种想法。这座城市通常被称为美国闹鬼最严重的城市，所以恐怖事物爱好者和那些缅怀逝去亲人的人都会在这里齐聚一堂。这座墓地坐落在可以俯瞰威尔明顿河的悬崖上，自1846年以来就一直存在。墓地的橡树上挂满了西班牙苔藓，笼罩着人行道、纪念碑和精美的墓穴。你是不是觉得这听起来像是走进了一部南方哥特式小说？那就对了！这个占地160英亩的墓地正是约翰·伯兰特于1994年出版的畅销书《午夜善恶花园》中的主角。从诗人康拉德·艾肯到歌词作者约翰尼·默瑟，许多名人都葬在这里。在墓地的众多居民中，你会发现小格雷西·沃森：她是一座真人大小的大理石雕像，平静地注视着往来的游客，令人毛骨悚然。据说，她的灵魂仍在该地徘徊着。你想见见她吗？
-
-畅销书《午夜善恶花园》的封面照片是由杰克·李拍摄的，照片上有一个引人遐想的年轻女孩的雕塑。这个女孩被称为“鸟女”，已经默默无闻地在墓地里呆了50多年。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bd%90%e6%b2%bb%e4%ba%9a%e5%b7%9e%e8%90%a8%e5%87%a1%e7%ba%b3&form=hpcapt&filters=HpDate:"20231028_1600" "Bing Wallpaper 2023 10月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231029_SavannahSculpture"&FORM=HPQUIZ "必应主页测验 2023 10月 29")
-[下载480](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_800x480.jpg&rf=LaDigue_800x480.jpg "博纳温彻墓地，萨凡纳，佐治亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_1280x720.jpg&rf=LaDigue_1280x720.jpg "博纳温彻墓地，萨凡纳，佐治亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博纳温彻墓地，萨凡纳，佐治亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg&rf=LaDigue_UHD.jpg "博纳温彻墓地，萨凡纳，佐治亚州，美国")
 
 ---
