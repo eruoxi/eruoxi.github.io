@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月14日：让人又爱又恨的花田
+#### 特卡波湖沿岸的鲁冰花，南岛，新西兰（© Jeffrey Lewis/Tandem Stills + Motion）
+
+![让人又爱又恨的花田](https://cn.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_800x480.jpg&rf=LaDigue_800x480.jpg "让人又爱又恨的花田")
+
+图上展示的是新西兰南岛特卡波湖的美景。每年的11月中旬到12月，湖面都会发生巨大的变化，色彩鲜艳的鲁冰花竞相绽放，将自然美景提升到新的高度。这些植物盛开的头状花序是由豌豆般的花朵组成，最长可达60英寸。摄影师和自然爱好者们纷纷前来，只为一睹紫色、蓝色和黄色的鲁冰花在特卡波湖上绚丽绽放的风姿。不过，鲁冰花的存在却颇具争议。作为外来入侵植物，他们生长茂密，将其他植物排斥在外。虽然这些鲁冰花可能会吸引游客，但它们破坏了该地区的生态平衡，对该地区的生态系统造成了负面影响。
+
+天气晴朗时，从特卡波湖可以看到库克山国家公园更高处的雪峰。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%b2%81%e5%86%b0%e8%8a%b1&form=hpcapt&filters=HpDate:"20231113_1600" "Bing Wallpaper 2023 11月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231114_RussellLupines"&FORM=HPQUIZ "必应主页测验 2023 11月 14")
+[下载480](https://cn.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_800x480.jpg&rf=LaDigue_800x480.jpg "特卡波湖沿岸的鲁冰花，南岛，新西兰")
+[下载720](https://cn.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_1280x720.jpg&rf=LaDigue_1280x720.jpg "特卡波湖沿岸的鲁冰花，南岛，新西兰")
+[下载1080](https://cn.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特卡波湖沿岸的鲁冰花，南岛，新西兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_UHD.jpg&rf=LaDigue_UHD.jpg "特卡波湖沿岸的鲁冰花，南岛，新西兰")
+
+---
 ### 11月13日：从树上到餐桌之上
 #### 特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙（© cinoby/Getty Images）
 
@@ -235,22 +252,5 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_1280x720.jpg&rf=LaDigue_1280x720.jpg "万圣节南瓜灯")
 [下载1080](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "万圣节南瓜灯")
 [下载UHD](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_UHD.jpg&rf=LaDigue_UHD.jpg "万圣节南瓜灯")
-
----
-### 10月30日：黑衣美人
-#### 普通乌鸦坐在树枝上（© WildMedia/Shutterstock）
-
-![黑衣美人](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_800x480.jpg&rf=LaDigue_800x480.jpg "黑衣美人")
-
-渡鸦是一种聪明且适应性强的鸟类，以其引人注目的外表和调皮的行为而闻名天下。通过其独特的楔形尾巴和富有光泽的黑色羽毛，你可以轻易地辨认出它们。作为成熟的猎人，渡鸦拥有敏锐的视力和敏捷的飞行能力，常以腐肉为食或从其他捕食者那里偷走食物。渡鸦是杂食性动物，它们的食物多种多样，包括腐肉、昆虫和小型哺乳动物。
-
-普通乌鸦是乌鸦家族中最大的成员。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%99%ae%e9%80%9a%e4%b9%8c%e9%b8%a6&form=hpcapt&filters=HpDate:"20231029_1600" "Bing Wallpaper 2023 10月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231030_AutumnRaven"&FORM=HPQUIZ "必应主页测验 2023 10月 30")
-[下载480](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_800x480.jpg&rf=LaDigue_800x480.jpg "普通乌鸦坐在树枝上")
-[下载720](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_1280x720.jpg&rf=LaDigue_1280x720.jpg "普通乌鸦坐在树枝上")
-[下载1080](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普通乌鸦坐在树枝上")
-[下载UHD](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_UHD.jpg&rf=LaDigue_UHD.jpg "普通乌鸦坐在树枝上")
 
 ---
