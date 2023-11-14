@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月15日：想象一下此处的回声
+#### 萨雷克国家公园的拉帕谷，瑞典（© Hans Strand/Getty Images）
+
+![想象一下此处的回声](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_800x480.jpg&rf=LaDigue_800x480.jpg "想象一下此处的回声")
+
+拉帕谷坐落在瑞典萨雷克国家公园内，这里既有河流穿过郁郁葱葱的草地，也有高耸的山峰直插云霄。在瑞典北部的这个国家公园里，麋鹿可以自由地驰骋，金雕在空中翱翔，踪迹难寻的北极狐在雪地上留下了痕迹。瑞典拥有众多的国家公园，从阿比斯库国家公园的美景到萨勒克国家公园的陡峭山峰，每个国家公园都是一个奇迹。萨米人自古以来就以这片高山地区以及挪威、芬兰和俄罗斯的部分地区为家，他们的文化遗产与荒野交织在一起。他们以狩猎、放牧和打渔为生，不过最出名的可能还是他们放牧驯鹿的习俗。
+
+拉帕河三角洲被认为是欧洲最著名的景观之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%91%9e%e5%85%b8&form=hpcapt&filters=HpDate:"20231114_1600" "Bing Wallpaper 2023 11月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231115_SarekSweden"&FORM=HPQUIZ "必应主页测验 2023 11月 15")
+[下载480](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_800x480.jpg&rf=LaDigue_800x480.jpg "萨雷克国家公园的拉帕谷，瑞典")
+[下载720](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨雷克国家公园的拉帕谷，瑞典")
+[下载1080](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨雷克国家公园的拉帕谷，瑞典")
+[下载UHD](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_UHD.jpg&rf=LaDigue_UHD.jpg "萨雷克国家公园的拉帕谷，瑞典")
+
+---
 ### 11月14日：让人又爱又恨的花田
 #### 特卡波湖沿岸的鲁冰花，南岛，新西兰（© Jeffrey Lewis/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_1280x720.jpg&rf=LaDigue_1280x720.jpg "上巴尔城堡，阿尔萨斯，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "上巴尔城堡，阿尔萨斯，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_UHD.jpg&rf=LaDigue_UHD.jpg "上巴尔城堡，阿尔萨斯，法国")
-
----
-### 10月31日：恶灵们只想玩个开心。
-#### 万圣节南瓜灯（© Bing Image Creator）
-
-![恶灵们只想玩个开心。](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_800x480.jpg&rf=LaDigue_800x480.jpg "恶灵们只想玩个开心。")
-
-万圣节来了！当你今晚外出时，很有可能会看到一个发光的南瓜，它的名字是“jack-o'-lantern”（南瓜灯）！这个名字源于一则爱尔兰民间传说，故事的主人公是一个名叫吝啬鬼杰克的骗子，他会提着一个挖空了的芜菁做成的灯笼四处游荡。另外，南瓜雕刻也起源于爱尔兰。最初，这种雕刻可怕的面孔和复杂图案的万圣节活动是用芜菁和马铃薯完成的。当爱尔兰人移民到北美时，他们发现南瓜产量很大，而且比其他蔬菜更易于雕刻，于是就改用了南瓜。
-
-万圣节南瓜灯起源于一则爱尔兰传说，故事的主人公名叫“吝啬鬼杰克”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%87%e5%9c%a3%e8%8a%82%e5%8d%97%e7%93%9c%e7%81%af&form=hpcapt&filters=HpDate:"20231030_1600" "Bing Wallpaper 2023 10月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231031_HalloweenCuteAI"&FORM=HPQUIZ "必应主页测验 2023 10月 31")
-[下载480](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_800x480.jpg&rf=LaDigue_800x480.jpg "万圣节南瓜灯")
-[下载720](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_1280x720.jpg&rf=LaDigue_1280x720.jpg "万圣节南瓜灯")
-[下载1080](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "万圣节南瓜灯")
-[下载UHD](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_UHD.jpg&rf=LaDigue_UHD.jpg "万圣节南瓜灯")
 
 ---
