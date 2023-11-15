@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月16日：西方哲学的发源地
+#### 雅典和卫城，希腊（© Mlenny/Getty Images）
+
+![西方哲学的发源地](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_800x480.jpg&rf=LaDigue_800x480.jpg "西方哲学的发源地")
+
+值此世界哲学日之际，我们一起来了解一下希腊首都雅典。这座城市既是欧洲哲学的发源地，也是西方文明的摇篮，其标志性建筑雅典卫城和帕特农神庙让我们想起苏格拉底、柏拉图和亚里士多德的聪明才智。古希腊哲学注重批判性思维和质疑精神，希腊三贤掀起的理性革命，对当今社会仍有深远的影响。联合国教科文组织也通过庆祝世界哲学日，来彰显哲学对人类思想、文化和个人的深远影响。哲学是一门智慧学，今天就花点时间去领略哲学的奥秘吧！
+
+每年11月的第三个星期四是世界哲学日。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%93%b2%e5%ad%a6%e6%97%a5&form=hpcapt&filters=HpDate:"20231115_1600" "Bing Wallpaper 2023 11月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231116_AthensAcropolis"&FORM=HPQUIZ "必应主页测验 2023 11月 16")
+[下载480](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_800x480.jpg&rf=LaDigue_800x480.jpg "雅典和卫城，希腊")
+[下载720](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_1280x720.jpg&rf=LaDigue_1280x720.jpg "雅典和卫城，希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雅典和卫城，希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_UHD.jpg&rf=LaDigue_UHD.jpg "雅典和卫城，希腊")
+
+---
 ### 11月15日：想象一下此处的回声
 #### 萨雷克国家公园的拉帕谷，瑞典（© Hans Strand/Getty Images）
 
@@ -235,22 +252,5 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_1280x720.jpg&rf=LaDigue_1280x720.jpg "恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_UHD.jpg&rf=LaDigue_UHD.jpg "恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国")
-
----
-### 11月01日：你知道“阿尔萨斯之眼”吗？
-#### 上巴尔城堡，阿尔萨斯，法国（© Andrea Pistolesi/Getty Images）
-
-![你知道“阿尔萨斯之眼”吗？](https://cn.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_800x480.jpg&rf=LaDigue_800x480.jpg "你知道“阿尔萨斯之眼”吗？")
-
-上巴尔城堡是一座位于阿尔萨斯北部，海拔450米的中世纪堡垒。它建于1170年，几个世纪以来经历了重大改造和修复。该城堡的建造由斯特拉斯堡的主教发起，旨在监视佐恩山谷和阿尔萨斯平原，因此被赋予了富有诗意的绰号“阿尔萨斯之眼”。天气晴朗时，甚至可以看到斯特拉斯堡大教堂的尖顶。
-
-上巴尔城堡于1770年左右被废弃，但金库一直被占用，直到法国大革命。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e5%b0%94%e8%90%a8%e6%96%af%e5%a4%a7%e5%8c%ba&form=hpcapt&filters=HpDate:"20231031_1600" "Bing Wallpaper 2023 11月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231101_HautBarr"&FORM=HPQUIZ "必应主页测验 2023 11月 1")
-[下载480](https://cn.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_800x480.jpg&rf=LaDigue_800x480.jpg "上巴尔城堡，阿尔萨斯，法国")
-[下载720](https://cn.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_1280x720.jpg&rf=LaDigue_1280x720.jpg "上巴尔城堡，阿尔萨斯，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "上巴尔城堡，阿尔萨斯，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_UHD.jpg&rf=LaDigue_UHD.jpg "上巴尔城堡，阿尔萨斯，法国")
 
 ---
