@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月17日：该给靴子系上鞋带了！
+#### 铜瀑布州立公园的巴德河，威斯康星州，美国（© Big Joe/Getty Images）
+
+![该给靴子系上鞋带了！](https://cn.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_800x480.jpg&rf=LaDigue_800x480.jpg "该给靴子系上鞋带了！")
+
+朋友们，是时候系好登山靴，一起去徒步了！早在20世纪60年代，美国的林登·约翰逊总统就签署了《国家步道系统法案》，旨在保护、推广和开发美国各地的自然和历史资源。还在犹豫去哪里徒步旅行？这里有一个选择：就是图上这座位于威斯康星州的铜瀑布州立公园。从巴德河沿岸那长达17英里步道，到瀑布和古老的熔岩流，这个公园有很多值得一去的地方。无论是崎岖的山路，宁静的林间小道，还是海滨步道，这个国家总有一条步道适合你。但请记住，一定要尊重自然，遵循“不留痕迹”的原则，除了照片什么都别留下。祝你徒步旅行愉快!
+
+2005年，这座公园被列入了美国国家历史名胜古迹名录。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e6%96%af%e5%ba%b7%e6%98%9f%e5%b7%9e&form=hpcapt&filters=HpDate:"20231116_1600" "Bing Wallpaper 2023 11月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231117_BadRiver"&FORM=HPQUIZ "必应主页测验 2023 11月 17")
+[下载480](https://cn.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_800x480.jpg&rf=LaDigue_800x480.jpg "铜瀑布州立公园的巴德河，威斯康星州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_1280x720.jpg&rf=LaDigue_1280x720.jpg "铜瀑布州立公园的巴德河，威斯康星州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "铜瀑布州立公园的巴德河，威斯康星州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_UHD.jpg&rf=LaDigue_UHD.jpg "铜瀑布州立公园的巴德河，威斯康星州，美国")
+
+---
 ### 11月16日：西方哲学的发源地
 #### 雅典和卫城，希腊（© Mlenny/Getty Images）
 
@@ -235,22 +252,5 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_UHD.jpg&rf=LaDigue_UHD.jpg "卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国")
-
----
-### 11月02日：这里，此生值得一去
-#### 恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国（© Jim Patterson/Tandem Stills + Motion）
-
-![这里，此生值得一去](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_800x480.jpg&rf=LaDigue_800x480.jpg "这里，此生值得一去")
-
-沙漠烈日下，恶水盆地的盐滩绵延数英里，在加利福尼亚死亡谷国家公园内熠熠生辉。这里是北美海拔最低的地方，海报高度为-282英尺。在这个仿佛异世界般的景色中，坚硬的矿物表面像镜子一样闪闪发光，炙热的高温在上面跳舞，空气中也掀起了涟漪。盐滩由氯化钠、硼砂和其他矿物质组成，脆弱的外壳下隐藏着一层危险的泥浆层。如果冒险越过盐滩，爬上山坡，站在海拔近5500英尺的丹特观景台上，便可以看到恶水盆地的全景景观。死亡谷国家公园以其超现实的景观，为游客提供了一种真正独特的体验。尽管条件最为恶劣，但仍有一种奇特的美在这里绽放。
-
-死亡谷国家公园拥有美国最黑暗的夜空之一，是观星的理想场所。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%ad%bb%e4%ba%a1%e8%b0%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231101_1600" "Bing Wallpaper 2023 11月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231102_DeathValleySalt"&FORM=HPQUIZ "必应主页测验 2023 11月 2")
-[下载480](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_800x480.jpg&rf=LaDigue_800x480.jpg "恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_1280x720.jpg&rf=LaDigue_1280x720.jpg "恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_UHD.jpg&rf=LaDigue_UHD.jpg "恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国")
 
 ---
