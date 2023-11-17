@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月18日：寒地温情
+#### 北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大（© Thorsten Milse/Getty Images）
+
+![寒地温情](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_800x480.jpg&rf=LaDigue_800x480.jpg "寒地温情")
+
+加拿大曼尼托巴省的丘吉尔镇位于哈得逊湾沿岸，虽然地处偏远，但这里的四季美景值得你跋涉前往。从白鲸到北极光，从沉船到海堤墙绘，这里的惊喜无穷无尽。此外，这里还是观赏北极熊的最佳地点，因此被誉为“世界北极熊之都”。从10月到11月，这些白色巨兽会迁徙到这里，等待海湾结冰，然后出海捕食海豹。不过不用怕，游客们可以乘坐定制车辆安全地观赏北极熊。这里还设有所谓的“北极熊监狱”，以管理熊与人之间的互动。那么，你准备好开启一场让你不寒而栗但又充满乐趣的野外探险了吗？
+
+北极熊是现存最大的熊类和陆地食肉动物。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%98%e5%90%89%e5%b0%94%e5%9f%8e&form=hpcapt&filters=HpDate:"20231117_1600" "Bing Wallpaper 2023 11月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231118_MilsePolarBear"&FORM=HPQUIZ "必应主页测验 2023 11月 18")
+[下载480](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_800x480.jpg&rf=LaDigue_800x480.jpg "北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大")
+
+---
 ### 11月17日：该给靴子系上鞋带了！
 #### 铜瀑布州立公园的巴德河，威斯康星州，美国（© Big Joe/Getty Images）
 
@@ -235,22 +252,5 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_1280x720.jpg&rf=LaDigue_1280x720.jpg "美洲野牛，黄石国家公园，怀俄明州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美洲野牛，黄石国家公园，怀俄明州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_UHD.jpg&rf=LaDigue_UHD.jpg "美洲野牛，黄石国家公园，怀俄明州，美国")
-
----
-### 11月03日：发光的花朵
-#### 卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国（© Jim Patterson/Tandem Stills + Motion）
-
-![发光的花朵](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_800x480.jpg&rf=LaDigue_800x480.jpg "发光的花朵")
-
-今天是世界水母日！水母是一种没有没有心脏、骨骼和大脑的动物，大约有2000种不同的种类。世界各大海洋中都有水母的身影，它们形状各异，大小不一。图上展示的是太平洋海荨麻水母，它们栖息在加利福尼亚州和俄勒冈州的沿海水域，以鲜艳的金褐色“铃铛状”的外形和长触手而出名。1991年，颜色苍白且触手很短的海月水母还搭乘哥伦比亚号航天飞机进入太空，以便于科学家们研究它们独特的生物学特性。因为水母是包括海龟在内的许多海洋生物的主要食物来源，所以无论是哪个种类的水母，都在海洋食物链中起着至关重要的作用。遗憾的是，因气候变化、海洋污染、过度捕捞等问题，水母的种群受到破坏，而那些以水母为食的海洋生物的生存也随之受到了威胁。
-
-"Chrysaora"（金水母属）是海荨麻水母的属名，该词源自希腊神话中一位名叫“Chrysaora”（克律萨俄耳）的巨人，据说他是海神波塞冬和美杜莎的儿子。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e8%8d%a8%e9%ba%bb%e6%b0%b4%e6%af%8d&form=hpcapt&filters=HpDate:"20231102_1600" "Bing Wallpaper 2023 11月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231103_SeaNettles"&FORM=HPQUIZ "必应主页测验 2023 11月 3")
-[下载480](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_800x480.jpg&rf=LaDigue_800x480.jpg "卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国")
-[下载720](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_UHD.jpg&rf=LaDigue_UHD.jpg "卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国")
 
 ---
