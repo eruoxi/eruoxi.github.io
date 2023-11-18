@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月19日：谨慎行事！
+#### Alam-Pedja自然保护区，爱沙尼亚（© Sven Zacek/Minden Pictures）
+
+![谨慎行事！](https://cn.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_800x480.jpg&rf=LaDigue_800x480.jpg "谨慎行事！")
+
+在爱沙尼亚的众多自然景观中，有一个建立于1994年的Alam-Pedja自然保护区。这片偶尔被冰雪覆盖的保护区位于塔尔图县，占地132平方英里，是爱沙尼亚最大的自然保护区。该保护区是由广袤的湿地、森林和河流组合而成的，还有尚未被开发的原始荒野。从稀有的白尾海雕到行踪难觅的黑鹳，这里有200多种鸟类。图上展示的是保护区那由水生森林织造而成的绮丽画卷：静水森林、沼泽森林和洪泛森林错落有致，细长的莎草植物点缀其间。此外，这里还有蜿蜒的小径和木板路吸引着探险家们来打造自己的冒险之旅。
+
+Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔叶林和原始森林尤为珍贵。
+
+[Bing搜索](https://cn.bing.com/search?q=Alam-Pedja%e8%87%aa%e7%84%b6%e4%bf%9d%e6%8a%a4%e5%8c%ba&form=hpcapt&filters=HpDate:"20231118_1600" "Bing Wallpaper 2023 11月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231119_FrozenBog"&FORM=HPQUIZ "必应主页测验 2023 11月 19")
+[下载480](https://cn.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_800x480.jpg&rf=LaDigue_800x480.jpg "Alam-Pedja自然保护区，爱沙尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_1280x720.jpg&rf=LaDigue_1280x720.jpg "Alam-Pedja自然保护区，爱沙尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Alam-Pedja自然保护区，爱沙尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_UHD.jpg&rf=LaDigue_UHD.jpg "Alam-Pedja自然保护区，爱沙尼亚")
+
+---
 ### 11月18日：寒地温情
 #### 北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大（© Thorsten Milse/Getty Images）
 
@@ -235,22 +252,5 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_1280x720.jpg&rf=LaDigue_1280x720.jpg "石英岩地层，普拉亚德尔锡伦西奥，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "石英岩地层，普拉亚德尔锡伦西奥，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_UHD.jpg&rf=LaDigue_UHD.jpg "石英岩地层，普拉亚德尔锡伦西奥，西班牙")
-
----
-### 11月04日：为寒冷而生！
-#### 美洲野牛，黄石国家公园，怀俄明州，美国（© Gary Gray/Getty Images）
-
-![为寒冷而生！](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_800x480.jpg&rf=LaDigue_800x480.jpg "为寒冷而生！")
-
-临近冬季，气温持续下降，但美洲野牛却毫不在意。今天是美国的“国家野牛日”，这些体型魁梧的哺乳动物已经准备好迎雪季了。它们有蓬松的皮毛和重达2000磅的庞大身躯，这样的身体足以抵御严寒。黄石国家公园的冬季十分寒冷，而自史前时代以来，美国最大、最古老的野牛群就居住在这里。
-
-黄石国家公园的美洲野牛群最初只有25头。有证据表明，在1896年至1912年，美洲野牛群发生了两次“种群瓶颈”事件。在此期间，美洲野牛种群的数量在25至50头之间。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e6%b4%b2%e9%87%8e%e7%89%9b&form=hpcapt&filters=HpDate:"20231103_1600" "Bing Wallpaper 2023 11月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231104_BisonSnow"&FORM=HPQUIZ "必应主页测验 2023 11月 4")
-[下载480](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_800x480.jpg&rf=LaDigue_800x480.jpg "美洲野牛，黄石国家公园，怀俄明州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_1280x720.jpg&rf=LaDigue_1280x720.jpg "美洲野牛，黄石国家公园，怀俄明州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美洲野牛，黄石国家公园，怀俄明州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_UHD.jpg&rf=LaDigue_UHD.jpg "美洲野牛，黄石国家公园，怀俄明州，美国")
 
 ---
