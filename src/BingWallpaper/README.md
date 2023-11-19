@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月20日：童话城堡
+#### 科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲（© Billy Stock/robertharding/Alamy Stock Photo）
+
+![童话城堡](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_800x480.jpg&rf=LaDigue_800x480.jpg "童话城堡")
+
+科奇城堡坐落在威尔士的一座树木繁茂的山丘上，该城堡的名字在威尔士语中的意思是“红色城堡”，著名建筑师威廉·伯吉斯是它的设计师。这座城堡的内部装饰颇为奢华，犹如一首由繁复的雕刻工艺、鲜艳的彩色玻璃和奢华的家具交织而成的华丽交响乐。城堡的独特外形和维多利亚时期的内部设计充分展示了设计师的才华。其设计融合了中世纪的底蕴及19世纪的创新，被誉为英国哥特式复兴的典范。城堡的四周树林密布，从远处望去，宛若童话世界。这片山毛榉森林拥有丰富的植被，包括蝴蝶兰、燕窝兰和多年生山靛等稀有植物，具有特殊的科考价值，因而被保护起来了。
+
+由于特殊的建筑风格和历史价值，科奇城堡被英国列为一级保护建筑。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e5%a5%87%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20231119_1600" "Bing Wallpaper 2023 11月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231120_CastleCoch"&FORM=HPQUIZ "必应主页测验 2023 11月 20")
+[下载480](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_800x480.jpg&rf=LaDigue_800x480.jpg "科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲")
+[下载720](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_1280x720.jpg&rf=LaDigue_1280x720.jpg "科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲")
+[下载1080](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲")
+[下载UHD](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_UHD.jpg&rf=LaDigue_UHD.jpg "科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲")
+
+---
 ### 11月19日：谨慎行事！
 #### Alam-Pedja自然保护区，爱沙尼亚（© Sven Zacek/Minden Pictures）
 
@@ -235,22 +252,5 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_1280x720.jpg&rf=LaDigue_1280x720.jpg "佩霍湖，百内国家公园，智利南部")
 [下载1080](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩霍湖，百内国家公园，智利南部")
 [下载UHD](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_UHD.jpg&rf=LaDigue_UHD.jpg "佩霍湖，百内国家公园，智利南部")
-
----
-### 11月05日：宁静之地
-#### 石英岩地层，普拉亚德尔锡伦西奥，西班牙（© Jean-Philippe Delobelle/Minden Pictures）
-
-![宁静之地](https://cn.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_800x480.jpg&rf=LaDigue_800x480.jpg "宁静之地")
-
-西班牙的阿斯图里亚斯地区以其自然美景、丰富的艺术遗产和美食而闻名。此外，该地区还有许多隐藏的“宝藏”，照片上的“寂静海滩”就是其中之一。寂静海滩是一个贝壳形状的小海湾，该地不仅环境清幽，还有一个天然的露天岩石剧场。海滩远离市区，没有商业气息和喧闹的人群。在这里，险峻的悬崖和金色的沙滩是散心冥想的理想之地，而附近的洞穴和水上活动则为渴望冒险的游客提供了刺激的体验。
-
-虽然阿斯图里亚斯以海鲜而闻名，但是当地最具代表性的美食却是阿斯图里亚斯炖豆。这道炖菜食材丰富，由白豆、猪肩肉、西班牙血肠和辣香肠烩制而成。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e9%98%bf%e6%96%af%e5%9b%be%e9%87%8c%e4%ba%9a%e6%96%af&form=hpcapt&filters=HpDate:"20231104_1600" "Bing Wallpaper 2023 11月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231105_SilencioSpain"&FORM=HPQUIZ "必应主页测验 2023 11月 5")
-[下载480](https://cn.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_800x480.jpg&rf=LaDigue_800x480.jpg "石英岩地层，普拉亚德尔锡伦西奥，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_1280x720.jpg&rf=LaDigue_1280x720.jpg "石英岩地层，普拉亚德尔锡伦西奥，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "石英岩地层，普拉亚德尔锡伦西奥，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_UHD.jpg&rf=LaDigue_UHD.jpg "石英岩地层，普拉亚德尔锡伦西奥，西班牙")
 
 ---
