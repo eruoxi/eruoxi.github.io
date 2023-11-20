@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月21日：欢迎来到这个世界！
+#### 英国诺福克海滩上的灰海豹幼崽（© Vince Burton/Minden Pictures）
+
+![欢迎来到这个世界！](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_800x480.jpg&rf=LaDigue_800x480.jpg "欢迎来到这个世界！")
+
+如果你此时去英国诺福克海滩度假，大概率会看到刚出生的灰海豹幼崽。每年的11月初至1月初，约有3,000只灰海豹幼崽在英国的诺福克海滩上出生，使该地区成为英国最重要的灰海豹繁殖地之一。相比之下，美国海岸的灰海豹幼崽出生时间略晚。海豹妈妈会在海滩上悉心喂养幼崽三周，在这期间，幼崽每天增重约4.5磅！喂养期结束后，小海豹们还不能立刻下水。它们会待在海滩上，直到苍白的皮毛变成斑驳的灰色，才会前往大海，学会自己捕猎。
+
+海豹幼崽第一年的存活率因地区及其自身条件而异。据估计，有的地区的海豹幼崽存活率在80%到85%之间，有的地区则低于50%。导致海豹幼崽死亡的主要原因是进食困难导致的饥饿。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%81%b0%e6%b5%b7%e8%b1%b9&form=hpcapt&filters=HpDate:"20231120_1600" "Bing Wallpaper 2023 11月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231121_HelloSeal"&FORM=HPQUIZ "必应主页测验 2023 11月 21")
+[下载480](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_800x480.jpg&rf=LaDigue_800x480.jpg "英国诺福克海滩上的灰海豹幼崽")
+[下载720](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_1280x720.jpg&rf=LaDigue_1280x720.jpg "英国诺福克海滩上的灰海豹幼崽")
+[下载1080](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "英国诺福克海滩上的灰海豹幼崽")
+[下载UHD](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_UHD.jpg&rf=LaDigue_UHD.jpg "英国诺福克海滩上的灰海豹幼崽")
+
+---
 ### 11月20日：童话城堡
 #### 科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲（© Billy Stock/robertharding/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_1280x720.jpg&rf=LaDigue_1280x720.jpg "Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛")
 [下载1080](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛")
 [下载UHD](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_UHD.jpg&rf=LaDigue_UHD.jpg "Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛")
-
----
-### 11月06日：照亮你忧郁的心
-#### 佩霍湖，百内国家公园，智利南部（© OST/Getty Images）
-
-![照亮你忧郁的心](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_800x480.jpg&rf=LaDigue_800x480.jpg "照亮你忧郁的心")
-
-蓝绿色的湖面上倒映着蔚蓝的天空，周围是嶙峋的山峰和郁郁葱葱的森林，这就是佩霍湖。这个冰川湖坐落在智利南部的百内国家公园内，是大自然的杰作。佩霍湖周围那高耸入云的百内犄角山（因形状酷似牛角而得名）和百内山丘也是一道特别的风景线。佩霍湖的湖水呈现出独特的绿松石蓝，是因为水中悬浮着被称为冰川粉或岩粉的细小岩石颗粒和矿物质。据说“Paine”（百内）一词源于特维尔切语，意为“蓝色”。1978年，百内国家公园被联合国教科文组织认定为生物圈保护区，其面积达700平方英里。徒步、划船、观星……公园里有许多精彩的游玩项目，带上你的冒险精神，向南出发，来一段“告别忧郁”之旅吧！
-
-百内国家公园是“世界尽头之路”旅游风景线上的其中一个景点，平均每年接待约252000名游客，其中54%都是外国游客。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%99%be%e5%86%85%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231105_1600" "Bing Wallpaper 2023 11月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231106_LagoPehoe"&FORM=HPQUIZ "必应主页测验 2023 11月 6")
-[下载480](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_800x480.jpg&rf=LaDigue_800x480.jpg "佩霍湖，百内国家公园，智利南部")
-[下载720](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_1280x720.jpg&rf=LaDigue_1280x720.jpg "佩霍湖，百内国家公园，智利南部")
-[下载1080](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩霍湖，百内国家公园，智利南部")
-[下载UHD](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_UHD.jpg&rf=LaDigue_UHD.jpg "佩霍湖，百内国家公园，智利南部")
 
 ---
