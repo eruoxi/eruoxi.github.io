@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月22日：人少景美的静谧之地
+#### 大提顿国家公园，怀俄明州，美国（© Westend61/Getty Images）
+
+![人少景美的静谧之地](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_800x480.jpg&rf=LaDigue_800x480.jpg "人少景美的静谧之地")
+
+今天的图片让我们一睹大提顿国家公园的美景！该公园建于1929年，位于美国人口最少的怀俄明州，以壮丽连绵的雪山山峰而闻名。园区内高耸入云的巍峨雪山，与蜿蜒的蛇河、纯净的湖水以及丰富的野生动物共同构成了一幅美丽的画卷。去这里的时候，要记得带上你的双筒望远镜！如果是夏天，一定要观察叉角羚，它们可是长途跋涉了约150英里才来到这里。此外，麋鹿和野牛也是这里的夏季访客。这些动物的迁徙不仅有助于植物种子的传播，还为其他捕食者提供了食物，这对大提顿国家公园的生态系统起着至关重要的作用。
+
+大提顿山脉是落基山脉中最年轻的山脉。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e6%8f%90%e9%a1%bf%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231121_1600" "Bing Wallpaper 2023 11月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231122_SnakeRiverTeton"&FORM=HPQUIZ "必应主页测验 2023 11月 22")
+[下载480](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_800x480.jpg&rf=LaDigue_800x480.jpg "大提顿国家公园，怀俄明州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_1280x720.jpg&rf=LaDigue_1280x720.jpg "大提顿国家公园，怀俄明州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大提顿国家公园，怀俄明州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_UHD.jpg&rf=LaDigue_UHD.jpg "大提顿国家公园，怀俄明州，美国")
+
+---
 ### 11月21日：欢迎来到这个世界！
 #### 英国诺福克海滩上的灰海豹幼崽（© Vince Burton/Minden Pictures）
 
@@ -235,22 +252,5 @@ Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔�
 [下载720](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄山的日落，安徽省，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄山的日落，安徽省，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_UHD.jpg&rf=LaDigue_UHD.jpg "黄山的日落，安徽省，中国")
-
----
-### 11月07日：瞭望塔上，一睹奇景！
-#### Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛（© MNStudio/Shutterstock）
-
-![瞭望塔上，一睹奇景！](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_800x480.jpg&rf=LaDigue_800x480.jpg "瞭望塔上，一睹奇景！")
-
-Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺，是现代建筑魅力和创意结合的典范。站在瞭望塔上，你可以一览Kirkilai喀斯特湖的美景。Kirkilai喀斯特湖是由可溶性岩石（如石膏和石灰岩）溶解而成的自然奇观。随着时间的推移，这些岩石中的洞穴逐渐被溶蚀、坍塌，形成清澈透亮的洼地积水，最终造就了独特迷人的喀斯特风光。互相连通的湖泊与周围郁郁葱葱的植被相映成趣，为自然爱好者打造了一个绝美的天堂。
-
-比尔扎伊地区公园以天坑而闻名。目前，该公园已发现约9000个天坑，其中最著名的是深约20米的奶牛洞。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ab%8b%e9%99%b6%e5%ae%9b&form=hpcapt&filters=HpDate:"20231106_1600" "Bing Wallpaper 2023 11月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231107_KirkilaiTower"&FORM=HPQUIZ "必应主页测验 2023 11月 7")
-[下载480](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_800x480.jpg&rf=LaDigue_800x480.jpg "Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛")
-[下载720](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_1280x720.jpg&rf=LaDigue_1280x720.jpg "Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛")
-[下载1080](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛")
-[下载UHD](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_UHD.jpg&rf=LaDigue_UHD.jpg "Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛")
 
 ---
