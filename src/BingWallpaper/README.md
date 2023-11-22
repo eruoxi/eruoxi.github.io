@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月23日：从深海到天空
+#### 泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙（© Javier Martínez Morán/Alamy）
+
+![从深海到天空](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_800x480.jpg&rf=LaDigue_800x480.jpg "从深海到天空")
+
+雄伟的泰德峰海拔3718米，耸立在加那利群岛上。这座火山从海底隆起的高度达到了惊人的7500米，因此它既是西班牙最高的山峰，也是世界上海拔第三高的火山。
+
+泰德火山拥有世界上最大的锥形阴影。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%b0%e5%be%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231122_1600" "Bing Wallpaper 2023 11月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231123_TeideNational"&FORM=HPQUIZ "必应主页测验 2023 11月 23")
+[下载480](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_800x480.jpg&rf=LaDigue_800x480.jpg "泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_1280x720.jpg&rf=LaDigue_1280x720.jpg "泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_UHD.jpg&rf=LaDigue_UHD.jpg "泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙")
+
+---
 ### 11月22日：人少景美的静谧之地
 #### 大提顿国家公园，怀俄明州，美国（© Westend61/Getty Images）
 
@@ -235,22 +252,5 @@ Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔�
 [下载720](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋天的白桦树，德拉门，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋天的白桦树，德拉门，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg&rf=LaDigue_UHD.jpg "秋天的白桦树，德拉门，挪威")
-
----
-### 11月08日：冬日里的壮丽美景
-#### 黄山的日落，安徽省，中国（© Nantapon Pattamakijsakul/Getty Images）
-
-![冬日里的壮丽美景](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_800x480.jpg&rf=LaDigue_800x480.jpg "冬日里的壮丽美景")
-
-立冬是中国二十四节气中的第十九个节气。 这也是冬天的开始。在南方，初冬时节一般都不是很冷。随着时间的推移，冬至后冷空气频繁南下，气温逐渐下降。入冬后，北方大部分地区将出现雨雪降温天气。华北部分地区此时常下初雪。
-
-自唐代至清末，有关黄山的诗词有2万多首，并有一个画派因此而得名。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e9%bb%84%e5%b1%b1&form=hpcapt&filters=HpDate:"20231107_1600" "Bing Wallpaper 2023 11月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231108_LiDong2023"&FORM=HPQUIZ "必应主页测验 2023 11月 8")
-[下载480](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_800x480.jpg&rf=LaDigue_800x480.jpg "黄山的日落，安徽省，中国")
-[下载720](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄山的日落，安徽省，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄山的日落，安徽省，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_UHD.jpg&rf=LaDigue_UHD.jpg "黄山的日落，安徽省，中国")
 
 ---
