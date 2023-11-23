@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月24日：不一样的热带雨林
+#### 奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国（© James Randklev/Getty Images）
+
+![不一样的热带雨林](https://cn.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_800x480.jpg&rf=LaDigue_800x480.jpg "不一样的热带雨林")
+
+想象一下，你可以花一天时间在森林里徒步，沉浸在郁郁葱葱的绿色空间中，而不是疯狂地检查节假日购物清单上的一件件商品。欢迎来到“绿色星期五”！它是“黑色星期五”的环保替代品，创立于2015年。在“绿色星期五”，我们鼓励人们在购物时做出更加理智的选择，拥抱大自然，拒绝冲动性消费。因此，请在这个绿色星期五让自己暂停片刻，投入大自然的怀抱吧！
+
+霍河雨林被联合国教科文组织评为世界遗产和生物圈保护区。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%9c%8d%e6%b2%b3%e9%9b%a8%e6%9e%97+%e5%a5%a5%e6%9e%97%e5%8c%b9%e5%85%8b%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231123_1600" "Bing Wallpaper 2023 11月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231124_HallofMosses"&FORM=HPQUIZ "必应主页测验 2023 11月 24")
+[下载480](https://cn.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_800x480.jpg&rf=LaDigue_800x480.jpg "奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_UHD.jpg&rf=LaDigue_UHD.jpg "奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国")
+
+---
 ### 11月23日：从深海到天空
 #### 泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙（© Javier Martínez Morán/Alamy）
 
@@ -235,22 +252,5 @@ Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔�
 [下载720](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_1280x720.jpg&rf=LaDigue_1280x720.jpg "恶地国家公园，南达科他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "恶地国家公园，南达科他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_UHD.jpg&rf=LaDigue_UHD.jpg "恶地国家公园，南达科他州，美国")
-
----
-### 11月09日：秋天的影子
-#### 秋天的白桦树，德拉门，挪威（© Baac3nes/Getty Images）
-
-![秋天的影子](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_800x480.jpg&rf=LaDigue_800x480.jpg "秋天的影子")
-
-挪威有许多美丽的自然景观，白桦林就是其中之一。挪威的德拉门市坐落在峡湾之中，被“银色森林”环绕，是户外运动爱好者的天堂。白桦树在高海拔地区生长茂盛，是山区一道独特的风景线。夏去秋来，白桦树的叶子变成了金黄色和深红色，与细长的树干和洁白的树皮形成了鲜明的对比。这种季节变化令人叹为观止，所以白桦树也象征着希望和新生。白桦树不仅具有观赏价值，还为野生动物提供了栖息地和食物，也可以用作柴火和建筑材料。
-
-白桦树雌雄同株，也就是说每棵白桦树都有雄花和雌花。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%99%bd%e6%a1%a6%e6%a0%91&form=hpcapt&filters=HpDate:"20231108_1600" "Bing Wallpaper 2023 11月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231109_NorwayBirch"&FORM=HPQUIZ "必应主页测验 2023 11月 9")
-[下载480](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_800x480.jpg&rf=LaDigue_800x480.jpg "秋天的白桦树，德拉门，挪威")
-[下载720](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋天的白桦树，德拉门，挪威")
-[下载1080](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋天的白桦树，德拉门，挪威")
-[下载UHD](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg&rf=LaDigue_UHD.jpg "秋天的白桦树，德拉门，挪威")
 
 ---
