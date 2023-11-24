@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月25日：永恒之城托莱多
+#### 托莱多，西班牙（© Carlos Fernandez/Getty Images）
+
+![永恒之城托莱多](https://cn.bing.com/th?id=OHR.TajoRiver_ZH-CN1752559204_800x480.jpg&rf=LaDigue_800x480.jpg "永恒之城托莱多")
+
+托莱多是位于西班牙卡斯蒂利亚-拉曼恰地区的一座城市，因其独特的地理位置而闻名。托莱多位于一块凸起的高地上，三面被塔古斯河环抱。这座辉煌的城市在中世纪被称为“三文化之城”，基督教、穆斯林和犹太教在这里和谐共处。自1986年起，托莱多就被联合国教科文组织列为世界文化遗产，其历史核心区有许多清真寺、犹太教堂以及令人印象深刻的哥特式大教堂。在八世纪左右，摩尔人来到了这个地方，他们留下的摩尔人文化对这座城市产生了深远的影响。16世纪以前，托莱多的铸剑工艺闻名欧洲。16世纪时，画家埃尔·格列柯曾在这座城市居住，并对该地产生了深刻的影响。在此期间，埃尔·格列柯创作了一些极其重要的作品，如《圣母蒙召升天》，这一画作被视为他最伟大的杰作之一。
+
+罗马帝国灭亡后，西哥特王国于公元542年到725年期间在此建都。托莱多不仅是诸多历史事件（如托莱多会议）的发生地，还是神圣罗马帝国皇帝查理五世在西班牙的宫廷的主会场，并因此被称为“皇城”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e6%89%98%e8%8e%b1%e5%a4%9a&form=hpcapt&filters=HpDate:"20231124_1600" "Bing Wallpaper 2023 11月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231125_TajoRiver"&FORM=HPQUIZ "必应主页测验 2023 11月 25")
+[下载480](https://cn.bing.com/th?id=OHR.TajoRiver_ZH-CN1752559204_800x480.jpg&rf=LaDigue_800x480.jpg "托莱多，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.TajoRiver_ZH-CN1752559204_1280x720.jpg&rf=LaDigue_1280x720.jpg "托莱多，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.TajoRiver_ZH-CN1752559204_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "托莱多，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.TajoRiver_ZH-CN1752559204_UHD.jpg&rf=LaDigue_UHD.jpg "托莱多，西班牙")
+
+---
 ### 11月24日：不一样的热带雨林
 #### 奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国（© James Randklev/Getty Images）
 
@@ -235,22 +252,5 @@ Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔�
 [下载720](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_1280x720.jpg&rf=LaDigue_1280x720.jpg "富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_UHD.jpg&rf=LaDigue_UHD.jpg "富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利")
-
----
-### 11月10日：还不错的荒地
-#### 恶地国家公园，南达科他州，美国（© Grant Ordelheide/Tandem Stills + Motion）
-
-![还不错的荒地](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_800x480.jpg&rf=LaDigue_800x480.jpg "还不错的荒地")
-
-这张密集分层的图像是不是让你产生屏幕坏掉的错觉？这其实是南达科他州恶地国家公园里迷人的化石层，五彩斑斓的岩石层下隐藏着这片土地的历史，保存着古代马、骆驼、老虎和犀牛等动物的遗骸。这片以崎岖石阵和草原为装饰的不毛之地，主要是由沉积和侵蚀这两种相反的自然力量共同雕琢而成。红衬衫台，海拔3340英尺，是恶地国家公园内的最高点。该公园占地379平方英里，于1978年11月10日被指定为国家公园。如果你还想多方面地了解恶地国家公园，可以参观公园内的博物馆藏品，那里有超过360，000件物品等待你去探索！
-
-恶地国家公园因其独特的地貌和丰富的化石遗迹而闻名于世。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%81%b6%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231109_1600" "Bing Wallpaper 2023 11月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231110_BadlandsSunrise"&FORM=HPQUIZ "必应主页测验 2023 11月 10")
-[下载480](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_800x480.jpg&rf=LaDigue_800x480.jpg "恶地国家公园，南达科他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_1280x720.jpg&rf=LaDigue_1280x720.jpg "恶地国家公园，南达科他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "恶地国家公园，南达科他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_UHD.jpg&rf=LaDigue_UHD.jpg "恶地国家公园，南达科他州，美国")
 
 ---
