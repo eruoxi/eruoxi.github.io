@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月26日：谁踩到树枝了?
+#### 布拉德盖特公园的小鹿，莱斯特郡，英国（© Chris Bainbridge/Alamy）
+
+![谁踩到树枝了?](https://cn.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_800x480.jpg&rf=LaDigue_800x480.jpg "谁踩到树枝了?")
+
+黇鹿以其引人注目的皮毛而闻名，它的皮毛颜色会随着季节的变化而变化，在夏天通常会有白色的斑点。在秋季的发情期，雄鹿会互相打斗以确立自己的统治地位。雄鹿的掌状鹿角表面宽阔、扁平，一眼就能识别出来。黇鹿原产于欧洲和亚洲部分地区，是英国莱斯特郡的常见动物，尤其是在布拉德盖特公园。这座占地850英亩的公园不仅是这些动物的庇护所，还拥有美丽的风景、林地，以及可将该地区美景尽收眼底的灯塔。
+
+遇到危险时，黇鹿行动敏捷，奔跑速度最快可达50公里/小时。此外，黇鹿的跳跃能力也不错，最高可跳到1.75米，最远可跳至5米。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b0%8f%e9%b9%bf&form=hpcapt&filters=HpDate:"20231125_1600" "Bing Wallpaper 2023 11月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231126_BradgateFallow"&FORM=HPQUIZ "必应主页测验 2023 11月 26")
+[下载480](https://cn.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_800x480.jpg&rf=LaDigue_800x480.jpg "布拉德盖特公园的小鹿，莱斯特郡，英国")
+[下载720](https://cn.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_1280x720.jpg&rf=LaDigue_1280x720.jpg "布拉德盖特公园的小鹿，莱斯特郡，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布拉德盖特公园的小鹿，莱斯特郡，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_UHD.jpg&rf=LaDigue_UHD.jpg "布拉德盖特公园的小鹿，莱斯特郡，英国")
+
+---
 ### 11月25日：永恒之城托莱多
 #### 托莱多，西班牙（© Carlos Fernandez/Getty Images）
 
@@ -235,22 +252,5 @@ Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔�
 [下载720](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋天池塘里的两只绿头鸭")
 [下载1080](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋天池塘里的两只绿头鸭")
 [下载UHD](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_UHD.jpg&rf=LaDigue_UHD.jpg "秋天池塘里的两只绿头鸭")
-
----
-### 11月11日：如诗如画的地方
-#### 富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利（© Achim Thomae/Getty Images）
-
-![如诗如画的地方](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_800x480.jpg&rf=LaDigue_800x480.jpg "如诗如画的地方")
-
-南蒂罗尔是意大利的一个自治省，该地区以其高品质的生活而闻名。意大利语、德语和拉丁语都是这里的官方语言，每种语言都有自己的传统和文化。此外，这里既有诸如梅拉诺、博尔扎诺以及布雷萨诺内等美丽的城市，也有科尔蒂纳丹佩佐、加迪纳山谷和阿尔塔巴迪亚之类的著名滑雪胜地，还有世界闻名的酒庄。而且不少酒庄还伴有风景如画的湖泊。说起湖泊，就不得不提到卡雷扎湖，该湖泊也被称为彩虹湖或“多洛米蒂的童话湖”，是多洛米蒂最美丽的高山湖泊之一。
-
-德语和意大利语都是南蒂罗尔的官方语言。在该省的一些东部城市，拉丁语是第三官方语言。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%97%e8%92%82%e7%bd%97%e5%b0%94&form=hpcapt&filters=HpDate:"20231110_1600" "Bing Wallpaper 2023 11月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231111_ValDiFunes"&FORM=HPQUIZ "必应主页测验 2023 11月 11")
-[下载480](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_800x480.jpg&rf=LaDigue_800x480.jpg "富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_1280x720.jpg&rf=LaDigue_1280x720.jpg "富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_UHD.jpg&rf=LaDigue_UHD.jpg "富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利")
 
 ---
