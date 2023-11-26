@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月27日：水上明镜
+#### 内格罗河，亚马逊河流域，巴西（© Timothy Allen/Getty Images）
+
+![水上明镜](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_800x480.jpg&rf=LaDigue_800x480.jpg "水上明镜")
+
+内格罗河起源于哥伦比亚，是亚马逊河的支流之一。在西班牙语中， 内格罗河（Río Negro）的意思是“黑色的河”，因为从远处看它，河水是黑色的。但走进观看，其河面平静如镜，就如图中所展示的那样，可以倒映出蔚蓝的天空以及彩虹的颜色。内格罗河的河水之所以是黑色的，是因为附近沼泽中渗出了有机物分解时产生的高浓度腐殖酸。作为亚马逊河北岸最大的支流之一，内格罗河在复杂的亚马逊流域生态系统中发挥着至关重要的作用。它也是许多动植物的家园，比如极度濒危的黑白柽柳猴、巴西巨獭以及近700种鱼类。
+
+内格罗河的物种非常丰富，据估计，该河流域共有800至900种鱼类，其中约700种鱼类已被记录归类，还有100多种当地特有鱼类以及一些未被描述的新品种没有被记录。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%86%85%e6%a0%bc%e7%bd%97%e6%b2%b3&form=hpcapt&filters=HpDate:"20231126_1600" "Bing Wallpaper 2023 11月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231127_RioNegro"&FORM=HPQUIZ "必应主页测验 2023 11月 27")
+[下载480](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_800x480.jpg&rf=LaDigue_800x480.jpg "内格罗河，亚马逊河流域，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_1280x720.jpg&rf=LaDigue_1280x720.jpg "内格罗河，亚马逊河流域，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "内格罗河，亚马逊河流域，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_UHD.jpg&rf=LaDigue_UHD.jpg "内格罗河，亚马逊河流域，巴西")
+
+---
 ### 11月26日：谁踩到树枝了?
 #### 布拉德盖特公园的小鹿，莱斯特郡，英国（© Chris Bainbridge/Alamy）
 
@@ -235,22 +252,5 @@ Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔�
 [下载720](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_1280x720.jpg&rf=LaDigue_1280x720.jpg "特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_UHD.jpg&rf=LaDigue_UHD.jpg "特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙")
-
----
-### 11月12日：我所有的小鸭子们
-#### 秋天池塘里的两只绿头鸭（© sun ok/Shutterstock）
-
-![我所有的小鸭子们](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_800x480.jpg&rf=LaDigue_800x480.jpg "我所有的小鸭子们")
-
-绿头鸭，又名野鸭，是世界上分布最广的鸭科动物之一。你知道在20世纪以前，绿头鸭在德国曾被称为三月鸭吗？绿头鸭有着醒目的羽毛，很容易辨认。雄性绿头鸭，被称为公鸭，以其彩色的翅膀和绿色的头部而闻名，而母鸭的颜色则是不起眼的棕色。绿头鸭以植物、昆虫和小鱼为食，并且具有很强的适应性。无论是在城市公园，还是湖泊和河流中，你都能见到它们的身影。而正是这种适应性以及色彩斑斓的羽毛，使得绿头鸭成为一种令人瞩目的鸟类。
-
-你知道绿头鸭在20世纪之前被称为三月鸭吗？
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%bb%bf%e5%a4%b4%e9%b8%ad&form=hpcapt&filters=HpDate:"20231111_1600" "Bing Wallpaper 2023 11月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231112_MallarDucks"&FORM=HPQUIZ "必应主页测验 2023 11月 12")
-[下载480](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_800x480.jpg&rf=LaDigue_800x480.jpg "秋天池塘里的两只绿头鸭")
-[下载720](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋天池塘里的两只绿头鸭")
-[下载1080](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋天池塘里的两只绿头鸭")
-[下载UHD](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_UHD.jpg&rf=LaDigue_UHD.jpg "秋天池塘里的两只绿头鸭")
 
 ---
