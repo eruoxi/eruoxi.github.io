@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月28日：冬日私语
+#### 阿西尼博因山省级公园，加拿大（© matt macpherson/500px/Getty Images）
+
+![冬日私语](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_800x480.jpg&rf=LaDigue_800x480.jpg "冬日私语")
+
+阿西尼博因山坐落在不列颠哥伦比亚省的原始荒野中，与周围的省级公园形成了一个迷人的“高山仙境”。图中这座雄伟的山峰又被称作“落基山脉的马特洪峰”，其海拔高达3618米，以其粗犷雄伟的气势而备受瞩目。“阿西尼博因”这个名字是为了向曾经居住在这里的原住民阿西尼博因人致敬。据悉，阿西尼博因山省级公园是受保护区域，其占地面积超3.9万公顷，为探险者们提供了迷人壮丽景观。在这片荒野上，你还能邂逅不少野生动物，比如灰熊、美洲狮、山羊等。此外，网状般的小径遍布园区，也为游客们提供了便利。沿着小径行走，你可以在公园里徒步旅行、滑雪、露营。在大山的庇护下，这座公园体现了加拿大落基山脉中心地带的自然原始之美的精髓。
+
+1990年，阿西尼博因山省级公园被联合国教科文组织列入加拿大落基山公园群世界遗产名录中。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e8%a5%bf%e5%b0%bc%e5%8d%9a%e5%9b%a0%e5%b1%b1%e7%9c%81%e7%ba%a7%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231127_1600" "Bing Wallpaper 2023 11月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231128_AssiniboineProvincialPark"&FORM=HPQUIZ "必应主页测验 2023 11月 28")
+[下载480](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_800x480.jpg&rf=LaDigue_800x480.jpg "阿西尼博因山省级公园，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿西尼博因山省级公园，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿西尼博因山省级公园，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_UHD.jpg&rf=LaDigue_UHD.jpg "阿西尼博因山省级公园，加拿大")
+
+---
 ### 11月27日：水上明镜
 #### 内格罗河，亚马逊河流域，巴西（© Timothy Allen/Getty Images）
 
@@ -235,22 +252,5 @@ Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔�
 [下载720](https://cn.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_1280x720.jpg&rf=LaDigue_1280x720.jpg "特卡波湖沿岸的鲁冰花，南岛，新西兰")
 [下载1080](https://cn.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特卡波湖沿岸的鲁冰花，南岛，新西兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_UHD.jpg&rf=LaDigue_UHD.jpg "特卡波湖沿岸的鲁冰花，南岛，新西兰")
-
----
-### 11月13日：从树上到餐桌之上
-#### 特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙（© cinoby/Getty Images）
-
-![从树上到餐桌之上](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_800x480.jpg&rf=LaDigue_800x480.jpg "从树上到餐桌之上")
-
-巴利阿里群岛之一的西班牙马略卡岛种植橄榄的历史可以追溯到2000多年前。腓尼基人和希腊人是这里的早期定居者，他们将第一批橄榄树引进这个岛屿，北海岸的特拉蒙塔纳山脉是这些橄榄树的故乡。在伊斯兰时代，由于橄榄园的不断扩大，橄榄油开始在马略卡岛美食和烹饪传统中担任重要角色。
-
-波兰作曲家兼钢琴家弗雷德里克·肖邦  与法国作家阿曼丁·露西尔·奥罗尔·杜潘 （笔名：乔治·桑）于1838-39年冬天居住在巴尔德莫萨。在马略卡岛的时光对肖邦来说是一个多产的时期。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e9%a9%ac%e7%95%a5%e5%8d%a1%e5%b2%9b&form=hpcapt&filters=HpDate:"20231112_1600" "Bing Wallpaper 2023 11月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231113_OliveOrchard"&FORM=HPQUIZ "必应主页测验 2023 11月 13")
-[下载480](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_800x480.jpg&rf=LaDigue_800x480.jpg "特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_1280x720.jpg&rf=LaDigue_1280x720.jpg "特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_UHD.jpg&rf=LaDigue_UHD.jpg "特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙")
 
 ---
