@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月29日：童话中的城堡
+#### 什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国（© Hannes Wendt/Shutterstock）
+
+![童话中的城堡](https://cn.bing.com/th?id=OHR.SchwerinerSchloss_ZH-CN2390476345_800x480.jpg&rf=LaDigue_800x480.jpg "童话中的城堡")
+
+与大多数的德国城堡一样，什未林城堡就像是从童话故事中走出来的。它最早的雏形可追溯至941年。研究表明，它是由西斯拉夫奥博特人部落建造的。这个部落生活在现在的梅克伦堡-前波美拉尼亚州和波兰，尤其是波罗的海的南部海岸。从12世纪起，该部落就被基督教化，并被德国和丹麦统治者进行政治整合。
+
+传说，什未林城堡中有一只名叫小彼得的隐形小精灵，它的身高只有几英尺，经常穿着17世纪的衣服，有点像个骑士，时常在城堡的大厅里游荡。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bb%80%e6%9c%aa%e6%9e%97%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20231128_1600" "Bing Wallpaper 2023 11月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231129_SchwerinerSchloss"&FORM=HPQUIZ "必应主页测验 2023 11月 29")
+[下载480](https://cn.bing.com/th?id=OHR.SchwerinerSchloss_ZH-CN2390476345_800x480.jpg&rf=LaDigue_800x480.jpg "什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国")
+[下载720](https://cn.bing.com/th?id=OHR.SchwerinerSchloss_ZH-CN2390476345_1280x720.jpg&rf=LaDigue_1280x720.jpg "什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.SchwerinerSchloss_ZH-CN2390476345_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SchwerinerSchloss_ZH-CN2390476345_UHD.jpg&rf=LaDigue_UHD.jpg "什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国")
+
+---
 ### 11月28日：冬日私语
 #### 阿西尼博因山省级公园，加拿大（© matt macpherson/500px/Getty Images）
 
@@ -235,22 +252,5 @@ Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔�
 [下载720](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨雷克国家公园的拉帕谷，瑞典")
 [下载1080](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨雷克国家公园的拉帕谷，瑞典")
 [下载UHD](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_UHD.jpg&rf=LaDigue_UHD.jpg "萨雷克国家公园的拉帕谷，瑞典")
-
----
-### 11月14日：让人又爱又恨的花田
-#### 特卡波湖沿岸的鲁冰花，南岛，新西兰（© Jeffrey Lewis/Tandem Stills + Motion）
-
-![让人又爱又恨的花田](https://cn.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_800x480.jpg&rf=LaDigue_800x480.jpg "让人又爱又恨的花田")
-
-图上展示的是新西兰南岛特卡波湖的美景。每年的11月中旬到12月，湖面都会发生巨大的变化，色彩鲜艳的鲁冰花竞相绽放，将自然美景提升到新的高度。这些植物盛开的头状花序是由豌豆般的花朵组成，最长可达60英寸。摄影师和自然爱好者们纷纷前来，只为一睹紫色、蓝色和黄色的鲁冰花在特卡波湖上绚丽绽放的风姿。不过，鲁冰花的存在却颇具争议。作为外来入侵植物，他们生长茂密，将其他植物排斥在外。虽然这些鲁冰花可能会吸引游客，但它们破坏了该地区的生态平衡，对该地区的生态系统造成了负面影响。
-
-天气晴朗时，从特卡波湖可以看到库克山国家公园更高处的雪峰。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%b2%81%e5%86%b0%e8%8a%b1&form=hpcapt&filters=HpDate:"20231113_1600" "Bing Wallpaper 2023 11月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231114_RussellLupines"&FORM=HPQUIZ "必应主页测验 2023 11月 14")
-[下载480](https://cn.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_800x480.jpg&rf=LaDigue_800x480.jpg "特卡波湖沿岸的鲁冰花，南岛，新西兰")
-[下载720](https://cn.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_1280x720.jpg&rf=LaDigue_1280x720.jpg "特卡波湖沿岸的鲁冰花，南岛，新西兰")
-[下载1080](https://cn.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特卡波湖沿岸的鲁冰花，南岛，新西兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_UHD.jpg&rf=LaDigue_UHD.jpg "特卡波湖沿岸的鲁冰花，南岛，新西兰")
 
 ---
