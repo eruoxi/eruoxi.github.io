@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月30日：守望的老人
+#### 斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国（© Juan Maria Coy Vergara/Getty Images）
+
+![守望的老人](https://cn.bing.com/th?id=OHR.TrotternishStorr_ZH-CN2508882441_800x480.jpg&rf=LaDigue_800x480.jpg "守望的老人")
+
+苏格兰有很多自然奇观适合作为民间传说的背景，斯托尔就是其中之一。它位于斯凯岛，是一座高达160英尺的岩石尖峰。从某些角度看，它就像一位饱经风霜的老人。在这里，我们可以了解到苏格兰的守护神圣安德鲁的历史传说。历史上的苏格兰人以好客和友善著称，1320年苏格兰宣布独立时，他们将圣安德鲁定为守护神。为了记住自己的“苏格兰根”，在美国的苏格兰移民普及推广了圣安德鲁日的庆祝活动。而苏格兰并不是唯一庆祝圣安德鲁日的国家。从罗马尼亚到巴巴多斯，许多国家会以自己的传统方式纪念这位历史人物。
+
+斯托尔悬崖前方的区域被称为 "避护所"，这里有许多形状怪异的岩石尖峰，是古代山崩滑坡的遗迹。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8b%8f%e6%a0%bc%e5%85%b0%e6%96%af%e5%87%af%e5%b2%9b&form=hpcapt&filters=HpDate:"20231129_1600" "Bing Wallpaper 2023 11月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231130_TrotternishStorr"&FORM=HPQUIZ "必应主页测验 2023 11月 30")
+[下载480](https://cn.bing.com/th?id=OHR.TrotternishStorr_ZH-CN2508882441_800x480.jpg&rf=LaDigue_800x480.jpg "斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国")
+[下载720](https://cn.bing.com/th?id=OHR.TrotternishStorr_ZH-CN2508882441_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.TrotternishStorr_ZH-CN2508882441_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.TrotternishStorr_ZH-CN2508882441_UHD.jpg&rf=LaDigue_UHD.jpg "斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国")
+
+---
 ### 11月29日：童话中的城堡
 #### 什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国（© Hannes Wendt/Shutterstock）
 
@@ -235,22 +252,5 @@ Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔�
 [下载720](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_1280x720.jpg&rf=LaDigue_1280x720.jpg "雅典和卫城，希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雅典和卫城，希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_UHD.jpg&rf=LaDigue_UHD.jpg "雅典和卫城，希腊")
-
----
-### 11月15日：想象一下此处的回声
-#### 萨雷克国家公园的拉帕谷，瑞典（© Hans Strand/Getty Images）
-
-![想象一下此处的回声](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_800x480.jpg&rf=LaDigue_800x480.jpg "想象一下此处的回声")
-
-拉帕谷坐落在瑞典萨雷克国家公园内，这里既有河流穿过郁郁葱葱的草地，也有高耸的山峰直插云霄。在瑞典北部的这个国家公园里，麋鹿可以自由地驰骋，金雕在空中翱翔，踪迹难寻的北极狐在雪地上留下了痕迹。瑞典拥有众多的国家公园，从阿比斯库国家公园的美景到萨勒克国家公园的陡峭山峰，每个国家公园都是一个奇迹。萨米人自古以来就以这片高山地区以及挪威、芬兰和俄罗斯的部分地区为家，他们的文化遗产与荒野交织在一起。他们以狩猎、放牧和打渔为生，不过最出名的可能还是他们放牧驯鹿的习俗。
-
-拉帕河三角洲被认为是欧洲最著名的景观之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%91%9e%e5%85%b8&form=hpcapt&filters=HpDate:"20231114_1600" "Bing Wallpaper 2023 11月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231115_SarekSweden"&FORM=HPQUIZ "必应主页测验 2023 11月 15")
-[下载480](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_800x480.jpg&rf=LaDigue_800x480.jpg "萨雷克国家公园的拉帕谷，瑞典")
-[下载720](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨雷克国家公园的拉帕谷，瑞典")
-[下载1080](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨雷克国家公园的拉帕谷，瑞典")
-[下载UHD](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_UHD.jpg&rf=LaDigue_UHD.jpg "萨雷克国家公园的拉帕谷，瑞典")
 
 ---
