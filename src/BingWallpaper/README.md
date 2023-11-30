@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月01日：为最酷的地方欢呼！
+#### 罗斯海的冰山，南极洲（© Michel Roggo/Minden Pictures）
+
+![为最酷的地方欢呼！](https://cn.bing.com/th?id=OHR.IcebergAntarctica_ZH-CN2053356825_800x480.jpg&rf=LaDigue_800x480.jpg "为最酷的地方欢呼！")
+
+地球上风最大、最寒冷、最干燥的大陆，世界第五大洲——南极洲，于1820年被发现。在随后的几十年里，多个国家组织探险队前往南极冰原进行考察。由于南极洲没有原住民，因此各国都声称对其拥有主权。随着紧张局势的加剧，12个国家于1959年签署了《南极条约》，将该地区划为科学研究区，并禁止一切军事活动。目前该条约已有56个缔约国，我们今天庆祝的就是这个条约的周年纪念日。
+
+在2017年南极洲的冬季，新西兰科学家首次在罗斯海北部海底山脉发现了南极犬牙鱼的繁殖地，这凸显出人们对该物种知之甚少。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%bd%97%e6%96%af%e6%b5%b7&form=hpcapt&filters=HpDate:"20231130_1600" "Bing Wallpaper 2023 12月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231201_IcebergAntarctica"&FORM=HPQUIZ "必应主页测验 2023 12月 1")
+[下载480](https://cn.bing.com/th?id=OHR.IcebergAntarctica_ZH-CN2053356825_800x480.jpg&rf=LaDigue_800x480.jpg "罗斯海的冰山，南极洲")
+[下载720](https://cn.bing.com/th?id=OHR.IcebergAntarctica_ZH-CN2053356825_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗斯海的冰山，南极洲")
+[下载1080](https://cn.bing.com/th?id=OHR.IcebergAntarctica_ZH-CN2053356825_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗斯海的冰山，南极洲")
+[下载UHD](https://cn.bing.com/th?id=OHR.IcebergAntarctica_ZH-CN2053356825_UHD.jpg&rf=LaDigue_UHD.jpg "罗斯海的冰山，南极洲")
+
+---
 ### 11月30日：守望的老人
 #### 斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国（© Juan Maria Coy Vergara/Getty Images）
 
@@ -235,22 +252,5 @@ Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔�
 [下载720](https://cn.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_1280x720.jpg&rf=LaDigue_1280x720.jpg "铜瀑布州立公园的巴德河，威斯康星州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "铜瀑布州立公园的巴德河，威斯康星州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_UHD.jpg&rf=LaDigue_UHD.jpg "铜瀑布州立公园的巴德河，威斯康星州，美国")
-
----
-### 11月16日：西方哲学的发源地
-#### 雅典和卫城，希腊（© Mlenny/Getty Images）
-
-![西方哲学的发源地](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_800x480.jpg&rf=LaDigue_800x480.jpg "西方哲学的发源地")
-
-值此世界哲学日之际，我们一起来了解一下希腊首都雅典。这座城市既是欧洲哲学的发源地，也是西方文明的摇篮，其标志性建筑雅典卫城和帕特农神庙让我们想起苏格拉底、柏拉图和亚里士多德的聪明才智。古希腊哲学注重批判性思维和质疑精神，希腊三贤掀起的理性革命，对当今社会仍有深远的影响。联合国教科文组织也通过庆祝世界哲学日，来彰显哲学对人类思想、文化和个人的深远影响。哲学是一门智慧学，今天就花点时间去领略哲学的奥秘吧！
-
-每年11月的第三个星期四是世界哲学日。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%93%b2%e5%ad%a6%e6%97%a5&form=hpcapt&filters=HpDate:"20231115_1600" "Bing Wallpaper 2023 11月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231116_AthensAcropolis"&FORM=HPQUIZ "必应主页测验 2023 11月 16")
-[下载480](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_800x480.jpg&rf=LaDigue_800x480.jpg "雅典和卫城，希腊")
-[下载720](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_1280x720.jpg&rf=LaDigue_1280x720.jpg "雅典和卫城，希腊")
-[下载1080](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雅典和卫城，希腊")
-[下载UHD](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_UHD.jpg&rf=LaDigue_UHD.jpg "雅典和卫城，希腊")
 
 ---
