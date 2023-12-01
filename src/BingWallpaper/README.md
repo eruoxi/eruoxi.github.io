@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月02日：永恒的瑰宝
+#### 瓜廖尔堡，中央邦，印度（© Dmitry Rukhlenko-Photos of India/Alamy）
+
+![永恒的瑰宝](https://cn.bing.com/th?id=OHR.GwaliorFortMP_ZH-CN3300432281_800x480.jpg&rf=LaDigue_800x480.jpg "永恒的瑰宝")
+
+在印度的心脏地带，在众多雄伟的山地堡垒中，瓜廖尔堡傲然屹立在一座巨大的岩石山上。这座堡垒最初是由砂岩和石灰砂浆组建而成，是瓜廖尔最著名的地标之一。瓜廖尔堡的历史源远流长，历代统治者都曾对其进行过围攻和征服。曾几何时，瓜廖尔要塞是印度北部和中部心脏地带坚不可摧的堡垒。它不仅是军事力量的象征，还拥有众多寺庙，每个寺庙都带有不同时代不同国王的独特印记。
+
+印度瓜廖尔市一座9世纪的寺庙里有第二古老的“零”铭文。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%93%9c%e5%bb%96%e5%b0%94%e5%a0%a1+%e4%b8%ad%e5%a4%ae%e9%82%a6&form=hpcapt&filters=HpDate:"20231201_1600" "Bing Wallpaper 2023 12月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231202_GwaliorFortMP"&FORM=HPQUIZ "必应主页测验 2023 12月 2")
+[下载480](https://cn.bing.com/th?id=OHR.GwaliorFortMP_ZH-CN3300432281_800x480.jpg&rf=LaDigue_800x480.jpg "瓜廖尔堡，中央邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.GwaliorFortMP_ZH-CN3300432281_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓜廖尔堡，中央邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.GwaliorFortMP_ZH-CN3300432281_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓜廖尔堡，中央邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.GwaliorFortMP_ZH-CN3300432281_UHD.jpg&rf=LaDigue_UHD.jpg "瓜廖尔堡，中央邦，印度")
+
+---
 ### 12月01日：为最酷的地方欢呼！
 #### 罗斯海的冰山，南极洲（© Michel Roggo/Minden Pictures）
 
@@ -235,22 +252,5 @@ Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔�
 [下载720](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大")
-
----
-### 11月17日：该给靴子系上鞋带了！
-#### 铜瀑布州立公园的巴德河，威斯康星州，美国（© Big Joe/Getty Images）
-
-![该给靴子系上鞋带了！](https://cn.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_800x480.jpg&rf=LaDigue_800x480.jpg "该给靴子系上鞋带了！")
-
-朋友们，是时候系好登山靴，一起去徒步了！早在20世纪60年代，美国的林登·约翰逊总统就签署了《国家步道系统法案》，旨在保护、推广和开发美国各地的自然和历史资源。还在犹豫去哪里徒步旅行？这里有一个选择：就是图上这座位于威斯康星州的铜瀑布州立公园。从巴德河沿岸那长达17英里步道，到瀑布和古老的熔岩流，这个公园有很多值得一去的地方。无论是崎岖的山路，宁静的林间小道，还是海滨步道，这个国家总有一条步道适合你。但请记住，一定要尊重自然，遵循“不留痕迹”的原则，除了照片什么都别留下。祝你徒步旅行愉快!
-
-2005年，这座公园被列入了美国国家历史名胜古迹名录。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e6%96%af%e5%ba%b7%e6%98%9f%e5%b7%9e&form=hpcapt&filters=HpDate:"20231116_1600" "Bing Wallpaper 2023 11月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231117_BadRiver"&FORM=HPQUIZ "必应主页测验 2023 11月 17")
-[下载480](https://cn.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_800x480.jpg&rf=LaDigue_800x480.jpg "铜瀑布州立公园的巴德河，威斯康星州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_1280x720.jpg&rf=LaDigue_1280x720.jpg "铜瀑布州立公园的巴德河，威斯康星州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "铜瀑布州立公园的巴德河，威斯康星州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_UHD.jpg&rf=LaDigue_UHD.jpg "铜瀑布州立公园的巴德河，威斯康星州，美国")
 
 ---
