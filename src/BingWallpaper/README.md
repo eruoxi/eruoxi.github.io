@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月03日：时光雕琢
+#### 砂岩岩层，红悬崖国家保护区，亚利桑那州，美国（© Yva Momatiuk and John Eastcott/Minden Pictures）
+
+![时光雕琢](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_800x480.jpg&rf=LaDigue_800x480.jpg "时光雕琢")
+
+位于亚利桑那州的红悬崖国家保护区有层层叠叠的砂岩岩层、高耸的石柱和超现实的狭缝型峡谷。该保护区建于2000年，因该地岩层的主色调为鲜红色而得名“红悬崖”。一旦你获得了参观这一独特的户外景点的许可证，请一定要去参观波浪谷：这是一个令人惊叹的地质奇观，流动状的岩石层就像凝固的红色液体。该保护区的奇观还包括眼镜蛇拱门和由砂岩结构组成的白口袋岩层。白口袋的岩层不仅有交叉的层理和漩涡状图案，还有白色、红色和橙色等多种颜色。
+
+红悬崖保护区是加利福尼亚秃鹫的重新引入地。沿着保护区的土路有一个讲解观赏区，在这里可能会看到这些巨大的秃鹫栖息在岩壁上。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a2%e6%82%ac%e5%b4%96%e5%9b%bd%e5%ae%b6%e4%bf%9d%e6%8a%a4%e5%8c%ba&form=hpcapt&filters=HpDate:"20231202_1600" "Bing Wallpaper 2023 12月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231203_VermilionCliffs"&FORM=HPQUIZ "必应主页测验 2023 12月 3")
+[下载480](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_800x480.jpg&rf=LaDigue_800x480.jpg "砂岩岩层，红悬崖国家保护区，亚利桑那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_1280x720.jpg&rf=LaDigue_1280x720.jpg "砂岩岩层，红悬崖国家保护区，亚利桑那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "砂岩岩层，红悬崖国家保护区，亚利桑那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_UHD.jpg&rf=LaDigue_UHD.jpg "砂岩岩层，红悬崖国家保护区，亚利桑那州，美国")
+
+---
 ### 12月02日：永恒的瑰宝
 #### 瓜廖尔堡，中央邦，印度（© Dmitry Rukhlenko-Photos of India/Alamy）
 
@@ -235,22 +252,5 @@ Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔�
 [下载720](https://cn.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_1280x720.jpg&rf=LaDigue_1280x720.jpg "Alam-Pedja自然保护区，爱沙尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Alam-Pedja自然保护区，爱沙尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_UHD.jpg&rf=LaDigue_UHD.jpg "Alam-Pedja自然保护区，爱沙尼亚")
-
----
-### 11月18日：寒地温情
-#### 北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大（© Thorsten Milse/Getty Images）
-
-![寒地温情](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_800x480.jpg&rf=LaDigue_800x480.jpg "寒地温情")
-
-加拿大曼尼托巴省的丘吉尔镇位于哈得逊湾沿岸，虽然地处偏远，但这里的四季美景值得你跋涉前往。从白鲸到北极光，从沉船到海堤墙绘，这里的惊喜无穷无尽。此外，这里还是观赏北极熊的最佳地点，因此被誉为“世界北极熊之都”。从10月到11月，这些白色巨兽会迁徙到这里，等待海湾结冰，然后出海捕食海豹。不过不用怕，游客们可以乘坐定制车辆安全地观赏北极熊。这里还设有所谓的“北极熊监狱”，以管理熊与人之间的互动。那么，你准备好开启一场让你不寒而栗但又充满乐趣的野外探险了吗？
-
-北极熊是现存最大的熊类和陆地食肉动物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%98%e5%90%89%e5%b0%94%e5%9f%8e&form=hpcapt&filters=HpDate:"20231117_1600" "Bing Wallpaper 2023 11月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231118_MilsePolarBear"&FORM=HPQUIZ "必应主页测验 2023 11月 18")
-[下载480](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_800x480.jpg&rf=LaDigue_800x480.jpg "北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大")
 
 ---
