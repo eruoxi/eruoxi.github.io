@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月04日：机敏可爱的捕猎高手
+#### 一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚（© Scott Davis/Tandem Stills + Motion）
+
+![机敏可爱的捕猎高手](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_800x480.jpg&rf=LaDigue_800x480.jpg "机敏可爱的捕猎高手")
+
+在马赛马拉国家保护区的心脏地带，非洲大草原一望无际，猎豹以每小时80英里的速度成为陆地上奔跑速度最快的动物。猎豹皮毛光滑，体表遍布黑色斑点，它们在这片广阔的土地上茁壮成长，警惕地寻找猎物的踪迹。马赛马拉国家保护区是东非猎豹分布数量最多的地区之一，然而不幸的是，栖息地的丧失和人类的影响正威胁着它们的生存。因此，采取多种措施保护猎豹至关重要。今天既是国际猎豹日，也是野生动物保护日，让我们多多了解猎豹的生存困境，提高对野生动物的保护意识。在这一天，我们不仅要欣赏这些“野猫”的狂野和优雅，还要欣赏所有与人类共享世界的野生动物。
+
+猎豹在各种艺术作品中出镜率很高。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8c%8e%e8%b1%b9&form=hpcapt&filters=HpDate:"20231203_1600" "Bing Wallpaper 2023 12月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231204_CheetahDay"&FORM=HPQUIZ "必应主页测验 2023 12月 4")
+[下载480](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_800x480.jpg&rf=LaDigue_800x480.jpg "一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_UHD.jpg&rf=LaDigue_UHD.jpg "一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚")
+
+---
 ### 12月03日：时光雕琢
 #### 砂岩岩层，红悬崖国家保护区，亚利桑那州，美国（© Yva Momatiuk and John Eastcott/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_1280x720.jpg&rf=LaDigue_1280x720.jpg "科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲")
 [下载1080](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲")
 [下载UHD](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_UHD.jpg&rf=LaDigue_UHD.jpg "科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲")
-
----
-### 11月19日：谨慎行事！
-#### Alam-Pedja自然保护区，爱沙尼亚（© Sven Zacek/Minden Pictures）
-
-![谨慎行事！](https://cn.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_800x480.jpg&rf=LaDigue_800x480.jpg "谨慎行事！")
-
-在爱沙尼亚的众多自然景观中，有一个建立于1994年的Alam-Pedja自然保护区。这片偶尔被冰雪覆盖的保护区位于塔尔图县，占地132平方英里，是爱沙尼亚最大的自然保护区。该保护区是由广袤的湿地、森林和河流组合而成的，还有尚未被开发的原始荒野。从稀有的白尾海雕到行踪难觅的黑鹳，这里有200多种鸟类。图上展示的是保护区那由水生森林织造而成的绮丽画卷：静水森林、沼泽森林和洪泛森林错落有致，细长的莎草植物点缀其间。此外，这里还有蜿蜒的小径和木板路吸引着探险家们来打造自己的冒险之旅。
-
-Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔叶林和原始森林尤为珍贵。
-
-[Bing搜索](https://cn.bing.com/search?q=Alam-Pedja%e8%87%aa%e7%84%b6%e4%bf%9d%e6%8a%a4%e5%8c%ba&form=hpcapt&filters=HpDate:"20231118_1600" "Bing Wallpaper 2023 11月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231119_FrozenBog"&FORM=HPQUIZ "必应主页测验 2023 11月 19")
-[下载480](https://cn.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_800x480.jpg&rf=LaDigue_800x480.jpg "Alam-Pedja自然保护区，爱沙尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_1280x720.jpg&rf=LaDigue_1280x720.jpg "Alam-Pedja自然保护区，爱沙尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Alam-Pedja自然保护区，爱沙尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_UHD.jpg&rf=LaDigue_UHD.jpg "Alam-Pedja自然保护区，爱沙尼亚")
 
 ---
