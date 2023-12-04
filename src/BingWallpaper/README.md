@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月05日：童话故事中的场景
+#### 天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国（© Harald Nachtmann/Getty Images）
+
+![童话故事中的场景](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_800x480.jpg&rf=LaDigue_800x480.jpg "童话故事中的场景")
+
+巴伐利亚阿尔卑斯山是德国南部一座雄伟的山脉，拥有两座城堡：新天鹅堡和旧天鹅堡。新天鹅堡是19世纪由巴伐利亚国王路德维希二世委托建造的罗曼式复兴宫殿，以童话般的建筑、塔楼和令人叹为观止的山景而闻名。越过山谷，远眺阿尔卑斯湖，是同样壮观的旧天鹅堡，由路德维希二世的父亲，巴伐利亚国王马克西米连二世建造。这两座城堡拥有奢华的内部装饰、丰富的艺术品和历史文物，每年都有数百万游客前往，一窥巴伐利亚的辉煌历史。
+
+现在的旧天鹅堡最早于1397年被提及，当时名为天鹅堡。直到19世纪，新天鹅堡和旧天鹅堡才互换了名称。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%b0%e5%a4%a9%e9%b9%85%e5%a0%a1%e5%92%8c%e6%97%a7%e5%a4%a9%e9%b9%85%e5%a0%a1&form=hpcapt&filters=HpDate:"20231204_1600" "Bing Wallpaper 2023 12月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231205_AlpsCastles"&FORM=HPQUIZ "必应主页测验 2023 12月 5")
+[下载480](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_800x480.jpg&rf=LaDigue_800x480.jpg "天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国")
+[下载720](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_1280x720.jpg&rf=LaDigue_1280x720.jpg "天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_UHD.jpg&rf=LaDigue_UHD.jpg "天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国")
+
+---
 ### 12月04日：机敏可爱的捕猎高手
 #### 一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚（© Scott Davis/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_1280x720.jpg&rf=LaDigue_1280x720.jpg "英国诺福克海滩上的灰海豹幼崽")
 [下载1080](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "英国诺福克海滩上的灰海豹幼崽")
 [下载UHD](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_UHD.jpg&rf=LaDigue_UHD.jpg "英国诺福克海滩上的灰海豹幼崽")
-
----
-### 11月20日：童话城堡
-#### 科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲（© Billy Stock/robertharding/Alamy Stock Photo）
-
-![童话城堡](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_800x480.jpg&rf=LaDigue_800x480.jpg "童话城堡")
-
-科奇城堡坐落在威尔士的一座树木繁茂的山丘上，该城堡的名字在威尔士语中的意思是“红色城堡”，著名建筑师威廉·伯吉斯是它的设计师。这座城堡的内部装饰颇为奢华，犹如一首由繁复的雕刻工艺、鲜艳的彩色玻璃和奢华的家具交织而成的华丽交响乐。城堡的独特外形和维多利亚时期的内部设计充分展示了设计师的才华。其设计融合了中世纪的底蕴及19世纪的创新，被誉为英国哥特式复兴的典范。城堡的四周树林密布，从远处望去，宛若童话世界。这片山毛榉森林拥有丰富的植被，包括蝴蝶兰、燕窝兰和多年生山靛等稀有植物，具有特殊的科考价值，因而被保护起来了。
-
-由于特殊的建筑风格和历史价值，科奇城堡被英国列为一级保护建筑。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e5%a5%87%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20231119_1600" "Bing Wallpaper 2023 11月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231120_CastleCoch"&FORM=HPQUIZ "必应主页测验 2023 11月 20")
-[下载480](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_800x480.jpg&rf=LaDigue_800x480.jpg "科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲")
-[下载720](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_1280x720.jpg&rf=LaDigue_1280x720.jpg "科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲")
-[下载1080](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲")
-[下载UHD](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_UHD.jpg&rf=LaDigue_UHD.jpg "科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲")
 
 ---
