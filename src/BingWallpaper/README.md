@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月06日：穿过群山的蜿蜒小路
+#### 达尔达尼亚瀑布，博洛尼亚，意大利（© Alberto Ghizzi Panizza/Minden）
+
+![穿过群山的蜿蜒小路](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_800x480.jpg&rf=LaDigue_800x480.jpg "穿过群山的蜿蜒小路")
+
+在艾米利亚-罗马涅大区的众多奇观中，达尔达尼亚瀑布无疑是引人注目的。达尔达尼亚瀑布的名字来源于一条同名的溪流，该溪流在海拔250米的高差上形成了七个壮观的瀑布，其中最高的落差约为30米。该瀑布靠近圣母玛利亚圣殿，其壮丽的风景吸引了无数游客。流经数公里后，达尔达尼亚溪流汇入利奥河，随后流入帕纳罗河，而帕纳罗河又是更大的河流——波河的一条支流。由于水质纯净，达尔达尼亚溪流是许多鱼类的栖息地，如褐鳟鱼和蓝鳟鱼。
+
+博洛尼亚是意大利人口第七大城市，约有40万居民。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%9a%e6%b4%9b%e5%b0%bc%e4%ba%9a&form=hpcapt&filters=HpDate:"20231205_1600" "Bing Wallpaper 2023 12月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231206_DardagnaWaterfalls"&FORM=HPQUIZ "必应主页测验 2023 12月 6")
+[下载480](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_800x480.jpg&rf=LaDigue_800x480.jpg "达尔达尼亚瀑布，博洛尼亚，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_1280x720.jpg&rf=LaDigue_1280x720.jpg "达尔达尼亚瀑布，博洛尼亚，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "达尔达尼亚瀑布，博洛尼亚，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_UHD.jpg&rf=LaDigue_UHD.jpg "达尔达尼亚瀑布，博洛尼亚，意大利")
+
+---
 ### 12月05日：童话故事中的场景
 #### 天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国（© Harald Nachtmann/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_1280x720.jpg&rf=LaDigue_1280x720.jpg "大提顿国家公园，怀俄明州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大提顿国家公园，怀俄明州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_UHD.jpg&rf=LaDigue_UHD.jpg "大提顿国家公园，怀俄明州，美国")
-
----
-### 11月21日：欢迎来到这个世界！
-#### 英国诺福克海滩上的灰海豹幼崽（© Vince Burton/Minden Pictures）
-
-![欢迎来到这个世界！](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_800x480.jpg&rf=LaDigue_800x480.jpg "欢迎来到这个世界！")
-
-如果你此时去英国诺福克海滩度假，大概率会看到刚出生的灰海豹幼崽。每年的11月初至1月初，约有3,000只灰海豹幼崽在英国的诺福克海滩上出生，使该地区成为英国最重要的灰海豹繁殖地之一。相比之下，美国海岸的灰海豹幼崽出生时间略晚。海豹妈妈会在海滩上悉心喂养幼崽三周，在这期间，幼崽每天增重约4.5磅！喂养期结束后，小海豹们还不能立刻下水。它们会待在海滩上，直到苍白的皮毛变成斑驳的灰色，才会前往大海，学会自己捕猎。
-
-海豹幼崽第一年的存活率因地区及其自身条件而异。据估计，有的地区的海豹幼崽存活率在80%到85%之间，有的地区则低于50%。导致海豹幼崽死亡的主要原因是进食困难导致的饥饿。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%81%b0%e6%b5%b7%e8%b1%b9&form=hpcapt&filters=HpDate:"20231120_1600" "Bing Wallpaper 2023 11月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231121_HelloSeal"&FORM=HPQUIZ "必应主页测验 2023 11月 21")
-[下载480](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_800x480.jpg&rf=LaDigue_800x480.jpg "英国诺福克海滩上的灰海豹幼崽")
-[下载720](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_1280x720.jpg&rf=LaDigue_1280x720.jpg "英国诺福克海滩上的灰海豹幼崽")
-[下载1080](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "英国诺福克海滩上的灰海豹幼崽")
-[下载UHD](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_UHD.jpg&rf=LaDigue_UHD.jpg "英国诺福克海滩上的灰海豹幼崽")
 
 ---
