@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月07日：欧洲大峡谷
+#### 韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国（© Hemis/Alamy）
+
+![欧洲大峡谷](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_800x480.jpg&rf=LaDigue_800x480.jpg "欧洲大峡谷")
+
+韦尔东峡谷是位于法国东南部普罗旺斯-阿尔卑斯-蓝色海岸大区的一条河流峡谷。峡谷绵延近百里，是欧洲最大的峡谷，其悬崖峭壁雄伟壮观，高度可达750米。普罗旺斯阿尔卑斯大区数百万年的侵蚀形成了这一壮观的自然景观，而韦尔东河水的翡翠色正是其名称的由来。
+
+直到1906年，韦尔东峡谷才在法国以外扬名。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%9f%a6%e5%b0%94%e4%b8%9c%e5%b3%a1%e8%b0%b7&form=hpcapt&filters=HpDate:"20231206_1600" "Bing Wallpaper 2023 12月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231207_GrandCanyonVerdon"&FORM=HPQUIZ "必应主页测验 2023 12月 7")
+[下载480](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_800x480.jpg&rf=LaDigue_800x480.jpg "韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国")
+[下载720](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_1280x720.jpg&rf=LaDigue_1280x720.jpg "韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_UHD.jpg&rf=LaDigue_UHD.jpg "韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国")
+
+---
 ### 12月06日：穿过群山的蜿蜒小路
 #### 达尔达尼亚瀑布，博洛尼亚，意大利（© Alberto Ghizzi Panizza/Minden）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_1280x720.jpg&rf=LaDigue_1280x720.jpg "泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_UHD.jpg&rf=LaDigue_UHD.jpg "泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙")
-
----
-### 11月22日：人少景美的静谧之地
-#### 大提顿国家公园，怀俄明州，美国（© Westend61/Getty Images）
-
-![人少景美的静谧之地](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_800x480.jpg&rf=LaDigue_800x480.jpg "人少景美的静谧之地")
-
-今天的图片让我们一睹大提顿国家公园的美景！该公园建于1929年，位于美国人口最少的怀俄明州，以壮丽连绵的雪山山峰而闻名。园区内高耸入云的巍峨雪山，与蜿蜒的蛇河、纯净的湖水以及丰富的野生动物共同构成了一幅美丽的画卷。去这里的时候，要记得带上你的双筒望远镜！如果是夏天，一定要观察叉角羚，它们可是长途跋涉了约150英里才来到这里。此外，麋鹿和野牛也是这里的夏季访客。这些动物的迁徙不仅有助于植物种子的传播，还为其他捕食者提供了食物，这对大提顿国家公园的生态系统起着至关重要的作用。
-
-大提顿山脉是落基山脉中最年轻的山脉。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e6%8f%90%e9%a1%bf%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231121_1600" "Bing Wallpaper 2023 11月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231122_SnakeRiverTeton"&FORM=HPQUIZ "必应主页测验 2023 11月 22")
-[下载480](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_800x480.jpg&rf=LaDigue_800x480.jpg "大提顿国家公园，怀俄明州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_1280x720.jpg&rf=LaDigue_1280x720.jpg "大提顿国家公园，怀俄明州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大提顿国家公园，怀俄明州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_UHD.jpg&rf=LaDigue_UHD.jpg "大提顿国家公园，怀俄明州，美国")
 
 ---
