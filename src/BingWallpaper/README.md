@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月08日：不是那个泽西海岸!
+#### 拉罗克港，圣克莱门特，泽西岛（© Reinhard Schmid/Huber/eStock Photo）
+
+![不是那个泽西海岸!](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_800x480.jpg&rf=LaDigue_800x480.jpg "不是那个泽西海岸!")
+
+泽西岛位于法国诺曼底海岸附近，是一个有着北欧名字的英属岛屿。拉罗克港位于岛的东南岸，这里有洁白的沙滩和延伸至水中的高架人行道。海岸线上的花岗岩和深成岩起源于4.2亿多年前，呈现出多样化的颜色和纹理。从港口可以看到圆圆的、矮胖的伊乔塔和较高一些的西摩塔，它们分别建于18世纪和19世纪，是海防建筑。这两座建筑距离海岸都有1800多英尺，如果你想步行到这两座建筑的所在地，不仅需要穿一双结实的鞋子，还只能选在一年中潮水退至最低点的时候。
+
+泽西岛一开始属于诺曼底公国，而在1066年诺曼底公爵成了英格兰国王后，泽西岛也就成了英国国王的世袭领地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%bd%e8%a5%bf%e5%b2%9b&form=hpcapt&filters=HpDate:"20231207_1600" "Bing Wallpaper 2023 12月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231208_JerseyIsland"&FORM=HPQUIZ "必应主页测验 2023 12月 8")
+[下载480](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_800x480.jpg&rf=LaDigue_800x480.jpg "拉罗克港，圣克莱门特，泽西岛")
+[下载720](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_1280x720.jpg&rf=LaDigue_1280x720.jpg "拉罗克港，圣克莱门特，泽西岛")
+[下载1080](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拉罗克港，圣克莱门特，泽西岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_UHD.jpg&rf=LaDigue_UHD.jpg "拉罗克港，圣克莱门特，泽西岛")
+
+---
 ### 12月07日：欧洲大峡谷
 #### 韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国（© Hemis/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_UHD.jpg&rf=LaDigue_UHD.jpg "奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国")
-
----
-### 11月23日：从深海到天空
-#### 泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙（© Javier Martínez Morán/Alamy）
-
-![从深海到天空](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_800x480.jpg&rf=LaDigue_800x480.jpg "从深海到天空")
-
-雄伟的泰德峰海拔3718米，耸立在加那利群岛上。这座火山从海底隆起的高度达到了惊人的7500米，因此它既是西班牙最高的山峰，也是世界上海拔第三高的火山。
-
-泰德火山拥有世界上最大的锥形阴影。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b3%b0%e5%be%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231122_1600" "Bing Wallpaper 2023 11月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231123_TeideNational"&FORM=HPQUIZ "必应主页测验 2023 11月 23")
-[下载480](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_800x480.jpg&rf=LaDigue_800x480.jpg "泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_1280x720.jpg&rf=LaDigue_1280x720.jpg "泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_UHD.jpg&rf=LaDigue_UHD.jpg "泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙")
 
 ---
