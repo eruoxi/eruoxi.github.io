@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月10日：一个让人沉思的地方
+#### 林帕达恩湖，斯诺登尼亚国家公园， 威尔士（© Joe Daniel Price/Getty Images）
+
+![一个让人沉思的地方](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_800x480.jpg&rf=LaDigue_800x480.jpg "一个让人沉思的地方")
+
+从波光粼粼的湖水、崎岖的山道、倾泻而下的瀑布到废弃的城堡，斯诺登尼亚国家公园永远令人惊叹。图中的林帕达恩湖位于迷人的兰贝里斯村附近。这个冰川湖长约2英里，深95英尺，是威尔士最大的天然湖泊之一。除此之外，这个冰碛堰塞湖被认定为具有特殊科学价值的地点以及沐浴水域。无论您是皮划艇爱好者，还是桨板运动爱好者，或者只是想简单地沐浴玩水，这里都能满足您的需求。该湖沿岸遍布着板岩采石场的遗迹，让人可以一窥该地区的工业历史。到了那里，别忘了打卡附近的多巴达恩城堡，这座历史悠久的城堡将为您的旅程增添了几分古色古香。
+
+斯诺登尼亚国家公园拥有2处令人印象深刻的联合国教科文组织认定的世界遗产。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e8%af%ba%e7%99%bb%e5%b0%bc%e4%ba%9a%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231209_1600" "Bing Wallpaper 2023 12月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231210_LlanberisSnowdoniaSunset"&FORM=HPQUIZ "必应主页测验 2023 12月 10")
+[下载480](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_800x480.jpg&rf=LaDigue_800x480.jpg "林帕达恩湖，斯诺登尼亚国家公园， 威尔士")
+[下载720](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_1280x720.jpg&rf=LaDigue_1280x720.jpg "林帕达恩湖，斯诺登尼亚国家公园， 威尔士")
+[下载1080](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "林帕达恩湖，斯诺登尼亚国家公园， 威尔士")
+[下载UHD](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_UHD.jpg&rf=LaDigue_UHD.jpg "林帕达恩湖，斯诺登尼亚国家公园， 威尔士")
+
+---
 ### 12月09日：出逃的美洲鸵
 #### 原驼，冰川国家公园，阿根廷（© Yva Momatiuk and John Eastcott/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_1280x720.jpg&rf=LaDigue_1280x720.jpg "布拉德盖特公园的小鹿，莱斯特郡，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布拉德盖特公园的小鹿，莱斯特郡，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_UHD.jpg&rf=LaDigue_UHD.jpg "布拉德盖特公园的小鹿，莱斯特郡，英国")
-
----
-### 11月25日：永恒之城托莱多
-#### 托莱多，西班牙（© Carlos Fernandez/Getty Images）
-
-![永恒之城托莱多](https://cn.bing.com/th?id=OHR.TajoRiver_ZH-CN1752559204_800x480.jpg&rf=LaDigue_800x480.jpg "永恒之城托莱多")
-
-托莱多是位于西班牙卡斯蒂利亚-拉曼恰地区的一座城市，因其独特的地理位置而闻名。托莱多位于一块凸起的高地上，三面被塔古斯河环抱。这座辉煌的城市在中世纪被称为“三文化之城”，基督教、穆斯林和犹太教在这里和谐共处。自1986年起，托莱多就被联合国教科文组织列为世界文化遗产，其历史核心区有许多清真寺、犹太教堂以及令人印象深刻的哥特式大教堂。在八世纪左右，摩尔人来到了这个地方，他们留下的摩尔人文化对这座城市产生了深远的影响。16世纪以前，托莱多的铸剑工艺闻名欧洲。16世纪时，画家埃尔·格列柯曾在这座城市居住，并对该地产生了深刻的影响。在此期间，埃尔·格列柯创作了一些极其重要的作品，如《圣母蒙召升天》，这一画作被视为他最伟大的杰作之一。
-
-罗马帝国灭亡后，西哥特王国于公元542年到725年期间在此建都。托莱多不仅是诸多历史事件（如托莱多会议）的发生地，还是神圣罗马帝国皇帝查理五世在西班牙的宫廷的主会场，并因此被称为“皇城”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e6%89%98%e8%8e%b1%e5%a4%9a&form=hpcapt&filters=HpDate:"20231124_1600" "Bing Wallpaper 2023 11月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231125_TajoRiver"&FORM=HPQUIZ "必应主页测验 2023 11月 25")
-[下载480](https://cn.bing.com/th?id=OHR.TajoRiver_ZH-CN1752559204_800x480.jpg&rf=LaDigue_800x480.jpg "托莱多，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.TajoRiver_ZH-CN1752559204_1280x720.jpg&rf=LaDigue_1280x720.jpg "托莱多，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.TajoRiver_ZH-CN1752559204_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "托莱多，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.TajoRiver_ZH-CN1752559204_UHD.jpg&rf=LaDigue_UHD.jpg "托莱多，西班牙")
 
 ---
