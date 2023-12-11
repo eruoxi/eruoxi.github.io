@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月12日：把你的世界涂成红色
+#### 一品红（© Yarygin/Getty Images）
+
+![把你的世界涂成红色](https://cn.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_800x480.jpg&rf=LaDigue_800x480.jpg "把你的世界涂成红色")
+
+在节日期间，作为善意和集体精神的象征的一品红经常被当作家居装饰品和节日摆件。12月12日是美国的“国家一品红日”，这是纪念这种植物以及乔尔·罗伯茨·波因塞特的特殊日子。波因塞特是一名植物学家以及前驻墨西哥公使，他将美丽的一品红引入美国，并于1851年的12月12日去世。一品红通常生长在大自然中，从墨西哥到危地马拉都能看到它的身影。现在市场上热销的一品红品种，其祖先可追溯到墨西哥的格雷罗州。阿兹特克人将这种深红色叶子的植物用作红色染料和退烧药物。
+
+一直以来，人们普遍认为“圣诞花”一品红对人类和其他动物有毒，但这种说法是错误的。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%80%e5%93%81%e7%ba%a2&form=hpcapt&filters=HpDate:"20231211_1600" "Bing Wallpaper 2023 12月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231212_Poinsettia"&FORM=HPQUIZ "必应主页测验 2023 12月 12")
+[下载480](https://cn.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_800x480.jpg&rf=LaDigue_800x480.jpg "一品红")
+[下载720](https://cn.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_1280x720.jpg&rf=LaDigue_1280x720.jpg "一品红")
+[下载1080](https://cn.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一品红")
+[下载UHD](https://cn.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_UHD.jpg&rf=LaDigue_UHD.jpg "一品红")
+
+---
 ### 12月11日：想看看黄山的全貌吗？
 #### 黄山的冬天，中国（© Hung Chung Chih/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿西尼博因山省级公园，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿西尼博因山省级公园，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_UHD.jpg&rf=LaDigue_UHD.jpg "阿西尼博因山省级公园，加拿大")
-
----
-### 11月27日：水上明镜
-#### 内格罗河，亚马逊河流域，巴西（© Timothy Allen/Getty Images）
-
-![水上明镜](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_800x480.jpg&rf=LaDigue_800x480.jpg "水上明镜")
-
-内格罗河起源于哥伦比亚，是亚马逊河的支流之一。在西班牙语中， 内格罗河（Río Negro）的意思是“黑色的河”，因为从远处看它，河水是黑色的。但走进观看，其河面平静如镜，就如图中所展示的那样，可以倒映出蔚蓝的天空以及彩虹的颜色。内格罗河的河水之所以是黑色的，是因为附近沼泽中渗出了有机物分解时产生的高浓度腐殖酸。作为亚马逊河北岸最大的支流之一，内格罗河在复杂的亚马逊流域生态系统中发挥着至关重要的作用。它也是许多动植物的家园，比如极度濒危的黑白柽柳猴、巴西巨獭以及近700种鱼类。
-
-内格罗河的物种非常丰富，据估计，该河流域共有800至900种鱼类，其中约700种鱼类已被记录归类，还有100多种当地特有鱼类以及一些未被描述的新品种没有被记录。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%86%85%e6%a0%bc%e7%bd%97%e6%b2%b3&form=hpcapt&filters=HpDate:"20231126_1600" "Bing Wallpaper 2023 11月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231127_RioNegro"&FORM=HPQUIZ "必应主页测验 2023 11月 27")
-[下载480](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_800x480.jpg&rf=LaDigue_800x480.jpg "内格罗河，亚马逊河流域，巴西")
-[下载720](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_1280x720.jpg&rf=LaDigue_1280x720.jpg "内格罗河，亚马逊河流域，巴西")
-[下载1080](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "内格罗河，亚马逊河流域，巴西")
-[下载UHD](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_UHD.jpg&rf=LaDigue_UHD.jpg "内格罗河，亚马逊河流域，巴西")
 
 ---
