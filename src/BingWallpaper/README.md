@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月13日：小屋生活
+#### 传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威（© Roberto Moiola/Sysaworld/Getty Images）
+
+![小屋生活](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_800x480.jpg&rf=LaDigue_800x480.jpg "小屋生活")
+
+挪威的罗弗敦群岛位于北极圈内，是传统生活与现代工业的交汇点。斯沃尔韦尔作为一个渔村，拥有悠久的历史。现在，斯沃尔韦尔是罗弗敦的两个城镇之一。但在成为独立的城镇之前，斯沃尔韦尔是沃甘市的一部分，渔民们祖祖辈辈在那里生活了上千年。除了引人注目的渔业，这里也是追求宁静的旅行者们心中的圣地，每年有多达20万游客来访。传统的渔民小屋建在水面上支出的柱子上，为小镇平添了一份独特的魅力。这些小屋曾经是为旅行的渔民建造的，如今，随着当地旅游业的发展，渔民小屋已经被翻修成更符合现代人审美的游客度假小屋。
+
+大西洋鳕鱼渔业一直是沃甘市最重要的经济支柱之一，尤其是在冬季，其他已被证明是沃甘市重要经济来源的还有养鱼业（养鲑鱼）、瑟可拉（一家政府企业，主要负责水运基础设施的建设工作）和罗福克拉夫特（一家电力公司，主要经营电网与水力发电厂）。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e6%b2%83%e5%b0%94%e9%9f%a6%e5%b0%94&form=hpcapt&filters=HpDate:"20231212_1600" "Bing Wallpaper 2023 12月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231213_LofotenRorbu"&FORM=HPQUIZ "必应主页测验 2023 12月 13")
+[下载480](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_800x480.jpg&rf=LaDigue_800x480.jpg "传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_1280x720.jpg&rf=LaDigue_1280x720.jpg "传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_UHD.jpg&rf=LaDigue_UHD.jpg "传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威")
+
+---
 ### 12月12日：把你的世界涂成红色
 #### 一品红（© Yarygin/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SchwerinerSchloss_ZH-CN2390476345_1280x720.jpg&rf=LaDigue_1280x720.jpg "什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.SchwerinerSchloss_ZH-CN2390476345_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SchwerinerSchloss_ZH-CN2390476345_UHD.jpg&rf=LaDigue_UHD.jpg "什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国")
-
----
-### 11月28日：冬日私语
-#### 阿西尼博因山省级公园，加拿大（© matt macpherson/500px/Getty Images）
-
-![冬日私语](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_800x480.jpg&rf=LaDigue_800x480.jpg "冬日私语")
-
-阿西尼博因山坐落在不列颠哥伦比亚省的原始荒野中，与周围的省级公园形成了一个迷人的“高山仙境”。图中这座雄伟的山峰又被称作“落基山脉的马特洪峰”，其海拔高达3618米，以其粗犷雄伟的气势而备受瞩目。“阿西尼博因”这个名字是为了向曾经居住在这里的原住民阿西尼博因人致敬。据悉，阿西尼博因山省级公园是受保护区域，其占地面积超3.9万公顷，为探险者们提供了迷人壮丽景观。在这片荒野上，你还能邂逅不少野生动物，比如灰熊、美洲狮、山羊等。此外，网状般的小径遍布园区，也为游客们提供了便利。沿着小径行走，你可以在公园里徒步旅行、滑雪、露营。在大山的庇护下，这座公园体现了加拿大落基山脉中心地带的自然原始之美的精髓。
-
-1990年，阿西尼博因山省级公园被联合国教科文组织列入加拿大落基山公园群世界遗产名录中。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e8%a5%bf%e5%b0%bc%e5%8d%9a%e5%9b%a0%e5%b1%b1%e7%9c%81%e7%ba%a7%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231127_1600" "Bing Wallpaper 2023 11月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231128_AssiniboineProvincialPark"&FORM=HPQUIZ "必应主页测验 2023 11月 28")
-[下载480](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_800x480.jpg&rf=LaDigue_800x480.jpg "阿西尼博因山省级公园，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿西尼博因山省级公园，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿西尼博因山省级公园，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_UHD.jpg&rf=LaDigue_UHD.jpg "阿西尼博因山省级公园，加拿大")
 
 ---
