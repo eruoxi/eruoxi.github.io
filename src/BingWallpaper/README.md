@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月14日：融为一体的猫头鹰
+#### 北方猫头鹰，萨斯喀彻温省，加拿大（© Nick Saunders/Minden Pictures）
+
+![融为一体的猫头鹰](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_800x480.jpg&rf=LaDigue_800x480.jpg "融为一体的猫头鹰")
+
+在观鸟界，“圣诞节数鸟”活动是一年中最有趣的活动。这项一年一度的鸟类普查活动始于1900年，第一次活动只有27人参加，这些人分布在美国和加拿大的25个地方。自那之后，圣诞节数鸟活动的规模急剧扩大，目前在西半球已有2360多个地方参与其中。
+
+北方猫头鹰栖息在在北美州北部和古北区茂密的针叶林，以及阿尔卑斯山和落基山脉等山脉中。该物种通常不会迁徙，但在某些秋季，它们会大量迁徙到更南边的地方。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%96%b9%e7%8c%ab%e5%a4%b4%e9%b9%b0&form=hpcapt&filters=HpDate:"20231213_1600" "Bing Wallpaper 2023 12月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231214_BorealOwl"&FORM=HPQUIZ "必应主页测验 2023 12月 14")
+[下载480](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_800x480.jpg&rf=LaDigue_800x480.jpg "北方猫头鹰，萨斯喀彻温省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_1280x720.jpg&rf=LaDigue_1280x720.jpg "北方猫头鹰，萨斯喀彻温省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北方猫头鹰，萨斯喀彻温省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_UHD.jpg&rf=LaDigue_UHD.jpg "北方猫头鹰，萨斯喀彻温省，加拿大")
+
+---
 ### 12月13日：小屋生活
 #### 传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威（© Roberto Moiola/Sysaworld/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TrotternishStorr_ZH-CN2508882441_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.TrotternishStorr_ZH-CN2508882441_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.TrotternishStorr_ZH-CN2508882441_UHD.jpg&rf=LaDigue_UHD.jpg "斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国")
-
----
-### 11月29日：童话中的城堡
-#### 什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国（© Hannes Wendt/Shutterstock）
-
-![童话中的城堡](https://cn.bing.com/th?id=OHR.SchwerinerSchloss_ZH-CN2390476345_800x480.jpg&rf=LaDigue_800x480.jpg "童话中的城堡")
-
-与大多数的德国城堡一样，什未林城堡就像是从童话故事中走出来的。它最早的雏形可追溯至941年。研究表明，它是由西斯拉夫奥博特人部落建造的。这个部落生活在现在的梅克伦堡-前波美拉尼亚州和波兰，尤其是波罗的海的南部海岸。从12世纪起，该部落就被基督教化，并被德国和丹麦统治者进行政治整合。
-
-传说，什未林城堡中有一只名叫小彼得的隐形小精灵，它的身高只有几英尺，经常穿着17世纪的衣服，有点像个骑士，时常在城堡的大厅里游荡。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bb%80%e6%9c%aa%e6%9e%97%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20231128_1600" "Bing Wallpaper 2023 11月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231129_SchwerinerSchloss"&FORM=HPQUIZ "必应主页测验 2023 11月 29")
-[下载480](https://cn.bing.com/th?id=OHR.SchwerinerSchloss_ZH-CN2390476345_800x480.jpg&rf=LaDigue_800x480.jpg "什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国")
-[下载720](https://cn.bing.com/th?id=OHR.SchwerinerSchloss_ZH-CN2390476345_1280x720.jpg&rf=LaDigue_1280x720.jpg "什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.SchwerinerSchloss_ZH-CN2390476345_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SchwerinerSchloss_ZH-CN2390476345_UHD.jpg&rf=LaDigue_UHD.jpg "什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国")
 
 ---
