@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月15日：圣诞老人的乐园
+#### 罗瓦涅米的圣诞老人公园，拉普兰德，芬兰（© lukutin77/Getty Images）
+
+![圣诞老人的乐园](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞老人的乐园")
+
+在拉普兰德的皑皑白雪中，罗瓦涅米是一个迷人的冬日仙境，据说是官方认可的圣诞老人的故乡。这座位于芬兰北部的充满活力的城市不仅是通往北极圈的门户，也是现实与民间传说完美融合的目的地。罗瓦涅米既是拉普兰德的首府，也是芬兰最受欢迎的旅游目的地之一。游客们可以在圣诞公园观看美丽的北极光，探索北极荒野，以及像今天的照片中展示的那样，体验圣诞节的魔力。公园里有各种各样的活动，你可以去精灵工作坊，与技艺精湛的工匠一起制作珍宝，也可以乘坐有趣的火车，穿越公园，欣赏美景。
+
+在圣诞老人公园，游客们可以在圣诞老人的办公室里见到他，并与他免费合影留念。此外，游客们还可以参观姜饼夫人的姜饼面包店，在冰雪公主的冰雪王国“冰雪画廊”里见到她的冰雕作品，以及在圣诞老人邮局寄出明信片。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8a%ac%e5%85%b0%e5%9c%a3%e8%af%9e%e8%80%81%e4%ba%ba%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231214_1600" "Bing Wallpaper 2023 12月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231215_SantaPark"&FORM=HPQUIZ "必应主页测验 2023 12月 15")
+[下载480](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_800x480.jpg&rf=LaDigue_800x480.jpg "罗瓦涅米的圣诞老人公园，拉普兰德，芬兰")
+[下载720](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗瓦涅米的圣诞老人公园，拉普兰德，芬兰")
+[下载1080](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗瓦涅米的圣诞老人公园，拉普兰德，芬兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_UHD.jpg&rf=LaDigue_UHD.jpg "罗瓦涅米的圣诞老人公园，拉普兰德，芬兰")
+
+---
 ### 12月14日：融为一体的猫头鹰
 #### 北方猫头鹰，萨斯喀彻温省，加拿大（© Nick Saunders/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.IcebergAntarctica_ZH-CN2053356825_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗斯海的冰山，南极洲")
 [下载1080](https://cn.bing.com/th?id=OHR.IcebergAntarctica_ZH-CN2053356825_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗斯海的冰山，南极洲")
 [下载UHD](https://cn.bing.com/th?id=OHR.IcebergAntarctica_ZH-CN2053356825_UHD.jpg&rf=LaDigue_UHD.jpg "罗斯海的冰山，南极洲")
-
----
-### 11月30日：守望的老人
-#### 斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国（© Juan Maria Coy Vergara/Getty Images）
-
-![守望的老人](https://cn.bing.com/th?id=OHR.TrotternishStorr_ZH-CN2508882441_800x480.jpg&rf=LaDigue_800x480.jpg "守望的老人")
-
-苏格兰有很多自然奇观适合作为民间传说的背景，斯托尔就是其中之一。它位于斯凯岛，是一座高达160英尺的岩石尖峰。从某些角度看，它就像一位饱经风霜的老人。在这里，我们可以了解到苏格兰的守护神圣安德鲁的历史传说。历史上的苏格兰人以好客和友善著称，1320年苏格兰宣布独立时，他们将圣安德鲁定为守护神。为了记住自己的“苏格兰根”，在美国的苏格兰移民普及推广了圣安德鲁日的庆祝活动。而苏格兰并不是唯一庆祝圣安德鲁日的国家。从罗马尼亚到巴巴多斯，许多国家会以自己的传统方式纪念这位历史人物。
-
-斯托尔悬崖前方的区域被称为 "避护所"，这里有许多形状怪异的岩石尖峰，是古代山崩滑坡的遗迹。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8b%8f%e6%a0%bc%e5%85%b0%e6%96%af%e5%87%af%e5%b2%9b&form=hpcapt&filters=HpDate:"20231129_1600" "Bing Wallpaper 2023 11月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231130_TrotternishStorr"&FORM=HPQUIZ "必应主页测验 2023 11月 30")
-[下载480](https://cn.bing.com/th?id=OHR.TrotternishStorr_ZH-CN2508882441_800x480.jpg&rf=LaDigue_800x480.jpg "斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国")
-[下载720](https://cn.bing.com/th?id=OHR.TrotternishStorr_ZH-CN2508882441_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.TrotternishStorr_ZH-CN2508882441_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.TrotternishStorr_ZH-CN2508882441_UHD.jpg&rf=LaDigue_UHD.jpg "斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国")
 
 ---
