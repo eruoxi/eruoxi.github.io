@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月16日：令人愉悦的忧郁蓝
+#### 大广场，布鲁塞尔，比利时（© Richard Taylor/Sime/eStock Photo）
+
+![令人愉悦的忧郁蓝](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_800x480.jpg&rf=LaDigue_800x480.jpg "令人愉悦的忧郁蓝")
+
+布鲁塞尔位于比利时的中心地带，作为一座充满活力的首都城市，它将悠久的历史与现代大都市的气息融为一体。布鲁塞尔大广场因其建筑而闻名，并被联合国教科文组织列为世界文化遗产，其华丽的市政厅和拥有百年历史的建筑散发着宏伟的气息。
+
+布鲁塞尔大广场经常举办各种节日和文化活动，每隔两年的八月，广场中心会铺设一张巨大的花毯。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%af%94%e5%88%a9%e6%97%b6%e5%a4%a7%e5%b9%bf%e5%9c%ba&form=hpcapt&filters=HpDate:"20231215_1600" "Bing Wallpaper 2023 12月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231216_GrandPlaceXmas"&FORM=HPQUIZ "必应主页测验 2023 12月 16")
+[下载480](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_800x480.jpg&rf=LaDigue_800x480.jpg "大广场，布鲁塞尔，比利时")
+[下载720](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_1280x720.jpg&rf=LaDigue_1280x720.jpg "大广场，布鲁塞尔，比利时")
+[下载1080](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大广场，布鲁塞尔，比利时")
+[下载UHD](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_UHD.jpg&rf=LaDigue_UHD.jpg "大广场，布鲁塞尔，比利时")
+
+---
 ### 12月15日：圣诞老人的乐园
 #### 罗瓦涅米的圣诞老人公园，拉普兰德，芬兰（© lukutin77/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GwaliorFortMP_ZH-CN3300432281_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓜廖尔堡，中央邦，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.GwaliorFortMP_ZH-CN3300432281_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓜廖尔堡，中央邦，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.GwaliorFortMP_ZH-CN3300432281_UHD.jpg&rf=LaDigue_UHD.jpg "瓜廖尔堡，中央邦，印度")
-
----
-### 12月01日：为最酷的地方欢呼！
-#### 罗斯海的冰山，南极洲（© Michel Roggo/Minden Pictures）
-
-![为最酷的地方欢呼！](https://cn.bing.com/th?id=OHR.IcebergAntarctica_ZH-CN2053356825_800x480.jpg&rf=LaDigue_800x480.jpg "为最酷的地方欢呼！")
-
-地球上风最大、最寒冷、最干燥的大陆，世界第五大洲——南极洲，于1820年被发现。在随后的几十年里，多个国家组织探险队前往南极冰原进行考察。由于南极洲没有原住民，因此各国都声称对其拥有主权。随着紧张局势的加剧，12个国家于1959年签署了《南极条约》，将该地区划为科学研究区，并禁止一切军事活动。目前该条约已有56个缔约国，我们今天庆祝的就是这个条约的周年纪念日。
-
-在2017年南极洲的冬季，新西兰科学家首次在罗斯海北部海底山脉发现了南极犬牙鱼的繁殖地，这凸显出人们对该物种知之甚少。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%bd%97%e6%96%af%e6%b5%b7&form=hpcapt&filters=HpDate:"20231130_1600" "Bing Wallpaper 2023 12月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231201_IcebergAntarctica"&FORM=HPQUIZ "必应主页测验 2023 12月 1")
-[下载480](https://cn.bing.com/th?id=OHR.IcebergAntarctica_ZH-CN2053356825_800x480.jpg&rf=LaDigue_800x480.jpg "罗斯海的冰山，南极洲")
-[下载720](https://cn.bing.com/th?id=OHR.IcebergAntarctica_ZH-CN2053356825_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗斯海的冰山，南极洲")
-[下载1080](https://cn.bing.com/th?id=OHR.IcebergAntarctica_ZH-CN2053356825_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗斯海的冰山，南极洲")
-[下载UHD](https://cn.bing.com/th?id=OHR.IcebergAntarctica_ZH-CN2053356825_UHD.jpg&rf=LaDigue_UHD.jpg "罗斯海的冰山，南极洲")
 
 ---
