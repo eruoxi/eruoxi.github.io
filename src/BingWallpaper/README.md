@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月18日：山峦积雪
+#### 圆顶礁国家公园，犹他州，美国（© Jeff Clay/Tandem Stills + Motion）
+
+![山峦积雪](https://cn.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_800x480.jpg&rf=LaDigue_800x480.jpg "山峦积雪")
+
+经过时间、风和水的雕琢，圆顶礁国家公园形成了色彩斑斓的峡谷、山脊，在这里可以一览美国西部的自然之美。富兰克林·罗斯福总统于1937年将该公园指定为国家纪念碑，并于1971年将其升级为国家公园。该公园因其巨大的岩石圆顶而得名，其外形与华盛顿特区著名的圆形大厅颇为相似。而水袋褶皱宛如海洋中的珊瑚礁，是旅行者穿越该地区的主要障碍。水袋褶皱被称为“地壳的皱纹”，是经过漫长岁月侵蚀而形成。这条长达100英里的单斜褶皱，形似阶梯，大约形成于5000万至7000万年前，由高耸的悬崖、狭窄的峡谷和色彩斑斓的岩层组成。
+
+在当地，礁石指的是阻碍陆地旅行的岩石屏障，就像珊瑚礁是海上旅行的障碍一样。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%86%e9%a1%b6%e7%a4%81%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231217_1600" "Bing Wallpaper 2023 12月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231218_CapitolReefSnow"&FORM=HPQUIZ "必应主页测验 2023 12月 18")
+[下载480](https://cn.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_800x480.jpg&rf=LaDigue_800x480.jpg "圆顶礁国家公园，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_1280x720.jpg&rf=LaDigue_1280x720.jpg "圆顶礁国家公园，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圆顶礁国家公园，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_UHD.jpg&rf=LaDigue_UHD.jpg "圆顶礁国家公园，犹他州，美国")
+
+---
 ### 12月17日：有羽毛的时尚达人
 #### 波西米亚太平鸟栖息在树枝上，加拿大（© Jim Cumming/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_UHD.jpg&rf=LaDigue_UHD.jpg "一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚")
-
----
-### 12月03日：时光雕琢
-#### 砂岩岩层，红悬崖国家保护区，亚利桑那州，美国（© Yva Momatiuk and John Eastcott/Minden Pictures）
-
-![时光雕琢](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_800x480.jpg&rf=LaDigue_800x480.jpg "时光雕琢")
-
-位于亚利桑那州的红悬崖国家保护区有层层叠叠的砂岩岩层、高耸的石柱和超现实的狭缝型峡谷。该保护区建于2000年，因该地岩层的主色调为鲜红色而得名“红悬崖”。一旦你获得了参观这一独特的户外景点的许可证，请一定要去参观波浪谷：这是一个令人惊叹的地质奇观，流动状的岩石层就像凝固的红色液体。该保护区的奇观还包括眼镜蛇拱门和由砂岩结构组成的白口袋岩层。白口袋的岩层不仅有交叉的层理和漩涡状图案，还有白色、红色和橙色等多种颜色。
-
-红悬崖保护区是加利福尼亚秃鹫的重新引入地。沿着保护区的土路有一个讲解观赏区，在这里可能会看到这些巨大的秃鹫栖息在岩壁上。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a2%e6%82%ac%e5%b4%96%e5%9b%bd%e5%ae%b6%e4%bf%9d%e6%8a%a4%e5%8c%ba&form=hpcapt&filters=HpDate:"20231202_1600" "Bing Wallpaper 2023 12月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231203_VermilionCliffs"&FORM=HPQUIZ "必应主页测验 2023 12月 3")
-[下载480](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_800x480.jpg&rf=LaDigue_800x480.jpg "砂岩岩层，红悬崖国家保护区，亚利桑那州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_1280x720.jpg&rf=LaDigue_1280x720.jpg "砂岩岩层，红悬崖国家保护区，亚利桑那州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "砂岩岩层，红悬崖国家保护区，亚利桑那州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_UHD.jpg&rf=LaDigue_UHD.jpg "砂岩岩层，红悬崖国家保护区，亚利桑那州，美国")
 
 ---
