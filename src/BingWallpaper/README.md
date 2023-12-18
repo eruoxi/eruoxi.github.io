@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月19日：圣诞老人的波兰休息站
+#### 城堡广场的圣诞树，华沙古城，波兰（© Panther Media GmbH/Alamy Stock Photo）
+
+![圣诞老人的波兰休息站](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞老人的波兰休息站")
+
+12月初，波兰华沙的大街小巷和广场都披上了节日的盛装。整座城市被圣诞装饰点缀得熠熠生辉，每到夜晚，闪闪发光的彩灯就会让这座城市变得生机勃勃。这场灯光秀点亮了整条皇家大道，从城堡广场的皇家城堡一直延伸到波兰首都华沙老城的尽头，最后汇聚到城堡广场上近30英尺高的圣诞树上。穿着厚外套的游客们在圣诞集市里闲逛，一边浏览着应季纪念品，一边品尝着热饮。自1980年起，皇家城堡和周围的老城区已被联合国教科文组织认定为世界遗产。
+
+美人鱼是华沙的象征，在城市各处的雕像和市徽上都可以看到美人鱼的身影。至少从14世纪中叶开始，这一形象就一直沿用至今。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%8e%e6%b2%99%e5%9f%8e%e5%a0%a1%e5%b9%bf%e5%9c%ba&form=hpcapt&filters=HpDate:"20231218_1600" "Bing Wallpaper 2023 12月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231219_WarsawChristmas"&FORM=HPQUIZ "必应主页测验 2023 12月 19")
+[下载480](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_800x480.jpg&rf=LaDigue_800x480.jpg "城堡广场的圣诞树，华沙古城，波兰")
+[下载720](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_1280x720.jpg&rf=LaDigue_1280x720.jpg "城堡广场的圣诞树，华沙古城，波兰")
+[下载1080](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "城堡广场的圣诞树，华沙古城，波兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_UHD.jpg&rf=LaDigue_UHD.jpg "城堡广场的圣诞树，华沙古城，波兰")
+
+---
 ### 12月18日：山峦积雪
 #### 圆顶礁国家公园，犹他州，美国（© Jeff Clay/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_1280x720.jpg&rf=LaDigue_1280x720.jpg "天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_UHD.jpg&rf=LaDigue_UHD.jpg "天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国")
-
----
-### 12月04日：机敏可爱的捕猎高手
-#### 一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚（© Scott Davis/Tandem Stills + Motion）
-
-![机敏可爱的捕猎高手](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_800x480.jpg&rf=LaDigue_800x480.jpg "机敏可爱的捕猎高手")
-
-在马赛马拉国家保护区的心脏地带，非洲大草原一望无际，猎豹以每小时80英里的速度成为陆地上奔跑速度最快的动物。猎豹皮毛光滑，体表遍布黑色斑点，它们在这片广阔的土地上茁壮成长，警惕地寻找猎物的踪迹。马赛马拉国家保护区是东非猎豹分布数量最多的地区之一，然而不幸的是，栖息地的丧失和人类的影响正威胁着它们的生存。因此，采取多种措施保护猎豹至关重要。今天既是国际猎豹日，也是野生动物保护日，让我们多多了解猎豹的生存困境，提高对野生动物的保护意识。在这一天，我们不仅要欣赏这些“野猫”的狂野和优雅，还要欣赏所有与人类共享世界的野生动物。
-
-猎豹在各种艺术作品中出镜率很高。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8c%8e%e8%b1%b9&form=hpcapt&filters=HpDate:"20231203_1600" "Bing Wallpaper 2023 12月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231204_CheetahDay"&FORM=HPQUIZ "必应主页测验 2023 12月 4")
-[下载480](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_800x480.jpg&rf=LaDigue_800x480.jpg "一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_UHD.jpg&rf=LaDigue_UHD.jpg "一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚")
 
 ---
