@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月20日：多洛米蒂山之光
+#### 圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利（© Ingus Kruklitis/Getty Images）
+
+![多洛米蒂山之光](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_800x480.jpg&rf=LaDigue_800x480.jpg "多洛米蒂山之光")
+
+意大利北部的瓦尔加迪纳山谷是现实版的“童话世界”，该山谷位于南蒂罗尔多洛米蒂山区，以滑雪、攀岩和木雕闻名。圣诞节期间，这里会变成“圣诞谷”，木屋向游客们敞开大门，怀旧缆车在圣诞谷上空穿梭，闪烁的童话灯点缀着木屋。18世纪，瓦尔加迪纳山谷因生产雕像和精雕细刻的木俑而闻名，这些雕像最初用于装饰天主教堂，木娃娃是其中最著名的产品之一，至今仍在生产。
+
+圣诞节前，瓦尔加迪纳的首府奥尔蒂斯美成冬日童话。皑皑白雪和梦幻般的节日气氛，深深吸引着大批游客。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%97%e8%92%82%e7%bd%97%e5%b0%94%e7%93%a6%e5%b0%94%e5%8a%a0%e8%bf%aa%e7%ba%b3&form=hpcapt&filters=HpDate:"20231219_1600" "Bing Wallpaper 2023 12月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231220_ValGardenaItaly"&FORM=HPQUIZ "必应主页测验 2023 12月 20")
+[下载480](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_UHD.jpg&rf=LaDigue_UHD.jpg "圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利")
+
+---
 ### 12月19日：圣诞老人的波兰休息站
 #### 城堡广场的圣诞树，华沙古城，波兰（© Panther Media GmbH/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_1280x720.jpg&rf=LaDigue_1280x720.jpg "达尔达尼亚瀑布，博洛尼亚，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "达尔达尼亚瀑布，博洛尼亚，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_UHD.jpg&rf=LaDigue_UHD.jpg "达尔达尼亚瀑布，博洛尼亚，意大利")
-
----
-### 12月05日：童话故事中的场景
-#### 天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国（© Harald Nachtmann/Getty Images）
-
-![童话故事中的场景](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_800x480.jpg&rf=LaDigue_800x480.jpg "童话故事中的场景")
-
-巴伐利亚阿尔卑斯山是德国南部一座雄伟的山脉，拥有两座城堡：新天鹅堡和旧天鹅堡。新天鹅堡是19世纪由巴伐利亚国王路德维希二世委托建造的罗曼式复兴宫殿，以童话般的建筑、塔楼和令人叹为观止的山景而闻名。越过山谷，远眺阿尔卑斯湖，是同样壮观的旧天鹅堡，由路德维希二世的父亲，巴伐利亚国王马克西米连二世建造。这两座城堡拥有奢华的内部装饰、丰富的艺术品和历史文物，每年都有数百万游客前往，一窥巴伐利亚的辉煌历史。
-
-现在的旧天鹅堡最早于1397年被提及，当时名为天鹅堡。直到19世纪，新天鹅堡和旧天鹅堡才互换了名称。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%b0%e5%a4%a9%e9%b9%85%e5%a0%a1%e5%92%8c%e6%97%a7%e5%a4%a9%e9%b9%85%e5%a0%a1&form=hpcapt&filters=HpDate:"20231204_1600" "Bing Wallpaper 2023 12月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231205_AlpsCastles"&FORM=HPQUIZ "必应主页测验 2023 12月 5")
-[下载480](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_800x480.jpg&rf=LaDigue_800x480.jpg "天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国")
-[下载720](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_1280x720.jpg&rf=LaDigue_1280x720.jpg "天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_UHD.jpg&rf=LaDigue_UHD.jpg "天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国")
 
 ---
