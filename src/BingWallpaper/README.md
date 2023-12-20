@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月21日：斯洛文尼亚式的节日氛围
+#### 卢布尔雅那，斯洛文尼亚共和国（© kasto80/Getty images）
+
+![斯洛文尼亚式的节日氛围](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_800x480.jpg&rf=LaDigue_800x480.jpg "斯洛文尼亚式的节日氛围")
+
+多么可爱的城市啊！斯洛文尼亚首都卢布尔雅那和流经该市的卢布尔雅尼察河的名字的前缀都是“ljub”，这个前缀在斯拉夫语中的意思是“爱”。卢布尔雅那位于连接亚得里亚海北部和多瑙河地区的贸易路线之上，是一个相对较小的首都，人口不到30万。城市南部是卢布尔雅那沼泽，这是该国最大的沼泽，面积达63平方英里。卢布尔雅那的外围地区现代建筑林立，而城市的核心区则保留了具有古罗马和中世纪元素的历史建筑。例如卢布尔雅那城堡、三重桥、龙桥和历史悠久的老城区。当你在城中闲逛时，一定要留心，因为你很可能会遇到这座城市的象征——卢布尔雅那龙。
+
+卢布尔雅那龙是这座城市的象征。卢布尔雅那市徽中的卢布尔雅那城堡塔顶和横跨卢布尔雅那卡的龙桥（飞龙桥）上都有龙的图案。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a2%e5%b8%83%e5%b0%94%e9%9b%85%e9%82%a3&form=hpcapt&filters=HpDate:"20231220_1600" "Bing Wallpaper 2023 12月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231221_LjubljanaLights"&FORM=HPQUIZ "必应主页测验 2023 12月 21")
+[下载480](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_800x480.jpg&rf=LaDigue_800x480.jpg "卢布尔雅那，斯洛文尼亚共和国")
+[下载720](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_1280x720.jpg&rf=LaDigue_1280x720.jpg "卢布尔雅那，斯洛文尼亚共和国")
+[下载1080](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卢布尔雅那，斯洛文尼亚共和国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_UHD.jpg&rf=LaDigue_UHD.jpg "卢布尔雅那，斯洛文尼亚共和国")
+
+---
 ### 12月20日：多洛米蒂山之光
 #### 圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利（© Ingus Kruklitis/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_1280x720.jpg&rf=LaDigue_1280x720.jpg "韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_UHD.jpg&rf=LaDigue_UHD.jpg "韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国")
-
----
-### 12月06日：穿过群山的蜿蜒小路
-#### 达尔达尼亚瀑布，博洛尼亚，意大利（© Alberto Ghizzi Panizza/Minden）
-
-![穿过群山的蜿蜒小路](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_800x480.jpg&rf=LaDigue_800x480.jpg "穿过群山的蜿蜒小路")
-
-在艾米利亚-罗马涅大区的众多奇观中，达尔达尼亚瀑布无疑是引人注目的。达尔达尼亚瀑布的名字来源于一条同名的溪流，该溪流在海拔250米的高差上形成了七个壮观的瀑布，其中最高的落差约为30米。该瀑布靠近圣母玛利亚圣殿，其壮丽的风景吸引了无数游客。流经数公里后，达尔达尼亚溪流汇入利奥河，随后流入帕纳罗河，而帕纳罗河又是更大的河流——波河的一条支流。由于水质纯净，达尔达尼亚溪流是许多鱼类的栖息地，如褐鳟鱼和蓝鳟鱼。
-
-博洛尼亚是意大利人口第七大城市，约有40万居民。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%9a%e6%b4%9b%e5%b0%bc%e4%ba%9a&form=hpcapt&filters=HpDate:"20231205_1600" "Bing Wallpaper 2023 12月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231206_DardagnaWaterfalls"&FORM=HPQUIZ "必应主页测验 2023 12月 6")
-[下载480](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_800x480.jpg&rf=LaDigue_800x480.jpg "达尔达尼亚瀑布，博洛尼亚，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_1280x720.jpg&rf=LaDigue_1280x720.jpg "达尔达尼亚瀑布，博洛尼亚，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "达尔达尼亚瀑布，博洛尼亚，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_UHD.jpg&rf=LaDigue_UHD.jpg "达尔达尼亚瀑布，博洛尼亚，意大利")
 
 ---
