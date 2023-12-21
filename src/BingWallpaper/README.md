@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月22日：冬季仙境中的精灵
+#### 天鹅泉湿地公园，伊犁，新疆，中国（© 500px Asia/Getty images）
+
+![冬季仙境中的精灵](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_800x480.jpg&rf=LaDigue_800x480.jpg "冬季仙境中的精灵")
+
+冬至这一天，让我们一起走进天鹅泉湿地公园。天鹅泉湿地公园又名英塔木天鹅栖息地保护区，位于英塔木乡下赫勒克村伊犁河北岸。该地有个“天鹅湖”，这个湖最初是由几处长流不息的地下温泉眼汇聚而成一条小溪，后来经过人工规划形成了湖泊。湖里生长了茂密的水草，泉水温度较高，即使在最寒冷的季节也不会封冻，天鹅们十分喜欢在这里越冬，休养生息。
+
+从上世纪九十年代开始，每年10月初至次年4月，都有天鹅在此栖息，数量已从最初的几只发展到如今的百余只。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%b0%e7%96%86%e5%a4%a9%e9%b9%85%e6%b3%89%e6%b9%bf%e5%9c%b0%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231221_1600" "Bing Wallpaper 2023 12月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231222_WinterSolstice2023"&FORM=HPQUIZ "必应主页测验 2023 12月 22")
+[下载480](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_800x480.jpg&rf=LaDigue_800x480.jpg "天鹅泉湿地公园，伊犁，新疆，中国")
+[下载720](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_1280x720.jpg&rf=LaDigue_1280x720.jpg "天鹅泉湿地公园，伊犁，新疆，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "天鹅泉湿地公园，伊犁，新疆，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_UHD.jpg&rf=LaDigue_UHD.jpg "天鹅泉湿地公园，伊犁，新疆，中国")
+
+---
 ### 12月21日：斯洛文尼亚式的节日氛围
 #### 卢布尔雅那，斯洛文尼亚共和国（© kasto80/Getty images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_1280x720.jpg&rf=LaDigue_1280x720.jpg "拉罗克港，圣克莱门特，泽西岛")
 [下载1080](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拉罗克港，圣克莱门特，泽西岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_UHD.jpg&rf=LaDigue_UHD.jpg "拉罗克港，圣克莱门特，泽西岛")
-
----
-### 12月07日：欧洲大峡谷
-#### 韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国（© Hemis/Alamy）
-
-![欧洲大峡谷](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_800x480.jpg&rf=LaDigue_800x480.jpg "欧洲大峡谷")
-
-韦尔东峡谷是位于法国东南部普罗旺斯-阿尔卑斯-蓝色海岸大区的一条河流峡谷。峡谷绵延近百里，是欧洲最大的峡谷，其悬崖峭壁雄伟壮观，高度可达750米。普罗旺斯阿尔卑斯大区数百万年的侵蚀形成了这一壮观的自然景观，而韦尔东河水的翡翠色正是其名称的由来。
-
-直到1906年，韦尔东峡谷才在法国以外扬名。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%9f%a6%e5%b0%94%e4%b8%9c%e5%b3%a1%e8%b0%b7&form=hpcapt&filters=HpDate:"20231206_1600" "Bing Wallpaper 2023 12月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231207_GrandCanyonVerdon"&FORM=HPQUIZ "必应主页测验 2023 12月 7")
-[下载480](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_800x480.jpg&rf=LaDigue_800x480.jpg "韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国")
-[下载720](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_1280x720.jpg&rf=LaDigue_1280x720.jpg "韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_UHD.jpg&rf=LaDigue_UHD.jpg "韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国")
 
 ---
