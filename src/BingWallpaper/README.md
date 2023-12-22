@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月23日：它们看起来有话要说
+#### 帽带企鹅，南桑威奇群岛，南大西洋（© Jan Vermeer/Minden Pictures）
+
+![它们看起来有话要说](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_800x480.jpg&rf=LaDigue_800x480.jpg "它们看起来有话要说")
+
+在节假日与家人围坐一堂时，你有时会想如图上这只南桑威奇群岛上的帽带企鹅一样，痛骂在场的人一顿。如果以上设想听起来很吸引人，或者你想从强制性的季节性快乐中解脱出来，那么“不过圣诞节”可能就是你的理想节日。这个世俗节日出现在流行喜剧《宋飞正传》的最后一季中时，就引起了相当大的关注。科斯坦扎一家有很多奇怪的传统，包括在节日期间竖起一根没有装饰物的铝杆，以及在年终发泄他们的不满。自从这一集播出以来，这个节日在粉丝和寻找其他庆祝方式的人群中就有了自己的生命。我们欢迎那些热爱圣诞节、光明节和宽扎节的人去过节，而“不过圣诞节”则是为我们其他人准备的。
+
+在陆地上，帽带企鹅用石头筑成圆形的巢穴，然后产下两个蛋，由雄性和雌性轮流孵化，每只孵6天左右。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%bd%e5%b8%a6%e4%bc%81%e9%b9%85&form=hpcapt&filters=HpDate:"20231222_1600" "Bing Wallpaper 2023 12月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231223_FestivusPenguins"&FORM=HPQUIZ "必应主页测验 2023 12月 23")
+[下载480](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_800x480.jpg&rf=LaDigue_800x480.jpg "帽带企鹅，南桑威奇群岛，南大西洋")
+[下载720](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_1280x720.jpg&rf=LaDigue_1280x720.jpg "帽带企鹅，南桑威奇群岛，南大西洋")
+[下载1080](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帽带企鹅，南桑威奇群岛，南大西洋")
+[下载UHD](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_UHD.jpg&rf=LaDigue_UHD.jpg "帽带企鹅，南桑威奇群岛，南大西洋")
+
+---
 ### 12月22日：冬季仙境中的精灵
 #### 天鹅泉湿地公园，伊犁，新疆，中国（© 500px Asia/Getty images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_1280x720.jpg&rf=LaDigue_1280x720.jpg "原驼，冰川国家公园，阿根廷")
 [下载1080](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "原驼，冰川国家公园，阿根廷")
 [下载UHD](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_UHD.jpg&rf=LaDigue_UHD.jpg "原驼，冰川国家公园，阿根廷")
-
----
-### 12月08日：不是那个泽西海岸!
-#### 拉罗克港，圣克莱门特，泽西岛（© Reinhard Schmid/Huber/eStock Photo）
-
-![不是那个泽西海岸!](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_800x480.jpg&rf=LaDigue_800x480.jpg "不是那个泽西海岸!")
-
-泽西岛位于法国诺曼底海岸附近，是一个有着北欧名字的英属岛屿。拉罗克港位于岛的东南岸，这里有洁白的沙滩和延伸至水中的高架人行道。海岸线上的花岗岩和深成岩起源于4.2亿多年前，呈现出多样化的颜色和纹理。从港口可以看到圆圆的、矮胖的伊乔塔和较高一些的西摩塔，它们分别建于18世纪和19世纪，是海防建筑。这两座建筑距离海岸都有1800多英尺，如果你想步行到这两座建筑的所在地，不仅需要穿一双结实的鞋子，还只能选在一年中潮水退至最低点的时候。
-
-泽西岛一开始属于诺曼底公国，而在1066年诺曼底公爵成了英格兰国王后，泽西岛也就成了英国国王的世袭领地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b3%bd%e8%a5%bf%e5%b2%9b&form=hpcapt&filters=HpDate:"20231207_1600" "Bing Wallpaper 2023 12月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231208_JerseyIsland"&FORM=HPQUIZ "必应主页测验 2023 12月 8")
-[下载480](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_800x480.jpg&rf=LaDigue_800x480.jpg "拉罗克港，圣克莱门特，泽西岛")
-[下载720](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_1280x720.jpg&rf=LaDigue_1280x720.jpg "拉罗克港，圣克莱门特，泽西岛")
-[下载1080](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拉罗克港，圣克莱门特，泽西岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_UHD.jpg&rf=LaDigue_UHD.jpg "拉罗克港，圣克莱门特，泽西岛")
 
 ---
