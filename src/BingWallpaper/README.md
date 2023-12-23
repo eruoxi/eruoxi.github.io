@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月24日：多么可爱的树枝啊！
+#### 市政厅广场，塔尔图，爱沙尼亚（© Westend61/Getty Images）
+
+![多么可爱的树枝啊！](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_800x480.jpg&rf=LaDigue_800x480.jpg "多么可爱的树枝啊！")
+
+在这个平安夜，世界各地的城镇都沉浸在一种神奇的魔力中。商店关着门，街道空无一人，人们与朋友及家人欢聚一堂，互相慰藉。把礼物装进圣诞袜、举办派对或是播放节日音乐，每个人都有自己的平安夜传统活动。今天的照片上展示的是爱沙尼亚塔尔图市政厅广场一年一度的庆祝活动，广场上灯火辉煌，圣诞树点缀其间。塔尔图的圣诞集市洋溢着欢乐的气氛，有雪橇、户外火炉和木质动物旋转木马。此外，集市上还有熏肉、热饮和酥脆的姜饼。无论你是选择观看一部经典的节日电影，还是选择在十二点钟声敲响时惬意地喝上一杯热可可，在这个宁静的夜晚都能感受到浓浓的圣诞气氛。
+
+塔尔图将于2024年成为欧洲文化之都。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%88%b1%e6%b2%99%e5%b0%bc%e4%ba%9a%e5%a1%94%e5%b0%94%e5%9b%be&form=hpcapt&filters=HpDate:"20231223_1600" "Bing Wallpaper 2023 12月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231224_EstoniaXmasEve"&FORM=HPQUIZ "必应主页测验 2023 12月 24")
+[下载480](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_800x480.jpg&rf=LaDigue_800x480.jpg "市政厅广场，塔尔图，爱沙尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_1280x720.jpg&rf=LaDigue_1280x720.jpg "市政厅广场，塔尔图，爱沙尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "市政厅广场，塔尔图，爱沙尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_UHD.jpg&rf=LaDigue_UHD.jpg "市政厅广场，塔尔图，爱沙尼亚")
+
+---
 ### 12月23日：它们看起来有话要说
 #### 帽带企鹅，南桑威奇群岛，南大西洋（© Jan Vermeer/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_1280x720.jpg&rf=LaDigue_1280x720.jpg "林帕达恩湖，斯诺登尼亚国家公园， 威尔士")
 [下载1080](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "林帕达恩湖，斯诺登尼亚国家公园， 威尔士")
 [下载UHD](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_UHD.jpg&rf=LaDigue_UHD.jpg "林帕达恩湖，斯诺登尼亚国家公园， 威尔士")
-
----
-### 12月09日：出逃的美洲鸵
-#### 原驼，冰川国家公园，阿根廷（© Yva Momatiuk and John Eastcott/Minden Pictures）
-
-![出逃的美洲鸵](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_800x480.jpg&rf=LaDigue_800x480.jpg "出逃的美洲鸵")
-
-穿上登山鞋出门吧，因为今天是国家美洲驼日！12月9日是专门用来欣赏这些聪明且可驯化的动物的日子。您需要到安第斯山脉去看看它们那被称为原驼的野生表亲。据说，原驼起源于约4000万年前的北美中部平原。不过，它们逐渐迁移到了南美洲，在公元前4500年左右被驯化，并获得了美洲鸵的称号。
-
-莫雷诺冰川是洛斯格拉兹阿勒冰川国家公园中最容易到达的冰川。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8e%9f%e9%a9%bc&form=hpcapt&filters=HpDate:"20231208_1600" "Bing Wallpaper 2023 12月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231209_PatagoniaGuanaco"&FORM=HPQUIZ "必应主页测验 2023 12月 9")
-[下载480](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_800x480.jpg&rf=LaDigue_800x480.jpg "原驼，冰川国家公园，阿根廷")
-[下载720](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_1280x720.jpg&rf=LaDigue_1280x720.jpg "原驼，冰川国家公园，阿根廷")
-[下载1080](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "原驼，冰川国家公园，阿根廷")
-[下载UHD](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_UHD.jpg&rf=LaDigue_UHD.jpg "原驼，冰川国家公园，阿根廷")
 
 ---
