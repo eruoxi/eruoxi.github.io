@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月25日：圣诞快乐，亲爱的朋友们！
+#### 驯鹿在雪中奔跑，阿拉斯加，美国（© Michael Quinton/Minden Pictures）
+
+![圣诞快乐，亲爱的朋友们！](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞快乐，亲爱的朋友们！")
+
+如果北美驯鹿飞起来了，您可千万别惊讶！自从克莱门特·克拉克·摩尔在1823年的诗歌《圣尼古拉斯来访》中将驯鹿指派为圣诞老人的助手以来，北美驯鹿就一直热心地为圣诞节庆典做出贡献，也难怪圣诞老人会选中它们！驯鹿具有顽强的生命力和适应性，它们有两层浓密的皮毛，眼睛能适应各种波长的光线，因此它们能适应各种不同的环境。在现实生活中，您可能看不到驯鹿飞翔，但您可能会在北极地区、北美、北欧和西伯利亚发现一群从苔原地带迁徙到森林的驯鹿。它们的蹄子可以根据季节以及地面情况来扩大或缩小，这使得它们戴着鹿角的沉重身躯站得稳稳当当。如果您今天正在庆祝圣诞节，我们祝您圣诞快乐。
+
+根据民间传说，圣诞老人的雪橇是由会飞的驯鹿拉动的。在1823年的诗歌《圣尼古拉斯来访》中，这些驯鹿首次被命名。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%af%e9%b9%bf&form=hpcapt&filters=HpDate:"20231224_1600" "Bing Wallpaper 2023 12月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231225_CaribouChristmas"&FORM=HPQUIZ "必应主页测验 2023 12月 25")
+[下载480](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_800x480.jpg&rf=LaDigue_800x480.jpg "驯鹿在雪中奔跑，阿拉斯加，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_1280x720.jpg&rf=LaDigue_1280x720.jpg "驯鹿在雪中奔跑，阿拉斯加，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "驯鹿在雪中奔跑，阿拉斯加，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_UHD.jpg&rf=LaDigue_UHD.jpg "驯鹿在雪中奔跑，阿拉斯加，美国")
+
+---
 ### 12月24日：多么可爱的树枝啊！
 #### 市政厅广场，塔尔图，爱沙尼亚（© Westend61/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄山的冬天，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄山的冬天，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_UHD.jpg&rf=LaDigue_UHD.jpg "黄山的冬天，中国")
-
----
-### 12月10日：一个让人沉思的地方
-#### 林帕达恩湖，斯诺登尼亚国家公园， 威尔士（© Joe Daniel Price/Getty Images）
-
-![一个让人沉思的地方](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_800x480.jpg&rf=LaDigue_800x480.jpg "一个让人沉思的地方")
-
-从波光粼粼的湖水、崎岖的山道、倾泻而下的瀑布到废弃的城堡，斯诺登尼亚国家公园永远令人惊叹。图中的林帕达恩湖位于迷人的兰贝里斯村附近。这个冰川湖长约2英里，深95英尺，是威尔士最大的天然湖泊之一。除此之外，这个冰碛堰塞湖被认定为具有特殊科学价值的地点以及沐浴水域。无论您是皮划艇爱好者，还是桨板运动爱好者，或者只是想简单地沐浴玩水，这里都能满足您的需求。该湖沿岸遍布着板岩采石场的遗迹，让人可以一窥该地区的工业历史。到了那里，别忘了打卡附近的多巴达恩城堡，这座历史悠久的城堡将为您的旅程增添了几分古色古香。
-
-斯诺登尼亚国家公园拥有2处令人印象深刻的联合国教科文组织认定的世界遗产。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e8%af%ba%e7%99%bb%e5%b0%bc%e4%ba%9a%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231209_1600" "Bing Wallpaper 2023 12月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231210_LlanberisSnowdoniaSunset"&FORM=HPQUIZ "必应主页测验 2023 12月 10")
-[下载480](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_800x480.jpg&rf=LaDigue_800x480.jpg "林帕达恩湖，斯诺登尼亚国家公园， 威尔士")
-[下载720](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_1280x720.jpg&rf=LaDigue_1280x720.jpg "林帕达恩湖，斯诺登尼亚国家公园， 威尔士")
-[下载1080](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "林帕达恩湖，斯诺登尼亚国家公园， 威尔士")
-[下载UHD](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_UHD.jpg&rf=LaDigue_UHD.jpg "林帕达恩湖，斯诺登尼亚国家公园， 威尔士")
 
 ---
