@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月26日：节礼日快乐
+#### 冬季日出，戴德姆，科尔切斯特，英格兰（© George W Johnson/Getty Images）
+
+![节礼日快乐](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_800x480.jpg&rf=LaDigue_800x480.jpg "节礼日快乐")
+
+节假日还没有完全结束！12月26日是节礼日——这是一个让节日气氛延续下去的时机，也是一个在大自然中享受冬日漫步的时机，图中的英格兰科尔切斯特的田野就是一个冬日漫步的好地方。英国和一些英联邦成员国，包括加拿大和澳大利亚，都会庆祝节礼日。节日的起源被认为来自一项古老的英国传统——送礼盒，即雇主在圣诞节的第二天给仆人送装满礼物的“盒子”。时光流转，今天的人们依然会把赠送礼物和节礼日联系在一起，但这个节日已经有了各种习俗。在英国，各地都会举办赛马活动，包括在肯普顿公园赛马场举办的历史悠久的乔治六世赛马大赛。而在加拿大，冰球爱好者会聚集在一起，为他们喜爱的球队加油助威。节假日就像冬天的阳光一样，结束得比你想象中更快，趁着一切还未结束，去尽情享受吧。
+
+《牛津英语词典》给出了英国最早的证明是在1743年，将其定义为“圣诞节后的第二天”，并说“传统上在这一天商人、雇员等会收到礼物或小费（一个“圣诞盒子”） 来自他们的客户或雇主。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8a%82%e7%a4%bc%e6%97%a5&form=hpcapt&filters=HpDate:"20231225_1600" "Bing Wallpaper 2023 12月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231226_BoxingDaySunrise"&FORM=HPQUIZ "必应主页测验 2023 12月 26")
+[下载480](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_800x480.jpg&rf=LaDigue_800x480.jpg "冬季日出，戴德姆，科尔切斯特，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_1280x720.jpg&rf=LaDigue_1280x720.jpg "冬季日出，戴德姆，科尔切斯特，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冬季日出，戴德姆，科尔切斯特，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_UHD.jpg&rf=LaDigue_UHD.jpg "冬季日出，戴德姆，科尔切斯特，英格兰")
+
+---
 ### 12月25日：圣诞快乐，亲爱的朋友们！
 #### 驯鹿在雪中奔跑，阿拉斯加，美国（© Michael Quinton/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_1280x720.jpg&rf=LaDigue_1280x720.jpg "一品红")
 [下载1080](https://cn.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一品红")
 [下载UHD](https://cn.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_UHD.jpg&rf=LaDigue_UHD.jpg "一品红")
-
----
-### 12月11日：想看看黄山的全貌吗？
-#### 黄山的冬天，中国（© Hung Chung Chih/Shutterstock）
-
-![想看看黄山的全貌吗？](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_800x480.jpg&rf=LaDigue_800x480.jpg "想看看黄山的全貌吗？")
-
-12月11日是国际山岳日，这个特殊的节日是联合国大会在2003年设立的。今年节日的主题是“恢复山区生态系统”，与“联合国生态系统恢复十年”计划相呼应。
-
-黄山山脉有72座山峰，包括36座大峰和36座小峰。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%bb%84%e5%b1%b1&form=hpcapt&filters=HpDate:"20231210_1600" "Bing Wallpaper 2023 12月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231211_MountainDayChina"&FORM=HPQUIZ "必应主页测验 2023 12月 11")
-[下载480](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_800x480.jpg&rf=LaDigue_800x480.jpg "黄山的冬天，中国")
-[下载720](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄山的冬天，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄山的冬天，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_UHD.jpg&rf=LaDigue_UHD.jpg "黄山的冬天，中国")
 
 ---
