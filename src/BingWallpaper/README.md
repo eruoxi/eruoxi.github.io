@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月27日：冰与火之地
+#### 教堂山，斯奈山半岛，冰岛（© Ratnakorn Piyasirisorost/Getty Images）
+
+![冰与火之地](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_800x480.jpg&rf=LaDigue_800x480.jpg "冰与火之地")
+
+从冰川和瀑布到火山和黑沙滩，冰岛的斯奈山半岛拥有“权游”中的一切。图中这座傲然屹立的小山，是海拔1519英尺高的草帽山。因其形状酷似教堂的尖塔，这座巍峨的小山又被称为教堂山。您可能在《权力的游戏》系列剧中看到过它，因为它曾出现在一幕设定在巨型冰墙以北的场景中。这个冰原岛峰（一种突出于冰原或冰川上的岩层），是摄影师们经常拍摄的对象，其金字塔般的形状、随季节变化的颜色以及沿海的地理位置，使它充满了魅力。如果运气好，天气条件允许，您还可以在草帽山看到壮丽的北极光。
+
+草帽山以其独特的地质而闻名，被认为是研究冰岛地质历史的重要场所。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8d%89%e5%b8%bd%e5%b1%b1+%e5%86%b0%e5%b2%9b&form=hpcapt&filters=HpDate:"20231226_1600" "Bing Wallpaper 2023 12月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231227_KirkjufellAurora"&FORM=HPQUIZ "必应主页测验 2023 12月 27")
+[下载480](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_800x480.jpg&rf=LaDigue_800x480.jpg "教堂山，斯奈山半岛，冰岛")
+[下载720](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_1280x720.jpg&rf=LaDigue_1280x720.jpg "教堂山，斯奈山半岛，冰岛")
+[下载1080](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "教堂山，斯奈山半岛，冰岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_UHD.jpg&rf=LaDigue_UHD.jpg "教堂山，斯奈山半岛，冰岛")
+
+---
 ### 12月26日：节礼日快乐
 #### 冬季日出，戴德姆，科尔切斯特，英格兰（© George W Johnson/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_1280x720.jpg&rf=LaDigue_1280x720.jpg "传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_UHD.jpg&rf=LaDigue_UHD.jpg "传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威")
-
----
-### 12月12日：把你的世界涂成红色
-#### 一品红（© Yarygin/Getty Images）
-
-![把你的世界涂成红色](https://cn.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_800x480.jpg&rf=LaDigue_800x480.jpg "把你的世界涂成红色")
-
-在节日期间，作为善意和集体精神的象征的一品红经常被当作家居装饰品和节日摆件。12月12日是美国的“国家一品红日”，这是纪念这种植物以及乔尔·罗伯茨·波因塞特的特殊日子。波因塞特是一名植物学家以及前驻墨西哥公使，他将美丽的一品红引入美国，并于1851年的12月12日去世。一品红通常生长在大自然中，从墨西哥到危地马拉都能看到它的身影。现在市场上热销的一品红品种，其祖先可追溯到墨西哥的格雷罗州。阿兹特克人将这种深红色叶子的植物用作红色染料和退烧药物。
-
-一直以来，人们普遍认为“圣诞花”一品红对人类和其他动物有毒，但这种说法是错误的。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%80%e5%93%81%e7%ba%a2&form=hpcapt&filters=HpDate:"20231211_1600" "Bing Wallpaper 2023 12月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231212_Poinsettia"&FORM=HPQUIZ "必应主页测验 2023 12月 12")
-[下载480](https://cn.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_800x480.jpg&rf=LaDigue_800x480.jpg "一品红")
-[下载720](https://cn.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_1280x720.jpg&rf=LaDigue_1280x720.jpg "一品红")
-[下载1080](https://cn.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一品红")
-[下载UHD](https://cn.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_UHD.jpg&rf=LaDigue_UHD.jpg "一品红")
 
 ---
