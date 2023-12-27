@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月28日：跳出“濒危名单”
+#### 座头鲸，迪斯科湾，格陵兰（© Paul Souders/DanitaDelimont.com）
+
+![跳出“濒危名单”](https://cn.bing.com/th?id=OHR.GreenlandHumpback_ZH-CN8145852053_800x480.jpg&rf=LaDigue_800x480.jpg "跳出“濒危名单”")
+
+对于我们毛茸茸的、有鳞片的和长羽毛的朋友们而言，今天是一个特殊的里程碑：美国《濒危物种保护法》迎来了它的50周年。这项具有里程碑意义的法律于1973年签署确立，半个世纪以来，它一直在向濒临灭绝的物种伸出援助之手。那么，谁是这次的焦点呢？是照片中的座头鲸！这些温顺的庞然大物以悦耳的歌声和杂技般的“鲸跃”而闻名，是《濒危物种保护法》成功实施的典范。过去，由于捕鲸和捕鱼装置的缠绕，座头鲸一度濒临灭绝，但在保护工作的努力下，它们的种群正在复苏，从1966年的约5,000头到增加到现在的约135,000头。然而，保护濒危物种，任重而道远。从预防栖息地丧失到防止偷猎，各种挑战依然存在。而我们能做的，就是宣传保护濒危物种，支持保护工作，参与当地活动，做一个环保主义者。
+
+座头鲸以高亢、复杂的“歌声”而闻名，其歌声可长达 30 分钟！
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%ba%a7%e5%a4%b4%e9%b2%b8&form=hpcapt&filters=HpDate:"20231227_1600" "Bing Wallpaper 2023 12月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231228_GreenlandHumpback"&FORM=HPQUIZ "必应主页测验 2023 12月 28")
+[下载480](https://cn.bing.com/th?id=OHR.GreenlandHumpback_ZH-CN8145852053_800x480.jpg&rf=LaDigue_800x480.jpg "座头鲸，迪斯科湾，格陵兰")
+[下载720](https://cn.bing.com/th?id=OHR.GreenlandHumpback_ZH-CN8145852053_1280x720.jpg&rf=LaDigue_1280x720.jpg "座头鲸，迪斯科湾，格陵兰")
+[下载1080](https://cn.bing.com/th?id=OHR.GreenlandHumpback_ZH-CN8145852053_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "座头鲸，迪斯科湾，格陵兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.GreenlandHumpback_ZH-CN8145852053_UHD.jpg&rf=LaDigue_UHD.jpg "座头鲸，迪斯科湾，格陵兰")
+
+---
 ### 12月27日：冰与火之地
 #### 教堂山，斯奈山半岛，冰岛（© Ratnakorn Piyasirisorost/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_1280x720.jpg&rf=LaDigue_1280x720.jpg "北方猫头鹰，萨斯喀彻温省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北方猫头鹰，萨斯喀彻温省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_UHD.jpg&rf=LaDigue_UHD.jpg "北方猫头鹰，萨斯喀彻温省，加拿大")
-
----
-### 12月13日：小屋生活
-#### 传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威（© Roberto Moiola/Sysaworld/Getty Images）
-
-![小屋生活](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_800x480.jpg&rf=LaDigue_800x480.jpg "小屋生活")
-
-挪威的罗弗敦群岛位于北极圈内，是传统生活与现代工业的交汇点。斯沃尔韦尔作为一个渔村，拥有悠久的历史。现在，斯沃尔韦尔是罗弗敦的两个城镇之一。但在成为独立的城镇之前，斯沃尔韦尔是沃甘市的一部分，渔民们祖祖辈辈在那里生活了上千年。除了引人注目的渔业，这里也是追求宁静的旅行者们心中的圣地，每年有多达20万游客来访。传统的渔民小屋建在水面上支出的柱子上，为小镇平添了一份独特的魅力。这些小屋曾经是为旅行的渔民建造的，如今，随着当地旅游业的发展，渔民小屋已经被翻修成更符合现代人审美的游客度假小屋。
-
-大西洋鳕鱼渔业一直是沃甘市最重要的经济支柱之一，尤其是在冬季，其他已被证明是沃甘市重要经济来源的还有养鱼业（养鲑鱼）、瑟可拉（一家政府企业，主要负责水运基础设施的建设工作）和罗福克拉夫特（一家电力公司，主要经营电网与水力发电厂）。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e6%b2%83%e5%b0%94%e9%9f%a6%e5%b0%94&form=hpcapt&filters=HpDate:"20231212_1600" "Bing Wallpaper 2023 12月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231213_LofotenRorbu"&FORM=HPQUIZ "必应主页测验 2023 12月 13")
-[下载480](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_800x480.jpg&rf=LaDigue_800x480.jpg "传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威")
-[下载720](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_1280x720.jpg&rf=LaDigue_1280x720.jpg "传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威")
-[下载1080](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威")
-[下载UHD](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_UHD.jpg&rf=LaDigue_UHD.jpg "传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威")
 
 ---
