@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月29日：旧西街区的故事
+#### 旧西街区，阿姆斯特丹 ，荷兰（© George Pachantouris/Getty Images）
+
+![旧西街区的故事](https://cn.bing.com/th?id=OHR.BlueAmsterdam_ZH-CN0483591394_800x480.jpg&rf=LaDigue_800x480.jpg "旧西街区的故事")
+
+欢迎来到阿姆斯特丹！荷兰首都阿姆斯特丹以其历史悠久的运河、多姿多彩的建筑和悠闲自在的氛围吸引着来自世界各地的游客。这座城市的历史可以追溯到12世纪，当时它还是阿姆斯特尔河畔的一个渔村。如今，阿姆斯特丹拥有梵高博物馆、EYE电影博物馆和国家海事博物馆等机构，让人们可以深入了解阿姆斯特丹的历史和艺术遗产。阿姆斯特丹的同心圆型运河区建于17世纪，已被联合国教科文组织列为世界遗产。此外，这座城市还拥有众多的餐馆、古董店和露天市场，图片上展示的旧西街区就是其中之一。准备好骑自行车吧，因为阿姆斯特丹的自行车文化无处不在。阿姆斯特丹拥有约320英里长的自行车道，是世界上最适合骑自行车的城市之一。
+
+阿姆斯特丹是博物馆密度最高的城市。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8d%b7%e5%85%b0%e9%98%bf%e5%a7%86%e6%96%af%e7%89%b9%e4%b8%b9&form=hpcapt&filters=HpDate:"20231228_1600" "Bing Wallpaper 2023 12月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231229_BlueAmsterdam"&FORM=HPQUIZ "必应主页测验 2023 12月 29")
+[下载480](https://cn.bing.com/th?id=OHR.BlueAmsterdam_ZH-CN0483591394_800x480.jpg&rf=LaDigue_800x480.jpg "旧西街区，阿姆斯特丹 ，荷兰")
+[下载720](https://cn.bing.com/th?id=OHR.BlueAmsterdam_ZH-CN0483591394_1280x720.jpg&rf=LaDigue_1280x720.jpg "旧西街区，阿姆斯特丹 ，荷兰")
+[下载1080](https://cn.bing.com/th?id=OHR.BlueAmsterdam_ZH-CN0483591394_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "旧西街区，阿姆斯特丹 ，荷兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.BlueAmsterdam_ZH-CN0483591394_UHD.jpg&rf=LaDigue_UHD.jpg "旧西街区，阿姆斯特丹 ，荷兰")
+
+---
 ### 12月28日：跳出“濒危名单”
 #### 座头鲸，迪斯科湾，格陵兰（© Paul Souders/DanitaDelimont.com）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗瓦涅米的圣诞老人公园，拉普兰德，芬兰")
 [下载1080](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗瓦涅米的圣诞老人公园，拉普兰德，芬兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_UHD.jpg&rf=LaDigue_UHD.jpg "罗瓦涅米的圣诞老人公园，拉普兰德，芬兰")
-
----
-### 12月14日：融为一体的猫头鹰
-#### 北方猫头鹰，萨斯喀彻温省，加拿大（© Nick Saunders/Minden Pictures）
-
-![融为一体的猫头鹰](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_800x480.jpg&rf=LaDigue_800x480.jpg "融为一体的猫头鹰")
-
-在观鸟界，“圣诞节数鸟”活动是一年中最有趣的活动。这项一年一度的鸟类普查活动始于1900年，第一次活动只有27人参加，这些人分布在美国和加拿大的25个地方。自那之后，圣诞节数鸟活动的规模急剧扩大，目前在西半球已有2360多个地方参与其中。
-
-北方猫头鹰栖息在在北美州北部和古北区茂密的针叶林，以及阿尔卑斯山和落基山脉等山脉中。该物种通常不会迁徙，但在某些秋季，它们会大量迁徙到更南边的地方。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%96%b9%e7%8c%ab%e5%a4%b4%e9%b9%b0&form=hpcapt&filters=HpDate:"20231213_1600" "Bing Wallpaper 2023 12月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231214_BorealOwl"&FORM=HPQUIZ "必应主页测验 2023 12月 14")
-[下载480](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_800x480.jpg&rf=LaDigue_800x480.jpg "北方猫头鹰，萨斯喀彻温省，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_1280x720.jpg&rf=LaDigue_1280x720.jpg "北方猫头鹰，萨斯喀彻温省，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北方猫头鹰，萨斯喀彻温省，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_UHD.jpg&rf=LaDigue_UHD.jpg "北方猫头鹰，萨斯喀彻温省，加拿大")
 
 ---
