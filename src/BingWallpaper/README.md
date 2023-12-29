@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月30日：古石圈
+#### 卡塞里格石圈，湖区国家公园 ，坎布里亚，英国（© John Finney Photography/Getty Images）
+
+![古石圈](https://cn.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_800x480.jpg&rf=LaDigue_800x480.jpg "古石圈")
+
+考古学家认为，古代文明排列石圈是为了让石头与月亮和太阳的位置保持一致。图中这个位于英格兰西北部湖区的卡塞里格石圈的就是这样的一个遗址。这个新石器时代的纪念碑有40块石头，呈圆形排列，其历史可以追溯到公元前3000年。虽然卡塞里格石圈的排列方式在某些方面仍然是个谜，但在几个世纪以来，其古典的魅力一直吸引着游客。
+
+卡塞里格石圈的石头与太阳的位置没有明显的对齐。尽管如此，在冬至庆祝活动期间，它仍然是一个颇受欢迎的旅游景点。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e5%a1%9e%e9%87%8c%e6%a0%bc%e7%9f%b3%e5%9c%88&form=hpcapt&filters=HpDate:"20231229_1600" "Bing Wallpaper 2023 12月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231230_CastleriggStoneCircleUK"&FORM=HPQUIZ "必应主页测验 2023 12月 30")
+[下载480](https://cn.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_800x480.jpg&rf=LaDigue_800x480.jpg "卡塞里格石圈，湖区国家公园 ，坎布里亚，英国")
+[下载720](https://cn.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡塞里格石圈，湖区国家公园 ，坎布里亚，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡塞里格石圈，湖区国家公园 ，坎布里亚，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_UHD.jpg&rf=LaDigue_UHD.jpg "卡塞里格石圈，湖区国家公园 ，坎布里亚，英国")
+
+---
 ### 12月29日：旧西街区的故事
 #### 旧西街区，阿姆斯特丹 ，荷兰（© George Pachantouris/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_1280x720.jpg&rf=LaDigue_1280x720.jpg "大广场，布鲁塞尔，比利时")
 [下载1080](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大广场，布鲁塞尔，比利时")
 [下载UHD](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_UHD.jpg&rf=LaDigue_UHD.jpg "大广场，布鲁塞尔，比利时")
-
----
-### 12月15日：圣诞老人的乐园
-#### 罗瓦涅米的圣诞老人公园，拉普兰德，芬兰（© lukutin77/Getty Images）
-
-![圣诞老人的乐园](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞老人的乐园")
-
-在拉普兰德的皑皑白雪中，罗瓦涅米是一个迷人的冬日仙境，据说是官方认可的圣诞老人的故乡。这座位于芬兰北部的充满活力的城市不仅是通往北极圈的门户，也是现实与民间传说完美融合的目的地。罗瓦涅米既是拉普兰德的首府，也是芬兰最受欢迎的旅游目的地之一。游客们可以在圣诞公园观看美丽的北极光，探索北极荒野，以及像今天的照片中展示的那样，体验圣诞节的魔力。公园里有各种各样的活动，你可以去精灵工作坊，与技艺精湛的工匠一起制作珍宝，也可以乘坐有趣的火车，穿越公园，欣赏美景。
-
-在圣诞老人公园，游客们可以在圣诞老人的办公室里见到他，并与他免费合影留念。此外，游客们还可以参观姜饼夫人的姜饼面包店，在冰雪公主的冰雪王国“冰雪画廊”里见到她的冰雕作品，以及在圣诞老人邮局寄出明信片。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8a%ac%e5%85%b0%e5%9c%a3%e8%af%9e%e8%80%81%e4%ba%ba%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231214_1600" "Bing Wallpaper 2023 12月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231215_SantaPark"&FORM=HPQUIZ "必应主页测验 2023 12月 15")
-[下载480](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_800x480.jpg&rf=LaDigue_800x480.jpg "罗瓦涅米的圣诞老人公园，拉普兰德，芬兰")
-[下载720](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗瓦涅米的圣诞老人公园，拉普兰德，芬兰")
-[下载1080](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗瓦涅米的圣诞老人公园，拉普兰德，芬兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_UHD.jpg&rf=LaDigue_UHD.jpg "罗瓦涅米的圣诞老人公园，拉普兰德，芬兰")
 
 ---
