@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月01日：新年伊始
+#### 睡在雪地里的赤狐，阿布鲁佐，意大利（© marco vancini/500px/Getty Images）
+
+![新年伊始](https://cn.bing.com/th?id=OHR.SleepingFox_ZH-CN2622967726_800x480.jpg&rf=LaDigue_800x480.jpg "新年伊始")
+
+欢迎来到2024年！昨晚熬夜迎接新年了吗？如果是这样，你可以像这只意大利阿布鲁佐的赤狐一样睡懒觉。无论你何时醒来，元旦都是一个崭新的起点，是重新开始和迎接未来的好机会。自公元前45年采用儒略历以来，1月1日一直是一个重要的日子。随着儒略历在全世界的广泛使用，1582年格里高利历在儒略历的基础上新增了一些规则，以便更好地计算闰年。在元旦这一天，无论你是去参观游行，看体育比赛，泡个冷水澡，或是写下新年愿望，都将是新的一年的美好开端。
+
+赤狐的听觉十分敏锐，可以察觉到600步外走动的黑琴鸡，距离250-500米左右飞行的乌鸦，以及100米内活动的老鼠。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%85%83%e6%97%a6&form=hpcapt&filters=HpDate:"20231231_1600" "Bing Wallpaper 2024 1月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240101_SleepingFox"&FORM=HPQUIZ "必应主页测验 2024 1月 1")
+[下载480](https://cn.bing.com/th?id=OHR.SleepingFox_ZH-CN2622967726_800x480.jpg&rf=LaDigue_800x480.jpg "睡在雪地里的赤狐，阿布鲁佐，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.SleepingFox_ZH-CN2622967726_1280x720.jpg&rf=LaDigue_1280x720.jpg "睡在雪地里的赤狐，阿布鲁佐，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.SleepingFox_ZH-CN2622967726_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "睡在雪地里的赤狐，阿布鲁佐，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.SleepingFox_ZH-CN2622967726_UHD.jpg&rf=LaDigue_UHD.jpg "睡在雪地里的赤狐，阿布鲁佐，意大利")
+
+---
 ### 12月31日：明年见!
 #### 帕那空奇里上空的烟花，碧武里府,泰国（© noomcpk/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_1280x720.jpg&rf=LaDigue_1280x720.jpg "圆顶礁国家公园，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圆顶礁国家公园，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_UHD.jpg&rf=LaDigue_UHD.jpg "圆顶礁国家公园，犹他州，美国")
-
----
-### 12月17日：有羽毛的时尚达人
-#### 波西米亚太平鸟栖息在树枝上，加拿大（© Jim Cumming/Shutterstock）
-
-![有羽毛的时尚达人](https://cn.bing.com/th?id=OHR.WinterWaxwings_ZH-CN9274297835_800x480.jpg&rf=LaDigue_800x480.jpg "有羽毛的时尚达人")
-
-波西米亚太平鸟身披优雅的灰褐色羽毛，是北半球最引人注目的流浪歌手。天鹅绒般的灰色身体与副翅羽毛上鲜艳的蜡质红色尖端形成鲜明对比，使它们显得格外惹人注目。如果受到惊吓，它们会以喙和脖子朝上的姿势僵住。在冬天，它们以栒子、杜松和花楸浆果为食，后者是它们的最爱。春天来临时，这些游民开始筑巢。雌波西米亚太平鸟精心筑巢后，会产下2到6枚蓝灰色的蛋。孵出的小鸟由父母双方喂食昆虫和水果。人们很容易发现这些善于交际的鸟类，因为它们经常成群结队地聚集在北美和欧亚大陆。
-
-这种太平鸟的学名为“Garrulus”， 这个单词在拉丁语中是“健谈”的意思。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b3%a2%e8%a5%bf%e7%b1%b3%e4%ba%9a%e5%a4%aa%e5%b9%b3%e9%b8%9f&form=hpcapt&filters=HpDate:"20231216_1600" "Bing Wallpaper 2023 12月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231217_WinterWaxwings"&FORM=HPQUIZ "必应主页测验 2023 12月 17")
-[下载480](https://cn.bing.com/th?id=OHR.WinterWaxwings_ZH-CN9274297835_800x480.jpg&rf=LaDigue_800x480.jpg "波西米亚太平鸟栖息在树枝上，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.WinterWaxwings_ZH-CN9274297835_1280x720.jpg&rf=LaDigue_1280x720.jpg "波西米亚太平鸟栖息在树枝上，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.WinterWaxwings_ZH-CN9274297835_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波西米亚太平鸟栖息在树枝上，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.WinterWaxwings_ZH-CN9274297835_UHD.jpg&rf=LaDigue_UHD.jpg "波西米亚太平鸟栖息在树枝上，加拿大")
 
 ---
