@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月02日：百年城堡
+#### 贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度（© Twenty47studio/Getty images）
+
+![百年城堡](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_800x480.jpg&rf=LaDigue_800x480.jpg "百年城堡")
+
+夕阳西下，印度拉贾斯坦邦的焦特布尔市沐浴在温暖的光芒中，一幅神奇的景象徐徐展开。坐落在岩石山顶上的梅兰加尔古堡矗立于这片景色中，这里曾是拉索尔王朝的权力中心，见证了荣耀和挑战。这座城堡始建于1459年，由当时的统治者拉奥·约达创建，至今已经有500多年的历史。
+
+梅兰加尔古堡是迪士尼1994年真人电影《丛林之书》和2012年电影《黑暗骑士崛起》的拍摄地之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a2%85%e5%85%b0%e5%8a%a0%e5%b0%94%e5%8f%a4%e5%a0%a1&form=hpcapt&filters=HpDate:"20240101_1600" "Bing Wallpaper 2024 1月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240102_MehrangarhJodhpur"&FORM=HPQUIZ "必应主页测验 2024 1月 2")
+[下载480](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_800x480.jpg&rf=LaDigue_800x480.jpg "贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_1280x720.jpg&rf=LaDigue_1280x720.jpg "贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_UHD.jpg&rf=LaDigue_UHD.jpg "贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度")
+
+---
 ### 01月01日：新年伊始
 #### 睡在雪地里的赤狐，阿布鲁佐，意大利（© marco vancini/500px/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_1280x720.jpg&rf=LaDigue_1280x720.jpg "城堡广场的圣诞树，华沙古城，波兰")
 [下载1080](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "城堡广场的圣诞树，华沙古城，波兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_UHD.jpg&rf=LaDigue_UHD.jpg "城堡广场的圣诞树，华沙古城，波兰")
-
----
-### 12月18日：山峦积雪
-#### 圆顶礁国家公园，犹他州，美国（© Jeff Clay/Tandem Stills + Motion）
-
-![山峦积雪](https://cn.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_800x480.jpg&rf=LaDigue_800x480.jpg "山峦积雪")
-
-经过时间、风和水的雕琢，圆顶礁国家公园形成了色彩斑斓的峡谷、山脊，在这里可以一览美国西部的自然之美。富兰克林·罗斯福总统于1937年将该公园指定为国家纪念碑，并于1971年将其升级为国家公园。该公园因其巨大的岩石圆顶而得名，其外形与华盛顿特区著名的圆形大厅颇为相似。而水袋褶皱宛如海洋中的珊瑚礁，是旅行者穿越该地区的主要障碍。水袋褶皱被称为“地壳的皱纹”，是经过漫长岁月侵蚀而形成。这条长达100英里的单斜褶皱，形似阶梯，大约形成于5000万至7000万年前，由高耸的悬崖、狭窄的峡谷和色彩斑斓的岩层组成。
-
-在当地，礁石指的是阻碍陆地旅行的岩石屏障，就像珊瑚礁是海上旅行的障碍一样。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%86%e9%a1%b6%e7%a4%81%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231217_1600" "Bing Wallpaper 2023 12月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231218_CapitolReefSnow"&FORM=HPQUIZ "必应主页测验 2023 12月 18")
-[下载480](https://cn.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_800x480.jpg&rf=LaDigue_800x480.jpg "圆顶礁国家公园，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_1280x720.jpg&rf=LaDigue_1280x720.jpg "圆顶礁国家公园，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圆顶礁国家公园，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_UHD.jpg&rf=LaDigue_UHD.jpg "圆顶礁国家公园，犹他州，美国")
 
 ---
