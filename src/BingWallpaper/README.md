@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月03日：星光璀璨
+#### 明尼汪卡湖，阿尔伯塔省，加拿大（© Ken Phung/500px/Getty Images）
+
+![星光璀璨](https://cn.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_800x480.jpg&rf=LaDigue_800x480.jpg "星光璀璨")
+
+明尼汪卡湖的星空已经被人类欣赏了几个世纪。纳科达人敬畏湖水，因为他们相信湖中住着神灵，他们满怀敬意地在湖中捕鱼并沿着湖岸狩猎。湖的名字来源于印第安斯通尼族，意思是“水之精灵”。随着加拿大落基山脉旅游业的发展，人们在湖岸边建立了一个定居点。然而，为了下游的水力发电厂保留水源，该湖在1895年和1912年两度筑起了水坝，明尼汪卡的定居点也随之被淹没，只能靠潜水进入。如今，这个冰川湖是班夫国家公园的第二大湖，全长约21公里。
+
+根据考古学家发现的石器和克洛维斯尖矛头，早在1万年前，就有原住民长期居住在明尼汪卡湖附近。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%98%8e%e5%b0%bc%e6%b1%aa%e5%8d%a1%e6%b9%96&form=hpcapt&filters=HpDate:"20240102_1600" "Bing Wallpaper 2024 1月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240103_MinnewankaLake"&FORM=HPQUIZ "必应主页测验 2024 1月 3")
+[下载480](https://cn.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_800x480.jpg&rf=LaDigue_800x480.jpg "明尼汪卡湖，阿尔伯塔省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_1280x720.jpg&rf=LaDigue_1280x720.jpg "明尼汪卡湖，阿尔伯塔省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "明尼汪卡湖，阿尔伯塔省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_UHD.jpg&rf=LaDigue_UHD.jpg "明尼汪卡湖，阿尔伯塔省，加拿大")
+
+---
 ### 01月02日：百年城堡
 #### 贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度（© Twenty47studio/Getty images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_UHD.jpg&rf=LaDigue_UHD.jpg "圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利")
-
----
-### 12月19日：圣诞老人的波兰休息站
-#### 城堡广场的圣诞树，华沙古城，波兰（© Panther Media GmbH/Alamy Stock Photo）
-
-![圣诞老人的波兰休息站](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞老人的波兰休息站")
-
-12月初，波兰华沙的大街小巷和广场都披上了节日的盛装。整座城市被圣诞装饰点缀得熠熠生辉，每到夜晚，闪闪发光的彩灯就会让这座城市变得生机勃勃。这场灯光秀点亮了整条皇家大道，从城堡广场的皇家城堡一直延伸到波兰首都华沙老城的尽头，最后汇聚到城堡广场上近30英尺高的圣诞树上。穿着厚外套的游客们在圣诞集市里闲逛，一边浏览着应季纪念品，一边品尝着热饮。自1980年起，皇家城堡和周围的老城区已被联合国教科文组织认定为世界遗产。
-
-美人鱼是华沙的象征，在城市各处的雕像和市徽上都可以看到美人鱼的身影。至少从14世纪中叶开始，这一形象就一直沿用至今。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%8e%e6%b2%99%e5%9f%8e%e5%a0%a1%e5%b9%bf%e5%9c%ba&form=hpcapt&filters=HpDate:"20231218_1600" "Bing Wallpaper 2023 12月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231219_WarsawChristmas"&FORM=HPQUIZ "必应主页测验 2023 12月 19")
-[下载480](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_800x480.jpg&rf=LaDigue_800x480.jpg "城堡广场的圣诞树，华沙古城，波兰")
-[下载720](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_1280x720.jpg&rf=LaDigue_1280x720.jpg "城堡广场的圣诞树，华沙古城，波兰")
-[下载1080](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "城堡广场的圣诞树，华沙古城，波兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_UHD.jpg&rf=LaDigue_UHD.jpg "城堡广场的圣诞树，华沙古城，波兰")
 
 ---
