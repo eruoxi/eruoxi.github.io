@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月04日：雾锁金门
+#### 金门大桥，旧金山，加利福尼亚州，美国（© Jim Patterson/Tandem Stills + Motion）
+
+![雾锁金门](https://cn.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_800x480.jpg&rf=LaDigue_800x480.jpg "雾锁金门")
+
+金门大桥是人类建筑的奇迹，它像哨兵一样矗立在旧金山湾区的入口处。金门大桥被金门海峡水域上方的浓雾所笼罩，桥塔高达746英尺，塔身上有着充满艺术气息的装饰元素。这座大桥是工程师约瑟夫·施特劳斯、建筑师艾尔文·莫罗和其他许多人为连接旧金山和马林县而共同协作的结果。金门大桥被漆成国际橘，而大桥名字中的“金”则指的是桥下那片反射阳光的金门海峡水域。这座桥于1937年向公众开放，但要建成这座大桥并不容易，尤其是在大萧条时期。不过因为它的建设雇用了数千人，间接促进了当地的就业和技术发展，所以付出还是得到了回报。光影变幻，时代变迁，金门大桥不仅成为了人类创新的证明，更是集功能性与美学于一体的永恒杰作。
+
+这座1.7英里长的大桥由高达746英尺的桥塔支撑，它曾经比旧金山的任何建筑都高！
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%87%91%e9%97%a8%e5%a4%a7%e6%a1%a5&form=hpcapt&filters=HpDate:"20240103_1600" "Bing Wallpaper 2024 1月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240104_GoldenGateLight"&FORM=HPQUIZ "必应主页测验 2024 1月 4")
+[下载480](https://cn.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_800x480.jpg&rf=LaDigue_800x480.jpg "金门大桥，旧金山，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_1280x720.jpg&rf=LaDigue_1280x720.jpg "金门大桥，旧金山，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "金门大桥，旧金山，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_UHD.jpg&rf=LaDigue_UHD.jpg "金门大桥，旧金山，加利福尼亚州，美国")
+
+---
 ### 01月03日：星光璀璨
 #### 明尼汪卡湖，阿尔伯塔省，加拿大（© Ken Phung/500px/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_1280x720.jpg&rf=LaDigue_1280x720.jpg "卢布尔雅那，斯洛文尼亚共和国")
 [下载1080](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卢布尔雅那，斯洛文尼亚共和国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_UHD.jpg&rf=LaDigue_UHD.jpg "卢布尔雅那，斯洛文尼亚共和国")
-
----
-### 12月20日：多洛米蒂山之光
-#### 圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利（© Ingus Kruklitis/Getty Images）
-
-![多洛米蒂山之光](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_800x480.jpg&rf=LaDigue_800x480.jpg "多洛米蒂山之光")
-
-意大利北部的瓦尔加迪纳山谷是现实版的“童话世界”，该山谷位于南蒂罗尔多洛米蒂山区，以滑雪、攀岩和木雕闻名。圣诞节期间，这里会变成“圣诞谷”，木屋向游客们敞开大门，怀旧缆车在圣诞谷上空穿梭，闪烁的童话灯点缀着木屋。18世纪，瓦尔加迪纳山谷因生产雕像和精雕细刻的木俑而闻名，这些雕像最初用于装饰天主教堂，木娃娃是其中最著名的产品之一，至今仍在生产。
-
-圣诞节前，瓦尔加迪纳的首府奥尔蒂斯美成冬日童话。皑皑白雪和梦幻般的节日气氛，深深吸引着大批游客。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%97%e8%92%82%e7%bd%97%e5%b0%94%e7%93%a6%e5%b0%94%e5%8a%a0%e8%bf%aa%e7%ba%b3&form=hpcapt&filters=HpDate:"20231219_1600" "Bing Wallpaper 2023 12月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231220_ValGardenaItaly"&FORM=HPQUIZ "必应主页测验 2023 12月 20")
-[下载480](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_UHD.jpg&rf=LaDigue_UHD.jpg "圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利")
 
 ---
