@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月05日：是现实还是童话？
+#### 巴伐利亚阿尔卑斯山脉，德国（© JFL Photography/Adobe Stock）
+
+![是现实还是童话？](https://cn.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_800x480.jpg&rf=LaDigue_800x480.jpg "是现实还是童话？")
+
+冬日的晴空笼罩着阿尔卑斯山白雪皑皑的山景，雄伟的山峰倒映在冰湖光滑的镜面上。四周白雪覆盖的树木见证了这一刻的宁静与祥和，只有脚踏积雪发出轻柔的嘎吱声可以偶尔打破这种宁静。阳光洒向湖光山色，令人心旷神怡。
+
+楚格峰是巴伐利亚阿尔卑斯山乃至整个德国的最高峰。它位于韦特施泰因山脉的西部，海拔2962米，具有高阿尔卑斯山的特征，并有两个小冰川。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e4%bc%90%e5%88%a9%e4%ba%9a%e9%98%bf%e5%b0%94%e5%8d%91%e6%96%af%e5%b1%b1%e8%84%89&form=hpcapt&filters=HpDate:"20240104_1600" "Bing Wallpaper 2024 1月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240105_AlpsReflecting"&FORM=HPQUIZ "必应主页测验 2024 1月 5")
+[下载480](https://cn.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_800x480.jpg&rf=LaDigue_800x480.jpg "巴伐利亚阿尔卑斯山脉，德国")
+[下载720](https://cn.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴伐利亚阿尔卑斯山脉，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴伐利亚阿尔卑斯山脉，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_UHD.jpg&rf=LaDigue_UHD.jpg "巴伐利亚阿尔卑斯山脉，德国")
+
+---
 ### 01月04日：雾锁金门
 #### 金门大桥，旧金山，加利福尼亚州，美国（© Jim Patterson/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_1280x720.jpg&rf=LaDigue_1280x720.jpg "天鹅泉湿地公园，伊犁，新疆，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "天鹅泉湿地公园，伊犁，新疆，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_UHD.jpg&rf=LaDigue_UHD.jpg "天鹅泉湿地公园，伊犁，新疆，中国")
-
----
-### 12月21日：斯洛文尼亚式的节日氛围
-#### 卢布尔雅那，斯洛文尼亚共和国（© kasto80/Getty images）
-
-![斯洛文尼亚式的节日氛围](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_800x480.jpg&rf=LaDigue_800x480.jpg "斯洛文尼亚式的节日氛围")
-
-多么可爱的城市啊！斯洛文尼亚首都卢布尔雅那和流经该市的卢布尔雅尼察河的名字的前缀都是“ljub”，这个前缀在斯拉夫语中的意思是“爱”。卢布尔雅那位于连接亚得里亚海北部和多瑙河地区的贸易路线之上，是一个相对较小的首都，人口不到30万。城市南部是卢布尔雅那沼泽，这是该国最大的沼泽，面积达63平方英里。卢布尔雅那的外围地区现代建筑林立，而城市的核心区则保留了具有古罗马和中世纪元素的历史建筑。例如卢布尔雅那城堡、三重桥、龙桥和历史悠久的老城区。当你在城中闲逛时，一定要留心，因为你很可能会遇到这座城市的象征——卢布尔雅那龙。
-
-卢布尔雅那龙是这座城市的象征。卢布尔雅那市徽中的卢布尔雅那城堡塔顶和横跨卢布尔雅那卡的龙桥（飞龙桥）上都有龙的图案。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a2%e5%b8%83%e5%b0%94%e9%9b%85%e9%82%a3&form=hpcapt&filters=HpDate:"20231220_1600" "Bing Wallpaper 2023 12月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231221_LjubljanaLights"&FORM=HPQUIZ "必应主页测验 2023 12月 21")
-[下载480](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_800x480.jpg&rf=LaDigue_800x480.jpg "卢布尔雅那，斯洛文尼亚共和国")
-[下载720](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_1280x720.jpg&rf=LaDigue_1280x720.jpg "卢布尔雅那，斯洛文尼亚共和国")
-[下载1080](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卢布尔雅那，斯洛文尼亚共和国")
-[下载UHD](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_UHD.jpg&rf=LaDigue_UHD.jpg "卢布尔雅那，斯洛文尼亚共和国")
 
 ---
