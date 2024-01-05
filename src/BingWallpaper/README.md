@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月06日：薅一个苹果！
+#### 冬天，雄性苍头燕雀栖息在海棠果树上（© Mark Hamblin/2020VISION/Minden Pictures）
+
+![薅一个苹果！](https://cn.bing.com/th?id=OHR.CrabappleChaffinch_ZH-CN4458529756_800x480.jpg&rf=LaDigue_800x480.jpg "薅一个苹果！")
+
+苹果树日是一个全国性的节日，旨在向苹果栽培技术以及这些受人喜爱的苹果为我们的健康所带来的益处致敬。17世纪，苹果随着欧洲殖民者来到北美。1625年，威廉·布拉克斯顿在波士顿建起了北美大陆上的第一个苹果园。现在，从红蛇果到蜜脆苹果再到粉红女士苹果，仅在美国就种植着大约200个独特的苹果品种。照片中展示的海棠果虽然个头不大，却个性十足。虽然它们的味道可能有点酸，但冬日里的海棠果也是一种可爱的存在。当自然界其他食物稀缺时，海棠果也是部分鸟类的果腹之源。海棠果还可以切成片，烤成果脯，做成沙拉冷盘，以及苹果酒。你更愿意以哪种方式享用它们?
+
+吃一个苹果可以最大限度地减少大蒜对口气的影响。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e6%a3%a0%e6%9e%9c&form=hpcapt&filters=HpDate:"20240105_1600" "Bing Wallpaper 2024 1月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240106_CrabappleChaffinch"&FORM=HPQUIZ "必应主页测验 2024 1月 6")
+[下载480](https://cn.bing.com/th?id=OHR.CrabappleChaffinch_ZH-CN4458529756_800x480.jpg&rf=LaDigue_800x480.jpg "冬天，雄性苍头燕雀栖息在海棠果树上")
+[下载720](https://cn.bing.com/th?id=OHR.CrabappleChaffinch_ZH-CN4458529756_1280x720.jpg&rf=LaDigue_1280x720.jpg "冬天，雄性苍头燕雀栖息在海棠果树上")
+[下载1080](https://cn.bing.com/th?id=OHR.CrabappleChaffinch_ZH-CN4458529756_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冬天，雄性苍头燕雀栖息在海棠果树上")
+[下载UHD](https://cn.bing.com/th?id=OHR.CrabappleChaffinch_ZH-CN4458529756_UHD.jpg&rf=LaDigue_UHD.jpg "冬天，雄性苍头燕雀栖息在海棠果树上")
+
+---
 ### 01月05日：是现实还是童话？
 #### 巴伐利亚阿尔卑斯山脉，德国（© JFL Photography/Adobe Stock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_1280x720.jpg&rf=LaDigue_1280x720.jpg "帽带企鹅，南桑威奇群岛，南大西洋")
 [下载1080](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帽带企鹅，南桑威奇群岛，南大西洋")
 [下载UHD](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_UHD.jpg&rf=LaDigue_UHD.jpg "帽带企鹅，南桑威奇群岛，南大西洋")
-
----
-### 12月22日：冬季仙境中的精灵
-#### 天鹅泉湿地公园，伊犁，新疆，中国（© 500px Asia/Getty images）
-
-![冬季仙境中的精灵](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_800x480.jpg&rf=LaDigue_800x480.jpg "冬季仙境中的精灵")
-
-冬至这一天，让我们一起走进天鹅泉湿地公园。天鹅泉湿地公园又名英塔木天鹅栖息地保护区，位于英塔木乡下赫勒克村伊犁河北岸。该地有个“天鹅湖”，这个湖最初是由几处长流不息的地下温泉眼汇聚而成一条小溪，后来经过人工规划形成了湖泊。湖里生长了茂密的水草，泉水温度较高，即使在最寒冷的季节也不会封冻，天鹅们十分喜欢在这里越冬，休养生息。
-
-从上世纪九十年代开始，每年10月初至次年4月，都有天鹅在此栖息，数量已从最初的几只发展到如今的百余只。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%b0%e7%96%86%e5%a4%a9%e9%b9%85%e6%b3%89%e6%b9%bf%e5%9c%b0%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20231221_1600" "Bing Wallpaper 2023 12月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231222_WinterSolstice2023"&FORM=HPQUIZ "必应主页测验 2023 12月 22")
-[下载480](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_800x480.jpg&rf=LaDigue_800x480.jpg "天鹅泉湿地公园，伊犁，新疆，中国")
-[下载720](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_1280x720.jpg&rf=LaDigue_1280x720.jpg "天鹅泉湿地公园，伊犁，新疆，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "天鹅泉湿地公园，伊犁，新疆，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_UHD.jpg&rf=LaDigue_UHD.jpg "天鹅泉湿地公园，伊犁，新疆，中国")
 
 ---
