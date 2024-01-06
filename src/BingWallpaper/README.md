@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月07日：大自然的平衡术
+#### 魔鬼大理石保护区，澳大利亚（© Yva Momatiuk and John Eastcott/Minden Pictures）
+
+![大自然的平衡术](https://cn.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的平衡术")
+
+这些可不是普通的石头！魔鬼大理石是已知最古老的宗教场所之一，对澳大利亚土著居民来说，它是一个古老的圣地，具有重要的价值。如今，澳大利亚北领地的魔鬼大理石保护区--又称卡鲁卡鲁，保存着这些巨大的圆形巨石。这些岩石由花岗岩构成，其奇特的形状是数百万年风化和侵蚀的结果。今天恰好是“古老岩石日”，是欣赏这一地质奇观最好的日子。你知道地球上最古老的岩石在哪吗？阿波罗14号任务期间从月球上带回的月球样本14321，被称为“大伯莎”，经测定约有44.6亿年的历史，只比地球本身年轻一点点。科学家们认为，一颗古老的小行星撞击地球，将大块的陆地碎片抛向太空和月球表面，然后在数百万年后被我们带了回来。无论你是地质学迷，还是自然爱好者，拥抱你周围的矿物质，继续前进吧！
+
+卡鲁卡鲁是当地土著居民对这种岩石景观的称呼，这个词在土著语中的意思是“圆形巨石”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%ad%94%e9%ac%bc%e5%a4%a7%e7%90%86%e7%9f%b3%e4%bf%9d%e6%8a%a4%e5%8c%ba&form=hpcapt&filters=HpDate:"20240106_1600" "Bing Wallpaper 2024 1月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240107_DevilsMarbles"&FORM=HPQUIZ "必应主页测验 2024 1月 7")
+[下载480](https://cn.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_800x480.jpg&rf=LaDigue_800x480.jpg "魔鬼大理石保护区，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_1280x720.jpg&rf=LaDigue_1280x720.jpg "魔鬼大理石保护区，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "魔鬼大理石保护区，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_UHD.jpg&rf=LaDigue_UHD.jpg "魔鬼大理石保护区，澳大利亚")
+
+---
 ### 01月06日：薅一个苹果！
 #### 冬天，雄性苍头燕雀栖息在海棠果树上（© Mark Hamblin/2020VISION/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_1280x720.jpg&rf=LaDigue_1280x720.jpg "市政厅广场，塔尔图，爱沙尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "市政厅广场，塔尔图，爱沙尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_UHD.jpg&rf=LaDigue_UHD.jpg "市政厅广场，塔尔图，爱沙尼亚")
-
----
-### 12月23日：它们看起来有话要说
-#### 帽带企鹅，南桑威奇群岛，南大西洋（© Jan Vermeer/Minden Pictures）
-
-![它们看起来有话要说](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_800x480.jpg&rf=LaDigue_800x480.jpg "它们看起来有话要说")
-
-在节假日与家人围坐一堂时，你有时会想如图上这只南桑威奇群岛上的帽带企鹅一样，痛骂在场的人一顿。如果以上设想听起来很吸引人，或者你想从强制性的季节性快乐中解脱出来，那么“不过圣诞节”可能就是你的理想节日。这个世俗节日出现在流行喜剧《宋飞正传》的最后一季中时，就引起了相当大的关注。科斯坦扎一家有很多奇怪的传统，包括在节日期间竖起一根没有装饰物的铝杆，以及在年终发泄他们的不满。自从这一集播出以来，这个节日在粉丝和寻找其他庆祝方式的人群中就有了自己的生命。我们欢迎那些热爱圣诞节、光明节和宽扎节的人去过节，而“不过圣诞节”则是为我们其他人准备的。
-
-在陆地上，帽带企鹅用石头筑成圆形的巢穴，然后产下两个蛋，由雄性和雌性轮流孵化，每只孵6天左右。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%bd%e5%b8%a6%e4%bc%81%e9%b9%85&form=hpcapt&filters=HpDate:"20231222_1600" "Bing Wallpaper 2023 12月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231223_FestivusPenguins"&FORM=HPQUIZ "必应主页测验 2023 12月 23")
-[下载480](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_800x480.jpg&rf=LaDigue_800x480.jpg "帽带企鹅，南桑威奇群岛，南大西洋")
-[下载720](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_1280x720.jpg&rf=LaDigue_1280x720.jpg "帽带企鹅，南桑威奇群岛，南大西洋")
-[下载1080](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帽带企鹅，南桑威奇群岛，南大西洋")
-[下载UHD](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_UHD.jpg&rf=LaDigue_UHD.jpg "帽带企鹅，南桑威奇群岛，南大西洋")
 
 ---
