@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月08日：瑞士的雪花漱漱落下
+#### 贝尔尼纳山口的滑雪场，格劳宾登州，瑞士（© Francesco Bergamaschi/Getty Images）
+
+![瑞士的雪花漱漱落下](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_800x480.jpg&rf=LaDigue_800x480.jpg "瑞士的雪花漱漱落下")
+
+你被眼前这片白茫茫的大地震撼到了吗？这正是游客们在瑞士格劳宾登州阿尔卑斯山目睹贝尔尼纳山口时的感受。它的海拔高达7638英尺，吸引着来自世界各地的冬季运动爱好者。这个山口现在可能是滑雪场的大本营，但在中世纪它是一条重要的贸易路线。有趣的是，与滑雪有关的考古证据最早可追溯至公元前6000年左右的俄罗斯。每年的11月到次年3月是贝尔尼纳山口雪况最好的时候，喜欢滑雪的朋友们可别错过哦！
+
+贝尔尼纳山脉是阿尔卑斯山最高的山脉之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%b4%9d%e5%b0%94%e5%b0%bc%e7%ba%b3%e5%b1%b1&form=hpcapt&filters=HpDate:"20240107_1600" "Bing Wallpaper 2024 1月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240108_BerninaPass"&FORM=HPQUIZ "必应主页测验 2024 1月 8")
+[下载480](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_800x480.jpg&rf=LaDigue_800x480.jpg "贝尔尼纳山口的滑雪场，格劳宾登州，瑞士")
+[下载720](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_1280x720.jpg&rf=LaDigue_1280x720.jpg "贝尔尼纳山口的滑雪场，格劳宾登州，瑞士")
+[下载1080](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "贝尔尼纳山口的滑雪场，格劳宾登州，瑞士")
+[下载UHD](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_UHD.jpg&rf=LaDigue_UHD.jpg "贝尔尼纳山口的滑雪场，格劳宾登州，瑞士")
+
+---
 ### 01月07日：大自然的平衡术
 #### 魔鬼大理石保护区，澳大利亚（© Yva Momatiuk and John Eastcott/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_1280x720.jpg&rf=LaDigue_1280x720.jpg "驯鹿在雪中奔跑，阿拉斯加，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "驯鹿在雪中奔跑，阿拉斯加，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_UHD.jpg&rf=LaDigue_UHD.jpg "驯鹿在雪中奔跑，阿拉斯加，美国")
-
----
-### 12月24日：多么可爱的树枝啊！
-#### 市政厅广场，塔尔图，爱沙尼亚（© Westend61/Getty Images）
-
-![多么可爱的树枝啊！](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_800x480.jpg&rf=LaDigue_800x480.jpg "多么可爱的树枝啊！")
-
-在这个平安夜，世界各地的城镇都沉浸在一种神奇的魔力中。商店关着门，街道空无一人，人们与朋友及家人欢聚一堂，互相慰藉。把礼物装进圣诞袜、举办派对或是播放节日音乐，每个人都有自己的平安夜传统活动。今天的照片上展示的是爱沙尼亚塔尔图市政厅广场一年一度的庆祝活动，广场上灯火辉煌，圣诞树点缀其间。塔尔图的圣诞集市洋溢着欢乐的气氛，有雪橇、户外火炉和木质动物旋转木马。此外，集市上还有熏肉、热饮和酥脆的姜饼。无论你是选择观看一部经典的节日电影，还是选择在十二点钟声敲响时惬意地喝上一杯热可可，在这个宁静的夜晚都能感受到浓浓的圣诞气氛。
-
-塔尔图将于2024年成为欧洲文化之都。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%88%b1%e6%b2%99%e5%b0%bc%e4%ba%9a%e5%a1%94%e5%b0%94%e5%9b%be&form=hpcapt&filters=HpDate:"20231223_1600" "Bing Wallpaper 2023 12月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231224_EstoniaXmasEve"&FORM=HPQUIZ "必应主页测验 2023 12月 24")
-[下载480](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_800x480.jpg&rf=LaDigue_800x480.jpg "市政厅广场，塔尔图，爱沙尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_1280x720.jpg&rf=LaDigue_1280x720.jpg "市政厅广场，塔尔图，爱沙尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "市政厅广场，塔尔图，爱沙尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_UHD.jpg&rf=LaDigue_UHD.jpg "市政厅广场，塔尔图，爱沙尼亚")
 
 ---
