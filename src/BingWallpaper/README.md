@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月09日：乘着热气球向上飞
+#### 格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国（© Jennifer MacCornack/Shutterstock）
+
+![乘着热气球向上飞](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_800x480.jpg&rf=LaDigue_800x480.jpg "乘着热气球向上飞")
+
+今天是热气球升空日，一个致力于纪念布兰沙尔的成就的日子。布兰沙尔是一位法国的气球驾驶员及发明家，早在1793年，他就完成了美国历史上第一次载人气球航行，从费城飞往新泽西州的德特福德。自2011年起，每年的这一天人们都会热烈庆祝，以致敬这一空中壮举。在今天的图片中，太阳落在格兰德河的上空，照亮了新墨西哥州阿尔伯克基上空的彩色热气球。每年的10月初，人们从世界各地赶来齐聚一堂，参加为期9天的阿尔伯克基国际热气球节，这是世界上最盛大的热气球节，在这里，人们可以欣赏到经验丰富的热气球驾驶员熟练地操作他们的热气球。
+
+热气球的前身是孔明灯 。在三国时期（公元220年至280年），蜀汉的诸葛亮使用这些空中灯笼进行军事信号传递。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%83%ad%e6%b0%94%e7%90%83&form=hpcapt&filters=HpDate:"20240108_1600" "Bing Wallpaper 2024 1月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240109_BalloonDay"&FORM=HPQUIZ "必应主页测验 2024 1月 9")
+[下载480](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_800x480.jpg&rf=LaDigue_800x480.jpg "格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_1280x720.jpg&rf=LaDigue_1280x720.jpg "格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_UHD.jpg&rf=LaDigue_UHD.jpg "格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国")
+
+---
 ### 01月08日：瑞士的雪花漱漱落下
 #### 贝尔尼纳山口的滑雪场，格劳宾登州，瑞士（© Francesco Bergamaschi/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_1280x720.jpg&rf=LaDigue_1280x720.jpg "冬季日出，戴德姆，科尔切斯特，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冬季日出，戴德姆，科尔切斯特，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_UHD.jpg&rf=LaDigue_UHD.jpg "冬季日出，戴德姆，科尔切斯特，英格兰")
-
----
-### 12月25日：圣诞快乐，亲爱的朋友们！
-#### 驯鹿在雪中奔跑，阿拉斯加，美国（© Michael Quinton/Minden Pictures）
-
-![圣诞快乐，亲爱的朋友们！](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞快乐，亲爱的朋友们！")
-
-如果北美驯鹿飞起来了，您可千万别惊讶！自从克莱门特·克拉克·摩尔在1823年的诗歌《圣尼古拉斯来访》中将驯鹿指派为圣诞老人的助手以来，北美驯鹿就一直热心地为圣诞节庆典做出贡献，也难怪圣诞老人会选中它们！驯鹿具有顽强的生命力和适应性，它们有两层浓密的皮毛，眼睛能适应各种波长的光线，因此它们能适应各种不同的环境。在现实生活中，您可能看不到驯鹿飞翔，但您可能会在北极地区、北美、北欧和西伯利亚发现一群从苔原地带迁徙到森林的驯鹿。它们的蹄子可以根据季节以及地面情况来扩大或缩小，这使得它们戴着鹿角的沉重身躯站得稳稳当当。如果您今天正在庆祝圣诞节，我们祝您圣诞快乐。
-
-根据民间传说，圣诞老人的雪橇是由会飞的驯鹿拉动的。在1823年的诗歌《圣尼古拉斯来访》中，这些驯鹿首次被命名。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%af%e9%b9%bf&form=hpcapt&filters=HpDate:"20231224_1600" "Bing Wallpaper 2023 12月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231225_CaribouChristmas"&FORM=HPQUIZ "必应主页测验 2023 12月 25")
-[下载480](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_800x480.jpg&rf=LaDigue_800x480.jpg "驯鹿在雪中奔跑，阿拉斯加，美国")
-[下载720](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_1280x720.jpg&rf=LaDigue_1280x720.jpg "驯鹿在雪中奔跑，阿拉斯加，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "驯鹿在雪中奔跑，阿拉斯加，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_UHD.jpg&rf=LaDigue_UHD.jpg "驯鹿在雪中奔跑，阿拉斯加，美国")
 
 ---
