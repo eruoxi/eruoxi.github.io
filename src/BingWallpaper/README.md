@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月10日：迎接挑战！
+#### 米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊（© Orestis Zoumpos/Amazing Aerial Agency）
+
+![迎接挑战！](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_800x480.jpg&rf=LaDigue_800x480.jpg "迎接挑战！")
+
+是时候加强锻炼了！随着久坐不动的生活方式越来越普遍，保持健康已成为人们关注的焦点。“走楼梯日”的出现是为了提醒人们：一个小小的、有意识的选择也可以对我们的整体健康产生大大的影响。这是由美国肺脏协会发起的一项倡议，旨在倡导人们通过有意识的运动来促进肺部健康。
+
+在荷马史诗《奥德赛》中，英雄奥德修斯访问了埃俄罗斯（色萨利的旧称）的王国。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%8c%e8%85%8a%e8%89%b2%e8%90%a8%e5%88%a9&form=hpcapt&filters=HpDate:"20240109_1600" "Bing Wallpaper 2024 1月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240110_MilopotamosStairs"&FORM=HPQUIZ "必应主页测验 2024 1月 10")
+[下载480](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_800x480.jpg&rf=LaDigue_800x480.jpg "米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊")
+[下载720](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_1280x720.jpg&rf=LaDigue_1280x720.jpg "米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_UHD.jpg&rf=LaDigue_UHD.jpg "米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊")
+
+---
 ### 01月09日：乘着热气球向上飞
 #### 格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国（© Jennifer MacCornack/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_1280x720.jpg&rf=LaDigue_1280x720.jpg "教堂山，斯奈山半岛，冰岛")
 [下载1080](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "教堂山，斯奈山半岛，冰岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_UHD.jpg&rf=LaDigue_UHD.jpg "教堂山，斯奈山半岛，冰岛")
-
----
-### 12月26日：节礼日快乐
-#### 冬季日出，戴德姆，科尔切斯特，英格兰（© George W Johnson/Getty Images）
-
-![节礼日快乐](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_800x480.jpg&rf=LaDigue_800x480.jpg "节礼日快乐")
-
-节假日还没有完全结束！12月26日是节礼日——这是一个让节日气氛延续下去的时机，也是一个在大自然中享受冬日漫步的时机，图中的英格兰科尔切斯特的田野就是一个冬日漫步的好地方。英国和一些英联邦成员国，包括加拿大和澳大利亚，都会庆祝节礼日。节日的起源被认为来自一项古老的英国传统——送礼盒，即雇主在圣诞节的第二天给仆人送装满礼物的“盒子”。时光流转，今天的人们依然会把赠送礼物和节礼日联系在一起，但这个节日已经有了各种习俗。在英国，各地都会举办赛马活动，包括在肯普顿公园赛马场举办的历史悠久的乔治六世赛马大赛。而在加拿大，冰球爱好者会聚集在一起，为他们喜爱的球队加油助威。节假日就像冬天的阳光一样，结束得比你想象中更快，趁着一切还未结束，去尽情享受吧。
-
-《牛津英语词典》给出了英国最早的证明是在1743年，将其定义为“圣诞节后的第二天”，并说“传统上在这一天商人、雇员等会收到礼物或小费（一个“圣诞盒子”） 来自他们的客户或雇主。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8a%82%e7%a4%bc%e6%97%a5&form=hpcapt&filters=HpDate:"20231225_1600" "Bing Wallpaper 2023 12月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231226_BoxingDaySunrise"&FORM=HPQUIZ "必应主页测验 2023 12月 26")
-[下载480](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_800x480.jpg&rf=LaDigue_800x480.jpg "冬季日出，戴德姆，科尔切斯特，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_1280x720.jpg&rf=LaDigue_1280x720.jpg "冬季日出，戴德姆，科尔切斯特，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冬季日出，戴德姆，科尔切斯特，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_UHD.jpg&rf=LaDigue_UHD.jpg "冬季日出，戴德姆，科尔切斯特，英格兰")
 
 ---
