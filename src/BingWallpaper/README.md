@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月11日：长胡须的“流浪汉”
+#### 雪中的欧亚猞猁（© Jan Stria/Shutterstock）
+
+![长胡须的“流浪汉”](https://cn.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_800x480.jpg&rf=LaDigue_800x480.jpg "长胡须的“流浪汉”")
+
+准备好与它对视了吗？猞猁，一种身披灰色或锈色皮毛，有着深色花纹斑点的动物，虽然广泛分布在欧洲、中亚和西伯利亚地区，但它们很难被人类发现。这种猫科动物以其难以捉摸的天性而闻名，常常隐匿在原生栖息地中，多年不被发现。它们低沉的叫声可以被其他猞猁听到，但人类却难以察觉。猞猁主要在夜间、黎明和黄昏时活动，有需要时也会在白天捕猎。这些孤独的猎手以敏锐的感官和非凡的敏捷性著称。在温带森林，猞猁扮演着十分重要的角色，通过捕猎，它们抑制了猎物的物种数量，维系了该地区的生态平衡，而它们的主要猎物包括兔子、野兔、旱獭和其它小型哺乳动物。
+
+在野外，生命力顽强的猞猁可以繁衍生长长达17年，而人工饲养的猞猁寿命可延长至24年左右。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e4%ba%9a%e7%8c%9e%e7%8c%81&form=hpcapt&filters=HpDate:"20240110_1600" "Bing Wallpaper 2024 1月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240111_LynxSnow"&FORM=HPQUIZ "必应主页测验 2024 1月 11")
+[下载480](https://cn.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_800x480.jpg&rf=LaDigue_800x480.jpg "雪中的欧亚猞猁")
+[下载720](https://cn.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪中的欧亚猞猁")
+[下载1080](https://cn.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪中的欧亚猞猁")
+[下载UHD](https://cn.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_UHD.jpg&rf=LaDigue_UHD.jpg "雪中的欧亚猞猁")
+
+---
 ### 01月10日：迎接挑战！
 #### 米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊（© Orestis Zoumpos/Amazing Aerial Agency）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GreenlandHumpback_ZH-CN8145852053_1280x720.jpg&rf=LaDigue_1280x720.jpg "座头鲸，迪斯科湾，格陵兰")
 [下载1080](https://cn.bing.com/th?id=OHR.GreenlandHumpback_ZH-CN8145852053_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "座头鲸，迪斯科湾，格陵兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.GreenlandHumpback_ZH-CN8145852053_UHD.jpg&rf=LaDigue_UHD.jpg "座头鲸，迪斯科湾，格陵兰")
-
----
-### 12月27日：冰与火之地
-#### 教堂山，斯奈山半岛，冰岛（© Ratnakorn Piyasirisorost/Getty Images）
-
-![冰与火之地](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_800x480.jpg&rf=LaDigue_800x480.jpg "冰与火之地")
-
-从冰川和瀑布到火山和黑沙滩，冰岛的斯奈山半岛拥有“权游”中的一切。图中这座傲然屹立的小山，是海拔1519英尺高的草帽山。因其形状酷似教堂的尖塔，这座巍峨的小山又被称为教堂山。您可能在《权力的游戏》系列剧中看到过它，因为它曾出现在一幕设定在巨型冰墙以北的场景中。这个冰原岛峰（一种突出于冰原或冰川上的岩层），是摄影师们经常拍摄的对象，其金字塔般的形状、随季节变化的颜色以及沿海的地理位置，使它充满了魅力。如果运气好，天气条件允许，您还可以在草帽山看到壮丽的北极光。
-
-草帽山以其独特的地质而闻名，被认为是研究冰岛地质历史的重要场所。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8d%89%e5%b8%bd%e5%b1%b1+%e5%86%b0%e5%b2%9b&form=hpcapt&filters=HpDate:"20231226_1600" "Bing Wallpaper 2023 12月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231227_KirkjufellAurora"&FORM=HPQUIZ "必应主页测验 2023 12月 27")
-[下载480](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_800x480.jpg&rf=LaDigue_800x480.jpg "教堂山，斯奈山半岛，冰岛")
-[下载720](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_1280x720.jpg&rf=LaDigue_1280x720.jpg "教堂山，斯奈山半岛，冰岛")
-[下载1080](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "教堂山，斯奈山半岛，冰岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_UHD.jpg&rf=LaDigue_UHD.jpg "教堂山，斯奈山半岛，冰岛")
 
 ---
