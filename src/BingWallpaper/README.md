@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月13日：放慢脚步，享受旅途！
+#### 哈纳之路，毛伊岛，夏威夷，美国（© Matteo Colombo/Getty Images）
+
+![放慢脚步，享受旅途！](https://cn.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_800x480.jpg&rf=LaDigue_800x480.jpg "放慢脚步，享受旅途！")
+
+游客们经常把夏威夷和放松画上等号，但作为该地最著名的景点之一的哈纳之路，可能会让你紧紧抓住方向盘。这条公路沿着毛伊岛的北部海岸，从卡胡卢伊延伸到宁静的哈纳镇，全长64英里，有600多个弯道和许多单行道桥梁。行车途中需要集中注意力，所以不要忘记在郁郁葱葱的雨林和层层叠叠的瀑布前停下来放松一下。哈纳之路沿途的亮点包括天然小径、双子瀑布和怀阿纳帕纳帕州立公园的黑沙滩。
+
+20世纪初，该条公路一直在建设中。直到1926年12月18日，通往哈纳的公路才全线正式通车。而桥梁的建设也一直持续到20世纪30年代，直到20世纪60年代才全部铺设完毕。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%93%88%e7%ba%b3%e4%b9%8b%e8%b7%af&form=hpcapt&filters=HpDate:"20240112_1600" "Bing Wallpaper 2024 1月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240113_HanaHighway"&FORM=HPQUIZ "必应主页测验 2024 1月 13")
+[下载480](https://cn.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_800x480.jpg&rf=LaDigue_800x480.jpg "哈纳之路，毛伊岛，夏威夷，美国")
+[下载720](https://cn.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_1280x720.jpg&rf=LaDigue_1280x720.jpg "哈纳之路，毛伊岛，夏威夷，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哈纳之路，毛伊岛，夏威夷，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_UHD.jpg&rf=LaDigue_UHD.jpg "哈纳之路，毛伊岛，夏威夷，美国")
+
+---
 ### 01月12日：北汉山的花岗岩山峰
 #### 北汉山国立公园，韩国（© TRAVEL TAKE PHOTOS/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡塞里格石圈，湖区国家公园 ，坎布里亚，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡塞里格石圈，湖区国家公园 ，坎布里亚，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_UHD.jpg&rf=LaDigue_UHD.jpg "卡塞里格石圈，湖区国家公园 ，坎布里亚，英国")
-
----
-### 12月29日：旧西街区的故事
-#### 旧西街区，阿姆斯特丹 ，荷兰（© George Pachantouris/Getty Images）
-
-![旧西街区的故事](https://cn.bing.com/th?id=OHR.BlueAmsterdam_ZH-CN0483591394_800x480.jpg&rf=LaDigue_800x480.jpg "旧西街区的故事")
-
-欢迎来到阿姆斯特丹！荷兰首都阿姆斯特丹以其历史悠久的运河、多姿多彩的建筑和悠闲自在的氛围吸引着来自世界各地的游客。这座城市的历史可以追溯到12世纪，当时它还是阿姆斯特尔河畔的一个渔村。如今，阿姆斯特丹拥有梵高博物馆、EYE电影博物馆和国家海事博物馆等机构，让人们可以深入了解阿姆斯特丹的历史和艺术遗产。阿姆斯特丹的同心圆型运河区建于17世纪，已被联合国教科文组织列为世界遗产。此外，这座城市还拥有众多的餐馆、古董店和露天市场，图片上展示的旧西街区就是其中之一。准备好骑自行车吧，因为阿姆斯特丹的自行车文化无处不在。阿姆斯特丹拥有约320英里长的自行车道，是世界上最适合骑自行车的城市之一。
-
-阿姆斯特丹是博物馆密度最高的城市。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8d%b7%e5%85%b0%e9%98%bf%e5%a7%86%e6%96%af%e7%89%b9%e4%b8%b9&form=hpcapt&filters=HpDate:"20231228_1600" "Bing Wallpaper 2023 12月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231229_BlueAmsterdam"&FORM=HPQUIZ "必应主页测验 2023 12月 29")
-[下载480](https://cn.bing.com/th?id=OHR.BlueAmsterdam_ZH-CN0483591394_800x480.jpg&rf=LaDigue_800x480.jpg "旧西街区，阿姆斯特丹 ，荷兰")
-[下载720](https://cn.bing.com/th?id=OHR.BlueAmsterdam_ZH-CN0483591394_1280x720.jpg&rf=LaDigue_1280x720.jpg "旧西街区，阿姆斯特丹 ，荷兰")
-[下载1080](https://cn.bing.com/th?id=OHR.BlueAmsterdam_ZH-CN0483591394_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "旧西街区，阿姆斯特丹 ，荷兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.BlueAmsterdam_ZH-CN0483591394_UHD.jpg&rf=LaDigue_UHD.jpg "旧西街区，阿姆斯特丹 ，荷兰")
 
 ---
