@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月14日：白色羽毛交响曲
+#### 屈斜路湖的天鹅，日本（© Darrell Gulin/DanitaDelimont.com）
+
+![白色羽毛交响曲](https://cn.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_800x480.jpg&rf=LaDigue_800x480.jpg "白色羽毛交响曲")
+
+优雅的生物配上壮丽的环境。这些长着黄黑两色喙的全身白色的鸟类在日本屈斜路湖的湖面上滑翔，它们名叫大天鹅，相当于是北美号手天鹅的欧亚种。这些美丽的天鹅的翼展在7到9英尺之间，是世界上最重的能飞的鸟类之一。虽然大天鹅是芬兰的国鸟，但它们只在那里度过繁殖季节。这些天鹅和北方其他地区的天鹅一样，在天气变冷时会迁徙到温暖的沿海地区。这些大天鹅一旦形成了牢固的一夫一妻制的伴侣关系，就可以终生相伴，不会因为旅行而改变。
+
+大天鹅需要在大面积的水域中生活，尤其是在生长期的时候，它们的腿无法长时间支撑身体的重量。大天鹅大部分时间都在游泳、在水中寻找食物，或者吃生长在水底的植物。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a9%e9%b9%85&form=hpcapt&filters=HpDate:"20240113_1600" "Bing Wallpaper 2024 1月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240114_HokkaidoSwans"&FORM=HPQUIZ "必应主页测验 2024 1月 14")
+[下载480](https://cn.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_800x480.jpg&rf=LaDigue_800x480.jpg "屈斜路湖的天鹅，日本")
+[下载720](https://cn.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_1280x720.jpg&rf=LaDigue_1280x720.jpg "屈斜路湖的天鹅，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "屈斜路湖的天鹅，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_UHD.jpg&rf=LaDigue_UHD.jpg "屈斜路湖的天鹅，日本")
+
+---
 ### 01月13日：放慢脚步，享受旅途！
 #### 哈纳之路，毛伊岛，夏威夷，美国（© Matteo Colombo/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕那空奇里上空的烟花，碧武里府,泰国")
 [下载1080](https://cn.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕那空奇里上空的烟花，碧武里府,泰国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_UHD.jpg&rf=LaDigue_UHD.jpg "帕那空奇里上空的烟花，碧武里府,泰国")
-
----
-### 12月30日：古石圈
-#### 卡塞里格石圈，湖区国家公园 ，坎布里亚，英国（© John Finney Photography/Getty Images）
-
-![古石圈](https://cn.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_800x480.jpg&rf=LaDigue_800x480.jpg "古石圈")
-
-考古学家认为，古代文明排列石圈是为了让石头与月亮和太阳的位置保持一致。图中这个位于英格兰西北部湖区的卡塞里格石圈的就是这样的一个遗址。这个新石器时代的纪念碑有40块石头，呈圆形排列，其历史可以追溯到公元前3000年。虽然卡塞里格石圈的排列方式在某些方面仍然是个谜，但在几个世纪以来，其古典的魅力一直吸引着游客。
-
-卡塞里格石圈的石头与太阳的位置没有明显的对齐。尽管如此，在冬至庆祝活动期间，它仍然是一个颇受欢迎的旅游景点。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e5%a1%9e%e9%87%8c%e6%a0%bc%e7%9f%b3%e5%9c%88&form=hpcapt&filters=HpDate:"20231229_1600" "Bing Wallpaper 2023 12月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231230_CastleriggStoneCircleUK"&FORM=HPQUIZ "必应主页测验 2023 12月 30")
-[下载480](https://cn.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_800x480.jpg&rf=LaDigue_800x480.jpg "卡塞里格石圈，湖区国家公园 ，坎布里亚，英国")
-[下载720](https://cn.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡塞里格石圈，湖区国家公园 ，坎布里亚，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡塞里格石圈，湖区国家公园 ，坎布里亚，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_UHD.jpg&rf=LaDigue_UHD.jpg "卡塞里格石圈，湖区国家公园 ，坎布里亚，英国")
 
 ---
