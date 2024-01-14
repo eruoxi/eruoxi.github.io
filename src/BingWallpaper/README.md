@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月15日：在地球上还是在外星？
+#### 瓦茨曼山脚下的冰教堂，巴伐利亚，德国（© Christian Bäck/eStock Photo）
+
+![在地球上还是在外星？](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_800x480.jpg&rf=LaDigue_800x480.jpg "在地球上还是在外星？")
+
+瓦茨曼冰教堂位于巴伐利亚贝希特斯加登国家公园内，因洞内的冰层而得名。这个迷人的冰洞是由瓦茨曼山周围的冰川融化而成，以冰柱和冰雕而闻名。它毗邻风景如画的国王湖，雄伟壮丽的阿尔卑斯山环绕四周，给每位游客都留下了深刻的印象。该地奇诡的地质形态也吸引着大批游客及研究人员。
+
+瓦茨曼山的形状颇为独特，在贝希特斯加登州还流传着一个与之相关的传说：专制邪恶的国王瓦茨曼在该地区实行暴政，上帝为了惩罚他，让国王全家都变成了巨石。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%93%a6%e8%8c%a8%e6%9b%bc%e5%b1%b1&form=hpcapt&filters=HpDate:"20240114_1600" "Bing Wallpaper 2024 1月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240115_IceChapel"&FORM=HPQUIZ "必应主页测验 2024 1月 15")
+[下载480](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_800x480.jpg&rf=LaDigue_800x480.jpg "瓦茨曼山脚下的冰教堂，巴伐利亚，德国")
+[下载720](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓦茨曼山脚下的冰教堂，巴伐利亚，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦茨曼山脚下的冰教堂，巴伐利亚，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_UHD.jpg&rf=LaDigue_UHD.jpg "瓦茨曼山脚下的冰教堂，巴伐利亚，德国")
+
+---
 ### 01月14日：白色羽毛交响曲
 #### 屈斜路湖的天鹅，日本（© Darrell Gulin/DanitaDelimont.com）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SleepingFox_ZH-CN2622967726_1280x720.jpg&rf=LaDigue_1280x720.jpg "睡在雪地里的赤狐，阿布鲁佐，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.SleepingFox_ZH-CN2622967726_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "睡在雪地里的赤狐，阿布鲁佐，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.SleepingFox_ZH-CN2622967726_UHD.jpg&rf=LaDigue_UHD.jpg "睡在雪地里的赤狐，阿布鲁佐，意大利")
-
----
-### 12月31日：明年见!
-#### 帕那空奇里上空的烟花，碧武里府,泰国（© noomcpk/Shutterstock）
-
-![明年见!](https://cn.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_800x480.jpg&rf=LaDigue_800x480.jpg "明年见!")
-
-现在是最后的倒计时！许多国家都在今晚庆祝跨年夜，以送走旧的一年，并期待新的一年的到来。在辞旧迎新的时候，各个国家的传统习俗都很有创意。如果你不在美国观看时代广场的落球仪式，你可能会在丹麦摔盘子，在西班牙往嘴里塞葡萄，或者在希腊把洋葱挂在门外。在泰国，庆祝者可能会去寺庙祈求好运，或者观看照亮帕那空奇里的烟花。“帕那空奇里”在泰语中意为“山中之城”，该地坐落在同名的历史公园内，又名“圣城山”或“拷汪行宫”。无论你在哪里庆祝跨年夜，都要过得愉快。明年见！
-
-由于在高温下会出现一些奇怪的化学反应，所以蓝色的烟花比其他颜色的烟花制作难度更高。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%b7%a8%e5%b9%b4%e5%a4%9c&form=hpcapt&filters=HpDate:"20231230_1600" "Bing Wallpaper 2023 12月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20231231_ThailandNewYears"&FORM=HPQUIZ "必应主页测验 2023 12月 31")
-[下载480](https://cn.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_800x480.jpg&rf=LaDigue_800x480.jpg "帕那空奇里上空的烟花，碧武里府,泰国")
-[下载720](https://cn.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕那空奇里上空的烟花，碧武里府,泰国")
-[下载1080](https://cn.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕那空奇里上空的烟花，碧武里府,泰国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_UHD.jpg&rf=LaDigue_UHD.jpg "帕那空奇里上空的烟花，碧武里府,泰国")
 
 ---
