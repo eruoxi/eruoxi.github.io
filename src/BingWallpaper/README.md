@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月17日：天气暖和了再叫醒我
+#### 巴伐利亚森林国家公园里睡觉的狼，德国（© Raimund Linke/Getty Images）
+
+![天气暖和了再叫醒我](https://cn.bing.com/th?id=OHR.SleepyWolf_ZH-CN9870873990_800x480.jpg&rf=LaDigue_800x480.jpg "天气暖和了再叫醒我")
+
+没有什么事情能比得上舒适的冬日小憩了。这只欧亚狼也同意这一点，它似乎在宁静的巴伐利亚森林国家公园中沉沉睡去，又或许只是因为知道自己是顶级捕猎者而感到心安。巴伐利亚森林国家公园成立于1970年，是德国第一个国家公园，拥有中欧最大的森林面积。大雷切尔、小雷切尔和小阿尔伯等山峦连绵起伏，对于希望漫步于挪威云杉林的徒步旅行者来说是一个不大不小的挑战。不过，公园里并不只有徒步旅行者，还有许多生物，包括猞猁、熊、侏儒猫头鹰和欧亚狼。这些狼在头狼的带领下组成了亲密无间的狼群，它们在西欧被猎杀了几十年，最近才经常出现在公园里。
+
+巴伐利亚森林国家公园成立于1970年，是德国第一个国家公园。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e4%bc%90%e5%88%a9%e4%ba%9a%e6%a3%ae%e6%9e%97%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240116_1600" "Bing Wallpaper 2024 1月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240117_SleepyWolf"&FORM=HPQUIZ "必应主页测验 2024 1月 17")
+[下载480](https://cn.bing.com/th?id=OHR.SleepyWolf_ZH-CN9870873990_800x480.jpg&rf=LaDigue_800x480.jpg "巴伐利亚森林国家公园里睡觉的狼，德国")
+[下载720](https://cn.bing.com/th?id=OHR.SleepyWolf_ZH-CN9870873990_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴伐利亚森林国家公园里睡觉的狼，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.SleepyWolf_ZH-CN9870873990_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴伐利亚森林国家公园里睡觉的狼，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SleepyWolf_ZH-CN9870873990_UHD.jpg&rf=LaDigue_UHD.jpg "巴伐利亚森林国家公园里睡觉的狼，德国")
+
+---
 ### 01月16日：加拿大式的小憩和放松
 #### 路易斯湖，班夫国家公园，阿尔伯塔省，加拿大（© Mr. Simon Paul/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_1280x720.jpg&rf=LaDigue_1280x720.jpg "明尼汪卡湖，阿尔伯塔省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "明尼汪卡湖，阿尔伯塔省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_UHD.jpg&rf=LaDigue_UHD.jpg "明尼汪卡湖，阿尔伯塔省，加拿大")
-
----
-### 01月02日：百年城堡
-#### 贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度（© Twenty47studio/Getty images）
-
-![百年城堡](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_800x480.jpg&rf=LaDigue_800x480.jpg "百年城堡")
-
-夕阳西下，印度拉贾斯坦邦的焦特布尔市沐浴在温暖的光芒中，一幅神奇的景象徐徐展开。坐落在岩石山顶上的梅兰加尔古堡矗立于这片景色中，这里曾是拉索尔王朝的权力中心，见证了荣耀和挑战。这座城堡始建于1459年，由当时的统治者拉奥·约达创建，至今已经有500多年的历史。
-
-梅兰加尔古堡是迪士尼1994年真人电影《丛林之书》和2012年电影《黑暗骑士崛起》的拍摄地之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a2%85%e5%85%b0%e5%8a%a0%e5%b0%94%e5%8f%a4%e5%a0%a1&form=hpcapt&filters=HpDate:"20240101_1600" "Bing Wallpaper 2024 1月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240102_MehrangarhJodhpur"&FORM=HPQUIZ "必应主页测验 2024 1月 2")
-[下载480](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_800x480.jpg&rf=LaDigue_800x480.jpg "贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度")
-[下载720](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_1280x720.jpg&rf=LaDigue_1280x720.jpg "贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度")
-[下载1080](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_UHD.jpg&rf=LaDigue_UHD.jpg "贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度")
 
 ---
