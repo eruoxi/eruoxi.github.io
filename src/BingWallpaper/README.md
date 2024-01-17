@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月18日：在飞马珀伽索斯的守望之下
+#### 黄昏时分的亚历山大三世桥，巴黎，法国（© Sizun Eye/Getty Images）
+
+![在飞马珀伽索斯的守望之下](https://cn.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_800x480.jpg&rf=LaDigue_800x480.jpg "在飞马珀伽索斯的守望之下")
+
+一觉睡醒，身在巴黎，听起来很有皇家风范，是不是？今天，透过屏幕，您看到的是暮色中的亚历山大三世桥。这座拱形大桥横跨塞纳河，于1900年亮相。为纪念1891年俄法同盟的建立，这座桥以俄国沙皇亚历山大三世的名字命名。两座56英尺高的塔分别坐落在河的两岸，顶上是飞马珀伽索斯的镀金青铜雕塑，彰显了这一事件的崇高地位。站在桥中央，你可以欣赏到河两侧的美景，一边是浪漫花园和荣军院广场，另一边是巴黎大皇宫和小皇宫博物馆。
+
+2017年6月，在巴黎与洛杉矶共同竞争2024年奥运会主办权的背景之下，巴黎将一些世界闻名的地标性建筑转为体育设施，并在横跨塞纳河的亚历山大三世桥上安装了跳水板。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e9%bb%8e%e4%ba%9a%e5%8e%86%e5%b1%b1%e5%a4%a7%e4%b8%89%e4%b8%96%e6%a1%a5&form=hpcapt&filters=HpDate:"20240117_1600" "Bing Wallpaper 2024 1月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240118_ParisBridge"&FORM=HPQUIZ "必应主页测验 2024 1月 18")
+[下载480](https://cn.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_800x480.jpg&rf=LaDigue_800x480.jpg "黄昏时分的亚历山大三世桥，巴黎，法国")
+[下载720](https://cn.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄昏时分的亚历山大三世桥，巴黎，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄昏时分的亚历山大三世桥，巴黎，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_UHD.jpg&rf=LaDigue_UHD.jpg "黄昏时分的亚历山大三世桥，巴黎，法国")
+
+---
 ### 01月17日：天气暖和了再叫醒我
 #### 巴伐利亚森林国家公园里睡觉的狼，德国（© Raimund Linke/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_1280x720.jpg&rf=LaDigue_1280x720.jpg "金门大桥，旧金山，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "金门大桥，旧金山，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_UHD.jpg&rf=LaDigue_UHD.jpg "金门大桥，旧金山，加利福尼亚州，美国")
-
----
-### 01月03日：星光璀璨
-#### 明尼汪卡湖，阿尔伯塔省，加拿大（© Ken Phung/500px/Getty Images）
-
-![星光璀璨](https://cn.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_800x480.jpg&rf=LaDigue_800x480.jpg "星光璀璨")
-
-明尼汪卡湖的星空已经被人类欣赏了几个世纪。纳科达人敬畏湖水，因为他们相信湖中住着神灵，他们满怀敬意地在湖中捕鱼并沿着湖岸狩猎。湖的名字来源于印第安斯通尼族，意思是“水之精灵”。随着加拿大落基山脉旅游业的发展，人们在湖岸边建立了一个定居点。然而，为了下游的水力发电厂保留水源，该湖在1895年和1912年两度筑起了水坝，明尼汪卡的定居点也随之被淹没，只能靠潜水进入。如今，这个冰川湖是班夫国家公园的第二大湖，全长约21公里。
-
-根据考古学家发现的石器和克洛维斯尖矛头，早在1万年前，就有原住民长期居住在明尼汪卡湖附近。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%98%8e%e5%b0%bc%e6%b1%aa%e5%8d%a1%e6%b9%96&form=hpcapt&filters=HpDate:"20240102_1600" "Bing Wallpaper 2024 1月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240103_MinnewankaLake"&FORM=HPQUIZ "必应主页测验 2024 1月 3")
-[下载480](https://cn.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_800x480.jpg&rf=LaDigue_800x480.jpg "明尼汪卡湖，阿尔伯塔省，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_1280x720.jpg&rf=LaDigue_1280x720.jpg "明尼汪卡湖，阿尔伯塔省，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "明尼汪卡湖，阿尔伯塔省，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_UHD.jpg&rf=LaDigue_UHD.jpg "明尼汪卡湖，阿尔伯塔省，加拿大")
 
 ---
