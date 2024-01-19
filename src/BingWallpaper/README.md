@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月20日：冰雪极地的马可罗尼企鹅
+#### 马可罗尼企鹅，德雷克海峡，智利（© Paul Souders/Getty Images）
+
+![冰雪极地的马可罗尼企鹅](https://cn.bing.com/th?id=OHR.MacaroniPenguins_ZH-CN0600867997_800x480.jpg&rf=LaDigue_800x480.jpg "冰雪极地的马可罗尼企鹅")
+
+让我们行动起来，一起投入到企鹅意识日的活动中去吧！你能说出多少种企鹅的名字？今天的照片展示的是敏捷的马可罗尼企鹅在智利德雷克海峡浮游生物丰富的水域中畅游的场景。这些迷人的生物只是在南半球发现的18种企鹅中的一种，可以通过它们奇特的橘色装饰性羽毛和突出的橙色喙来识别。马可罗尼企鹅成群结队地觅食，但雄性企鹅之间会相互攻击。为了表现出和气和避免打斗，个体通常会把头缩在胸前，这样就可以轻松地穿过企鹅群。尽管企鹅深受人类的喜爱，但近年来食物的减少、渔网的误捕，以及气候变化对其栖息地海冰的深刻影响，都对企鹅的生存构成不小威胁。
+
+马可罗尼企鹅，尤其是那些相邻巢穴的企鹅，可能会进行“喙战”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e5%8f%af%e7%bd%97%e5%b0%bc%e4%bc%81%e9%b9%85&form=hpcapt&filters=HpDate:"20240119_1600" "Bing Wallpaper 2024 1月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240120_MacaroniPenguins"&FORM=HPQUIZ "必应主页测验 2024 1月 20")
+[下载480](https://cn.bing.com/th?id=OHR.MacaroniPenguins_ZH-CN0600867997_800x480.jpg&rf=LaDigue_800x480.jpg "马可罗尼企鹅，德雷克海峡，智利")
+[下载720](https://cn.bing.com/th?id=OHR.MacaroniPenguins_ZH-CN0600867997_1280x720.jpg&rf=LaDigue_1280x720.jpg "马可罗尼企鹅，德雷克海峡，智利")
+[下载1080](https://cn.bing.com/th?id=OHR.MacaroniPenguins_ZH-CN0600867997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马可罗尼企鹅，德雷克海峡，智利")
+[下载UHD](https://cn.bing.com/th?id=OHR.MacaroniPenguins_ZH-CN0600867997_UHD.jpg&rf=LaDigue_UHD.jpg "马可罗尼企鹅，德雷克海峡，智利")
+
+---
 ### 01月19日：瀑布变“冰瀑”
 #### 十六湖国家公园，克罗地亚（© Massimo_S8/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CrabappleChaffinch_ZH-CN4458529756_1280x720.jpg&rf=LaDigue_1280x720.jpg "冬天，雄性苍头燕雀栖息在海棠果树上")
 [下载1080](https://cn.bing.com/th?id=OHR.CrabappleChaffinch_ZH-CN4458529756_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冬天，雄性苍头燕雀栖息在海棠果树上")
 [下载UHD](https://cn.bing.com/th?id=OHR.CrabappleChaffinch_ZH-CN4458529756_UHD.jpg&rf=LaDigue_UHD.jpg "冬天，雄性苍头燕雀栖息在海棠果树上")
-
----
-### 01月05日：是现实还是童话？
-#### 巴伐利亚阿尔卑斯山脉，德国（© JFL Photography/Adobe Stock）
-
-![是现实还是童话？](https://cn.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_800x480.jpg&rf=LaDigue_800x480.jpg "是现实还是童话？")
-
-冬日的晴空笼罩着阿尔卑斯山白雪皑皑的山景，雄伟的山峰倒映在冰湖光滑的镜面上。四周白雪覆盖的树木见证了这一刻的宁静与祥和，只有脚踏积雪发出轻柔的嘎吱声可以偶尔打破这种宁静。阳光洒向湖光山色，令人心旷神怡。
-
-楚格峰是巴伐利亚阿尔卑斯山乃至整个德国的最高峰。它位于韦特施泰因山脉的西部，海拔2962米，具有高阿尔卑斯山的特征，并有两个小冰川。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e4%bc%90%e5%88%a9%e4%ba%9a%e9%98%bf%e5%b0%94%e5%8d%91%e6%96%af%e5%b1%b1%e8%84%89&form=hpcapt&filters=HpDate:"20240104_1600" "Bing Wallpaper 2024 1月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240105_AlpsReflecting"&FORM=HPQUIZ "必应主页测验 2024 1月 5")
-[下载480](https://cn.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_800x480.jpg&rf=LaDigue_800x480.jpg "巴伐利亚阿尔卑斯山脉，德国")
-[下载720](https://cn.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴伐利亚阿尔卑斯山脉，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴伐利亚阿尔卑斯山脉，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_UHD.jpg&rf=LaDigue_UHD.jpg "巴伐利亚阿尔卑斯山脉，德国")
 
 ---
