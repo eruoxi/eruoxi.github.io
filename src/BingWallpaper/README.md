@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月21日：树梢上的故事
+#### 欧亚红松鼠，荷兰（© Ernst Dirksen/Minden Pictures）
+
+![树梢上的故事](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_800x480.jpg&rf=LaDigue_800x480.jpg "树梢上的故事")
+
+你是否曾被路过身边的松鼠所吸引？如果有，那你并不孤单！1月21日被定为“松鼠感谢日”，以纪念这些毛茸茸的种子传播者以及它们在维持良好的生态系统中所发挥的作用。今天的照片展示的是迷人的欧亚红松鼠，其醒目的红褐色皮毛、白色腹部和蓬松的尾巴在多个国家都是常见的景象。这些松鼠不仅有着惊人的跳跃能力，一跃可达6英尺，它们甚至还能通过游泳寻找食物或迁徙。如果你发现一只毛茸茸的松鼠在你家后院嬉戏，请不要惊讶。它们可能喜欢在喂食台附近出没，因为那里有各种各样的食物，比如覆盆子或海棠果。
+
+欧亚红松鼠经常以针叶树种子、山毛榉、橡子和坚果为食。它们有一种利用下切牙的力量打开坚果的特殊技巧。通过练习，它们只需几秒钟就能成功打开一个坚果。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e4%ba%9a%e7%ba%a2%e6%9d%be%e9%bc%a0&form=hpcapt&filters=HpDate:"20240120_1600" "Bing Wallpaper 2024 1月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240121_SquirrelNetherlands"&FORM=HPQUIZ "必应主页测验 2024 1月 21")
+[下载480](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_800x480.jpg&rf=LaDigue_800x480.jpg "欧亚红松鼠，荷兰")
+[下载720](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧亚红松鼠，荷兰")
+[下载1080](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚红松鼠，荷兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚红松鼠，荷兰")
+
+---
 ### 01月20日：冰雪极地的马可罗尼企鹅
 #### 马可罗尼企鹅，德雷克海峡，智利（© Paul Souders/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_1280x720.jpg&rf=LaDigue_1280x720.jpg "魔鬼大理石保护区，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "魔鬼大理石保护区，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_UHD.jpg&rf=LaDigue_UHD.jpg "魔鬼大理石保护区，澳大利亚")
-
----
-### 01月06日：薅一个苹果！
-#### 冬天，雄性苍头燕雀栖息在海棠果树上（© Mark Hamblin/2020VISION/Minden Pictures）
-
-![薅一个苹果！](https://cn.bing.com/th?id=OHR.CrabappleChaffinch_ZH-CN4458529756_800x480.jpg&rf=LaDigue_800x480.jpg "薅一个苹果！")
-
-苹果树日是一个全国性的节日，旨在向苹果栽培技术以及这些受人喜爱的苹果为我们的健康所带来的益处致敬。17世纪，苹果随着欧洲殖民者来到北美。1625年，威廉·布拉克斯顿在波士顿建起了北美大陆上的第一个苹果园。现在，从红蛇果到蜜脆苹果再到粉红女士苹果，仅在美国就种植着大约200个独特的苹果品种。照片中展示的海棠果虽然个头不大，却个性十足。虽然它们的味道可能有点酸，但冬日里的海棠果也是一种可爱的存在。当自然界其他食物稀缺时，海棠果也是部分鸟类的果腹之源。海棠果还可以切成片，烤成果脯，做成沙拉冷盘，以及苹果酒。你更愿意以哪种方式享用它们?
-
-吃一个苹果可以最大限度地减少大蒜对口气的影响。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e6%a3%a0%e6%9e%9c&form=hpcapt&filters=HpDate:"20240105_1600" "Bing Wallpaper 2024 1月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240106_CrabappleChaffinch"&FORM=HPQUIZ "必应主页测验 2024 1月 6")
-[下载480](https://cn.bing.com/th?id=OHR.CrabappleChaffinch_ZH-CN4458529756_800x480.jpg&rf=LaDigue_800x480.jpg "冬天，雄性苍头燕雀栖息在海棠果树上")
-[下载720](https://cn.bing.com/th?id=OHR.CrabappleChaffinch_ZH-CN4458529756_1280x720.jpg&rf=LaDigue_1280x720.jpg "冬天，雄性苍头燕雀栖息在海棠果树上")
-[下载1080](https://cn.bing.com/th?id=OHR.CrabappleChaffinch_ZH-CN4458529756_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冬天，雄性苍头燕雀栖息在海棠果树上")
-[下载UHD](https://cn.bing.com/th?id=OHR.CrabappleChaffinch_ZH-CN4458529756_UHD.jpg&rf=LaDigue_UHD.jpg "冬天，雄性苍头燕雀栖息在海棠果树上")
 
 ---
