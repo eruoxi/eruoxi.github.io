@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月22日：魔幻时刻
+#### 冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国（© Jeff Lewis/Tandem Stills + Motion）
+
+![魔幻时刻](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_800x480.jpg&rf=LaDigue_800x480.jpg "魔幻时刻")
+
+走进美国西部边缘，这里是沃尔顿灯塔的所在地。沃尔顿灯塔又名圣克鲁斯防波堤灯塔，是过往船只的指路明灯。2002年，这座40英尺高的现代海上建筑物在加利福尼亚州圣克鲁斯建成完工，取代了之前那座朴素简陋的灯塔。沃尔顿灯塔得名于商人查尔斯·沃尔顿，为了纪念自己的兄弟德里克·沃尔顿，他慷慨地捐赠了这座灯塔的建设费用。
+
+圣克鲁斯拥有多个州立公园和海滩，包括灯塔州立海滩、自然桥州立海滩、圣克鲁斯传道院立历史公园、双湖州立海滩和西布赖特州立海滩。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e5%85%8b%e9%b2%81%e6%96%af%e5%8e%bf&form=hpcapt&filters=HpDate:"20240121_1600" "Bing Wallpaper 2024 1月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240122_SantaCruzSunrise"&FORM=HPQUIZ "必应主页测验 2024 1月 22")
+[下载480](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_800x480.jpg&rf=LaDigue_800x480.jpg "冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_1280x720.jpg&rf=LaDigue_1280x720.jpg "冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_UHD.jpg&rf=LaDigue_UHD.jpg "冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国")
+
+---
 ### 01月21日：树梢上的故事
 #### 欧亚红松鼠，荷兰（© Ernst Dirksen/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_1280x720.jpg&rf=LaDigue_1280x720.jpg "贝尔尼纳山口的滑雪场，格劳宾登州，瑞士")
 [下载1080](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "贝尔尼纳山口的滑雪场，格劳宾登州，瑞士")
 [下载UHD](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_UHD.jpg&rf=LaDigue_UHD.jpg "贝尔尼纳山口的滑雪场，格劳宾登州，瑞士")
-
----
-### 01月07日：大自然的平衡术
-#### 魔鬼大理石保护区，澳大利亚（© Yva Momatiuk and John Eastcott/Minden Pictures）
-
-![大自然的平衡术](https://cn.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的平衡术")
-
-这些可不是普通的石头！魔鬼大理石是已知最古老的宗教场所之一，对澳大利亚土著居民来说，它是一个古老的圣地，具有重要的价值。如今，澳大利亚北领地的魔鬼大理石保护区--又称卡鲁卡鲁，保存着这些巨大的圆形巨石。这些岩石由花岗岩构成，其奇特的形状是数百万年风化和侵蚀的结果。今天恰好是“古老岩石日”，是欣赏这一地质奇观最好的日子。你知道地球上最古老的岩石在哪吗？阿波罗14号任务期间从月球上带回的月球样本14321，被称为“大伯莎”，经测定约有44.6亿年的历史，只比地球本身年轻一点点。科学家们认为，一颗古老的小行星撞击地球，将大块的陆地碎片抛向太空和月球表面，然后在数百万年后被我们带了回来。无论你是地质学迷，还是自然爱好者，拥抱你周围的矿物质，继续前进吧！
-
-卡鲁卡鲁是当地土著居民对这种岩石景观的称呼，这个词在土著语中的意思是“圆形巨石”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%ad%94%e9%ac%bc%e5%a4%a7%e7%90%86%e7%9f%b3%e4%bf%9d%e6%8a%a4%e5%8c%ba&form=hpcapt&filters=HpDate:"20240106_1600" "Bing Wallpaper 2024 1月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240107_DevilsMarbles"&FORM=HPQUIZ "必应主页测验 2024 1月 7")
-[下载480](https://cn.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_800x480.jpg&rf=LaDigue_800x480.jpg "魔鬼大理石保护区，澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_1280x720.jpg&rf=LaDigue_1280x720.jpg "魔鬼大理石保护区，澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "魔鬼大理石保护区，澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_UHD.jpg&rf=LaDigue_UHD.jpg "魔鬼大理石保护区，澳大利亚")
 
 ---
