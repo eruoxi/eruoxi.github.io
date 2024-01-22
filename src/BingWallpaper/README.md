@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月23日：印度洋之眼
+#### 印度洋的环礁，马尔代夫（© Amazing Aerial Premium/Shutterstock）
+
+![印度洋之眼](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_800x480.jpg&rf=LaDigue_800x480.jpg "印度洋之眼")
+
+马尔代夫位于斯里兰卡和印度的西南部，拥有宁静的沙滩和清澈的海水，并以海鲜、环礁湖和无数的椰子树而闻名。马尔代夫群岛约有1200个岛屿，这些岛屿是由26个环礁链组成的。环礁是环形的岛屿，边缘是珊瑚，中间是礁湖。马尔代夫还是芭环礁生物圈保护区的所在地，该保护区已于2011年6月被联合国教科文组织列为世界遗产。在那里，游客可以观赏蝠鲼和鲸鲨，还可以享受潜水、冲浪等有趣的活动。
+
+马尔代夫是世界上地势最低的国家，最高和平均自然地面高度分别仅为海平面以上 2.4 米（7 英尺 10 英寸）和 1.5 米（4 英尺 11 英寸）。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e5%b0%94%e4%bb%a3%e5%a4%ab&form=hpcapt&filters=HpDate:"20240122_1600" "Bing Wallpaper 2024 1月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240123_MaldivesAtolls"&FORM=HPQUIZ "必应主页测验 2024 1月 23")
+[下载480](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_800x480.jpg&rf=LaDigue_800x480.jpg "印度洋的环礁，马尔代夫")
+[下载720](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_1280x720.jpg&rf=LaDigue_1280x720.jpg "印度洋的环礁，马尔代夫")
+[下载1080](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印度洋的环礁，马尔代夫")
+[下载UHD](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_UHD.jpg&rf=LaDigue_UHD.jpg "印度洋的环礁，马尔代夫")
+
+---
 ### 01月22日：魔幻时刻
 #### 冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国（© Jeff Lewis/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_1280x720.jpg&rf=LaDigue_1280x720.jpg "格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_UHD.jpg&rf=LaDigue_UHD.jpg "格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国")
-
----
-### 01月08日：瑞士的雪花漱漱落下
-#### 贝尔尼纳山口的滑雪场，格劳宾登州，瑞士（© Francesco Bergamaschi/Getty Images）
-
-![瑞士的雪花漱漱落下](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_800x480.jpg&rf=LaDigue_800x480.jpg "瑞士的雪花漱漱落下")
-
-你被眼前这片白茫茫的大地震撼到了吗？这正是游客们在瑞士格劳宾登州阿尔卑斯山目睹贝尔尼纳山口时的感受。它的海拔高达7638英尺，吸引着来自世界各地的冬季运动爱好者。这个山口现在可能是滑雪场的大本营，但在中世纪它是一条重要的贸易路线。有趣的是，与滑雪有关的考古证据最早可追溯至公元前6000年左右的俄罗斯。每年的11月到次年3月是贝尔尼纳山口雪况最好的时候，喜欢滑雪的朋友们可别错过哦！
-
-贝尔尼纳山脉是阿尔卑斯山最高的山脉之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%b4%9d%e5%b0%94%e5%b0%bc%e7%ba%b3%e5%b1%b1&form=hpcapt&filters=HpDate:"20240107_1600" "Bing Wallpaper 2024 1月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240108_BerninaPass"&FORM=HPQUIZ "必应主页测验 2024 1月 8")
-[下载480](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_800x480.jpg&rf=LaDigue_800x480.jpg "贝尔尼纳山口的滑雪场，格劳宾登州，瑞士")
-[下载720](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_1280x720.jpg&rf=LaDigue_1280x720.jpg "贝尔尼纳山口的滑雪场，格劳宾登州，瑞士")
-[下载1080](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "贝尔尼纳山口的滑雪场，格劳宾登州，瑞士")
-[下载UHD](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_UHD.jpg&rf=LaDigue_UHD.jpg "贝尔尼纳山口的滑雪场，格劳宾登州，瑞士")
 
 ---
