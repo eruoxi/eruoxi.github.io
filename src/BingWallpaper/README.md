@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月24日：撒了一地的“钻石”
+#### 钻石冰沙滩，冰岛（© Rachid Dahnoun/Tandem Stills + Motion）
+
+![撒了一地的“钻石”](https://cn.bing.com/th?id=OHR.IcelandBeach_ZH-CN1632329693_800x480.jpg&rf=LaDigue_800x480.jpg "撒了一地的“钻石”")
+
+从峡湾和熔岩荒原到冰洞和黑沙滩，就像我们今天在图片中看到的那样，冰岛是一个自然奇观的宝库。钻石冰沙滩是冰岛最受欢迎的自然地标之一。这个独特的沙滩位于杰古沙龙冰河湖附近，其名字源于从冰川上脱落的冰山碎片，当这些冰山碎片被冲到岸上后，在黑色沙子上就像一颗颗闪闪发光的钻石，而这些黑色沙子则是来自被侵蚀的火山岩。清澈的冰块与黑色的沙子形成鲜明对比，尤其是当阳光照射在冰面上时，会产生一种超现实的景象，因此这里是冰岛南海岸的必游之地。
+
+当阳光照射在冰层上时，由于光的散射作用，钻石海滩的冰有时会变成蓝色。
+
+[Bing搜索](https://cn.bing.com/search?q=Diamond+Beach+Iceland&form=hpcapt&filters=HpDate:"20240123_1600" "Bing Wallpaper 2024 1月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240124_IcelandBeach"&FORM=HPQUIZ "必应主页测验 2024 1月 24")
+[下载480](https://cn.bing.com/th?id=OHR.IcelandBeach_ZH-CN1632329693_800x480.jpg&rf=LaDigue_800x480.jpg "钻石冰沙滩，冰岛")
+[下载720](https://cn.bing.com/th?id=OHR.IcelandBeach_ZH-CN1632329693_1280x720.jpg&rf=LaDigue_1280x720.jpg "钻石冰沙滩，冰岛")
+[下载1080](https://cn.bing.com/th?id=OHR.IcelandBeach_ZH-CN1632329693_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "钻石冰沙滩，冰岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.IcelandBeach_ZH-CN1632329693_UHD.jpg&rf=LaDigue_UHD.jpg "钻石冰沙滩，冰岛")
+
+---
 ### 01月23日：印度洋之眼
 #### 印度洋的环礁，马尔代夫（© Amazing Aerial Premium/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_1280x720.jpg&rf=LaDigue_1280x720.jpg "米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_UHD.jpg&rf=LaDigue_UHD.jpg "米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊")
-
----
-### 01月09日：乘着热气球向上飞
-#### 格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国（© Jennifer MacCornack/Shutterstock）
-
-![乘着热气球向上飞](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_800x480.jpg&rf=LaDigue_800x480.jpg "乘着热气球向上飞")
-
-今天是热气球升空日，一个致力于纪念布兰沙尔的成就的日子。布兰沙尔是一位法国的气球驾驶员及发明家，早在1793年，他就完成了美国历史上第一次载人气球航行，从费城飞往新泽西州的德特福德。自2011年起，每年的这一天人们都会热烈庆祝，以致敬这一空中壮举。在今天的图片中，太阳落在格兰德河的上空，照亮了新墨西哥州阿尔伯克基上空的彩色热气球。每年的10月初，人们从世界各地赶来齐聚一堂，参加为期9天的阿尔伯克基国际热气球节，这是世界上最盛大的热气球节，在这里，人们可以欣赏到经验丰富的热气球驾驶员熟练地操作他们的热气球。
-
-热气球的前身是孔明灯 。在三国时期（公元220年至280年），蜀汉的诸葛亮使用这些空中灯笼进行军事信号传递。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%83%ad%e6%b0%94%e7%90%83&form=hpcapt&filters=HpDate:"20240108_1600" "Bing Wallpaper 2024 1月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240109_BalloonDay"&FORM=HPQUIZ "必应主页测验 2024 1月 9")
-[下载480](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_800x480.jpg&rf=LaDigue_800x480.jpg "格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_1280x720.jpg&rf=LaDigue_1280x720.jpg "格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_UHD.jpg&rf=LaDigue_UHD.jpg "格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国")
 
 ---
