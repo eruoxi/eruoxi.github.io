@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月25日：通往过去的入口
+#### 圣德温教堂的废墟，莫纳岛，威尔士，英国（© Photos by R A Kearton/Getty Images）
+
+![通往过去的入口](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_800x480.jpg&rf=LaDigue_800x480.jpg "通往过去的入口")
+
+兰德温岛是英国威尔士安格尔西岛（又名莫纳岛）西海岸外的一个田园诗歌般的小岛。该岛与恋人的守护神圣德温有着深厚的渊源，这一点从岛名上便可窥见一斑：“兰德温”的意思是 “德温的教堂”。据说在五世纪时，德温公主在经历了一段悲惨的恋情后，来到这座岛上寻求慰藉，随后便隐居于此。当时这位年轻的公主爱上了一位平民，但由于她的国王父亲禁止他们在一起，德温公主便暂时将她的爱人变成了一块冰，然后搬到了这座岛上，并建立了一个修道院。她毕生致力于修行，过着隐士般的生活，帮助人们解决情感问题。德温教堂的遗迹、一口水井和修道院的废墟都是德温公主在这座岛上生活过的证明。1月25日圣德温节被视为威尔士最浪漫的日子，因为它是威尔士的情人节。
+
+莫纳岛上的枕状熔岩、碧玉岩层和风积沙沉积物都具有地质学价值。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8e%ab%e7%ba%b3%e5%b2%9b&form=hpcapt&filters=HpDate:"20240124_1600" "Bing Wallpaper 2024 1月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240125_DwynwensDay"&FORM=HPQUIZ "必应主页测验 2024 1月 25")
+[下载480](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_800x480.jpg&rf=LaDigue_800x480.jpg "圣德温教堂的废墟，莫纳岛，威尔士，英国")
+[下载720](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣德温教堂的废墟，莫纳岛，威尔士，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣德温教堂的废墟，莫纳岛，威尔士，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_UHD.jpg&rf=LaDigue_UHD.jpg "圣德温教堂的废墟，莫纳岛，威尔士，英国")
+
+---
 ### 01月24日：撒了一地的“钻石”
 #### 钻石冰沙滩，冰岛（© Rachid Dahnoun/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪中的欧亚猞猁")
 [下载1080](https://cn.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪中的欧亚猞猁")
 [下载UHD](https://cn.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_UHD.jpg&rf=LaDigue_UHD.jpg "雪中的欧亚猞猁")
-
----
-### 01月10日：迎接挑战！
-#### 米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊（© Orestis Zoumpos/Amazing Aerial Agency）
-
-![迎接挑战！](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_800x480.jpg&rf=LaDigue_800x480.jpg "迎接挑战！")
-
-是时候加强锻炼了！随着久坐不动的生活方式越来越普遍，保持健康已成为人们关注的焦点。“走楼梯日”的出现是为了提醒人们：一个小小的、有意识的选择也可以对我们的整体健康产生大大的影响。这是由美国肺脏协会发起的一项倡议，旨在倡导人们通过有意识的运动来促进肺部健康。
-
-在荷马史诗《奥德赛》中，英雄奥德修斯访问了埃俄罗斯（色萨利的旧称）的王国。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%8c%e8%85%8a%e8%89%b2%e8%90%a8%e5%88%a9&form=hpcapt&filters=HpDate:"20240109_1600" "Bing Wallpaper 2024 1月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240110_MilopotamosStairs"&FORM=HPQUIZ "必应主页测验 2024 1月 10")
-[下载480](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_800x480.jpg&rf=LaDigue_800x480.jpg "米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊")
-[下载720](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_1280x720.jpg&rf=LaDigue_1280x720.jpg "米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊")
-[下载1080](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊")
-[下载UHD](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_UHD.jpg&rf=LaDigue_UHD.jpg "米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊")
 
 ---
