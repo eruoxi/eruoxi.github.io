@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月26日：不是夜猫子
+#### 北鹰鸮（© Remo Savisaar/Alamy Stock Photo）
+
+![不是夜猫子](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_800x480.jpg&rf=LaDigue_800x480.jpg "不是夜猫子")
+
+你是否发现自己白天精力充沛，而你的朋友却喜欢在外面待到很晚？如果是这样，那你就是“猛鸮”了。这种鸟是世界上为数不多的只在白天活动的猫头鹰之一，它们栖息在北美和欧亚大陆的北方森林中，有着不同的叫声，用于交配、与幼鸟交流以及危险预警。猛鸮并不挑食，它们会吃老鼠、田鼠、旅鼠、兔子、鼩鼱、鼹鼠，偶尔也吃其他小鸟，甚至有人看到它们吃青蛙和鱼。不过不用担心，我们不在猛鸮的菜单上。但是，如果人类离它们的巢穴太近，保护欲很强的鸟爸爸和鸟妈妈会扑向人类，将人类赶走。
+
+猛鸮是少数不在夜晚活动的猫头鹰之一，它们只在白天活动。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e9%b9%b0%e9%b8%ae&form=hpcapt&filters=HpDate:"20240125_1600" "Bing Wallpaper 2024 1月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240126_HawkOwl"&FORM=HPQUIZ "必应主页测验 2024 1月 26")
+[下载480](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_800x480.jpg&rf=LaDigue_800x480.jpg "北鹰鸮")
+[下载720](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_1280x720.jpg&rf=LaDigue_1280x720.jpg "北鹰鸮")
+[下载1080](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北鹰鸮")
+[下载UHD](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_UHD.jpg&rf=LaDigue_UHD.jpg "北鹰鸮")
+
+---
 ### 01月25日：通往过去的入口
 #### 圣德温教堂的废墟，莫纳岛，威尔士，英国（© Photos by R A Kearton/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_1280x720.jpg&rf=LaDigue_1280x720.jpg "北汉山国立公园，韩国")
 [下载1080](https://cn.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北汉山国立公园，韩国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_UHD.jpg&rf=LaDigue_UHD.jpg "北汉山国立公园，韩国")
-
----
-### 01月11日：长胡须的“流浪汉”
-#### 雪中的欧亚猞猁（© Jan Stria/Shutterstock）
-
-![长胡须的“流浪汉”](https://cn.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_800x480.jpg&rf=LaDigue_800x480.jpg "长胡须的“流浪汉”")
-
-准备好与它对视了吗？猞猁，一种身披灰色或锈色皮毛，有着深色花纹斑点的动物，虽然广泛分布在欧洲、中亚和西伯利亚地区，但它们很难被人类发现。这种猫科动物以其难以捉摸的天性而闻名，常常隐匿在原生栖息地中，多年不被发现。它们低沉的叫声可以被其他猞猁听到，但人类却难以察觉。猞猁主要在夜间、黎明和黄昏时活动，有需要时也会在白天捕猎。这些孤独的猎手以敏锐的感官和非凡的敏捷性著称。在温带森林，猞猁扮演着十分重要的角色，通过捕猎，它们抑制了猎物的物种数量，维系了该地区的生态平衡，而它们的主要猎物包括兔子、野兔、旱獭和其它小型哺乳动物。
-
-在野外，生命力顽强的猞猁可以繁衍生长长达17年，而人工饲养的猞猁寿命可延长至24年左右。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e4%ba%9a%e7%8c%9e%e7%8c%81&form=hpcapt&filters=HpDate:"20240110_1600" "Bing Wallpaper 2024 1月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240111_LynxSnow"&FORM=HPQUIZ "必应主页测验 2024 1月 11")
-[下载480](https://cn.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_800x480.jpg&rf=LaDigue_800x480.jpg "雪中的欧亚猞猁")
-[下载720](https://cn.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪中的欧亚猞猁")
-[下载1080](https://cn.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪中的欧亚猞猁")
-[下载UHD](https://cn.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_UHD.jpg&rf=LaDigue_UHD.jpg "雪中的欧亚猞猁")
 
 ---
