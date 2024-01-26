@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月27日：巴西大自然中的异域之美
+#### 点嘴小巨嘴鸟，大西洋森林，巴西（© aaprophoto/Getty Images）
+
+![巴西大自然中的异域之美](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_800x480.jpg&rf=LaDigue_800x480.jpg "巴西大自然中的异域之美")
+
+点嘴小巨嘴鸟是一种巨嘴鸟，以其鲜艳的颜色和醒目的喙而闻名。这种鸟栖息在巴西潮湿的热带森林中，尤其是在亚马逊和潘塔纳尔地区。点嘴小巨嘴鸟的羽毛以绿色为主，喙为橙色，并带有黑色斑点，这为其独特的美丽增色不少。
+
+世界自然保护联盟已将点嘴小巨嘴鸟列为最不受关注的动物。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%82%b9%e5%98%b4%e5%b0%8f%e5%b7%a8%e5%98%b4%e9%b8%9f&form=hpcapt&filters=HpDate:"20240126_1600" "Bing Wallpaper 2024 1月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240127_ToucanetEmpoleirado"&FORM=HPQUIZ "必应主页测验 2024 1月 27")
+[下载480](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_800x480.jpg&rf=LaDigue_800x480.jpg "点嘴小巨嘴鸟，大西洋森林，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_1280x720.jpg&rf=LaDigue_1280x720.jpg "点嘴小巨嘴鸟，大西洋森林，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "点嘴小巨嘴鸟，大西洋森林，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_UHD.jpg&rf=LaDigue_UHD.jpg "点嘴小巨嘴鸟，大西洋森林，巴西")
+
+---
 ### 01月26日：不是夜猫子
 #### 北鹰鸮（© Remo Savisaar/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_1280x720.jpg&rf=LaDigue_1280x720.jpg "哈纳之路，毛伊岛，夏威夷，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哈纳之路，毛伊岛，夏威夷，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_UHD.jpg&rf=LaDigue_UHD.jpg "哈纳之路，毛伊岛，夏威夷，美国")
-
----
-### 01月12日：北汉山的花岗岩山峰
-#### 北汉山国立公园，韩国（© TRAVEL TAKE PHOTOS/Shutterstock）
-
-![北汉山的花岗岩山峰](https://cn.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_800x480.jpg&rf=LaDigue_800x480.jpg "北汉山的花岗岩山峰")
-
-北汉山国家公园位于繁华的韩国首都首尔以北几英里处，是市民和国际游客的度假胜地。该公园建于1983年，拥有茂密的森林、古老的寺庙和北汉山的三座花岗岩山峰。水鹿、野猪、花栗鼠和松鼠自由自在地在公园的山脊和山谷中游荡。细心的人还能听到啄木鸟的哒哒声或栖息在树上的各种鸣禽的鸣叫声。该公园还是北汉山城的所在地，其现有建筑可追溯到1711年。当时修建这座城池的目的是为了保护首尔免受外部威胁。
-
-公元132年，为了保护首尔免受外敌入侵，此处修建了北汉山城。1711年，北汉山城扩大到现在的规模。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%b1%89%e5%b1%b1%e5%9b%bd%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240111_1600" "Bing Wallpaper 2024 1月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240112_BukhansanSeoul"&FORM=HPQUIZ "必应主页测验 2024 1月 12")
-[下载480](https://cn.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_800x480.jpg&rf=LaDigue_800x480.jpg "北汉山国立公园，韩国")
-[下载720](https://cn.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_1280x720.jpg&rf=LaDigue_1280x720.jpg "北汉山国立公园，韩国")
-[下载1080](https://cn.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北汉山国立公园，韩国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_UHD.jpg&rf=LaDigue_UHD.jpg "北汉山国立公园，韩国")
 
 ---
