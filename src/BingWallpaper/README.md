@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月28日：从干涸的沙漠变成田园
+#### 昆士兰州内陆海峡地区，澳大利亚（© Southern Lightscapes-Australia/Getty Images）
+
+![从干涸的沙漠变成田园](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_800x480.jpg&rf=LaDigue_800x480.jpg "从干涸的沙漠变成田园")
+
+这里不仅有大地色调的“拼布被子”，还有狭窄的水道像静脉一样贯穿澳大利亚内陆的海峡地区。这片幅员辽阔的地区因其纵横交错的河道而闻名。当雨量充沛时，这里就会从干涸的沙漠变成野花盛开的生机勃勃的锦绣之地。数万年来，澳大利亚原住民一直在这片土地上生活，该地区的一些地方还提供旅游服务和课程，教游客如何在内陆地区生存。这个未受破坏的地区也是野生动物的家园，袋鼠在平原上蹦蹦跳跳，鸸鹋大摇大摆地走来走去，紫冠细尾鹩莺也在翩翩起舞。如果运气好的话，你甚至还能看到兔耳袋狸（一种夜间有袋动物，长着像兔子一样的长耳）。那么，你准备好去这个地方探险了吗？
+
+昆士兰州内陆海峡地区地貌干旱，河流断断续续，形成了一系列古老的洪泛平原。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%98%86%e5%a3%ab%e5%85%b0%e5%b7%9e&form=hpcapt&filters=HpDate:"20240127_1600" "Bing Wallpaper 2024 1月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240128_ChannelOutback"&FORM=HPQUIZ "必应主页测验 2024 1月 28")
+[下载480](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_800x480.jpg&rf=LaDigue_800x480.jpg "昆士兰州内陆海峡地区，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_1280x720.jpg&rf=LaDigue_1280x720.jpg "昆士兰州内陆海峡地区，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "昆士兰州内陆海峡地区，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_UHD.jpg&rf=LaDigue_UHD.jpg "昆士兰州内陆海峡地区，澳大利亚")
+
+---
 ### 01月27日：巴西大自然中的异域之美
 #### 点嘴小巨嘴鸟，大西洋森林，巴西（© aaprophoto/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_1280x720.jpg&rf=LaDigue_1280x720.jpg "屈斜路湖的天鹅，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "屈斜路湖的天鹅，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_UHD.jpg&rf=LaDigue_UHD.jpg "屈斜路湖的天鹅，日本")
-
----
-### 01月13日：放慢脚步，享受旅途！
-#### 哈纳之路，毛伊岛，夏威夷，美国（© Matteo Colombo/Getty Images）
-
-![放慢脚步，享受旅途！](https://cn.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_800x480.jpg&rf=LaDigue_800x480.jpg "放慢脚步，享受旅途！")
-
-游客们经常把夏威夷和放松画上等号，但作为该地最著名的景点之一的哈纳之路，可能会让你紧紧抓住方向盘。这条公路沿着毛伊岛的北部海岸，从卡胡卢伊延伸到宁静的哈纳镇，全长64英里，有600多个弯道和许多单行道桥梁。行车途中需要集中注意力，所以不要忘记在郁郁葱葱的雨林和层层叠叠的瀑布前停下来放松一下。哈纳之路沿途的亮点包括天然小径、双子瀑布和怀阿纳帕纳帕州立公园的黑沙滩。
-
-20世纪初，该条公路一直在建设中。直到1926年12月18日，通往哈纳的公路才全线正式通车。而桥梁的建设也一直持续到20世纪30年代，直到20世纪60年代才全部铺设完毕。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%93%88%e7%ba%b3%e4%b9%8b%e8%b7%af&form=hpcapt&filters=HpDate:"20240112_1600" "Bing Wallpaper 2024 1月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240113_HanaHighway"&FORM=HPQUIZ "必应主页测验 2024 1月 13")
-[下载480](https://cn.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_800x480.jpg&rf=LaDigue_800x480.jpg "哈纳之路，毛伊岛，夏威夷，美国")
-[下载720](https://cn.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_1280x720.jpg&rf=LaDigue_1280x720.jpg "哈纳之路，毛伊岛，夏威夷，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哈纳之路，毛伊岛，夏威夷，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_UHD.jpg&rf=LaDigue_UHD.jpg "哈纳之路，毛伊岛，夏威夷，美国")
 
 ---
