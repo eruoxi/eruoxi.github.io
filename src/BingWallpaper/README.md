@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月29日：缓缓下降
+#### 戈林格瀑布，泰嫩高，萨尔茨堡，奥地利（© Frank Fischbach/Alamy Stock Photo）
+
+![缓缓下降](https://cn.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_800x480.jpg&rf=LaDigue_800x480.jpg "缓缓下降")
+
+从桀骜不驯的萨尔扎霍芬峡谷到世界上最古老的哈莱因盐矿，再到世界上最大的冰洞埃斯瑞森韦尔特，奥地利拥有众多奇观。萨尔茨堡州的戈林格瀑布无疑也是其中之一，这条平缓温和的瀑布，高249英尺，包含两条大瀑布，其中一条从施瓦茨巴赫瀑布洞口倾泻而下，汇入宁静如画的水潭。在这里，一年四季都能见到极致的美景，春日绿树成荫，冬日白雪皑皑。自1985年以来，该地区就被列为奥地利的自然保护区，无论你是喜欢徒步旅行、摄影，还是想拥抱大自然，这里都是一个绝佳的旅游目的地。
+
+萨尔茨堡是著名作曲家沃尔夫冈·阿马德乌斯·莫扎特的出生地，他于1756年1月27日出生在这里。萨尔茨堡因其丰富的音乐历史成为了热门的旅游目的地。
+
+[Bing搜索](https://cn.bing.com/search?q=+%e5%a5%a5%e5%9c%b0%e5%88%a9%e8%90%a8%e5%b0%94%e8%8c%a8%e5%a0%a1%e5%b7%9e&form=hpcapt&filters=HpDate:"20240128_1600" "Bing Wallpaper 2024 1月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240129_GollingerFalls"&FORM=HPQUIZ "必应主页测验 2024 1月 29")
+[下载480](https://cn.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_800x480.jpg&rf=LaDigue_800x480.jpg "戈林格瀑布，泰嫩高，萨尔茨堡，奥地利")
+[下载720](https://cn.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_1280x720.jpg&rf=LaDigue_1280x720.jpg "戈林格瀑布，泰嫩高，萨尔茨堡，奥地利")
+[下载1080](https://cn.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "戈林格瀑布，泰嫩高，萨尔茨堡，奥地利")
+[下载UHD](https://cn.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_UHD.jpg&rf=LaDigue_UHD.jpg "戈林格瀑布，泰嫩高，萨尔茨堡，奥地利")
+
+---
 ### 01月28日：从干涸的沙漠变成田园
 #### 昆士兰州内陆海峡地区，澳大利亚（© Southern Lightscapes-Australia/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓦茨曼山脚下的冰教堂，巴伐利亚，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦茨曼山脚下的冰教堂，巴伐利亚，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_UHD.jpg&rf=LaDigue_UHD.jpg "瓦茨曼山脚下的冰教堂，巴伐利亚，德国")
-
----
-### 01月14日：白色羽毛交响曲
-#### 屈斜路湖的天鹅，日本（© Darrell Gulin/DanitaDelimont.com）
-
-![白色羽毛交响曲](https://cn.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_800x480.jpg&rf=LaDigue_800x480.jpg "白色羽毛交响曲")
-
-优雅的生物配上壮丽的环境。这些长着黄黑两色喙的全身白色的鸟类在日本屈斜路湖的湖面上滑翔，它们名叫大天鹅，相当于是北美号手天鹅的欧亚种。这些美丽的天鹅的翼展在7到9英尺之间，是世界上最重的能飞的鸟类之一。虽然大天鹅是芬兰的国鸟，但它们只在那里度过繁殖季节。这些天鹅和北方其他地区的天鹅一样，在天气变冷时会迁徙到温暖的沿海地区。这些大天鹅一旦形成了牢固的一夫一妻制的伴侣关系，就可以终生相伴，不会因为旅行而改变。
-
-大天鹅需要在大面积的水域中生活，尤其是在生长期的时候，它们的腿无法长时间支撑身体的重量。大天鹅大部分时间都在游泳、在水中寻找食物，或者吃生长在水底的植物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a9%e9%b9%85&form=hpcapt&filters=HpDate:"20240113_1600" "Bing Wallpaper 2024 1月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240114_HokkaidoSwans"&FORM=HPQUIZ "必应主页测验 2024 1月 14")
-[下载480](https://cn.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_800x480.jpg&rf=LaDigue_800x480.jpg "屈斜路湖的天鹅，日本")
-[下载720](https://cn.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_1280x720.jpg&rf=LaDigue_1280x720.jpg "屈斜路湖的天鹅，日本")
-[下载1080](https://cn.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "屈斜路湖的天鹅，日本")
-[下载UHD](https://cn.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_UHD.jpg&rf=LaDigue_UHD.jpg "屈斜路湖的天鹅，日本")
 
 ---
