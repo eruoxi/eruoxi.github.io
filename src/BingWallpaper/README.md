@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月30日：西班牙的小瑞士
+#### 艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙（© Juan Maria Coy Vergara/Getty Images）
+
+![西班牙的小瑞士](https://cn.bing.com/th?id=OHR.AlbaceteSpain_ZH-CN1597281896_800x480.jpg&rf=LaDigue_800x480.jpg "西班牙的小瑞士")
+
+说起西班牙，你脑海中首先浮现的可能不是雪，但从高耸入云的山峰到阳光温暖的海滩，西班牙拥有各种地貌。图片中的小村庄艾纳坐落于由蒙多河冲刷而成的陡峭山谷中，周围环绕着塞古拉山脉，人口不足1000人。冬季，这里白雪皑皑，因此人们常把这个小镇称为 “曼切根瑞士”。而这个名称中的“曼切根”则指的是艾纳所属的卡斯蒂利亚-拉曼恰自治区。艾纳距离西班牙首都马德里以南约150英里，是西班牙乡村生活的独特一瞥。
+
+由于地处两座山脉之间，艾纳也被称为“曼切根瑞士”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e9%98%bf%e5%b0%94%e7%93%a6%e5%a1%9e%e7%89%b9%e8%89%be%e7%ba%b3&form=hpcapt&filters=HpDate:"20240129_1600" "Bing Wallpaper 2024 1月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240130_AlbaceteSpain"&FORM=HPQUIZ "必应主页测验 2024 1月 30")
+[下载480](https://cn.bing.com/th?id=OHR.AlbaceteSpain_ZH-CN1597281896_800x480.jpg&rf=LaDigue_800x480.jpg "艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.AlbaceteSpain_ZH-CN1597281896_1280x720.jpg&rf=LaDigue_1280x720.jpg "艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.AlbaceteSpain_ZH-CN1597281896_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.AlbaceteSpain_ZH-CN1597281896_UHD.jpg&rf=LaDigue_UHD.jpg "艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙")
+
+---
 ### 01月29日：缓缓下降
 #### 戈林格瀑布，泰嫩高，萨尔茨堡，奥地利（© Frank Fischbach/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LakeLouise_ZH-CN9592539152_1280x720.jpg&rf=LaDigue_1280x720.jpg "路易斯湖，班夫国家公园，阿尔伯塔省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.LakeLouise_ZH-CN9592539152_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "路易斯湖，班夫国家公园，阿尔伯塔省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.LakeLouise_ZH-CN9592539152_UHD.jpg&rf=LaDigue_UHD.jpg "路易斯湖，班夫国家公园，阿尔伯塔省，加拿大")
-
----
-### 01月15日：在地球上还是在外星？
-#### 瓦茨曼山脚下的冰教堂，巴伐利亚，德国（© Christian Bäck/eStock Photo）
-
-![在地球上还是在外星？](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_800x480.jpg&rf=LaDigue_800x480.jpg "在地球上还是在外星？")
-
-瓦茨曼冰教堂位于巴伐利亚贝希特斯加登国家公园内，因洞内的冰层而得名。这个迷人的冰洞是由瓦茨曼山周围的冰川融化而成，以冰柱和冰雕而闻名。它毗邻风景如画的国王湖，雄伟壮丽的阿尔卑斯山环绕四周，给每位游客都留下了深刻的印象。该地奇诡的地质形态也吸引着大批游客及研究人员。
-
-瓦茨曼山的形状颇为独特，在贝希特斯加登州还流传着一个与之相关的传说：专制邪恶的国王瓦茨曼在该地区实行暴政，上帝为了惩罚他，让国王全家都变成了巨石。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%93%a6%e8%8c%a8%e6%9b%bc%e5%b1%b1&form=hpcapt&filters=HpDate:"20240114_1600" "Bing Wallpaper 2024 1月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240115_IceChapel"&FORM=HPQUIZ "必应主页测验 2024 1月 15")
-[下载480](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_800x480.jpg&rf=LaDigue_800x480.jpg "瓦茨曼山脚下的冰教堂，巴伐利亚，德国")
-[下载720](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓦茨曼山脚下的冰教堂，巴伐利亚，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦茨曼山脚下的冰教堂，巴伐利亚，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_UHD.jpg&rf=LaDigue_UHD.jpg "瓦茨曼山脚下的冰教堂，巴伐利亚，德国")
 
 ---
