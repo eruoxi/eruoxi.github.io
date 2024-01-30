@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月31日：条纹造型
+#### 布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非（© Richard Du Toit/Minden Pictures）
+
+![条纹造型](https://cn.bing.com/th?id=OHR.ZebraMother_ZH-CN1947314869_800x480.jpg&rf=LaDigue_800x480.jpg "条纹造型")
+
+是时候来点“黑白思维”了。1月31日是国际斑马日，这是一个纪念这些条纹动物的日子。虽然所有斑马都有标志性的黑白条纹，但实际上现存的斑马有三种：平原斑马、山斑马和格利威斑马。今天照片上的主角是南非里特夫莱自然保护区的布氏斑马，平原斑马的亚种之一。斑马遍布非洲东部和南部，在热带稀树草原、灌木丛、林地甚至山区都能看到其身影，它们大部分时间都在吃东西，喜食草、树叶和灌木。由于平原斑马需要大量进食，因此它们会跋涉数百英里寻找食物和水。不幸的是，由于被猎杀及栖息地被破坏，斑马的生存受到了威胁。而像国际斑马日这种的活动，恰好可以提高公众对斑马所处的困境的关注度。
+
+布氏斑马是唯一可以合法饲养并供人食用的斑马亚种。该亚种的名字来自于英国探险家和博物学家威廉·约翰·伯谢尔。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e6%b0%8f%e6%96%91%e9%a9%ac&form=hpcapt&filters=HpDate:"20240130_1600" "Bing Wallpaper 2024 1月 31")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240131_ZebraMother"&FORM=HPQUIZ "必应主页测验 2024 1月 31")
+[下载480](https://cn.bing.com/th?id=OHR.ZebraMother_ZH-CN1947314869_800x480.jpg&rf=LaDigue_800x480.jpg "布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非")
+[下载720](https://cn.bing.com/th?id=OHR.ZebraMother_ZH-CN1947314869_1280x720.jpg&rf=LaDigue_1280x720.jpg "布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非")
+[下载1080](https://cn.bing.com/th?id=OHR.ZebraMother_ZH-CN1947314869_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非")
+[下载UHD](https://cn.bing.com/th?id=OHR.ZebraMother_ZH-CN1947314869_UHD.jpg&rf=LaDigue_UHD.jpg "布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非")
+
+---
 ### 01月30日：西班牙的小瑞士
 #### 艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙（© Juan Maria Coy Vergara/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SleepyWolf_ZH-CN9870873990_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴伐利亚森林国家公园里睡觉的狼，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.SleepyWolf_ZH-CN9870873990_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴伐利亚森林国家公园里睡觉的狼，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SleepyWolf_ZH-CN9870873990_UHD.jpg&rf=LaDigue_UHD.jpg "巴伐利亚森林国家公园里睡觉的狼，德国")
-
----
-### 01月16日：加拿大式的小憩和放松
-#### 路易斯湖，班夫国家公园，阿尔伯塔省，加拿大（© Mr. Simon Paul/Shutterstock）
-
-![加拿大式的小憩和放松](https://cn.bing.com/th?id=OHR.LakeLouise_ZH-CN9592539152_800x480.jpg&rf=LaDigue_800x480.jpg "加拿大式的小憩和放松")
-
-闪烁着海蓝色光芒的路易斯湖坐落在阿尔伯塔省班夫国家公园的加拿大落基山脉中，原住民纳科达人将该湖称为“Ho-run-num-nay”，意为“小鱼之湖”。后来，移民们以英国王室的路易斯公主的名字为这个冰川湖以及一座毗邻的小镇命名。那座小镇的海拔高达5200英尺，是加拿大海拔最高的小镇。游客们一年四季都可以通过加拿大高速公路到达路易斯湖，参加这里的夏季徒步旅行和冬季滑雪等活动。
-
-路易斯湖是加拿大最受欢迎的滑雪胜地之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8f%ad%e5%a4%ab%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad%e8%b7%af%e6%98%93%e6%96%af%e6%b9%96&form=hpcapt&filters=HpDate:"20240115_1600" "Bing Wallpaper 2024 1月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240116_LakeLouise"&FORM=HPQUIZ "必应主页测验 2024 1月 16")
-[下载480](https://cn.bing.com/th?id=OHR.LakeLouise_ZH-CN9592539152_800x480.jpg&rf=LaDigue_800x480.jpg "路易斯湖，班夫国家公园，阿尔伯塔省，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.LakeLouise_ZH-CN9592539152_1280x720.jpg&rf=LaDigue_1280x720.jpg "路易斯湖，班夫国家公园，阿尔伯塔省，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.LakeLouise_ZH-CN9592539152_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "路易斯湖，班夫国家公园，阿尔伯塔省，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.LakeLouise_ZH-CN9592539152_UHD.jpg&rf=LaDigue_UHD.jpg "路易斯湖，班夫国家公园，阿尔伯塔省，加拿大")
 
 ---
