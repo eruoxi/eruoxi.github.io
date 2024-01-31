@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月01日：发光的雪塔
+#### 吕根岛的萨斯尼茨灯塔，德国（© Christian Back/eStock）
+
+![发光的雪塔](https://cn.bing.com/th?id=OHR.HalbinselJasmund_ZH-CN2110869056_800x480.jpg&rf=LaDigue_800x480.jpg "发光的雪塔")
+
+吕根岛是德国最大的岛屿，当如诗如画的景色被皑皑白雪覆盖时，这里就会变成一个冬日仙境。如果您想远离城市的喧嚣，吕根岛是理想的度假胜地。过去，许多艺术家都曾来到这里尽情挥洒他们的创造力，巍峨的白垩悬崖就曾激发了历史上著名的德国画家卡斯帕·大卫·弗里德里希的创作灵感。
+
+吕根岛的主要产业曾经是鲱鱼捕捞，如今其重要性已经下降。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%90%95%e6%a0%b9%e5%b2%9b&form=hpcapt&filters=HpDate:"20240131_1600" "Bing Wallpaper 2024 2月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240201_HalbinselJasmund"&FORM=HPQUIZ "必应主页测验 2024 2月 1")
+[下载480](https://cn.bing.com/th?id=OHR.HalbinselJasmund_ZH-CN2110869056_800x480.jpg&rf=LaDigue_800x480.jpg "吕根岛的萨斯尼茨灯塔，德国")
+[下载720](https://cn.bing.com/th?id=OHR.HalbinselJasmund_ZH-CN2110869056_1280x720.jpg&rf=LaDigue_1280x720.jpg "吕根岛的萨斯尼茨灯塔，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.HalbinselJasmund_ZH-CN2110869056_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "吕根岛的萨斯尼茨灯塔，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HalbinselJasmund_ZH-CN2110869056_UHD.jpg&rf=LaDigue_UHD.jpg "吕根岛的萨斯尼茨灯塔，德国")
+
+---
 ### 01月31日：条纹造型
 #### 布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非（© Richard Du Toit/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄昏时分的亚历山大三世桥，巴黎，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄昏时分的亚历山大三世桥，巴黎，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_UHD.jpg&rf=LaDigue_UHD.jpg "黄昏时分的亚历山大三世桥，巴黎，法国")
-
----
-### 01月17日：天气暖和了再叫醒我
-#### 巴伐利亚森林国家公园里睡觉的狼，德国（© Raimund Linke/Getty Images）
-
-![天气暖和了再叫醒我](https://cn.bing.com/th?id=OHR.SleepyWolf_ZH-CN9870873990_800x480.jpg&rf=LaDigue_800x480.jpg "天气暖和了再叫醒我")
-
-没有什么事情能比得上舒适的冬日小憩了。这只欧亚狼也同意这一点，它似乎在宁静的巴伐利亚森林国家公园中沉沉睡去，又或许只是因为知道自己是顶级捕猎者而感到心安。巴伐利亚森林国家公园成立于1970年，是德国第一个国家公园，拥有中欧最大的森林面积。大雷切尔、小雷切尔和小阿尔伯等山峦连绵起伏，对于希望漫步于挪威云杉林的徒步旅行者来说是一个不大不小的挑战。不过，公园里并不只有徒步旅行者，还有许多生物，包括猞猁、熊、侏儒猫头鹰和欧亚狼。这些狼在头狼的带领下组成了亲密无间的狼群，它们在西欧被猎杀了几十年，最近才经常出现在公园里。
-
-巴伐利亚森林国家公园成立于1970年，是德国第一个国家公园。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e4%bc%90%e5%88%a9%e4%ba%9a%e6%a3%ae%e6%9e%97%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240116_1600" "Bing Wallpaper 2024 1月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240117_SleepyWolf"&FORM=HPQUIZ "必应主页测验 2024 1月 17")
-[下载480](https://cn.bing.com/th?id=OHR.SleepyWolf_ZH-CN9870873990_800x480.jpg&rf=LaDigue_800x480.jpg "巴伐利亚森林国家公园里睡觉的狼，德国")
-[下载720](https://cn.bing.com/th?id=OHR.SleepyWolf_ZH-CN9870873990_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴伐利亚森林国家公园里睡觉的狼，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.SleepyWolf_ZH-CN9870873990_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴伐利亚森林国家公园里睡觉的狼，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SleepyWolf_ZH-CN9870873990_UHD.jpg&rf=LaDigue_UHD.jpg "巴伐利亚森林国家公园里睡觉的狼，德国")
 
 ---
