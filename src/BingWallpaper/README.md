@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月02日：菲尔会看到它的影子吗?
+#### 从洞穴中探出头的土拨鼠（© Scacciamosche/Getty Images）
+
+![菲尔会看到它的影子吗?](https://cn.bing.com/th?id=OHR.AlpineMarmot_ZH-CN3818584615_800x480.jpg&rf=LaDigue_800x480.jpg "菲尔会看到它的影子吗?")
+
+想知道今年冬天会持续多久吗？迷信的人可以从土拨鼠日的预报中得到启示，也就是根据土拨鼠是否能看到自己的影子来判断。2月2日，宾夕法尼亚州的普苏塔尼是“核心圈子俱乐部”的舞台，该俱乐部由一群当地政要组成，他们按照传统将一只名叫“普苏塔尼菲尔”的土拨鼠从一个人造树桩中抱出来。然后，俱乐部主席会与这只矮胖的土拨鼠进行交谈，了解菲尔的占卜结果。结果是什么？看到影子表明冬季还会持续六周；如果没看到，那么春天就会提早来临。预测完成后，戴礼帽的人就会向观众宣读，而观众则会为菲尔欢呼。菲尔的亲戚，也就是今天图片里的阿尔卑斯旱獭，它也有自己的过冬传统，那就是储备食物，为漫长的冬眠做准备。但愿菲尔不会看到自己的影子，这样我们就可以走出寒冬的阴影了。
+
+土拨鼠日最早是由德国移民于1887年在美国设立的，其灵感来自欧洲的烛光节。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%9f%e6%8b%a8%e9%bc%a0%e6%97%a5&form=hpcapt&filters=HpDate:"20240201_1600" "Bing Wallpaper 2024 2月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240202_AlpineMarmot"&FORM=HPQUIZ "必应主页测验 2024 2月 2")
+[下载480](https://cn.bing.com/th?id=OHR.AlpineMarmot_ZH-CN3818584615_800x480.jpg&rf=LaDigue_800x480.jpg "从洞穴中探出头的土拨鼠")
+[下载720](https://cn.bing.com/th?id=OHR.AlpineMarmot_ZH-CN3818584615_1280x720.jpg&rf=LaDigue_1280x720.jpg "从洞穴中探出头的土拨鼠")
+[下载1080](https://cn.bing.com/th?id=OHR.AlpineMarmot_ZH-CN3818584615_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从洞穴中探出头的土拨鼠")
+[下载UHD](https://cn.bing.com/th?id=OHR.AlpineMarmot_ZH-CN3818584615_UHD.jpg&rf=LaDigue_UHD.jpg "从洞穴中探出头的土拨鼠")
+
+---
 ### 02月01日：发光的雪塔
 #### 吕根岛的萨斯尼茨灯塔，德国（© Christian Back/eStock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PlitviceWinter_ZH-CN0407572344_1280x720.jpg&rf=LaDigue_1280x720.jpg "十六湖国家公园，克罗地亚")
 [下载1080](https://cn.bing.com/th?id=OHR.PlitviceWinter_ZH-CN0407572344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "十六湖国家公园，克罗地亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.PlitviceWinter_ZH-CN0407572344_UHD.jpg&rf=LaDigue_UHD.jpg "十六湖国家公园，克罗地亚")
-
----
-### 01月18日：在飞马珀伽索斯的守望之下
-#### 黄昏时分的亚历山大三世桥，巴黎，法国（© Sizun Eye/Getty Images）
-
-![在飞马珀伽索斯的守望之下](https://cn.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_800x480.jpg&rf=LaDigue_800x480.jpg "在飞马珀伽索斯的守望之下")
-
-一觉睡醒，身在巴黎，听起来很有皇家风范，是不是？今天，透过屏幕，您看到的是暮色中的亚历山大三世桥。这座拱形大桥横跨塞纳河，于1900年亮相。为纪念1891年俄法同盟的建立，这座桥以俄国沙皇亚历山大三世的名字命名。两座56英尺高的塔分别坐落在河的两岸，顶上是飞马珀伽索斯的镀金青铜雕塑，彰显了这一事件的崇高地位。站在桥中央，你可以欣赏到河两侧的美景，一边是浪漫花园和荣军院广场，另一边是巴黎大皇宫和小皇宫博物馆。
-
-2017年6月，在巴黎与洛杉矶共同竞争2024年奥运会主办权的背景之下，巴黎将一些世界闻名的地标性建筑转为体育设施，并在横跨塞纳河的亚历山大三世桥上安装了跳水板。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e9%bb%8e%e4%ba%9a%e5%8e%86%e5%b1%b1%e5%a4%a7%e4%b8%89%e4%b8%96%e6%a1%a5&form=hpcapt&filters=HpDate:"20240117_1600" "Bing Wallpaper 2024 1月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240118_ParisBridge"&FORM=HPQUIZ "必应主页测验 2024 1月 18")
-[下载480](https://cn.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_800x480.jpg&rf=LaDigue_800x480.jpg "黄昏时分的亚历山大三世桥，巴黎，法国")
-[下载720](https://cn.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄昏时分的亚历山大三世桥，巴黎，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄昏时分的亚历山大三世桥，巴黎，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_UHD.jpg&rf=LaDigue_UHD.jpg "黄昏时分的亚历山大三世桥，巴黎，法国")
 
 ---
