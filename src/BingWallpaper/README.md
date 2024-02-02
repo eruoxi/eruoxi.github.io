@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月03日：伪装的日子
+#### 大运河与安康圣母大教堂，威尼斯，意大利（© Rudy Balasko/Getty Images）
+
+![伪装的日子](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_800x480.jpg&rf=LaDigue_800x480.jpg "伪装的日子")
+
+戴上精美的面具，穿上华丽的服饰，隐入威尼斯狂欢节的无边人群去狂欢吧！这是一个拥有数百年历史的节日，充满了神秘和美丽。这个一年一度的冬季庆典将狂欢与匿名结合在一起，这要归功于面具，而且这些面具通常会遵循特定的人物原型。在节日期间，成千上万的人身着仿17世纪威尼斯传统服饰的精美华服走上街头。狂欢节期间，游行派对活动层出不穷，还有音乐会和街头表演，这些活动一直持续到今年2月13日的“忏悔星期二”。在街上狂欢时，你可能会路过圣玛丽亚德拉安康教堂，在今天图片展示的远处可以看到，这是一座巴洛克式的大教堂，供奉的是圣母玛利亚——威尼斯共和国的保护神。
+
+在威尼斯，狂欢节期间禁止工作，每个人都应该玩得开心。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%bc%e6%96%af%e7%8b%82%e6%ac%a2%e8%8a%82&form=hpcapt&filters=HpDate:"20240202_1600" "Bing Wallpaper 2024 2月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240203_VeniceCarnival"&FORM=HPQUIZ "必应主页测验 2024 2月 3")
+[下载480](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_800x480.jpg&rf=LaDigue_800x480.jpg "大运河与安康圣母大教堂，威尼斯，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_1280x720.jpg&rf=LaDigue_1280x720.jpg "大运河与安康圣母大教堂，威尼斯，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大运河与安康圣母大教堂，威尼斯，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_UHD.jpg&rf=LaDigue_UHD.jpg "大运河与安康圣母大教堂，威尼斯，意大利")
+
+---
 ### 02月02日：菲尔会看到它的影子吗?
 #### 从洞穴中探出头的土拨鼠（© Scacciamosche/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MacaroniPenguins_ZH-CN0600867997_1280x720.jpg&rf=LaDigue_1280x720.jpg "马可罗尼企鹅，德雷克海峡，智利")
 [下载1080](https://cn.bing.com/th?id=OHR.MacaroniPenguins_ZH-CN0600867997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马可罗尼企鹅，德雷克海峡，智利")
 [下载UHD](https://cn.bing.com/th?id=OHR.MacaroniPenguins_ZH-CN0600867997_UHD.jpg&rf=LaDigue_UHD.jpg "马可罗尼企鹅，德雷克海峡，智利")
-
----
-### 01月19日：瀑布变“冰瀑”
-#### 十六湖国家公园，克罗地亚（© Massimo_S8/Getty Images）
-
-![瀑布变“冰瀑”](https://cn.bing.com/th?id=OHR.PlitviceWinter_ZH-CN0407572344_800x480.jpg&rf=LaDigue_800x480.jpg "瀑布变“冰瀑”")
-
-想不想一次性游览16个湖泊？克罗地亚的十六湖国家公园是该国最大、最古老的湖泊之一，其独特的地质特征为你提供了一个机会。马拉卡佩拉、梅德韦克和普列谢维察山脉的山坡将水引入普利特维采岛高原。这些水携带着沉淀的石灰岩，随着时间的推移，石灰岩逐渐积聚和硬化，形成了一系列被称为凝灰岩的岩石屏障。这些屏障形成水潭，细长的花边瀑布从一个“湖”通往另一个“湖”。这种雄伟的地质和水文景观也是联合国教科文组织认定的的世界遗产，它们吸引了超过一百万的游客前来参观蜿蜒于湖中的小径和木板路。即使在冬季，湖泊仍然美貌依旧，曾经咆哮的瀑布被冰封在原地形成绝美冰瀑。
-
-这些湖泊以其独特的颜色而闻名，从天蓝到碧绿、以及灰白皆有。根据水中矿物质或生物的数量和阳光照射的角度，湖泊的颜色会不断变化。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%81%e5%85%ad%e6%b9%96%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240118_1600" "Bing Wallpaper 2024 1月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240119_PlitviceWinter"&FORM=HPQUIZ "必应主页测验 2024 1月 19")
-[下载480](https://cn.bing.com/th?id=OHR.PlitviceWinter_ZH-CN0407572344_800x480.jpg&rf=LaDigue_800x480.jpg "十六湖国家公园，克罗地亚")
-[下载720](https://cn.bing.com/th?id=OHR.PlitviceWinter_ZH-CN0407572344_1280x720.jpg&rf=LaDigue_1280x720.jpg "十六湖国家公园，克罗地亚")
-[下载1080](https://cn.bing.com/th?id=OHR.PlitviceWinter_ZH-CN0407572344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "十六湖国家公园，克罗地亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.PlitviceWinter_ZH-CN0407572344_UHD.jpg&rf=LaDigue_UHD.jpg "十六湖国家公园，克罗地亚")
 
 ---
