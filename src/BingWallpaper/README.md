@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月04日：雄伟的天然穹顶
+#### 德弗塔什卡洞, Devetaki村庄，保加利亚（© Jasmine_K/Shutterstock）
+
+![雄伟的天然穹顶](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_800x480.jpg&rf=LaDigue_800x480.jpg "雄伟的天然穹顶")
+
+走进德弗塔什卡洞穴深处，在保加利亚自然奇观中穿越时空。不过，这次探险有一个条件：你不能害怕蝙蝠！大约有3万只这种会飞的哺乳动物在此栖息。这个岩溶洞穴是碳酸盐岩被水溶解后形成的，现在属于公园的一部分。德弗塔什卡洞穴中的人类活动可以追溯到公元前7万年左右的早期石器时代，另外这里还发现了公元前6000—4000年的新石器时代手工艺品。洞中的几个大开口将自然光引入洞室，为摄影师和自然爱好者提供了更好的照明效果。
+
+德弗塔什卡洞的洞顶有几个大洞，被人们称为“上帝之眼”。阳光可以穿过洞顶和洞壁上的孔洞照亮洞穴内部，因此我们可以在这里拍到非常有趣的照片，比如晚上月光穿过“眼睛”的照片。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bf%9d%e5%8a%a0%e5%88%a9%e4%ba%9a%e5%be%b7%e5%bc%97%e5%a1%94%e4%bb%80%e5%8d%a1%e6%b4%9e&form=hpcapt&filters=HpDate:"20240203_1600" "Bing Wallpaper 2024 2月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240204_DevetashkaCave"&FORM=HPQUIZ "必应主页测验 2024 2月 4")
+[下载480](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_800x480.jpg&rf=LaDigue_800x480.jpg "德弗塔什卡洞, Devetaki村庄，保加利亚")
+[下载720](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_1280x720.jpg&rf=LaDigue_1280x720.jpg "德弗塔什卡洞, Devetaki村庄，保加利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "德弗塔什卡洞, Devetaki村庄，保加利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_UHD.jpg&rf=LaDigue_UHD.jpg "德弗塔什卡洞, Devetaki村庄，保加利亚")
+
+---
 ### 02月03日：伪装的日子
 #### 大运河与安康圣母大教堂，威尼斯，意大利（© Rudy Balasko/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧亚红松鼠，荷兰")
 [下载1080](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚红松鼠，荷兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚红松鼠，荷兰")
-
----
-### 01月20日：冰雪极地的马可罗尼企鹅
-#### 马可罗尼企鹅，德雷克海峡，智利（© Paul Souders/Getty Images）
-
-![冰雪极地的马可罗尼企鹅](https://cn.bing.com/th?id=OHR.MacaroniPenguins_ZH-CN0600867997_800x480.jpg&rf=LaDigue_800x480.jpg "冰雪极地的马可罗尼企鹅")
-
-让我们行动起来，一起投入到企鹅意识日的活动中去吧！你能说出多少种企鹅的名字？今天的照片展示的是敏捷的马可罗尼企鹅在智利德雷克海峡浮游生物丰富的水域中畅游的场景。这些迷人的生物只是在南半球发现的18种企鹅中的一种，可以通过它们奇特的橘色装饰性羽毛和突出的橙色喙来识别。马可罗尼企鹅成群结队地觅食，但雄性企鹅之间会相互攻击。为了表现出和气和避免打斗，个体通常会把头缩在胸前，这样就可以轻松地穿过企鹅群。尽管企鹅深受人类的喜爱，但近年来食物的减少、渔网的误捕，以及气候变化对其栖息地海冰的深刻影响，都对企鹅的生存构成不小威胁。
-
-马可罗尼企鹅，尤其是那些相邻巢穴的企鹅，可能会进行“喙战”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e5%8f%af%e7%bd%97%e5%b0%bc%e4%bc%81%e9%b9%85&form=hpcapt&filters=HpDate:"20240119_1600" "Bing Wallpaper 2024 1月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240120_MacaroniPenguins"&FORM=HPQUIZ "必应主页测验 2024 1月 20")
-[下载480](https://cn.bing.com/th?id=OHR.MacaroniPenguins_ZH-CN0600867997_800x480.jpg&rf=LaDigue_800x480.jpg "马可罗尼企鹅，德雷克海峡，智利")
-[下载720](https://cn.bing.com/th?id=OHR.MacaroniPenguins_ZH-CN0600867997_1280x720.jpg&rf=LaDigue_1280x720.jpg "马可罗尼企鹅，德雷克海峡，智利")
-[下载1080](https://cn.bing.com/th?id=OHR.MacaroniPenguins_ZH-CN0600867997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马可罗尼企鹅，德雷克海峡，智利")
-[下载UHD](https://cn.bing.com/th?id=OHR.MacaroniPenguins_ZH-CN0600867997_UHD.jpg&rf=LaDigue_UHD.jpg "马可罗尼企鹅，德雷克海峡，智利")
 
 ---
