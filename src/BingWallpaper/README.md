@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月05日：唤醒沉睡的湖泊
+#### 从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚（© Rasica/Getty Images）
+
+![唤醒沉睡的湖泊](https://cn.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_800x480.jpg&rf=LaDigue_800x480.jpg "唤醒沉睡的湖泊")
+
+布莱德湖邀请您走进童话般的风景中！这个占地358英亩的美丽湖泊，就坐落在斯洛文尼亚朱利安阿尔卑斯山脉之中。这里的主角是一个散发着传奇与浪漫魅力的小岛——布莱德岛。让我们跳上当地传统的普莱特纳船，前往岛上的圣地。这种平底船是布莱德岛独有的，只有23艘，由技术娴熟的浆手驾驶着它们在湖上航行，而浆手这个职业自1740年以来就在当地世代相传。岛上还有一座17世纪的圣母升天教堂，里面有一口特别的钟，传说这口钟可以让人愿望成真！如果您向岸边望去，就能看见俯瞰着广阔湖面的布莱德城堡。它坐落在湖西北岸的布莱德镇上方的悬崖上，是斯洛文尼亚最古老的城堡之一。
+
+2016年，斯洛文尼亚政府将一种被当地人称为布莱德奶油蛋糕的特色美食指定为原产地域保护食品。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e8%8e%b1%e5%be%b7%e6%b9%96&form=hpcapt&filters=HpDate:"20240204_1600" "Bing Wallpaper 2024 2月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240205_LakeBledSunrise"&FORM=HPQUIZ "必应主页测验 2024 2月 5")
+[下载480](https://cn.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_800x480.jpg&rf=LaDigue_800x480.jpg "从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_1280x720.jpg&rf=LaDigue_1280x720.jpg "从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_UHD.jpg&rf=LaDigue_UHD.jpg "从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚")
+
+---
 ### 02月04日：雄伟的天然穹顶
 #### 德弗塔什卡洞, Devetaki村庄，保加利亚（© Jasmine_K/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_1280x720.jpg&rf=LaDigue_1280x720.jpg "冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_UHD.jpg&rf=LaDigue_UHD.jpg "冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国")
-
----
-### 01月21日：树梢上的故事
-#### 欧亚红松鼠，荷兰（© Ernst Dirksen/Minden Pictures）
-
-![树梢上的故事](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_800x480.jpg&rf=LaDigue_800x480.jpg "树梢上的故事")
-
-你是否曾被路过身边的松鼠所吸引？如果有，那你并不孤单！1月21日被定为“松鼠感谢日”，以纪念这些毛茸茸的种子传播者以及它们在维持良好的生态系统中所发挥的作用。今天的照片展示的是迷人的欧亚红松鼠，其醒目的红褐色皮毛、白色腹部和蓬松的尾巴在多个国家都是常见的景象。这些松鼠不仅有着惊人的跳跃能力，一跃可达6英尺，它们甚至还能通过游泳寻找食物或迁徙。如果你发现一只毛茸茸的松鼠在你家后院嬉戏，请不要惊讶。它们可能喜欢在喂食台附近出没，因为那里有各种各样的食物，比如覆盆子或海棠果。
-
-欧亚红松鼠经常以针叶树种子、山毛榉、橡子和坚果为食。它们有一种利用下切牙的力量打开坚果的特殊技巧。通过练习，它们只需几秒钟就能成功打开一个坚果。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e4%ba%9a%e7%ba%a2%e6%9d%be%e9%bc%a0&form=hpcapt&filters=HpDate:"20240120_1600" "Bing Wallpaper 2024 1月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240121_SquirrelNetherlands"&FORM=HPQUIZ "必应主页测验 2024 1月 21")
-[下载480](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_800x480.jpg&rf=LaDigue_800x480.jpg "欧亚红松鼠，荷兰")
-[下载720](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧亚红松鼠，荷兰")
-[下载1080](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚红松鼠，荷兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚红松鼠，荷兰")
 
 ---
