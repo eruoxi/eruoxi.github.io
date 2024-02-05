@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月06日：天然盆景
+#### 盆景岩，太浩湖，内华达州，美国（© Jim Patterson/Tandem Stills + Motion）
+
+![天然盆景](https://cn.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_800x480.jpg&rf=LaDigue_800x480.jpg "天然盆景")
+
+这是北美最大的高山湖泊和美国第二深的湖泊——太浩湖，湖中的盆景岩及其周边地区则是内华达山脉的一个热门旅游景点。盆景岩上的四棵树从巨大的花岗岩中生长出来，这一奇特的景象激发了人们的灵感，便将其命名为盆景岩。而传统的盆景也只包含一棵树或一小丛品种相同的树，因此这个名字非常适合这个景点。盆景可以引发人们思考和冥想，如果您去参观盆景岩，不妨找个安静的地方，沉浸式体验冥想的乐趣。
+
+作为太浩湖盆地的一部分，太浩湖形成于约200万年前的地壳运动，以清澈的水质，四面环山的风景而闻名。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%aa%e6%b5%a9%e6%b9%96&form=hpcapt&filters=HpDate:"20240205_1600" "Bing Wallpaper 2024 2月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240206_LakeTahoeRock"&FORM=HPQUIZ "必应主页测验 2024 2月 6")
+[下载480](https://cn.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_800x480.jpg&rf=LaDigue_800x480.jpg "盆景岩，太浩湖，内华达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_1280x720.jpg&rf=LaDigue_1280x720.jpg "盆景岩，太浩湖，内华达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盆景岩，太浩湖，内华达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_UHD.jpg&rf=LaDigue_UHD.jpg "盆景岩，太浩湖，内华达州，美国")
+
+---
 ### 02月05日：唤醒沉睡的湖泊
 #### 从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚（© Rasica/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_1280x720.jpg&rf=LaDigue_1280x720.jpg "印度洋的环礁，马尔代夫")
 [下载1080](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印度洋的环礁，马尔代夫")
 [下载UHD](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_UHD.jpg&rf=LaDigue_UHD.jpg "印度洋的环礁，马尔代夫")
-
----
-### 01月22日：魔幻时刻
-#### 冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国（© Jeff Lewis/Tandem Stills + Motion）
-
-![魔幻时刻](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_800x480.jpg&rf=LaDigue_800x480.jpg "魔幻时刻")
-
-走进美国西部边缘，这里是沃尔顿灯塔的所在地。沃尔顿灯塔又名圣克鲁斯防波堤灯塔，是过往船只的指路明灯。2002年，这座40英尺高的现代海上建筑物在加利福尼亚州圣克鲁斯建成完工，取代了之前那座朴素简陋的灯塔。沃尔顿灯塔得名于商人查尔斯·沃尔顿，为了纪念自己的兄弟德里克·沃尔顿，他慷慨地捐赠了这座灯塔的建设费用。
-
-圣克鲁斯拥有多个州立公园和海滩，包括灯塔州立海滩、自然桥州立海滩、圣克鲁斯传道院立历史公园、双湖州立海滩和西布赖特州立海滩。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e5%85%8b%e9%b2%81%e6%96%af%e5%8e%bf&form=hpcapt&filters=HpDate:"20240121_1600" "Bing Wallpaper 2024 1月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240122_SantaCruzSunrise"&FORM=HPQUIZ "必应主页测验 2024 1月 22")
-[下载480](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_800x480.jpg&rf=LaDigue_800x480.jpg "冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_1280x720.jpg&rf=LaDigue_1280x720.jpg "冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_UHD.jpg&rf=LaDigue_UHD.jpg "冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国")
 
 ---
