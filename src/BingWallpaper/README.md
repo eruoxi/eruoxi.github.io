@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月07日：海浪中的避风港
+#### 圣詹姆斯潮汐池，开普敦，南非（© AmazingAerialAgency/Adobe）
+
+![海浪中的避风港](https://cn.bing.com/th?id=OHR.StJamesPool_ZH-CN5930624359_800x480.jpg&rf=LaDigue_800x480.jpg "海浪中的避风港")
+
+圣詹姆斯海滩坐落在开普敦海岸线上，是一个隐蔽的小海滩，因其一排排色彩缤纷的维多利亚式海滩小屋而备受欢迎。在蔚蓝大海的映衬下，这些海滩小屋呈现出万花筒般的色彩。这里的环境非常适合悠闲漫步，一边沐浴着温暖的阳光，一边欣赏潮起潮落，十分惬意。不过，圣詹姆斯潮汐池才是这里最引人注目的景点，这是一个受保护的游泳区域，有许多小型海洋生物在此繁衍生息。它建在崎岖的岩石之间，池水清澈见底，为游客提供了宁静的游泳体验。与外面的海水相比，潮汐池的水更温暖，您也无需担心水流过急，这里非常适合玩水上漂浮，是孩子和成人的安全水上乐园。
+
+圣詹姆斯海滩和潮汐池是明信片上的常客。在这里，一排排色彩鲜艳的木制沙滩小屋是海滨魅力的缩影，其主要特色是彩色的屋顶和门故意与屋子的框架颜色不匹配。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%bc%80%e6%99%ae%e6%95%a6&form=hpcapt&filters=HpDate:"20240206_1600" "Bing Wallpaper 2024 2月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240207_StJamesPool"&FORM=HPQUIZ "必应主页测验 2024 2月 7")
+[下载480](https://cn.bing.com/th?id=OHR.StJamesPool_ZH-CN5930624359_800x480.jpg&rf=LaDigue_800x480.jpg "圣詹姆斯潮汐池，开普敦，南非")
+[下载720](https://cn.bing.com/th?id=OHR.StJamesPool_ZH-CN5930624359_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣詹姆斯潮汐池，开普敦，南非")
+[下载1080](https://cn.bing.com/th?id=OHR.StJamesPool_ZH-CN5930624359_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣詹姆斯潮汐池，开普敦，南非")
+[下载UHD](https://cn.bing.com/th?id=OHR.StJamesPool_ZH-CN5930624359_UHD.jpg&rf=LaDigue_UHD.jpg "圣詹姆斯潮汐池，开普敦，南非")
+
+---
 ### 02月06日：天然盆景
 #### 盆景岩，太浩湖，内华达州，美国（© Jim Patterson/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.IcelandBeach_ZH-CN1632329693_1280x720.jpg&rf=LaDigue_1280x720.jpg "钻石冰沙滩，冰岛")
 [下载1080](https://cn.bing.com/th?id=OHR.IcelandBeach_ZH-CN1632329693_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "钻石冰沙滩，冰岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.IcelandBeach_ZH-CN1632329693_UHD.jpg&rf=LaDigue_UHD.jpg "钻石冰沙滩，冰岛")
-
----
-### 01月23日：印度洋之眼
-#### 印度洋的环礁，马尔代夫（© Amazing Aerial Premium/Shutterstock）
-
-![印度洋之眼](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_800x480.jpg&rf=LaDigue_800x480.jpg "印度洋之眼")
-
-马尔代夫位于斯里兰卡和印度的西南部，拥有宁静的沙滩和清澈的海水，并以海鲜、环礁湖和无数的椰子树而闻名。马尔代夫群岛约有1200个岛屿，这些岛屿是由26个环礁链组成的。环礁是环形的岛屿，边缘是珊瑚，中间是礁湖。马尔代夫还是芭环礁生物圈保护区的所在地，该保护区已于2011年6月被联合国教科文组织列为世界遗产。在那里，游客可以观赏蝠鲼和鲸鲨，还可以享受潜水、冲浪等有趣的活动。
-
-马尔代夫是世界上地势最低的国家，最高和平均自然地面高度分别仅为海平面以上 2.4 米（7 英尺 10 英寸）和 1.5 米（4 英尺 11 英寸）。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e5%b0%94%e4%bb%a3%e5%a4%ab&form=hpcapt&filters=HpDate:"20240122_1600" "Bing Wallpaper 2024 1月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240123_MaldivesAtolls"&FORM=HPQUIZ "必应主页测验 2024 1月 23")
-[下载480](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_800x480.jpg&rf=LaDigue_800x480.jpg "印度洋的环礁，马尔代夫")
-[下载720](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_1280x720.jpg&rf=LaDigue_1280x720.jpg "印度洋的环礁，马尔代夫")
-[下载1080](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印度洋的环礁，马尔代夫")
-[下载UHD](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_UHD.jpg&rf=LaDigue_UHD.jpg "印度洋的环礁，马尔代夫")
 
 ---
