@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月08日：沉睡的巨人
+#### 胡德山，俄勒冈州，美国（© Inigo Cia/Getty Images）
+
+![沉睡的巨人](https://cn.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_800x480.jpg&rf=LaDigue_800x480.jpg "沉睡的巨人")
+
+胡德山以其白雪皑皑的山尖装点着俄勒冈州的天际线。这座高约11,250英尺的休眠火山是俄勒冈州最高的山，吸引着众多冒险者和自然爱好者前来探险。这里有12座已被命名的冰川以及众多雪原，全年都是“冰雪乐园”。除了有冰雪之美，胡德山还拥有多种多样的生态系统，并孕育了古老的森林，是美洲狮和狼等野生动物的天堂。在过去的1800年里，这座火山喷发过3次。地质学家称，这座火山目前主要处于休眠状态，但仍有可能在将来的某一天再次喷发。
+
+一个多世纪以来，“怀伊斯特”这个名字一直与胡德山联系在一起，然而在各大原住民语言中，没有任何证据表明“怀伊斯特”是这座山的真名。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%83%a1%e5%be%b7%e5%b1%b1&form=hpcapt&filters=HpDate:"20240207_1600" "Bing Wallpaper 2024 2月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240208_MtHoodOregon"&FORM=HPQUIZ "必应主页测验 2024 2月 8")
+[下载480](https://cn.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_800x480.jpg&rf=LaDigue_800x480.jpg "胡德山，俄勒冈州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_1280x720.jpg&rf=LaDigue_1280x720.jpg "胡德山，俄勒冈州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "胡德山，俄勒冈州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_UHD.jpg&rf=LaDigue_UHD.jpg "胡德山，俄勒冈州，美国")
+
+---
 ### 02月07日：海浪中的避风港
 #### 圣詹姆斯潮汐池，开普敦，南非（© AmazingAerialAgency/Adobe）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣德温教堂的废墟，莫纳岛，威尔士，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣德温教堂的废墟，莫纳岛，威尔士，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_UHD.jpg&rf=LaDigue_UHD.jpg "圣德温教堂的废墟，莫纳岛，威尔士，英国")
-
----
-### 01月24日：撒了一地的“钻石”
-#### 钻石冰沙滩，冰岛（© Rachid Dahnoun/Tandem Stills + Motion）
-
-![撒了一地的“钻石”](https://cn.bing.com/th?id=OHR.IcelandBeach_ZH-CN1632329693_800x480.jpg&rf=LaDigue_800x480.jpg "撒了一地的“钻石”")
-
-从峡湾和熔岩荒原到冰洞和黑沙滩，就像我们今天在图片中看到的那样，冰岛是一个自然奇观的宝库。钻石冰沙滩是冰岛最受欢迎的自然地标之一。这个独特的沙滩位于杰古沙龙冰河湖附近，其名字源于从冰川上脱落的冰山碎片，当这些冰山碎片被冲到岸上后，在黑色沙子上就像一颗颗闪闪发光的钻石，而这些黑色沙子则是来自被侵蚀的火山岩。清澈的冰块与黑色的沙子形成鲜明对比，尤其是当阳光照射在冰面上时，会产生一种超现实的景象，因此这里是冰岛南海岸的必游之地。
-
-当阳光照射在冰层上时，由于光的散射作用，钻石海滩的冰有时会变成蓝色。
-
-[Bing搜索](https://cn.bing.com/search?q=Diamond+Beach+Iceland&form=hpcapt&filters=HpDate:"20240123_1600" "Bing Wallpaper 2024 1月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240124_IcelandBeach"&FORM=HPQUIZ "必应主页测验 2024 1月 24")
-[下载480](https://cn.bing.com/th?id=OHR.IcelandBeach_ZH-CN1632329693_800x480.jpg&rf=LaDigue_800x480.jpg "钻石冰沙滩，冰岛")
-[下载720](https://cn.bing.com/th?id=OHR.IcelandBeach_ZH-CN1632329693_1280x720.jpg&rf=LaDigue_1280x720.jpg "钻石冰沙滩，冰岛")
-[下载1080](https://cn.bing.com/th?id=OHR.IcelandBeach_ZH-CN1632329693_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "钻石冰沙滩，冰岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.IcelandBeach_ZH-CN1632329693_UHD.jpg&rf=LaDigue_UHD.jpg "钻石冰沙滩，冰岛")
 
 ---
