@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月09日：准备好庆祝了吗？
+#### 灯光秀点亮夜幕中的西安城墙，中国春节（© Eastimages/Getty Images）
+
+![准备好庆祝了吗？](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_800x480.jpg&rf=LaDigue_800x480.jpg "准备好庆祝了吗？")
+
+几乎每一年的春节，西安城墙都被装扮得光彩动人，让这座千年古都彰显着更为浓郁的传统中国春节的韵味。而西安城墙的灯会更是给人们带来了绝美的体验感。当百米长灯点亮古城，烟火气息回归，现代城市与古老城市似乎打破了时空感，在夜幕降临以后，灯光璀璨之时，同时展现在眼前。置身其间的人们，似是穿越于古今两个时代，体会着千年的沧桑与繁华。
+
+西安城墙是中国现存规模最大、保存最完整的古代城垣。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%99%a4%e5%a4%95%e5%a4%9c&form=hpcapt&filters=HpDate:"20240208_1600" "Bing Wallpaper 2024 2月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240209_ChineseNewYearEve2024"&FORM=HPQUIZ "必应主页测验 2024 2月 9")
+[下载480](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_800x480.jpg&rf=LaDigue_800x480.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
+[下载720](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_1280x720.jpg&rf=LaDigue_1280x720.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
+[下载1080](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_UHD.jpg&rf=LaDigue_UHD.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
+
+---
 ### 02月08日：沉睡的巨人
 #### 胡德山，俄勒冈州，美国（© Inigo Cia/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_1280x720.jpg&rf=LaDigue_1280x720.jpg "北鹰鸮")
 [下载1080](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北鹰鸮")
 [下载UHD](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_UHD.jpg&rf=LaDigue_UHD.jpg "北鹰鸮")
-
----
-### 01月25日：通往过去的入口
-#### 圣德温教堂的废墟，莫纳岛，威尔士，英国（© Photos by R A Kearton/Getty Images）
-
-![通往过去的入口](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_800x480.jpg&rf=LaDigue_800x480.jpg "通往过去的入口")
-
-兰德温岛是英国威尔士安格尔西岛（又名莫纳岛）西海岸外的一个田园诗歌般的小岛。该岛与恋人的守护神圣德温有着深厚的渊源，这一点从岛名上便可窥见一斑：“兰德温”的意思是 “德温的教堂”。据说在五世纪时，德温公主在经历了一段悲惨的恋情后，来到这座岛上寻求慰藉，随后便隐居于此。当时这位年轻的公主爱上了一位平民，但由于她的国王父亲禁止他们在一起，德温公主便暂时将她的爱人变成了一块冰，然后搬到了这座岛上，并建立了一个修道院。她毕生致力于修行，过着隐士般的生活，帮助人们解决情感问题。德温教堂的遗迹、一口水井和修道院的废墟都是德温公主在这座岛上生活过的证明。1月25日圣德温节被视为威尔士最浪漫的日子，因为它是威尔士的情人节。
-
-莫纳岛上的枕状熔岩、碧玉岩层和风积沙沉积物都具有地质学价值。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8e%ab%e7%ba%b3%e5%b2%9b&form=hpcapt&filters=HpDate:"20240124_1600" "Bing Wallpaper 2024 1月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240125_DwynwensDay"&FORM=HPQUIZ "必应主页测验 2024 1月 25")
-[下载480](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_800x480.jpg&rf=LaDigue_800x480.jpg "圣德温教堂的废墟，莫纳岛，威尔士，英国")
-[下载720](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣德温教堂的废墟，莫纳岛，威尔士，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣德温教堂的废墟，莫纳岛，威尔士，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_UHD.jpg&rf=LaDigue_UHD.jpg "圣德温教堂的废墟，莫纳岛，威尔士，英国")
 
 ---
