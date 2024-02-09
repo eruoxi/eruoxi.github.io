@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月10日：福起新岁，万事顺意
+#### 中国舞狮，大年初一（© SENEZ/Getty Images）
+
+![福起新岁，万事顺意](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_800x480.jpg&rf=LaDigue_800x480.jpg "福起新岁，万事顺意")
+
+炮竹声中辞旧岁，烟花满天迎新春。从年初一开始便进入迎禧接福、拜祭神祖、祈求丰年主题。在春节期间，全国各地均有举行各种庆贺新春活动，带有浓郁的各地地方特色。中国民俗传统，认为舞狮可以驱邪辟鬼。故此每逢喜庆节日，都喜欢敲锣打鼓，舞狮助庆，长盛不衰，历代相传。新的一年，喜气洋洋，万事胜意！
+
+舞狮，是中国优秀的民间艺术，古时又称为“太平乐”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%98%a5%e8%8a%82&form=hpcapt&filters=HpDate:"20240209_1600" "Bing Wallpaper 2024 2月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240210_SpringFestival2024"&FORM=HPQUIZ "必应主页测验 2024 2月 10")
+[下载480](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_800x480.jpg&rf=LaDigue_800x480.jpg "中国舞狮，大年初一")
+[下载720](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_1280x720.jpg&rf=LaDigue_1280x720.jpg "中国舞狮，大年初一")
+[下载1080](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国舞狮，大年初一")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_UHD.jpg&rf=LaDigue_UHD.jpg "中国舞狮，大年初一")
+
+---
 ### 02月09日：准备好庆祝了吗？
 #### 灯光秀点亮夜幕中的西安城墙，中国春节（© Eastimages/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_1280x720.jpg&rf=LaDigue_1280x720.jpg "点嘴小巨嘴鸟，大西洋森林，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "点嘴小巨嘴鸟，大西洋森林，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_UHD.jpg&rf=LaDigue_UHD.jpg "点嘴小巨嘴鸟，大西洋森林，巴西")
-
----
-### 01月26日：不是夜猫子
-#### 北鹰鸮（© Remo Savisaar/Alamy Stock Photo）
-
-![不是夜猫子](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_800x480.jpg&rf=LaDigue_800x480.jpg "不是夜猫子")
-
-你是否发现自己白天精力充沛，而你的朋友却喜欢在外面待到很晚？如果是这样，那你就是“猛鸮”了。这种鸟是世界上为数不多的只在白天活动的猫头鹰之一，它们栖息在北美和欧亚大陆的北方森林中，有着不同的叫声，用于交配、与幼鸟交流以及危险预警。猛鸮并不挑食，它们会吃老鼠、田鼠、旅鼠、兔子、鼩鼱、鼹鼠，偶尔也吃其他小鸟，甚至有人看到它们吃青蛙和鱼。不过不用担心，我们不在猛鸮的菜单上。但是，如果人类离它们的巢穴太近，保护欲很强的鸟爸爸和鸟妈妈会扑向人类，将人类赶走。
-
-猛鸮是少数不在夜晚活动的猫头鹰之一，它们只在白天活动。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e9%b9%b0%e9%b8%ae&form=hpcapt&filters=HpDate:"20240125_1600" "Bing Wallpaper 2024 1月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240126_HawkOwl"&FORM=HPQUIZ "必应主页测验 2024 1月 26")
-[下载480](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_800x480.jpg&rf=LaDigue_800x480.jpg "北鹰鸮")
-[下载720](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_1280x720.jpg&rf=LaDigue_1280x720.jpg "北鹰鸮")
-[下载1080](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北鹰鸮")
-[下载UHD](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_UHD.jpg&rf=LaDigue_UHD.jpg "北鹰鸮")
 
 ---
