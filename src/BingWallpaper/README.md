@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月11日：地球上的极乐世界
+#### 乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊（© Francesco Riccardo Iacomino/Getty Images）
+
+![地球上的极乐世界](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_800x480.jpg&rf=LaDigue_800x480.jpg "地球上的极乐世界")
+
+你想过去探索一个有着神秘过往的希腊岛屿吗？欢迎来到福莱甘兹罗斯！福莱甘兹罗斯岛是希腊岛屿中的瑰宝，位于基克拉迪群岛南部，毗邻锡基诺斯岛、伊奥斯岛、阿纳菲岛和圣托里尼岛。虽然人们对该岛的古代历史知之甚少，但据说这里最早的居民是古典希腊四大民族之一的多利安人。后来该岛又被雅典统治，在此期间，岛上曾有过一个城邦，名为福莱甘兹罗斯。这个城邦就位于今天图中展示的首府乔拉的位置。乔拉坐落在656英尺高的悬崖边上，从这里可以鸟瞰周围的美丽景色。这座由威尼斯人于1212年建造的小镇有着迷人的广场和传统的白色教堂，如今已是一个颇受欢迎的旅游胜地。
+
+在霍拉山顶，一条醒目的白色小路蜿蜒曲折地穿过山脉，通往福莱甘兹罗斯的一个特殊地标—帕纳基亚·卡普尼卡雷亚教堂。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%8c%e8%85%8a%e7%a6%8f%e8%8e%b1%e7%94%98%e5%85%b9%e7%bd%97%e6%96%af%e5%b2%9b&form=hpcapt&filters=HpDate:"20240210_1600" "Bing Wallpaper 2024 2月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240211_FolegandrosGreece"&FORM=HPQUIZ "必应主页测验 2024 2月 11")
+[下载480](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_800x480.jpg&rf=LaDigue_800x480.jpg "乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊")
+[下载720](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_1280x720.jpg&rf=LaDigue_1280x720.jpg "乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_UHD.jpg&rf=LaDigue_UHD.jpg "乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊")
+
+---
 ### 02月10日：福起新岁，万事顺意
 #### 中国舞狮，大年初一（© SENEZ/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_1280x720.jpg&rf=LaDigue_1280x720.jpg "昆士兰州内陆海峡地区，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "昆士兰州内陆海峡地区，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_UHD.jpg&rf=LaDigue_UHD.jpg "昆士兰州内陆海峡地区，澳大利亚")
-
----
-### 01月27日：巴西大自然中的异域之美
-#### 点嘴小巨嘴鸟，大西洋森林，巴西（© aaprophoto/Getty Images）
-
-![巴西大自然中的异域之美](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_800x480.jpg&rf=LaDigue_800x480.jpg "巴西大自然中的异域之美")
-
-点嘴小巨嘴鸟是一种巨嘴鸟，以其鲜艳的颜色和醒目的喙而闻名。这种鸟栖息在巴西潮湿的热带森林中，尤其是在亚马逊和潘塔纳尔地区。点嘴小巨嘴鸟的羽毛以绿色为主，喙为橙色，并带有黑色斑点，这为其独特的美丽增色不少。
-
-世界自然保护联盟已将点嘴小巨嘴鸟列为最不受关注的动物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%82%b9%e5%98%b4%e5%b0%8f%e5%b7%a8%e5%98%b4%e9%b8%9f&form=hpcapt&filters=HpDate:"20240126_1600" "Bing Wallpaper 2024 1月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240127_ToucanetEmpoleirado"&FORM=HPQUIZ "必应主页测验 2024 1月 27")
-[下载480](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_800x480.jpg&rf=LaDigue_800x480.jpg "点嘴小巨嘴鸟，大西洋森林，巴西")
-[下载720](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_1280x720.jpg&rf=LaDigue_1280x720.jpg "点嘴小巨嘴鸟，大西洋森林，巴西")
-[下载1080](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "点嘴小巨嘴鸟，大西洋森林，巴西")
-[下载UHD](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_UHD.jpg&rf=LaDigue_UHD.jpg "点嘴小巨嘴鸟，大西洋森林，巴西")
 
 ---
