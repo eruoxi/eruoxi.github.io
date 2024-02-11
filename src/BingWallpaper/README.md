@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月12日：甜蜜的火山家园
+#### 阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔（© Tui De Roy/Minden Pictures）
+
+![甜蜜的火山家园](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_800x480.jpg&rf=LaDigue_800x480.jpg "甜蜜的火山家园")
+
+1835年，英国博物学家查尔斯·达尔文探索了东太平洋的加拉帕戈斯火山群岛。在研究岛上的生物时，他得出结论：来自南美洲的各种动物物种，主要是能够穿越广阔水域的爬行动物和鸟类，迁移到了加拉帕戈斯群岛，并逐渐适应了周围的环境。这些观察结果最终为达尔文的自然选择进化论奠定了基础。研究中考察的物种之一是加拉帕戈斯象龟，这是一种只在加拉帕戈斯群岛上发现的乌龟，可以长到5英尺长。事实上，加拉帕戈斯群岛就是以这种巨龟命名的，“加拉帕戈斯”在西班牙语中就是乌龟的意思。今天是“达尔文日”，让我们来纪念这些温顺的庞然大物，它们曾为19世纪最伟大的科学发现之一做出过贡献。
+
+西班牙航海家发现加拉帕戈斯群岛时，因为岛上有很多巨大的象龟，就将这片群岛命名为“加拉帕戈斯”，而这个词在西班牙语中正是乌龟的意思。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e6%8b%89%e5%b8%95%e6%88%88%e6%96%af%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20240211_1600" "Bing Wallpaper 2024 2月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240212_GiantTortoise"&FORM=HPQUIZ "必应主页测验 2024 2月 12")
+[下载480](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔")
+[下载720](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔")
+[下载1080](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔")
+
+---
 ### 02月11日：地球上的极乐世界
 #### 乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊（© Francesco Riccardo Iacomino/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_1280x720.jpg&rf=LaDigue_1280x720.jpg "戈林格瀑布，泰嫩高，萨尔茨堡，奥地利")
 [下载1080](https://cn.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "戈林格瀑布，泰嫩高，萨尔茨堡，奥地利")
 [下载UHD](https://cn.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_UHD.jpg&rf=LaDigue_UHD.jpg "戈林格瀑布，泰嫩高，萨尔茨堡，奥地利")
-
----
-### 01月28日：从干涸的沙漠变成田园
-#### 昆士兰州内陆海峡地区，澳大利亚（© Southern Lightscapes-Australia/Getty Images）
-
-![从干涸的沙漠变成田园](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_800x480.jpg&rf=LaDigue_800x480.jpg "从干涸的沙漠变成田园")
-
-这里不仅有大地色调的“拼布被子”，还有狭窄的水道像静脉一样贯穿澳大利亚内陆的海峡地区。这片幅员辽阔的地区因其纵横交错的河道而闻名。当雨量充沛时，这里就会从干涸的沙漠变成野花盛开的生机勃勃的锦绣之地。数万年来，澳大利亚原住民一直在这片土地上生活，该地区的一些地方还提供旅游服务和课程，教游客如何在内陆地区生存。这个未受破坏的地区也是野生动物的家园，袋鼠在平原上蹦蹦跳跳，鸸鹋大摇大摆地走来走去，紫冠细尾鹩莺也在翩翩起舞。如果运气好的话，你甚至还能看到兔耳袋狸（一种夜间有袋动物，长着像兔子一样的长耳）。那么，你准备好去这个地方探险了吗？
-
-昆士兰州内陆海峡地区地貌干旱，河流断断续续，形成了一系列古老的洪泛平原。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%98%86%e5%a3%ab%e5%85%b0%e5%b7%9e&form=hpcapt&filters=HpDate:"20240127_1600" "Bing Wallpaper 2024 1月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240128_ChannelOutback"&FORM=HPQUIZ "必应主页测验 2024 1月 28")
-[下载480](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_800x480.jpg&rf=LaDigue_800x480.jpg "昆士兰州内陆海峡地区，澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_1280x720.jpg&rf=LaDigue_1280x720.jpg "昆士兰州内陆海峡地区，澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "昆士兰州内陆海峡地区，澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_UHD.jpg&rf=LaDigue_UHD.jpg "昆士兰州内陆海峡地区，澳大利亚")
 
 ---
