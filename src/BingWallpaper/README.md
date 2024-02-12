@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月13日：及时行乐！
+#### 马里尼的狂欢节彩珠，新奥尔良，美国（© Erik Pronske Photography/Getty Images）
+
+![及时行乐！](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_800x480.jpg&rf=LaDigue_800x480.jpg "及时行乐！")
+
+准备好狂欢吧，因为马蒂·格拉斯狂欢节来了！这个节日也被称为“肥美星期二”或“忏悔星期二”，尽管现在许多庆祝者只是乐于把这个节日作为聚会的借口，但它最初是一个为了在斋戒之前充分享受生活的节日。世界各地的城市和国家都会举行“肥美星期二”庆祝活动，尤其是那些受到法国影响的城市和国家，法国移民会把这一习俗带到当地去。在这些地方中，新奥尔良市因其长达四至八周的大规模庆祝活动而与狂欢节结下了不解之缘。新奥尔良市每年都会举行多次狂欢节游行，庆祝活动从1月6日的三王节正式开始。当地的社交俱乐部“克鲁”会举办游行活动，并指定了时间表和路线。狂欢者们在沿途聚集，希望能抓住花车上的人扔的硬币、杯子和珠子，就像我们在图片中看到的那样。这一传统始于19世纪80年代，你准备好加入游行的队伍了吗?
+
+“Mardi Gras”这个词在法语中是“肥美星期二”的意思。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e8%92%82%c2%b7%e6%a0%bc%e6%8b%89%e6%96%af%e7%8b%82%e6%ac%a2%e8%8a%82&form=hpcapt&filters=HpDate:"20240212_1600" "Bing Wallpaper 2024 2月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240213_MarignyBeads"&FORM=HPQUIZ "必应主页测验 2024 2月 13")
+[下载480](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_800x480.jpg&rf=LaDigue_800x480.jpg "马里尼的狂欢节彩珠，新奥尔良，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1280x720.jpg&rf=LaDigue_1280x720.jpg "马里尼的狂欢节彩珠，新奥尔良，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马里尼的狂欢节彩珠，新奥尔良，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_UHD.jpg&rf=LaDigue_UHD.jpg "马里尼的狂欢节彩珠，新奥尔良，美国")
+
+---
 ### 02月12日：甜蜜的火山家园
 #### 阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔（© Tui De Roy/Minden Pictures）
 
@@ -36,7 +53,7 @@
 ### 02月10日：福起新岁，万事顺意
 #### 中国舞狮，大年初一（© SENEZ/Getty Images）
 
-![福起新岁，万事顺意](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_800x480.jpg&rf=LaDigue_800x480.jpg "福起新岁，万事顺意")
+![福起新岁，万事顺意](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN8317655574_800x480.jpg&rf=LaDigue_800x480.jpg "福起新岁，万事顺意")
 
 炮竹声中辞旧岁，烟花满天迎新春。从年初一开始便进入迎禧接福、拜祭神祖、祈求丰年主题。在春节期间，全国各地均有举行各种庆贺新春活动，带有浓郁的各地地方特色。中国民俗传统，认为舞狮可以驱邪辟鬼。故此每逢喜庆节日，都喜欢敲锣打鼓，舞狮助庆，长盛不衰，历代相传。新的一年，喜气洋洋，万事胜意！
 
@@ -44,16 +61,16 @@
 
 [Bing搜索](https://cn.bing.com/search?q=%e6%98%a5%e8%8a%82&form=hpcapt&filters=HpDate:"20240209_1600" "Bing Wallpaper 2024 2月 10")
 [必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240210_SpringFestival2024"&FORM=HPQUIZ "必应主页测验 2024 2月 10")
-[下载480](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_800x480.jpg&rf=LaDigue_800x480.jpg "中国舞狮，大年初一")
-[下载720](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_1280x720.jpg&rf=LaDigue_1280x720.jpg "中国舞狮，大年初一")
-[下载1080](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国舞狮，大年初一")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_UHD.jpg&rf=LaDigue_UHD.jpg "中国舞狮，大年初一")
+[下载480](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN8317655574_800x480.jpg&rf=LaDigue_800x480.jpg "中国舞狮，大年初一")
+[下载720](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN8317655574_1280x720.jpg&rf=LaDigue_1280x720.jpg "中国舞狮，大年初一")
+[下载1080](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN8317655574_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国舞狮，大年初一")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN8317655574_UHD.jpg&rf=LaDigue_UHD.jpg "中国舞狮，大年初一")
 
 ---
 ### 02月09日：准备好庆祝了吗？
 #### 灯光秀点亮夜幕中的西安城墙，中国春节（© Eastimages/Getty Images）
 
-![准备好庆祝了吗？](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_800x480.jpg&rf=LaDigue_800x480.jpg "准备好庆祝了吗？")
+![准备好庆祝了吗？](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN8446327159_800x480.jpg&rf=LaDigue_800x480.jpg "准备好庆祝了吗？")
 
 几乎每一年的春节，西安城墙都被装扮得光彩动人，让这座千年古都彰显着更为浓郁的传统中国春节的韵味。而西安城墙的灯会更是给人们带来了绝美的体验感。当百米长灯点亮古城，烟火气息回归，现代城市与古老城市似乎打破了时空感，在夜幕降临以后，灯光璀璨之时，同时展现在眼前。置身其间的人们，似是穿越于古今两个时代，体会着千年的沧桑与繁华。
 
@@ -61,10 +78,10 @@
 
 [Bing搜索](https://cn.bing.com/search?q=%e9%99%a4%e5%a4%95%e5%a4%9c&form=hpcapt&filters=HpDate:"20240208_1600" "Bing Wallpaper 2024 2月 9")
 [必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240209_ChineseNewYearEve2024"&FORM=HPQUIZ "必应主页测验 2024 2月 9")
-[下载480](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_800x480.jpg&rf=LaDigue_800x480.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
-[下载720](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_1280x720.jpg&rf=LaDigue_1280x720.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
-[下载1080](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
-[下载UHD](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_UHD.jpg&rf=LaDigue_UHD.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
+[下载480](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN8446327159_800x480.jpg&rf=LaDigue_800x480.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
+[下载720](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN8446327159_1280x720.jpg&rf=LaDigue_1280x720.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
+[下载1080](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN8446327159_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN8446327159_UHD.jpg&rf=LaDigue_UHD.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
 
 ---
 ### 02月08日：沉睡的巨人
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AlbaceteSpain_ZH-CN1597281896_1280x720.jpg&rf=LaDigue_1280x720.jpg "艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.AlbaceteSpain_ZH-CN1597281896_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlbaceteSpain_ZH-CN1597281896_UHD.jpg&rf=LaDigue_UHD.jpg "艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙")
-
----
-### 01月29日：缓缓下降
-#### 戈林格瀑布，泰嫩高，萨尔茨堡，奥地利（© Frank Fischbach/Alamy Stock Photo）
-
-![缓缓下降](https://cn.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_800x480.jpg&rf=LaDigue_800x480.jpg "缓缓下降")
-
-从桀骜不驯的萨尔扎霍芬峡谷到世界上最古老的哈莱因盐矿，再到世界上最大的冰洞埃斯瑞森韦尔特，奥地利拥有众多奇观。萨尔茨堡州的戈林格瀑布无疑也是其中之一，这条平缓温和的瀑布，高249英尺，包含两条大瀑布，其中一条从施瓦茨巴赫瀑布洞口倾泻而下，汇入宁静如画的水潭。在这里，一年四季都能见到极致的美景，春日绿树成荫，冬日白雪皑皑。自1985年以来，该地区就被列为奥地利的自然保护区，无论你是喜欢徒步旅行、摄影，还是想拥抱大自然，这里都是一个绝佳的旅游目的地。
-
-萨尔茨堡是著名作曲家沃尔夫冈·阿马德乌斯·莫扎特的出生地，他于1756年1月27日出生在这里。萨尔茨堡因其丰富的音乐历史成为了热门的旅游目的地。
-
-[Bing搜索](https://cn.bing.com/search?q=+%e5%a5%a5%e5%9c%b0%e5%88%a9%e8%90%a8%e5%b0%94%e8%8c%a8%e5%a0%a1%e5%b7%9e&form=hpcapt&filters=HpDate:"20240128_1600" "Bing Wallpaper 2024 1月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240129_GollingerFalls"&FORM=HPQUIZ "必应主页测验 2024 1月 29")
-[下载480](https://cn.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_800x480.jpg&rf=LaDigue_800x480.jpg "戈林格瀑布，泰嫩高，萨尔茨堡，奥地利")
-[下载720](https://cn.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_1280x720.jpg&rf=LaDigue_1280x720.jpg "戈林格瀑布，泰嫩高，萨尔茨堡，奥地利")
-[下载1080](https://cn.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "戈林格瀑布，泰嫩高，萨尔茨堡，奥地利")
-[下载UHD](https://cn.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_UHD.jpg&rf=LaDigue_UHD.jpg "戈林格瀑布，泰嫩高，萨尔茨堡，奥地利")
 
 ---
