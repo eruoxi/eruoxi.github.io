@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月14日：更好地在一起
+#### 丹顶鹤向伴侣鞠躬，北海道，日本（© Steve Bloom Images/Alamy Stock Photo）
+
+![更好地在一起](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_800x480.jpg&rf=LaDigue_800x480.jpg "更好地在一起")
+
+情人节到来之际，空气中弥漫着爱的气息！这个节日通常与各种浪漫象征联系在一起，比如丘比特，或者威廉·莎士比亚笔下著名的恋人罗密欧和朱丽叶。爱情的象征也可以在大自然中找到，比如正在日本北海道的芦苇沼泽和冰冻湖泊中嬉戏的丹顶鹤。这些优雅的鸟儿跳着迷人的求偶舞，雄鹤带头翩翩起舞，随后伴侣加入它的舞步。丹顶鹤象征着好运、长寿和忠诚，许多国家都有折千纸鹤的传统，传说折一千只纸鹤可以实现愿望。
+
+情人节在任何国家都不是公共假日。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%83%85%e4%ba%ba%e8%8a%82&form=hpcapt&filters=HpDate:"20240213_1600" "Bing Wallpaper 2024 2月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240214_BowingCrane"&FORM=HPQUIZ "必应主页测验 2024 2月 14")
+[下载480](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_800x480.jpg&rf=LaDigue_800x480.jpg "丹顶鹤向伴侣鞠躬，北海道，日本")
+[下载720](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_1280x720.jpg&rf=LaDigue_1280x720.jpg "丹顶鹤向伴侣鞠躬，北海道，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丹顶鹤向伴侣鞠躬，北海道，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_UHD.jpg&rf=LaDigue_UHD.jpg "丹顶鹤向伴侣鞠躬，北海道，日本")
+
+---
 ### 02月13日：及时行乐！
 #### 马里尼的狂欢节彩珠，新奥尔良，美国（© Erik Pronske Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ZebraMother_ZH-CN1947314869_1280x720.jpg&rf=LaDigue_1280x720.jpg "布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非")
 [下载1080](https://cn.bing.com/th?id=OHR.ZebraMother_ZH-CN1947314869_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非")
 [下载UHD](https://cn.bing.com/th?id=OHR.ZebraMother_ZH-CN1947314869_UHD.jpg&rf=LaDigue_UHD.jpg "布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非")
-
----
-### 01月30日：西班牙的小瑞士
-#### 艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙（© Juan Maria Coy Vergara/Getty Images）
-
-![西班牙的小瑞士](https://cn.bing.com/th?id=OHR.AlbaceteSpain_ZH-CN1597281896_800x480.jpg&rf=LaDigue_800x480.jpg "西班牙的小瑞士")
-
-说起西班牙，你脑海中首先浮现的可能不是雪，但从高耸入云的山峰到阳光温暖的海滩，西班牙拥有各种地貌。图片中的小村庄艾纳坐落于由蒙多河冲刷而成的陡峭山谷中，周围环绕着塞古拉山脉，人口不足1000人。冬季，这里白雪皑皑，因此人们常把这个小镇称为 “曼切根瑞士”。而这个名称中的“曼切根”则指的是艾纳所属的卡斯蒂利亚-拉曼恰自治区。艾纳距离西班牙首都马德里以南约150英里，是西班牙乡村生活的独特一瞥。
-
-由于地处两座山脉之间，艾纳也被称为“曼切根瑞士”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e9%98%bf%e5%b0%94%e7%93%a6%e5%a1%9e%e7%89%b9%e8%89%be%e7%ba%b3&form=hpcapt&filters=HpDate:"20240129_1600" "Bing Wallpaper 2024 1月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240130_AlbaceteSpain"&FORM=HPQUIZ "必应主页测验 2024 1月 30")
-[下载480](https://cn.bing.com/th?id=OHR.AlbaceteSpain_ZH-CN1597281896_800x480.jpg&rf=LaDigue_800x480.jpg "艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.AlbaceteSpain_ZH-CN1597281896_1280x720.jpg&rf=LaDigue_1280x720.jpg "艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.AlbaceteSpain_ZH-CN1597281896_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.AlbaceteSpain_ZH-CN1597281896_UHD.jpg&rf=LaDigue_UHD.jpg "艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙")
 
 ---
