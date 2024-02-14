@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月15日：河马日快乐！
+#### 河马妈妈和小河马，南卢安瓜国家公园，赞比亚（© Nature Picture Library/Alamy Stock Photo）
+
+![河马日快乐！](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_800x480.jpg&rf=LaDigue_800x480.jpg "河马日快乐！")
+
+今天，所有的目光都聚焦在河马身上！河马是仅次于大象和白犀牛的第三大陆栖哺乳动物，值得我们关注，尤其是在世界河马日这一天。这些半水生动物原产于撒哈拉以南的非洲地区，已被国际自然保护联盟列为易危物种。
+
+当今世界上只有两种河马，普通河马和侏儒河马。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b2%b3%e9%a9%ac&form=hpcapt&filters=HpDate:"20240214_1600" "Bing Wallpaper 2024 2月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240215_HippopotamusDay"&FORM=HPQUIZ "必应主页测验 2024 2月 15")
+[下载480](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_800x480.jpg&rf=LaDigue_800x480.jpg "河马妈妈和小河马，南卢安瓜国家公园，赞比亚")
+[下载720](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_1280x720.jpg&rf=LaDigue_1280x720.jpg "河马妈妈和小河马，南卢安瓜国家公园，赞比亚")
+[下载1080](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "河马妈妈和小河马，南卢安瓜国家公园，赞比亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_UHD.jpg&rf=LaDigue_UHD.jpg "河马妈妈和小河马，南卢安瓜国家公园，赞比亚")
+
+---
 ### 02月14日：更好地在一起
 #### 丹顶鹤向伴侣鞠躬，北海道，日本（© Steve Bloom Images/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HalbinselJasmund_ZH-CN2110869056_1280x720.jpg&rf=LaDigue_1280x720.jpg "吕根岛的萨斯尼茨灯塔，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.HalbinselJasmund_ZH-CN2110869056_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "吕根岛的萨斯尼茨灯塔，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HalbinselJasmund_ZH-CN2110869056_UHD.jpg&rf=LaDigue_UHD.jpg "吕根岛的萨斯尼茨灯塔，德国")
-
----
-### 01月31日：条纹造型
-#### 布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非（© Richard Du Toit/Minden Pictures）
-
-![条纹造型](https://cn.bing.com/th?id=OHR.ZebraMother_ZH-CN1947314869_800x480.jpg&rf=LaDigue_800x480.jpg "条纹造型")
-
-是时候来点“黑白思维”了。1月31日是国际斑马日，这是一个纪念这些条纹动物的日子。虽然所有斑马都有标志性的黑白条纹，但实际上现存的斑马有三种：平原斑马、山斑马和格利威斑马。今天照片上的主角是南非里特夫莱自然保护区的布氏斑马，平原斑马的亚种之一。斑马遍布非洲东部和南部，在热带稀树草原、灌木丛、林地甚至山区都能看到其身影，它们大部分时间都在吃东西，喜食草、树叶和灌木。由于平原斑马需要大量进食，因此它们会跋涉数百英里寻找食物和水。不幸的是，由于被猎杀及栖息地被破坏，斑马的生存受到了威胁。而像国际斑马日这种的活动，恰好可以提高公众对斑马所处的困境的关注度。
-
-布氏斑马是唯一可以合法饲养并供人食用的斑马亚种。该亚种的名字来自于英国探险家和博物学家威廉·约翰·伯谢尔。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e6%b0%8f%e6%96%91%e9%a9%ac&form=hpcapt&filters=HpDate:"20240130_1600" "Bing Wallpaper 2024 1月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240131_ZebraMother"&FORM=HPQUIZ "必应主页测验 2024 1月 31")
-[下载480](https://cn.bing.com/th?id=OHR.ZebraMother_ZH-CN1947314869_800x480.jpg&rf=LaDigue_800x480.jpg "布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非")
-[下载720](https://cn.bing.com/th?id=OHR.ZebraMother_ZH-CN1947314869_1280x720.jpg&rf=LaDigue_1280x720.jpg "布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非")
-[下载1080](https://cn.bing.com/th?id=OHR.ZebraMother_ZH-CN1947314869_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非")
-[下载UHD](https://cn.bing.com/th?id=OHR.ZebraMother_ZH-CN1947314869_UHD.jpg&rf=LaDigue_UHD.jpg "布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非")
 
 ---
