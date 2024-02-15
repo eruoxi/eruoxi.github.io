@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月16日：让每只鸟都有价值
+#### 一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国（© outtakes/Getty Images）
+
+![让每只鸟都有价值](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_800x480.jpg&rf=LaDigue_800x480.jpg "让每只鸟都有价值")
+
+在接下来的四天里，世界各地的观鸟者将参加一年一度的特别活动：大后院鸟类计数。在计数期间，鸟类爱好者会对他们看到的鸟类进行计数，并输入清单报告其发现。这些数据通过提供有关鸟类数量和栖息地如何随时间变化的信息，帮助科学家了解和保护鸟类。
+
+灰额主红雀对棉田有益，因为它可以吃掉大量的棉虫和象鼻虫。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%81%b0%e9%a2%9d%e4%b8%bb%e7%ba%a2%e9%9b%80&form=hpcapt&filters=HpDate:"20240215_1600" "Bing Wallpaper 2024 2月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240216_BackyardBird"&FORM=HPQUIZ "必应主页测验 2024 2月 16")
+[下载480](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_800x480.jpg&rf=LaDigue_800x480.jpg "一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_UHD.jpg&rf=LaDigue_UHD.jpg "一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国")
+
+---
 ### 02月15日：河马日快乐！
 #### 河马妈妈和小河马，南卢安瓜国家公园，赞比亚（© Nature Picture Library/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AlpineMarmot_ZH-CN3818584615_1280x720.jpg&rf=LaDigue_1280x720.jpg "从洞穴中探出头的土拨鼠")
 [下载1080](https://cn.bing.com/th?id=OHR.AlpineMarmot_ZH-CN3818584615_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从洞穴中探出头的土拨鼠")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlpineMarmot_ZH-CN3818584615_UHD.jpg&rf=LaDigue_UHD.jpg "从洞穴中探出头的土拨鼠")
-
----
-### 02月01日：发光的雪塔
-#### 吕根岛的萨斯尼茨灯塔，德国（© Christian Back/eStock）
-
-![发光的雪塔](https://cn.bing.com/th?id=OHR.HalbinselJasmund_ZH-CN2110869056_800x480.jpg&rf=LaDigue_800x480.jpg "发光的雪塔")
-
-吕根岛是德国最大的岛屿，当如诗如画的景色被皑皑白雪覆盖时，这里就会变成一个冬日仙境。如果您想远离城市的喧嚣，吕根岛是理想的度假胜地。过去，许多艺术家都曾来到这里尽情挥洒他们的创造力，巍峨的白垩悬崖就曾激发了历史上著名的德国画家卡斯帕·大卫·弗里德里希的创作灵感。
-
-吕根岛的主要产业曾经是鲱鱼捕捞，如今其重要性已经下降。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%90%95%e6%a0%b9%e5%b2%9b&form=hpcapt&filters=HpDate:"20240131_1600" "Bing Wallpaper 2024 2月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240201_HalbinselJasmund"&FORM=HPQUIZ "必应主页测验 2024 2月 1")
-[下载480](https://cn.bing.com/th?id=OHR.HalbinselJasmund_ZH-CN2110869056_800x480.jpg&rf=LaDigue_800x480.jpg "吕根岛的萨斯尼茨灯塔，德国")
-[下载720](https://cn.bing.com/th?id=OHR.HalbinselJasmund_ZH-CN2110869056_1280x720.jpg&rf=LaDigue_1280x720.jpg "吕根岛的萨斯尼茨灯塔，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.HalbinselJasmund_ZH-CN2110869056_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "吕根岛的萨斯尼茨灯塔，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.HalbinselJasmund_ZH-CN2110869056_UHD.jpg&rf=LaDigue_UHD.jpg "吕根岛的萨斯尼茨灯塔，德国")
 
 ---
