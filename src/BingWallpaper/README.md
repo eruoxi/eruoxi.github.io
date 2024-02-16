@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月17日：自然奇景
+#### 多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利（© Marco Bottigelli/Getty Images）
+
+![自然奇景](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_800x480.jpg&rf=LaDigue_800x480.jpg "自然奇景")
+
+普拉格斯湖坐落在雄伟的多洛米蒂山脉中，是阿尔卑斯山的一颗明珠，也被称为布莱耶斯湖。湖水清澈见底，倒映着多洛米蒂山壮丽伟岸的白云岩，四周环绕着郁郁葱葱的森林。湖边有一条风景优美的小径，在气候温和的时节吸引着众多游客前来远足和散步。夏季，这里是乘船休闲的好去处；冬季，湖光山色成了一幅浓郁的瑰画散发着魅力。普拉格斯湖把自然美景、历史与文化完美融合，矗立一旁的圣维特小教堂见证了它的过去。这个“拥有世上最美的高山景观”的迷人地方将为你带来难忘的体验。
+
+湖水清澈碧绿，闻名遐迩。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e8%8e%b1%e8%80%b6%e6%96%af%e6%b9%96&form=hpcapt&filters=HpDate:"20240216_1600" "Bing Wallpaper 2024 2月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240217_LakeDolomites"&FORM=HPQUIZ "必应主页测验 2024 2月 17")
+[下载480](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_800x480.jpg&rf=LaDigue_800x480.jpg "多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_1280x720.jpg&rf=LaDigue_1280x720.jpg "多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg&rf=LaDigue_UHD.jpg "多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利")
+
+---
 ### 02月16日：让每只鸟都有价值
 #### 一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国（© outtakes/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_1280x720.jpg&rf=LaDigue_1280x720.jpg "大运河与安康圣母大教堂，威尼斯，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大运河与安康圣母大教堂，威尼斯，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_UHD.jpg&rf=LaDigue_UHD.jpg "大运河与安康圣母大教堂，威尼斯，意大利")
-
----
-### 02月02日：菲尔会看到它的影子吗?
-#### 从洞穴中探出头的土拨鼠（© Scacciamosche/Getty Images）
-
-![菲尔会看到它的影子吗?](https://cn.bing.com/th?id=OHR.AlpineMarmot_ZH-CN3818584615_800x480.jpg&rf=LaDigue_800x480.jpg "菲尔会看到它的影子吗?")
-
-想知道今年冬天会持续多久吗？迷信的人可以从土拨鼠日的预报中得到启示，也就是根据土拨鼠是否能看到自己的影子来判断。2月2日，宾夕法尼亚州的普苏塔尼是“核心圈子俱乐部”的舞台，该俱乐部由一群当地政要组成，他们按照传统将一只名叫“普苏塔尼菲尔”的土拨鼠从一个人造树桩中抱出来。然后，俱乐部主席会与这只矮胖的土拨鼠进行交谈，了解菲尔的占卜结果。结果是什么？看到影子表明冬季还会持续六周；如果没看到，那么春天就会提早来临。预测完成后，戴礼帽的人就会向观众宣读，而观众则会为菲尔欢呼。菲尔的亲戚，也就是今天图片里的阿尔卑斯旱獭，它也有自己的过冬传统，那就是储备食物，为漫长的冬眠做准备。但愿菲尔不会看到自己的影子，这样我们就可以走出寒冬的阴影了。
-
-土拨鼠日最早是由德国移民于1887年在美国设立的，其灵感来自欧洲的烛光节。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%9f%e6%8b%a8%e9%bc%a0%e6%97%a5&form=hpcapt&filters=HpDate:"20240201_1600" "Bing Wallpaper 2024 2月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240202_AlpineMarmot"&FORM=HPQUIZ "必应主页测验 2024 2月 2")
-[下载480](https://cn.bing.com/th?id=OHR.AlpineMarmot_ZH-CN3818584615_800x480.jpg&rf=LaDigue_800x480.jpg "从洞穴中探出头的土拨鼠")
-[下载720](https://cn.bing.com/th?id=OHR.AlpineMarmot_ZH-CN3818584615_1280x720.jpg&rf=LaDigue_1280x720.jpg "从洞穴中探出头的土拨鼠")
-[下载1080](https://cn.bing.com/th?id=OHR.AlpineMarmot_ZH-CN3818584615_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从洞穴中探出头的土拨鼠")
-[下载UHD](https://cn.bing.com/th?id=OHR.AlpineMarmot_ZH-CN3818584615_UHD.jpg&rf=LaDigue_UHD.jpg "从洞穴中探出头的土拨鼠")
 
 ---
