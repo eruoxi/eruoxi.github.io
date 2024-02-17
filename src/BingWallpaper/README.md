@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月18日：来一口新鲜空气
+#### 抹香鲸浮出水面，多米尼克（© Franco Banfi/Minden Pictures）
+
+![来一口新鲜空气](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_800x480.jpg&rf=LaDigue_800x480.jpg "来一口新鲜空气")
+
+嗨，海中的巨人们！世界鲸鱼日与加勒比海多米尼克岛沿岸的抹香鲸一起再次浮出水面。这个节日于1980年在毛伊岛设立，最初是为了庆祝夏威夷水域的座头鲸，现在已经演变成一个倡导保护所有鲸鱼物种的全球性活动。
+
+嗨，海中的巨人们！世界鲸鱼日与加勒比海多米尼克岛沿岸的抹香鲸一起再次浮出水面。这个节日于1980年在毛伊岛设立，最初是为了庆祝夏威夷水域的座头鲸，现在已经演变成一个倡导保护所有鲸鱼物种的全球性活动。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%8a%b9%e9%a6%99%e9%b2%b8&form=hpcapt&filters=HpDate:"20240217_1600" "Bing Wallpaper 2024 2月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240218_DominicaWhales"&FORM=HPQUIZ "必应主页测验 2024 2月 18")
+[下载480](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_800x480.jpg&rf=LaDigue_800x480.jpg "抹香鲸浮出水面，多米尼克")
+[下载720](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_1280x720.jpg&rf=LaDigue_1280x720.jpg "抹香鲸浮出水面，多米尼克")
+[下载1080](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "抹香鲸浮出水面，多米尼克")
+[下载UHD](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_UHD.jpg&rf=LaDigue_UHD.jpg "抹香鲸浮出水面，多米尼克")
+
+---
 ### 02月17日：自然奇景
 #### 多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利（© Marco Bottigelli/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_1280x720.jpg&rf=LaDigue_1280x720.jpg "德弗塔什卡洞, Devetaki村庄，保加利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "德弗塔什卡洞, Devetaki村庄，保加利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_UHD.jpg&rf=LaDigue_UHD.jpg "德弗塔什卡洞, Devetaki村庄，保加利亚")
-
----
-### 02月03日：伪装的日子
-#### 大运河与安康圣母大教堂，威尼斯，意大利（© Rudy Balasko/Getty Images）
-
-![伪装的日子](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_800x480.jpg&rf=LaDigue_800x480.jpg "伪装的日子")
-
-戴上精美的面具，穿上华丽的服饰，隐入威尼斯狂欢节的无边人群去狂欢吧！这是一个拥有数百年历史的节日，充满了神秘和美丽。这个一年一度的冬季庆典将狂欢与匿名结合在一起，这要归功于面具，而且这些面具通常会遵循特定的人物原型。在节日期间，成千上万的人身着仿17世纪威尼斯传统服饰的精美华服走上街头。狂欢节期间，游行派对活动层出不穷，还有音乐会和街头表演，这些活动一直持续到今年2月13日的“忏悔星期二”。在街上狂欢时，你可能会路过圣玛丽亚德拉安康教堂，在今天图片展示的远处可以看到，这是一座巴洛克式的大教堂，供奉的是圣母玛利亚——威尼斯共和国的保护神。
-
-在威尼斯，狂欢节期间禁止工作，每个人都应该玩得开心。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%bc%e6%96%af%e7%8b%82%e6%ac%a2%e8%8a%82&form=hpcapt&filters=HpDate:"20240202_1600" "Bing Wallpaper 2024 2月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240203_VeniceCarnival"&FORM=HPQUIZ "必应主页测验 2024 2月 3")
-[下载480](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_800x480.jpg&rf=LaDigue_800x480.jpg "大运河与安康圣母大教堂，威尼斯，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_1280x720.jpg&rf=LaDigue_1280x720.jpg "大运河与安康圣母大教堂，威尼斯，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大运河与安康圣母大教堂，威尼斯，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_UHD.jpg&rf=LaDigue_UHD.jpg "大运河与安康圣母大教堂，威尼斯，意大利")
 
 ---
