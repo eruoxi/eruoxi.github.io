@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月19日：一年四季都有鲜艳的色彩!
+#### 鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙（© Marco Bottigelli/Getty Images）
+
+![一年四季都有鲜艳的色彩!](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_800x480.jpg&rf=LaDigue_800x480.jpg "一年四季都有鲜艳的色彩!")
+
+这些色彩斑斓的街道之间发生了什么？想象下有这样一个地方，大西洋轻抚着色彩斑斓的海岸，泰德峰从3715米的高度俯瞰着它。这个地方就是特内里费岛，西班牙加那利群岛上一个风景秀美四季如春的天堂。但当二月来临时，这座岛屿就会焕然一新：这是独属于圣克鲁斯-德特内里费的狂欢节时间，其视觉效果和节日盛况可与著名的巴西里约热内卢狂欢节相媲美，也被认为是世界上第二热门和知名的狂欢节。
+
+克鲁斯港最初是为附近富裕的拉奥罗塔瓦镇所开发的港口，在那里它向外出口糖和葡萄酒等产品。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%85%8b%e9%b2%81%e6%96%af%e6%b8%af&form=hpcapt&filters=HpDate:"20240218_1600" "Bing Wallpaper 2024 2月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240219_CarnavalTenerife"&FORM=HPQUIZ "必应主页测验 2024 2月 19")
+[下载480](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_800x480.jpg&rf=LaDigue_800x480.jpg "鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_1280x720.jpg&rf=LaDigue_1280x720.jpg "鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_UHD.jpg&rf=LaDigue_UHD.jpg "鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙")
+
+---
 ### 02月18日：来一口新鲜空气
 #### 抹香鲸浮出水面，多米尼克（© Franco Banfi/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_1280x720.jpg&rf=LaDigue_1280x720.jpg "从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_UHD.jpg&rf=LaDigue_UHD.jpg "从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚")
-
----
-### 02月04日：雄伟的天然穹顶
-#### 德弗塔什卡洞, Devetaki村庄，保加利亚（© Jasmine_K/Shutterstock）
-
-![雄伟的天然穹顶](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_800x480.jpg&rf=LaDigue_800x480.jpg "雄伟的天然穹顶")
-
-走进德弗塔什卡洞穴深处，在保加利亚自然奇观中穿越时空。不过，这次探险有一个条件：你不能害怕蝙蝠！大约有3万只这种会飞的哺乳动物在此栖息。这个岩溶洞穴是碳酸盐岩被水溶解后形成的，现在属于公园的一部分。德弗塔什卡洞穴中的人类活动可以追溯到公元前7万年左右的早期石器时代，另外这里还发现了公元前6000—4000年的新石器时代手工艺品。洞中的几个大开口将自然光引入洞室，为摄影师和自然爱好者提供了更好的照明效果。
-
-德弗塔什卡洞的洞顶有几个大洞，被人们称为“上帝之眼”。阳光可以穿过洞顶和洞壁上的孔洞照亮洞穴内部，因此我们可以在这里拍到非常有趣的照片，比如晚上月光穿过“眼睛”的照片。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bf%9d%e5%8a%a0%e5%88%a9%e4%ba%9a%e5%be%b7%e5%bc%97%e5%a1%94%e4%bb%80%e5%8d%a1%e6%b4%9e&form=hpcapt&filters=HpDate:"20240203_1600" "Bing Wallpaper 2024 2月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240204_DevetashkaCave"&FORM=HPQUIZ "必应主页测验 2024 2月 4")
-[下载480](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_800x480.jpg&rf=LaDigue_800x480.jpg "德弗塔什卡洞, Devetaki村庄，保加利亚")
-[下载720](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_1280x720.jpg&rf=LaDigue_1280x720.jpg "德弗塔什卡洞, Devetaki村庄，保加利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "德弗塔什卡洞, Devetaki村庄，保加利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_UHD.jpg&rf=LaDigue_UHD.jpg "德弗塔什卡洞, Devetaki村庄，保加利亚")
 
 ---
