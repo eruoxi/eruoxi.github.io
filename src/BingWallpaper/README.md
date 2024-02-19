@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月20日：一个供市民休闲娱乐的公园
+#### Kinder Scout，峰区国家公园，英国（© john finney photography/Getty Images）
+
+![一个供市民休闲娱乐的公园](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_800x480.jpg&rf=LaDigue_800x480.jpg "一个供市民休闲娱乐的公园")
+
+在英国峰区国家公园那片广阔的土地上，坐落着金德·斯科特自然保护区，它是英国历史上一次重要的人民运动的发生地。金德·斯科特海拔约2087英尺，是峰区的最高点，崎岖的荒野和狂风呼啸的高原吸引着世世代代的冒险家和自然爱好者前来探险。1932年，这里发生了历史性的大规模非法闯入事件，数百名民众徒步抗议要求公众可以自由进入这片领域，这一公民抗命运动促使了英国国家公园立法的通过。峰区国家公园的建立使得这里的丘陵和山谷得到保护，成为生态资源，供后人享受，同时也标志着对大众通行权以及自然资源的保护工作取得了重大胜利。
+
+金德·斯科特在BBC电视节目《七大自然奇观》（2005年）中被列为中部奇观之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b3%b0%e5%8c%ba%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240219_1600" "Bing Wallpaper 2024 2月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240220_PeakDistrictNP"&FORM=HPQUIZ "必应主页测验 2024 2月 20")
+[下载480](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_800x480.jpg&rf=LaDigue_800x480.jpg "Kinder Scout，峰区国家公园，英国")
+[下载720](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_1280x720.jpg&rf=LaDigue_1280x720.jpg "Kinder Scout，峰区国家公园，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Kinder Scout，峰区国家公园，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_UHD.jpg&rf=LaDigue_UHD.jpg "Kinder Scout，峰区国家公园，英国")
+
+---
 ### 02月19日：一年四季都有鲜艳的色彩!
 #### 鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙（© Marco Bottigelli/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_1280x720.jpg&rf=LaDigue_1280x720.jpg "盆景岩，太浩湖，内华达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盆景岩，太浩湖，内华达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_UHD.jpg&rf=LaDigue_UHD.jpg "盆景岩，太浩湖，内华达州，美国")
-
----
-### 02月05日：唤醒沉睡的湖泊
-#### 从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚（© Rasica/Getty Images）
-
-![唤醒沉睡的湖泊](https://cn.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_800x480.jpg&rf=LaDigue_800x480.jpg "唤醒沉睡的湖泊")
-
-布莱德湖邀请您走进童话般的风景中！这个占地358英亩的美丽湖泊，就坐落在斯洛文尼亚朱利安阿尔卑斯山脉之中。这里的主角是一个散发着传奇与浪漫魅力的小岛——布莱德岛。让我们跳上当地传统的普莱特纳船，前往岛上的圣地。这种平底船是布莱德岛独有的，只有23艘，由技术娴熟的浆手驾驶着它们在湖上航行，而浆手这个职业自1740年以来就在当地世代相传。岛上还有一座17世纪的圣母升天教堂，里面有一口特别的钟，传说这口钟可以让人愿望成真！如果您向岸边望去，就能看见俯瞰着广阔湖面的布莱德城堡。它坐落在湖西北岸的布莱德镇上方的悬崖上，是斯洛文尼亚最古老的城堡之一。
-
-2016年，斯洛文尼亚政府将一种被当地人称为布莱德奶油蛋糕的特色美食指定为原产地域保护食品。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e8%8e%b1%e5%be%b7%e6%b9%96&form=hpcapt&filters=HpDate:"20240204_1600" "Bing Wallpaper 2024 2月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240205_LakeBledSunrise"&FORM=HPQUIZ "必应主页测验 2024 2月 5")
-[下载480](https://cn.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_800x480.jpg&rf=LaDigue_800x480.jpg "从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_1280x720.jpg&rf=LaDigue_1280x720.jpg "从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_UHD.jpg&rf=LaDigue_UHD.jpg "从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚")
 
 ---
