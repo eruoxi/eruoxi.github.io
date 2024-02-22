@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月23日：老鹰起舞的地方
+#### Haghartsin修道院，迪利扬国家公园，亚美尼亚（© Alexey Kharitonov/Shutterstock）
+
+![老鹰起舞的地方](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_800x480.jpg&rf=LaDigue_800x480.jpg "老鹰起舞的地方")
+
+Haghartsin 修道院隐藏在亚美尼亚北部的森林之中，被迪利扬国家公园郁郁葱葱的风景所环绕，是亚美尼亚中世纪建筑的瑰宝。修道院的建筑群由几座华丽的建筑组成，包括圣母教堂、圣格雷戈里教堂和圣斯特帕诺斯教堂。这些建筑的历史可以追溯到10世纪，上面装饰着精雕细琢的石碑、十字拱门以及其他装饰物，展现了那个时代的精湛工艺。修道院的名字“Haghartsin”的意思是“鹰之舞”，它为那些想要感受亚美尼亚悠久历史的人提供了一个宁静的去处。当你漫步在幽静的庭院中，探索周围的森林时，一种永恒的感觉油然而生。
+
+据说在修道院主楼的落成典礼上，一只雄鹰在修道院的穹顶上方翱翔，因此该修道院被称为 Haghartsin 修道院。（“Hagh”在亚美尼亚语中是游戏的意思，而“Artsin”是 “Artsiv”的一种词形，在亚美尼亚语中是鹰的意思，因此修道院的名字“Haghartsin”可以被翻译为“鹰之舞”。）
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%bf%aa%e5%88%a9%e6%89%ac%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240222_1600" "Bing Wallpaper 2024 2月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240223_HaghartsinMonastery"&FORM=HPQUIZ "必应主页测验 2024 2月 23")
+[下载480](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_800x480.jpg&rf=LaDigue_800x480.jpg "Haghartsin修道院，迪利扬国家公园，亚美尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_1280x720.jpg&rf=LaDigue_1280x720.jpg "Haghartsin修道院，迪利扬国家公园，亚美尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Haghartsin修道院，迪利扬国家公园，亚美尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_UHD.jpg&rf=LaDigue_UHD.jpg "Haghartsin修道院，迪利扬国家公园，亚美尼亚")
+
+---
 ### 02月22日：名副其实的“调色板盒子”
 #### 布莱顿海滩的彩虹小屋，墨尔本，维多利亚州，澳大利亚（© Prasit photo/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN8446327159_1280x720.jpg&rf=LaDigue_1280x720.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
 [下载1080](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN8446327159_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN8446327159_UHD.jpg&rf=LaDigue_UHD.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
-
----
-### 02月08日：沉睡的巨人
-#### 胡德山，俄勒冈州，美国（© Inigo Cia/Getty Images）
-
-![沉睡的巨人](https://cn.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_800x480.jpg&rf=LaDigue_800x480.jpg "沉睡的巨人")
-
-胡德山以其白雪皑皑的山尖装点着俄勒冈州的天际线。这座高约11,250英尺的休眠火山是俄勒冈州最高的山，吸引着众多冒险者和自然爱好者前来探险。这里有12座已被命名的冰川以及众多雪原，全年都是“冰雪乐园”。除了有冰雪之美，胡德山还拥有多种多样的生态系统，并孕育了古老的森林，是美洲狮和狼等野生动物的天堂。在过去的1800年里，这座火山喷发过3次。地质学家称，这座火山目前主要处于休眠状态，但仍有可能在将来的某一天再次喷发。
-
-一个多世纪以来，“怀伊斯特”这个名字一直与胡德山联系在一起，然而在各大原住民语言中，没有任何证据表明“怀伊斯特”是这座山的真名。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%83%a1%e5%be%b7%e5%b1%b1&form=hpcapt&filters=HpDate:"20240207_1600" "Bing Wallpaper 2024 2月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240208_MtHoodOregon"&FORM=HPQUIZ "必应主页测验 2024 2月 8")
-[下载480](https://cn.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_800x480.jpg&rf=LaDigue_800x480.jpg "胡德山，俄勒冈州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_1280x720.jpg&rf=LaDigue_1280x720.jpg "胡德山，俄勒冈州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "胡德山，俄勒冈州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_UHD.jpg&rf=LaDigue_UHD.jpg "胡德山，俄勒冈州，美国")
 
 ---
