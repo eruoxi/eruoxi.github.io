@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月24日：点亮一盏明灯，愿您万事顺意！
+#### 锦里街上悬挂的红色中国灯笼，成都，中国四川省（© Philippe LEJEANVRE/Getty images）
+
+![点亮一盏明灯，愿您万事顺意！](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_800x480.jpg&rf=LaDigue_800x480.jpg "点亮一盏明灯，愿您万事顺意！")
+
+正月是农历的元月，古人称“夜”为“宵”，正月十五是一年中第一个月圆之夜，所以称正月十五为“元宵节”。元宵节习俗自古以来就以热烈喜庆的观灯习俗为主。
+
+锦里曾是西蜀历史上较为古老、较具有商业气息的街道之一，早在秦汉、三国时期便闻名中国。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%85%83%e5%ae%b5%e8%8a%82&form=hpcapt&filters=HpDate:"20240223_1600" "Bing Wallpaper 2024 2月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240224_LaternFestival2024"&FORM=HPQUIZ "必应主页测验 2024 2月 24")
+[下载480](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_800x480.jpg&rf=LaDigue_800x480.jpg "锦里街上悬挂的红色中国灯笼，成都，中国四川省")
+[下载720](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_1280x720.jpg&rf=LaDigue_1280x720.jpg "锦里街上悬挂的红色中国灯笼，成都，中国四川省")
+[下载1080](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "锦里街上悬挂的红色中国灯笼，成都，中国四川省")
+[下载UHD](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_UHD.jpg&rf=LaDigue_UHD.jpg "锦里街上悬挂的红色中国灯笼，成都，中国四川省")
+
+---
 ### 02月23日：老鹰起舞的地方
 #### Haghartsin修道院，迪利扬国家公园，亚美尼亚（© Alexey Kharitonov/Shutterstock）
 
@@ -235,22 +252,5 @@ Haghartsin 修道院隐藏在亚美尼亚北部的森林之中，被迪利扬国
 [下载720](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN8317655574_1280x720.jpg&rf=LaDigue_1280x720.jpg "中国舞狮，大年初一")
 [下载1080](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN8317655574_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国舞狮，大年初一")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN8317655574_UHD.jpg&rf=LaDigue_UHD.jpg "中国舞狮，大年初一")
-
----
-### 02月09日：准备好庆祝了吗？
-#### 灯光秀点亮夜幕中的西安城墙，中国春节（© Eastimages/Getty Images）
-
-![准备好庆祝了吗？](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN8446327159_800x480.jpg&rf=LaDigue_800x480.jpg "准备好庆祝了吗？")
-
-几乎每一年的春节，西安城墙都被装扮得光彩动人，让这座千年古都彰显着更为浓郁的传统中国春节的韵味。而西安城墙的灯会更是给人们带来了绝美的体验感。当百米长灯点亮古城，烟火气息回归，现代城市与古老城市似乎打破了时空感，在夜幕降临以后，灯光璀璨之时，同时展现在眼前。置身其间的人们，似是穿越于古今两个时代，体会着千年的沧桑与繁华。
-
-西安城墙是中国现存规模最大、保存最完整的古代城垣。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%99%a4%e5%a4%95%e5%a4%9c&form=hpcapt&filters=HpDate:"20240208_1600" "Bing Wallpaper 2024 2月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240209_ChineseNewYearEve2024"&FORM=HPQUIZ "必应主页测验 2024 2月 9")
-[下载480](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN8446327159_800x480.jpg&rf=LaDigue_800x480.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
-[下载720](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN8446327159_1280x720.jpg&rf=LaDigue_1280x720.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
-[下载1080](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN8446327159_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
-[下载UHD](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN8446327159_UHD.jpg&rf=LaDigue_UHD.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
 
 ---
