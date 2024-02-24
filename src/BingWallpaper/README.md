@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月25日：薄雾笼罩
+#### 考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省（© Kevin Oke/Alamy）
+
+![薄雾笼罩](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_800x480.jpg&rf=LaDigue_800x480.jpg "薄雾笼罩")
+
+欢迎来到加拿大不列颠哥伦比亚省温哥华岛的考伊琴山谷。该山谷位于温哥华岛南部，其艺术和历史在普雷沃斯特山等郁郁青山中回荡。作为不列颠哥伦比亚省最大的原住民部落考伊琴部落的政府所在地，邓肯市拥有令人咋舌的原住民艺术收藏品，其中就包括了复杂的雕刻和绘画作品。在这里，您一定要参观图腾柱收藏馆，这些高耸的图腾柱是原住民历史的象征，描绘了原住民祖先的传说和部族的族徽。
+
+邓肯被誉为“图腾之城”，这里有几十根图腾柱，主要分布在市中心和公路沿线。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%80%83%e4%bc%8a%e7%90%b4%e5%b1%b1%e8%b0%b7&form=hpcapt&filters=HpDate:"20240224_1600" "Bing Wallpaper 2024 2月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240225_MtPrevostDuncan"&FORM=HPQUIZ "必应主页测验 2024 2月 25")
+[下载480](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_800x480.jpg&rf=LaDigue_800x480.jpg "考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省")
+[下载720](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_1280x720.jpg&rf=LaDigue_1280x720.jpg "考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省")
+[下载1080](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省")
+[下载UHD](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_UHD.jpg&rf=LaDigue_UHD.jpg "考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省")
+
+---
 ### 02月24日：点亮一盏明灯，愿您万事顺意！
 #### 锦里街上悬挂的红色中国灯笼，成都，中国四川省（© Philippe LEJEANVRE/Getty images）
 
@@ -235,22 +252,5 @@ Haghartsin 修道院隐藏在亚美尼亚北部的森林之中，被迪利扬国
 [下载720](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_1280x720.jpg&rf=LaDigue_1280x720.jpg "乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_UHD.jpg&rf=LaDigue_UHD.jpg "乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊")
-
----
-### 02月10日：福起新岁，万事顺意
-#### 中国舞狮，大年初一（© SENEZ/Getty Images）
-
-![福起新岁，万事顺意](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN8317655574_800x480.jpg&rf=LaDigue_800x480.jpg "福起新岁，万事顺意")
-
-炮竹声中辞旧岁，烟花满天迎新春。从年初一开始便进入迎禧接福、拜祭神祖、祈求丰年主题。在春节期间，全国各地均有举行各种庆贺新春活动，带有浓郁的各地地方特色。中国民俗传统，认为舞狮可以驱邪辟鬼。故此每逢喜庆节日，都喜欢敲锣打鼓，舞狮助庆，长盛不衰，历代相传。新的一年，喜气洋洋，万事胜意！
-
-舞狮，是中国优秀的民间艺术，古时又称为“太平乐”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%98%a5%e8%8a%82&form=hpcapt&filters=HpDate:"20240209_1600" "Bing Wallpaper 2024 2月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240210_SpringFestival2024"&FORM=HPQUIZ "必应主页测验 2024 2月 10")
-[下载480](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN8317655574_800x480.jpg&rf=LaDigue_800x480.jpg "中国舞狮，大年初一")
-[下载720](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN8317655574_1280x720.jpg&rf=LaDigue_1280x720.jpg "中国舞狮，大年初一")
-[下载1080](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN8317655574_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国舞狮，大年初一")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN8317655574_UHD.jpg&rf=LaDigue_UHD.jpg "中国舞狮，大年初一")
 
 ---
