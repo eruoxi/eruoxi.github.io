@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月26日：深不见底的鸿沟
+#### 大峡谷国家公园，亚利桑那州，美国（© Jeremy Janus/Getty Images）
+
+![深不见底的鸿沟](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_800x480.jpg&rf=LaDigue_800x480.jpg "深不见底的鸿沟")
+
+祝大峡谷国家公园生日快乐！今天是由亚利桑那州科罗拉多河雕刻而成的著名峡谷的一个里程碑：自伍德罗·威尔逊总统于1919年将其指定为国家公园以来，已经过去了105年。大峡谷是由河流、风和山体滑坡形成的独特景观，它的起源可以追溯到500万到600万年前。大峡谷承载着印第安人、欧美拓荒者和旅行者的故事，还有陡峭的山谷和五颜六色的岩层等地质奇观。所有的这些区域都由国家公园管理局监管。除了在科罗拉多河上巡游、参加时光之路徒步旅行或登上沙漠景观瞭望塔等旅游冒险活动以外，该公园还是联合国教科文组织指定的世界遗产和注册在案的国际黑暗天空公园，你可以在这里观赏到清澈的星空。
+
+大峡谷国家公园于1979年被联合国教科文组织指定为世界遗产。2019年2月26日，该公园迎来了建园100周年纪念日。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e5%b3%a1%e8%b0%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240225_1600" "Bing Wallpaper 2024 2月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240226_GrandCanyonWinter"&FORM=HPQUIZ "必应主页测验 2024 2月 26")
+[下载480](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_800x480.jpg&rf=LaDigue_800x480.jpg "大峡谷国家公园，亚利桑那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_1280x720.jpg&rf=LaDigue_1280x720.jpg "大峡谷国家公园，亚利桑那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大峡谷国家公园，亚利桑那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_UHD.jpg&rf=LaDigue_UHD.jpg "大峡谷国家公园，亚利桑那州，美国")
+
+---
 ### 02月25日：薄雾笼罩
 #### 考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省（© Kevin Oke/Alamy）
 
@@ -235,22 +252,5 @@ Haghartsin 修道院隐藏在亚美尼亚北部的森林之中，被迪利扬国
 [下载720](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔")
-
----
-### 02月11日：地球上的极乐世界
-#### 乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊（© Francesco Riccardo Iacomino/Getty Images）
-
-![地球上的极乐世界](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_800x480.jpg&rf=LaDigue_800x480.jpg "地球上的极乐世界")
-
-你想过去探索一个有着神秘过往的希腊岛屿吗？欢迎来到福莱甘兹罗斯！福莱甘兹罗斯岛是希腊岛屿中的瑰宝，位于基克拉迪群岛南部，毗邻锡基诺斯岛、伊奥斯岛、阿纳菲岛和圣托里尼岛。虽然人们对该岛的古代历史知之甚少，但据说这里最早的居民是古典希腊四大民族之一的多利安人。后来该岛又被雅典统治，在此期间，岛上曾有过一个城邦，名为福莱甘兹罗斯。这个城邦就位于今天图中展示的首府乔拉的位置。乔拉坐落在656英尺高的悬崖边上，从这里可以鸟瞰周围的美丽景色。这座由威尼斯人于1212年建造的小镇有着迷人的广场和传统的白色教堂，如今已是一个颇受欢迎的旅游胜地。
-
-在霍拉山顶，一条醒目的白色小路蜿蜒曲折地穿过山脉，通往福莱甘兹罗斯的一个特殊地标—帕纳基亚·卡普尼卡雷亚教堂。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%8c%e8%85%8a%e7%a6%8f%e8%8e%b1%e7%94%98%e5%85%b9%e7%bd%97%e6%96%af%e5%b2%9b&form=hpcapt&filters=HpDate:"20240210_1600" "Bing Wallpaper 2024 2月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240211_FolegandrosGreece"&FORM=HPQUIZ "必应主页测验 2024 2月 11")
-[下载480](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_800x480.jpg&rf=LaDigue_800x480.jpg "乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊")
-[下载720](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_1280x720.jpg&rf=LaDigue_1280x720.jpg "乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊")
-[下载1080](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊")
-[下载UHD](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_UHD.jpg&rf=LaDigue_UHD.jpg "乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊")
 
 ---
