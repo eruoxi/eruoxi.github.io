@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月27日：在冰天雪地里玩耍
+#### 玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国（© Piriya Photography/Getty Images）
+
+![在冰天雪地里玩耍](https://cn.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_800x480.jpg&rf=LaDigue_800x480.jpg "在冰天雪地里玩耍")
+
+今天是国际北极熊日，我们在欣赏这些“冰雪萌主”之际，也呼吁大家关注世界上最大的熊类所面临的挑战。国际北极熊日是由国际北极熊组织设立的，该组织致力于保护这些哺乳动物及其栖息地。选择这个日期是为了配合北极熊幼崽在洞穴中受到母亲保护的时间，因为这是北极熊一生中最脆弱的时期。
+
+北极熊是当今最大的陆地食肉哺乳动物，另一种几乎和北极熊一样大的熊是它的近亲科迪亚克棕熊。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%9e%81%e7%86%8a&form=hpcapt&filters=HpDate:"20240226_1600" "Bing Wallpaper 2024 2月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240227_PolarBearCubs"&FORM=HPQUIZ "必应主页测验 2024 2月 27")
+[下载480](https://cn.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_800x480.jpg&rf=LaDigue_800x480.jpg "玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_1280x720.jpg&rf=LaDigue_1280x720.jpg "玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_UHD.jpg&rf=LaDigue_UHD.jpg "玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国")
+
+---
 ### 02月26日：深不见底的鸿沟
 #### 大峡谷国家公园，亚利桑那州，美国（© Jeremy Janus/Getty Images）
 
@@ -235,22 +252,5 @@ Haghartsin 修道院隐藏在亚美尼亚北部的森林之中，被迪利扬国
 [下载720](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1280x720.jpg&rf=LaDigue_1280x720.jpg "马里尼的狂欢节彩珠，新奥尔良，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马里尼的狂欢节彩珠，新奥尔良，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_UHD.jpg&rf=LaDigue_UHD.jpg "马里尼的狂欢节彩珠，新奥尔良，美国")
-
----
-### 02月12日：甜蜜的火山家园
-#### 阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔（© Tui De Roy/Minden Pictures）
-
-![甜蜜的火山家园](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_800x480.jpg&rf=LaDigue_800x480.jpg "甜蜜的火山家园")
-
-1835年，英国博物学家查尔斯·达尔文探索了东太平洋的加拉帕戈斯火山群岛。在研究岛上的生物时，他得出结论：来自南美洲的各种动物物种，主要是能够穿越广阔水域的爬行动物和鸟类，迁移到了加拉帕戈斯群岛，并逐渐适应了周围的环境。这些观察结果最终为达尔文的自然选择进化论奠定了基础。研究中考察的物种之一是加拉帕戈斯象龟，这是一种只在加拉帕戈斯群岛上发现的乌龟，可以长到5英尺长。事实上，加拉帕戈斯群岛就是以这种巨龟命名的，“加拉帕戈斯”在西班牙语中就是乌龟的意思。今天是“达尔文日”，让我们来纪念这些温顺的庞然大物，它们曾为19世纪最伟大的科学发现之一做出过贡献。
-
-西班牙航海家发现加拉帕戈斯群岛时，因为岛上有很多巨大的象龟，就将这片群岛命名为“加拉帕戈斯”，而这个词在西班牙语中正是乌龟的意思。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e6%8b%89%e5%b8%95%e6%88%88%e6%96%af%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20240211_1600" "Bing Wallpaper 2024 2月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240212_GiantTortoise"&FORM=HPQUIZ "必应主页测验 2024 2月 12")
-[下载480](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔")
-[下载720](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔")
-[下载1080](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔")
-[下载UHD](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔")
 
 ---
