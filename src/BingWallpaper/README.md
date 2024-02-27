@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月28日：随波逐流
+#### 班堡城堡，诺森伯兰郡，英格兰（© Blackbeck/Getty Images）
+
+![随波逐流](https://cn.bing.com/th?id=OHR.BamburghCastleUK_ZH-CN3201531782_800x480.jpg&rf=LaDigue_800x480.jpg "随波逐流")
+
+班堡城堡坐落在英格兰诺森伯兰郡班堡地区，矗立在海岸旁边突出的黑色火山岩上。图中所展示的是班堡沙丘，班堡城堡和附近的海滩就掩映在该地区独特的沙质地貌中。班堡城堡曾经是盎格鲁-撒克逊人的战略要塞，经过几个世纪的演变，形成了如今这座宏伟的建筑。这座城堡在抵御维京人的入侵中曾发挥了关键作用。然而，北欧人摧毁了城堡最初的防御工事，之后在中世纪期间又对其进行了重大改造。城堡还是古代诺森伯兰王国的所在地，这是一个中世纪的盎格鲁-撒克逊王国，位于今天的英格兰北部和苏格兰东南部。班堡城堡面朝北海，被生机盎然的绿草所环绕，怀抱如此美景，班堡城堡成为了许多电影的取景地，比如《麦克白》、《夺宝奇兵：命运之盘》、《艾芬豪》等。
+
+城堡的洗衣房内设有阿姆斯特朗和航空文物博物馆，主要展出维多利亚时代企业家威廉·阿姆斯特朗和阿姆斯特朗·惠特沃斯建造的制造公司遗迹，展品包括引擎、大炮和兵器，以及来自两次世界大战的航天文物。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8f%ad%e5%a0%a1%e5%9f%8e%e5%a0%a1+%e8%af%ba%e6%a3%ae%e4%bc%af%e5%85%b0%e9%83%a1&form=hpcapt&filters=HpDate:"20240227_1600" "Bing Wallpaper 2024 2月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240228_BamburghCastleUK"&FORM=HPQUIZ "必应主页测验 2024 2月 28")
+[下载480](https://cn.bing.com/th?id=OHR.BamburghCastleUK_ZH-CN3201531782_800x480.jpg&rf=LaDigue_800x480.jpg "班堡城堡，诺森伯兰郡，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.BamburghCastleUK_ZH-CN3201531782_1280x720.jpg&rf=LaDigue_1280x720.jpg "班堡城堡，诺森伯兰郡，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.BamburghCastleUK_ZH-CN3201531782_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "班堡城堡，诺森伯兰郡，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.BamburghCastleUK_ZH-CN3201531782_UHD.jpg&rf=LaDigue_UHD.jpg "班堡城堡，诺森伯兰郡，英格兰")
+
+---
 ### 02月27日：在冰天雪地里玩耍
 #### 玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国（© Piriya Photography/Getty Images）
 
@@ -235,22 +252,5 @@ Haghartsin 修道院隐藏在亚美尼亚北部的森林之中，被迪利扬国
 [下载720](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_1280x720.jpg&rf=LaDigue_1280x720.jpg "丹顶鹤向伴侣鞠躬，北海道，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丹顶鹤向伴侣鞠躬，北海道，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_UHD.jpg&rf=LaDigue_UHD.jpg "丹顶鹤向伴侣鞠躬，北海道，日本")
-
----
-### 02月13日：及时行乐！
-#### 马里尼的狂欢节彩珠，新奥尔良，美国（© Erik Pronske Photography/Getty Images）
-
-![及时行乐！](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_800x480.jpg&rf=LaDigue_800x480.jpg "及时行乐！")
-
-准备好狂欢吧，因为马蒂·格拉斯狂欢节来了！这个节日也被称为“肥美星期二”或“忏悔星期二”，尽管现在许多庆祝者只是乐于把这个节日作为聚会的借口，但它最初是一个为了在斋戒之前充分享受生活的节日。世界各地的城市和国家都会举行“肥美星期二”庆祝活动，尤其是那些受到法国影响的城市和国家，法国移民会把这一习俗带到当地去。在这些地方中，新奥尔良市因其长达四至八周的大规模庆祝活动而与狂欢节结下了不解之缘。新奥尔良市每年都会举行多次狂欢节游行，庆祝活动从1月6日的三王节正式开始。当地的社交俱乐部“克鲁”会举办游行活动，并指定了时间表和路线。狂欢者们在沿途聚集，希望能抓住花车上的人扔的硬币、杯子和珠子，就像我们在图片中看到的那样。这一传统始于19世纪80年代，你准备好加入游行的队伍了吗?
-
-“Mardi Gras”这个词在法语中是“肥美星期二”的意思。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e8%92%82%c2%b7%e6%a0%bc%e6%8b%89%e6%96%af%e7%8b%82%e6%ac%a2%e8%8a%82&form=hpcapt&filters=HpDate:"20240212_1600" "Bing Wallpaper 2024 2月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240213_MarignyBeads"&FORM=HPQUIZ "必应主页测验 2024 2月 13")
-[下载480](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_800x480.jpg&rf=LaDigue_800x480.jpg "马里尼的狂欢节彩珠，新奥尔良，美国")
-[下载720](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1280x720.jpg&rf=LaDigue_1280x720.jpg "马里尼的狂欢节彩珠，新奥尔良，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马里尼的狂欢节彩珠，新奥尔良，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_UHD.jpg&rf=LaDigue_UHD.jpg "马里尼的狂欢节彩珠，新奥尔良，美国")
 
 ---
