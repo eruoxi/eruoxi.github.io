@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月29日：多过一天
+#### 欧亚红松鼠（© Westend61/Getty Images）
+
+![多过一天](https://cn.bing.com/th?id=OHR.LeapingSquirrel_ZH-CN9112090462_800x480.jpg&rf=LaDigue_800x480.jpg "多过一天")
+
+你是一个“跳跃者”吗？不，不是像这只欧亚红松鼠那样跳跃，而是指在闰日出生的人！闰年是日历上的一种奇怪现象，因为地球的轨道和我们通常计算的年份稍有不同，地球绕太阳公转一周需要365天5小时48分46秒，为了解决这个余数，二月每四年就会多出一天，也就是闰日。这一概念可追溯到古罗马，并在教皇格列高利十三世于1582年引入的公历中得到完善。虽然这一天的目的是让我们的一年与阳历保持一致，但它也可以作为额外的一天为即将来临的春天做准备！世界各地都有独特的习俗来纪念闰日和闰年。在爱尔兰和英国，女人向男人求婚；在希腊，闰年结婚被认为会带来不幸；在法国，每四年才出一期的讽刺报刊会在闰日出版。
+
+在闰日出生的人被称为“跳跃者”或“闰日族”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e4%ba%9a%e7%ba%a2%e6%9d%be%e9%bc%a0&form=hpcapt&filters=HpDate:"20240228_1600" "Bing Wallpaper 2024 2月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240229_LeapingSquirrel"&FORM=HPQUIZ "必应主页测验 2024 2月 29")
+[下载480](https://cn.bing.com/th?id=OHR.LeapingSquirrel_ZH-CN9112090462_800x480.jpg&rf=LaDigue_800x480.jpg "欧亚红松鼠")
+[下载720](https://cn.bing.com/th?id=OHR.LeapingSquirrel_ZH-CN9112090462_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧亚红松鼠")
+[下载1080](https://cn.bing.com/th?id=OHR.LeapingSquirrel_ZH-CN9112090462_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚红松鼠")
+[下载UHD](https://cn.bing.com/th?id=OHR.LeapingSquirrel_ZH-CN9112090462_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚红松鼠")
+
+---
 ### 02月28日：随波逐流
 #### 班堡城堡，诺森伯兰郡，英格兰（© Blackbeck/Getty Images）
 
@@ -235,22 +252,5 @@ Haghartsin 修道院隐藏在亚美尼亚北部的森林之中，被迪利扬国
 [下载720](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_1280x720.jpg&rf=LaDigue_1280x720.jpg "河马妈妈和小河马，南卢安瓜国家公园，赞比亚")
 [下载1080](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "河马妈妈和小河马，南卢安瓜国家公园，赞比亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_UHD.jpg&rf=LaDigue_UHD.jpg "河马妈妈和小河马，南卢安瓜国家公园，赞比亚")
-
----
-### 02月14日：更好地在一起
-#### 丹顶鹤向伴侣鞠躬，北海道，日本（© Steve Bloom Images/Alamy Stock Photo）
-
-![更好地在一起](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_800x480.jpg&rf=LaDigue_800x480.jpg "更好地在一起")
-
-情人节到来之际，空气中弥漫着爱的气息！这个节日通常与各种浪漫象征联系在一起，比如丘比特，或者威廉·莎士比亚笔下著名的恋人罗密欧和朱丽叶。爱情的象征也可以在大自然中找到，比如正在日本北海道的芦苇沼泽和冰冻湖泊中嬉戏的丹顶鹤。这些优雅的鸟儿跳着迷人的求偶舞，雄鹤带头翩翩起舞，随后伴侣加入它的舞步。丹顶鹤象征着好运、长寿和忠诚，许多国家都有折千纸鹤的传统，传说折一千只纸鹤可以实现愿望。
-
-情人节在任何国家都不是公共假日。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%83%85%e4%ba%ba%e8%8a%82&form=hpcapt&filters=HpDate:"20240213_1600" "Bing Wallpaper 2024 2月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240214_BowingCrane"&FORM=HPQUIZ "必应主页测验 2024 2月 14")
-[下载480](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_800x480.jpg&rf=LaDigue_800x480.jpg "丹顶鹤向伴侣鞠躬，北海道，日本")
-[下载720](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_1280x720.jpg&rf=LaDigue_1280x720.jpg "丹顶鹤向伴侣鞠躬，北海道，日本")
-[下载1080](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丹顶鹤向伴侣鞠躬，北海道，日本")
-[下载UHD](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_UHD.jpg&rf=LaDigue_UHD.jpg "丹顶鹤向伴侣鞠躬，北海道，日本")
 
 ---
