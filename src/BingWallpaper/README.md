@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月02日：西西里岛的风光
+#### 莫迪卡，西西里岛，意大利（© Sandro Bisaro/Getty Images）
+
+![西西里岛的风光](https://cn.bing.com/th?id=OHR.ModicaItaly_ZH-CN3893147952_800x480.jpg&rf=LaDigue_800x480.jpg "西西里岛的风光")
+
+提起意大利，米兰、罗马和威尼斯等标志性城市往往会成为人们关注的焦点。然而，在西西里岛上却有一个名气不大的宝地，名叫莫迪卡。这座城市从1693年的一场地震的废墟中崛起，成为巴洛克风格建筑的奇观。这座被联合国教科文组织认定的世遗之城，其居民人口不到6万，鹅卵石铺就的小巷里留存着史前部落、古希腊人、罗马人、中世纪阿拉伯人和诺曼人的足迹。圣乔治大教堂和圣彼得教堂等地标性建筑的宏伟气势令游客叹为观止，而莫迪卡公认的巧克力则以阿兹特克人传统工艺制作而成，诱惑着众多美食爱好者的味蕾。所以，下次意大利向你招手时，选择去莫迪卡走一走人迹罕至的小路吧！
+
+莫迪卡有一种独特的美味，那就是著名的莫迪卡巧克力，它采用古老而原始的阿兹特克配方制作而成。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8e%ab%e8%bf%aa%e5%8d%a1&form=hpcapt&filters=HpDate:"20240301_1600" "Bing Wallpaper 2024 3月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240302_ModicaItaly"&FORM=HPQUIZ "必应主页测验 2024 3月 2")
+[下载480](https://cn.bing.com/th?id=OHR.ModicaItaly_ZH-CN3893147952_800x480.jpg&rf=LaDigue_800x480.jpg "莫迪卡，西西里岛，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ModicaItaly_ZH-CN3893147952_1280x720.jpg&rf=LaDigue_1280x720.jpg "莫迪卡，西西里岛，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ModicaItaly_ZH-CN3893147952_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫迪卡，西西里岛，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ModicaItaly_ZH-CN3893147952_UHD.jpg&rf=LaDigue_UHD.jpg "莫迪卡，西西里岛，意大利")
+
+---
 ### 03月01日：蝶舞翩跹
 #### 德国草地上的蝴蝶（© Albert Fertl/Getty Images）
 
@@ -235,22 +252,5 @@ Haghartsin 修道院隐藏在亚美尼亚北部的森林之中，被迪利扬国
 [下载720](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_1280x720.jpg&rf=LaDigue_1280x720.jpg "多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg&rf=LaDigue_UHD.jpg "多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利")
-
----
-### 02月16日：让每只鸟都有价值
-#### 一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国（© outtakes/Getty Images）
-
-![让每只鸟都有价值](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_800x480.jpg&rf=LaDigue_800x480.jpg "让每只鸟都有价值")
-
-在接下来的四天里，世界各地的观鸟者将参加一年一度的特别活动：大后院鸟类计数。在计数期间，鸟类爱好者会对他们看到的鸟类进行计数，并输入清单报告其发现。这些数据通过提供有关鸟类数量和栖息地如何随时间变化的信息，帮助科学家了解和保护鸟类。
-
-灰额主红雀对棉田有益，因为它可以吃掉大量的棉虫和象鼻虫。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%81%b0%e9%a2%9d%e4%b8%bb%e7%ba%a2%e9%9b%80&form=hpcapt&filters=HpDate:"20240215_1600" "Bing Wallpaper 2024 2月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240216_BackyardBird"&FORM=HPQUIZ "必应主页测验 2024 2月 16")
-[下载480](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_800x480.jpg&rf=LaDigue_800x480.jpg "一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_UHD.jpg&rf=LaDigue_UHD.jpg "一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国")
 
 ---
