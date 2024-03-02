@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月03日：一位浑身斑点的杂技演员
+#### 树上的豹子，克鲁格国家公园，南非（© Tonino De Marco/Minden Pictures）
+
+![一位浑身斑点的杂技演员](https://cn.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_800x480.jpg&rf=LaDigue_800x480.jpg "一位浑身斑点的杂技演员")
+
+是时候踏入荒野了！世界野生动植物日是一年一度的活动，旨在强调全世界保护野生动植物的必要性。今年的主题是利用数字技术的进步帮助保护野生动植物：这些技术可以改善相关研究、促进交流和DNA分析，数字平台也可以让年轻人参与到保护地球动植物的努力中来。
+
+“世界野生动植物日”是由联合国大会于2013年12月20日决定设立的节日。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e9%87%8e%e7%94%9f%e5%8a%a8%e7%89%a9%e6%97%a5&form=hpcapt&filters=HpDate:"20240302_1600" "Bing Wallpaper 2024 3月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240303_KrugerLeopard"&FORM=HPQUIZ "必应主页测验 2024 3月 3")
+[下载480](https://cn.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_800x480.jpg&rf=LaDigue_800x480.jpg "树上的豹子，克鲁格国家公园，南非")
+[下载720](https://cn.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_1280x720.jpg&rf=LaDigue_1280x720.jpg "树上的豹子，克鲁格国家公园，南非")
+[下载1080](https://cn.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "树上的豹子，克鲁格国家公园，南非")
+[下载UHD](https://cn.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_UHD.jpg&rf=LaDigue_UHD.jpg "树上的豹子，克鲁格国家公园，南非")
+
+---
 ### 03月02日：西西里岛的风光
 #### 莫迪卡，西西里岛，意大利（© Sandro Bisaro/Getty Images）
 
@@ -235,22 +252,5 @@ Haghartsin 修道院隐藏在亚美尼亚北部的森林之中，被迪利扬国
 [下载720](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_1280x720.jpg&rf=LaDigue_1280x720.jpg "抹香鲸浮出水面，多米尼克")
 [下载1080](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "抹香鲸浮出水面，多米尼克")
 [下载UHD](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_UHD.jpg&rf=LaDigue_UHD.jpg "抹香鲸浮出水面，多米尼克")
-
----
-### 02月17日：自然奇景
-#### 多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利（© Marco Bottigelli/Getty Images）
-
-![自然奇景](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_800x480.jpg&rf=LaDigue_800x480.jpg "自然奇景")
-
-普拉格斯湖坐落在雄伟的多洛米蒂山脉中，是阿尔卑斯山的一颗明珠，也被称为布莱耶斯湖。湖水清澈见底，倒映着多洛米蒂山壮丽伟岸的白云岩，四周环绕着郁郁葱葱的森林。湖边有一条风景优美的小径，在气候温和的时节吸引着众多游客前来远足和散步。夏季，这里是乘船休闲的好去处；冬季，湖光山色成了一幅浓郁的瑰画散发着魅力。普拉格斯湖把自然美景、历史与文化完美融合，矗立一旁的圣维特小教堂见证了它的过去。这个“拥有世上最美的高山景观”的迷人地方将为你带来难忘的体验。
-
-湖水清澈碧绿，闻名遐迩。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e8%8e%b1%e8%80%b6%e6%96%af%e6%b9%96&form=hpcapt&filters=HpDate:"20240216_1600" "Bing Wallpaper 2024 2月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240217_LakeDolomites"&FORM=HPQUIZ "必应主页测验 2024 2月 17")
-[下载480](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_800x480.jpg&rf=LaDigue_800x480.jpg "多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_1280x720.jpg&rf=LaDigue_1280x720.jpg "多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg&rf=LaDigue_UHD.jpg "多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利")
 
 ---
