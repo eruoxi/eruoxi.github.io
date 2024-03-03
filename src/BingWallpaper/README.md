@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月04日：睡美人
+#### 从蒙特维多看到的阿雷纳尔火山,哥斯达黎加（© Lukas Bischoff/Getty Images）
+
+![睡美人](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_800x480.jpg&rf=LaDigue_800x480.jpg "睡美人")
+
+热带国家哥斯达黎加在向你招手！图中展示的圆锥形的阿雷纳尔火山高达5437英尺，屹立于周围的热带雨林以及该国最大的湖泊阿雷纳尔湖之上。1968年，在一次大规模的喷发中，这座沉睡的火山咆哮着苏醒了，当时的岩石飞溅了半英里多。而最近一次的大规模火山活动发生在2010年，如今，这座曾被熔岩照亮过山峰正处于休眠状态。对于观鸟者而言，阿雷纳尔火山国家公园是一个必游之地，公园内拥有500多种鸟类，除此之外，该公园还是各种动植物的家园，包括赤短角鹿、美洲狮、白脸卷尾猴、兰花、蝎尾蕉和蕨类植物。高高的阿雷纳尔火山俯瞰着这些热带树木，形成了一副壮观而美丽的风景。
+
+哥斯达黎加拥有全球5%的物种。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e9%9b%b7%e7%ba%b3%e5%b0%94%e7%81%ab%e5%b1%b1&form=hpcapt&filters=HpDate:"20240303_1600" "Bing Wallpaper 2024 3月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240304_ArenalCostaRica"&FORM=HPQUIZ "必应主页测验 2024 3月 4")
+[下载480](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_800x480.jpg&rf=LaDigue_800x480.jpg "从蒙特维多看到的阿雷纳尔火山,哥斯达黎加")
+[下载720](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_1280x720.jpg&rf=LaDigue_1280x720.jpg "从蒙特维多看到的阿雷纳尔火山,哥斯达黎加")
+[下载1080](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从蒙特维多看到的阿雷纳尔火山,哥斯达黎加")
+[下载UHD](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_UHD.jpg&rf=LaDigue_UHD.jpg "从蒙特维多看到的阿雷纳尔火山,哥斯达黎加")
+
+---
 ### 03月03日：一位浑身斑点的杂技演员
 #### 树上的豹子，克鲁格国家公园，南非（© Tonino De Marco/Minden Pictures）
 
@@ -235,22 +252,5 @@ Haghartsin 修道院隐藏在亚美尼亚北部的森林之中，被迪利扬国
 [下载720](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_1280x720.jpg&rf=LaDigue_1280x720.jpg "鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_UHD.jpg&rf=LaDigue_UHD.jpg "鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙")
-
----
-### 02月18日：来一口新鲜空气
-#### 抹香鲸浮出水面，多米尼克（© Franco Banfi/Minden Pictures）
-
-![来一口新鲜空气](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_800x480.jpg&rf=LaDigue_800x480.jpg "来一口新鲜空气")
-
-嗨，海中的巨人们！世界鲸鱼日与加勒比海多米尼克岛沿岸的抹香鲸一起再次浮出水面。这个节日于1980年在毛伊岛设立，最初是为了庆祝夏威夷水域的座头鲸，现在已经演变成一个倡导保护所有鲸鱼物种的全球性活动。
-
-嗨，海中的巨人们！世界鲸鱼日与加勒比海多米尼克岛沿岸的抹香鲸一起再次浮出水面。这个节日于1980年在毛伊岛设立，最初是为了庆祝夏威夷水域的座头鲸，现在已经演变成一个倡导保护所有鲸鱼物种的全球性活动。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%8a%b9%e9%a6%99%e9%b2%b8&form=hpcapt&filters=HpDate:"20240217_1600" "Bing Wallpaper 2024 2月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240218_DominicaWhales"&FORM=HPQUIZ "必应主页测验 2024 2月 18")
-[下载480](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_800x480.jpg&rf=LaDigue_800x480.jpg "抹香鲸浮出水面，多米尼克")
-[下载720](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_1280x720.jpg&rf=LaDigue_1280x720.jpg "抹香鲸浮出水面，多米尼克")
-[下载1080](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "抹香鲸浮出水面，多米尼克")
-[下载UHD](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_UHD.jpg&rf=LaDigue_UHD.jpg "抹香鲸浮出水面，多米尼克")
 
 ---
