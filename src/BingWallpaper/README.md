@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月05日：陷入循环之中？
+#### 曼谷的交通圈和高速公路，泰国（© Avigator Fortuner/Shutterstock）
+
+![陷入循环之中？](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_800x480.jpg&rf=LaDigue_800x480.jpg "陷入循环之中？")
+
+在生机勃勃的泰国，曼谷这座城市充满了活力！这是一座占地面积超600平方英里的城市，其常住人口预估超过1000万人，占泰国总人口的15%以上。作为泰国的首都，曼谷拥有繁华的城市基础设施，而复杂的交通圈和高速公路网正是其特色。1864年竣工的石龙军路，是曼谷第一条利用现代方法铺设的马路。石龙军路的建成亦是曼谷历史上的重要节点，曼谷的主要交通方式自此从水上交通向陆路交通转变。而1972年引入的复杂的高架快速路网和廊曼收费公路的建成则使得开车进出城更加方便。多年来，曼谷的交通网络在不断地发展，以满足城市扩张的需求。
+
+曼谷第一条高速公路是查龙玛哈那空高速公路，于1981年通车。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%9b%bc%e8%b0%b7&form=hpcapt&filters=HpDate:"20240304_1600" "Bing Wallpaper 2024 3月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240305_BangkokCircle"&FORM=HPQUIZ "必应主页测验 2024 3月 5")
+[下载480](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_800x480.jpg&rf=LaDigue_800x480.jpg "曼谷的交通圈和高速公路，泰国")
+[下载720](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_1280x720.jpg&rf=LaDigue_1280x720.jpg "曼谷的交通圈和高速公路，泰国")
+[下载1080](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼谷的交通圈和高速公路，泰国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_UHD.jpg&rf=LaDigue_UHD.jpg "曼谷的交通圈和高速公路，泰国")
+
+---
 ### 03月04日：睡美人
 #### 从蒙特维多看到的阿雷纳尔火山,哥斯达黎加（© Lukas Bischoff/Getty Images）
 
@@ -235,22 +252,5 @@ Haghartsin 修道院隐藏在亚美尼亚北部的森林之中，被迪利扬国
 [下载720](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_1280x720.jpg&rf=LaDigue_1280x720.jpg "Kinder Scout，峰区国家公园，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Kinder Scout，峰区国家公园，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_UHD.jpg&rf=LaDigue_UHD.jpg "Kinder Scout，峰区国家公园，英国")
-
----
-### 02月19日：一年四季都有鲜艳的色彩!
-#### 鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙（© Marco Bottigelli/Getty Images）
-
-![一年四季都有鲜艳的色彩!](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_800x480.jpg&rf=LaDigue_800x480.jpg "一年四季都有鲜艳的色彩!")
-
-这些色彩斑斓的街道之间发生了什么？想象下有这样一个地方，大西洋轻抚着色彩斑斓的海岸，泰德峰从3715米的高度俯瞰着它。这个地方就是特内里费岛，西班牙加那利群岛上一个风景秀美四季如春的天堂。但当二月来临时，这座岛屿就会焕然一新：这是独属于圣克鲁斯-德特内里费的狂欢节时间，其视觉效果和节日盛况可与著名的巴西里约热内卢狂欢节相媲美，也被认为是世界上第二热门和知名的狂欢节。
-
-克鲁斯港最初是为附近富裕的拉奥罗塔瓦镇所开发的港口，在那里它向外出口糖和葡萄酒等产品。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%85%8b%e9%b2%81%e6%96%af%e6%b8%af&form=hpcapt&filters=HpDate:"20240218_1600" "Bing Wallpaper 2024 2月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240219_CarnavalTenerife"&FORM=HPQUIZ "必应主页测验 2024 2月 19")
-[下载480](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_800x480.jpg&rf=LaDigue_800x480.jpg "鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_1280x720.jpg&rf=LaDigue_1280x720.jpg "鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_UHD.jpg&rf=LaDigue_UHD.jpg "鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙")
 
 ---
