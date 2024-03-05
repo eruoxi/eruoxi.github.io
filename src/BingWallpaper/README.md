@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月06日：尽情地嬉戏玩水吧！
+#### Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国（© Eric Vogt/Tandem Stills + Motion）
+
+![尽情地嬉戏玩水吧！](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_800x480.jpg&rf=LaDigue_800x480.jpg "尽情地嬉戏玩水吧！")
+
+在俄勒冈州一处狭缝型峡谷的尽头，有一个特别的地方正等待着徒步旅行者去探索：瓦克莱拉瀑布。其水源来自哥伦比亚河的支流坦纳河，这个瀑布的名字是由马扎马登山俱乐部的成员以美国原住民村庄的名字命名的。走到步行道的尽头，游客可以观赏到壮观的两级瀑布，水流从350英尺高的地方坠落到下面的水潭中，而这个水潭正是一个绝佳的玩水、纳凉胜地，当你在里面游泳的时候，可别忘了留意附近的水鸫（也被称为美洲河乌），这是一种以瀑布为家的鸟类。人们可以看到它们沿着溪流飞翔，偶尔也会潜入水中。
+
+与大多数瀑布一样，瓦克莱拉瀑布的水流在一定程度上受季节的影响。不过由于坦纳河的水源主要来自地下泉水，因此其水流并不会被恶劣天气严重影响到。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bf%84%e5%8b%92%e5%86%88%e5%b7%9eWahclella+Falls&form=hpcapt&filters=HpDate:"20240305_1600" "Bing Wallpaper 2024 3月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240306_WahclellaFalls"&FORM=HPQUIZ "必应主页测验 2024 3月 6")
+[下载480](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_800x480.jpg&rf=LaDigue_800x480.jpg "Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_1280x720.jpg&rf=LaDigue_1280x720.jpg "Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_UHD.jpg&rf=LaDigue_UHD.jpg "Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国")
+
+---
 ### 03月05日：陷入循环之中？
 #### 曼谷的交通圈和高速公路，泰国（© Avigator Fortuner/Shutterstock）
 
@@ -235,22 +252,5 @@ Haghartsin 修道院隐藏在亚美尼亚北部的森林之中，被迪利扬国
 [下载720](https://cn.bing.com/th?id=OHR.YosemiteFirefall_ZH-CN2236242565_1280x720.jpg&rf=LaDigue_1280x720.jpg "火瀑布，优胜美地国家公园，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.YosemiteFirefall_ZH-CN2236242565_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "火瀑布，优胜美地国家公园，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.YosemiteFirefall_ZH-CN2236242565_UHD.jpg&rf=LaDigue_UHD.jpg "火瀑布，优胜美地国家公园，加利福尼亚州，美国")
-
----
-### 02月20日：一个供市民休闲娱乐的公园
-#### Kinder Scout，峰区国家公园，英国（© john finney photography/Getty Images）
-
-![一个供市民休闲娱乐的公园](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_800x480.jpg&rf=LaDigue_800x480.jpg "一个供市民休闲娱乐的公园")
-
-在英国峰区国家公园那片广阔的土地上，坐落着金德·斯科特自然保护区，它是英国历史上一次重要的人民运动的发生地。金德·斯科特海拔约2087英尺，是峰区的最高点，崎岖的荒野和狂风呼啸的高原吸引着世世代代的冒险家和自然爱好者前来探险。1932年，这里发生了历史性的大规模非法闯入事件，数百名民众徒步抗议要求公众可以自由进入这片领域，这一公民抗命运动促使了英国国家公园立法的通过。峰区国家公园的建立使得这里的丘陵和山谷得到保护，成为生态资源，供后人享受，同时也标志着对大众通行权以及自然资源的保护工作取得了重大胜利。
-
-金德·斯科特在BBC电视节目《七大自然奇观》（2005年）中被列为中部奇观之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b3%b0%e5%8c%ba%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240219_1600" "Bing Wallpaper 2024 2月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240220_PeakDistrictNP"&FORM=HPQUIZ "必应主页测验 2024 2月 20")
-[下载480](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_800x480.jpg&rf=LaDigue_800x480.jpg "Kinder Scout，峰区国家公园，英国")
-[下载720](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_1280x720.jpg&rf=LaDigue_1280x720.jpg "Kinder Scout，峰区国家公园，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Kinder Scout，峰区国家公园，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_UHD.jpg&rf=LaDigue_UHD.jpg "Kinder Scout，峰区国家公园，英国")
 
 ---
