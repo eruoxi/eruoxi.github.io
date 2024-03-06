@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月07日：攀登新的高峰
+#### Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙（© Sergi Boixader/Alamy Stock Photo）
+
+![攀登新的高峰](https://cn.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_800x480.jpg&rf=LaDigue_800x480.jpg "攀登新的高峰")
+
+奇特的山峰耸立在埃尔斯港自然公园的上空，这是一组位于西班牙加泰罗尼亚地区波特斯德托尔托萨贝塞特山的岩石群。这组岩石群里最高的山峰海拔约3,330英尺，从山顶上俯瞰埃布罗三角洲，可以看到溪流和松树林，还有通往山中的小径。该山的名字中包含“Benet”一词，这个词源于阿拉伯语，暗示着该地区有着丰富多彩的过去。如今，埃尔斯港自然公园是各种动物的家园，从野生山羊和水獭到秃鹫和老鹰，园区内物种丰富。不过，动物并不是该地区唯一的“居民”。山脚下还坐落着一个具有社区意识的村庄，村民们仍然保持着共同的传统，例如使用植物纤维来制作篮子和厨房用具的古老工艺。
+
+在大航海时代，西班牙率先对新大陆进行了探索和殖民，并形成了历史上最大的帝国之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e5%8a%a0%e6%b3%b0%e7%bd%97%e5%b0%bc%e4%ba%9a&form=hpcapt&filters=HpDate:"20240306_1600" "Bing Wallpaper 2024 3月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240307_TarragonaSpain"&FORM=HPQUIZ "必应主页测验 2024 3月 7")
+[下载480](https://cn.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_800x480.jpg&rf=LaDigue_800x480.jpg "Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_1280x720.jpg&rf=LaDigue_1280x720.jpg "Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_UHD.jpg&rf=LaDigue_UHD.jpg "Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙")
+
+---
 ### 03月06日：尽情地嬉戏玩水吧！
 #### Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国（© Eric Vogt/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@ Haghartsin 修道院隐藏在亚美尼亚北部的森林之中，被迪利扬国
 [下载720](https://cn.bing.com/th?id=OHR.BrightonBoxes_ZH-CN0947219018_1280x720.jpg&rf=LaDigue_1280x720.jpg "布莱顿海滩的彩虹小屋，墨尔本，维多利亚州，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.BrightonBoxes_ZH-CN0947219018_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布莱顿海滩的彩虹小屋，墨尔本，维多利亚州，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.BrightonBoxes_ZH-CN0947219018_UHD.jpg&rf=LaDigue_UHD.jpg "布莱顿海滩的彩虹小屋，墨尔本，维多利亚州，澳大利亚")
-
----
-### 02月21日：一个天然的矛盾体
-#### 火瀑布，优胜美地国家公园，加利福尼亚州，美国（© Gregory B Cuvelier/Shutterstock）
-
-![一个天然的矛盾体](https://cn.bing.com/th?id=OHR.YosemiteFirefall_ZH-CN2236242565_800x480.jpg&rf=LaDigue_800x480.jpg "一个天然的矛盾体")
-
-想亲眼目睹炙热的“火瀑布”吗？您没有听错，在优胜美地国家公园里就看到这样一个不可思议的景象。“火瀑布”是季节性瀑布，在冬季和早春时节，当降雪量充足且气温升高到足以融化积雪时，瀑布就会流下来。在二月份的几个星期里，如果天气晴朗，水流正常，而阳光照射的角度又恰到好处时，这条细长的瀑布就会呈现出火焰般的光彩。每年这个时候，会有上百名游客聚集在优胜美地山谷观赏这一奇特迷人的自然景象，山谷里人挤人，连找位置观赏都是一种挑战。有趣的是，这种自然现象被称为“火瀑布”，也是对历史上著名的“优胜美地国家公园火瀑布”的致敬，在1872年至1968年，公园里举办过“人造火瀑布”活动，主办方将余火未尽的木块、煤块推到悬崖下，在黑夜中形成一道炽热亮眼的“火瀑布”。随着时间的推移，公园管理员逐渐认识到这不是一个明智的主意，最终取消了这一活动。
-
-据历史记载，库里营地的创始人大卫·库里每晚都会站在瀑布的底部，大喊“让火落下”，工作人员听到信号后，会将余火未尽的木块、煤块推到悬崖下，在黑夜中形成一道炽热亮眼的“火瀑布”。作为库里营地的压轴表演大戏，“火瀑布”会在每晚9点上演。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%81%ab%e7%80%91%e5%b8%83&form=hpcapt&filters=HpDate:"20240220_1600" "Bing Wallpaper 2024 2月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240221_YosemiteFirefall"&FORM=HPQUIZ "必应主页测验 2024 2月 21")
-[下载480](https://cn.bing.com/th?id=OHR.YosemiteFirefall_ZH-CN2236242565_800x480.jpg&rf=LaDigue_800x480.jpg "火瀑布，优胜美地国家公园，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.YosemiteFirefall_ZH-CN2236242565_1280x720.jpg&rf=LaDigue_1280x720.jpg "火瀑布，优胜美地国家公园，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.YosemiteFirefall_ZH-CN2236242565_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "火瀑布，优胜美地国家公园，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.YosemiteFirefall_ZH-CN2236242565_UHD.jpg&rf=LaDigue_UHD.jpg "火瀑布，优胜美地国家公园，加利福尼亚州，美国")
 
 ---
