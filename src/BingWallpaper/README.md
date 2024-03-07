@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月08日：世界新七大自然奇观之一
+#### 伊瓜苏大瀑布鸟瞰图，巴西（© Nido Huebl/Shutterstock）
+
+![世界新七大自然奇观之一](https://cn.bing.com/th?id=OHR.IguazuFalls_ZH-CN4749837052_800x480.jpg&rf=LaDigue_800x480.jpg "世界新七大自然奇观之一")
+
+伊瓜苏大瀑布以其宏伟且独特的美景吸引着游客，是南美洲最令人印象深刻的自然宝藏之一。这个壮观的瀑布位于巴西和阿根廷的交界处，不仅是一个不可错过的旅游景点，也是全球公认的瑰宝。1986年，伊瓜苏大瀑布被联合国教科文组织评为世界遗产，并被世界新七大奇迹基金会评选为世界七大自然奇观之一。
+
+该景点中心的马蹄形瀑布高约80米，直径2700米，位于横跨阿根廷和巴西的边界线上。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bc%8a%e7%93%9c%e8%8b%8f%e5%a4%a7%e7%80%91%e5%b8%83&form=hpcapt&filters=HpDate:"20240307_1600" "Bing Wallpaper 2024 3月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240308_IguazuFalls"&FORM=HPQUIZ "必应主页测验 2024 3月 8")
+[下载480](https://cn.bing.com/th?id=OHR.IguazuFalls_ZH-CN4749837052_800x480.jpg&rf=LaDigue_800x480.jpg "伊瓜苏大瀑布鸟瞰图，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.IguazuFalls_ZH-CN4749837052_1280x720.jpg&rf=LaDigue_1280x720.jpg "伊瓜苏大瀑布鸟瞰图，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.IguazuFalls_ZH-CN4749837052_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊瓜苏大瀑布鸟瞰图，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.IguazuFalls_ZH-CN4749837052_UHD.jpg&rf=LaDigue_UHD.jpg "伊瓜苏大瀑布鸟瞰图，巴西")
+
+---
 ### 03月07日：攀登新的高峰
 #### Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙（© Sergi Boixader/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@ Haghartsin 修道院隐藏在亚美尼亚北部的森林之中，被迪利扬国
 [下载720](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_1280x720.jpg&rf=LaDigue_1280x720.jpg "Haghartsin修道院，迪利扬国家公园，亚美尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Haghartsin修道院，迪利扬国家公园，亚美尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_UHD.jpg&rf=LaDigue_UHD.jpg "Haghartsin修道院，迪利扬国家公园，亚美尼亚")
-
----
-### 02月22日：名副其实的“调色板盒子”
-#### 布莱顿海滩的彩虹小屋，墨尔本，维多利亚州，澳大利亚（© Prasit photo/Getty Images）
-
-![名副其实的“调色板盒子”](https://cn.bing.com/th?id=OHR.BrightonBoxes_ZH-CN0947219018_800x480.jpg&rf=LaDigue_800x480.jpg "名副其实的“调色板盒子”")
-
-布莱顿彩虹小屋位于墨尔本的布莱顿海滩上，它们在阳光下五彩斑斓，是经久不衰的历史遗迹。随着新增小屋的加入，其总数已达到96座，这些小屋已成为墨尔本最主要的旅游景点之一。彩虹小屋的历史和它们的外观一样“丰富多彩”。1860年，它们首次出现在布莱顿的海岸线上，为更换泳衣的游客提供简单的遮挡。在第一次世界大战后的经济萧条时期，这些沙滩小屋遭到了磨损和破坏，于1934年接受集体修复。尽管进行了维护，它们还是在1952年面临过被拆除的危机，后来通过布莱顿彩虹小屋协会的努力得以保留，所以我们今天依旧能欣赏到这些充满活力的“海岸警卫队”！
-
-按照文化遗产保护区规划方案，布莱顿海滩上的彩虹小屋是统一建造的，采用了彩绘的封檐板和波纹铁皮屋顶，具有维多利亚式建筑特色。屋主可以粉刷自己的小屋，使小屋呈现出各种鲜艳的色彩，不过这些小屋没有水电供应。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e8%8e%b1%e9%a1%bf%e6%b5%b7%e6%bb%a9%e7%9a%84%e5%bd%a9%e8%99%b9%e5%b0%8f%e5%b1%8b&form=hpcapt&filters=HpDate:"20240221_1600" "Bing Wallpaper 2024 2月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240222_BrightonBoxes"&FORM=HPQUIZ "必应主页测验 2024 2月 22")
-[下载480](https://cn.bing.com/th?id=OHR.BrightonBoxes_ZH-CN0947219018_800x480.jpg&rf=LaDigue_800x480.jpg "布莱顿海滩的彩虹小屋，墨尔本，维多利亚州，澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.BrightonBoxes_ZH-CN0947219018_1280x720.jpg&rf=LaDigue_1280x720.jpg "布莱顿海滩的彩虹小屋，墨尔本，维多利亚州，澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.BrightonBoxes_ZH-CN0947219018_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布莱顿海滩的彩虹小屋，墨尔本，维多利亚州，澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.BrightonBoxes_ZH-CN0947219018_UHD.jpg&rf=LaDigue_UHD.jpg "布莱顿海滩的彩虹小屋，墨尔本，维多利亚州，澳大利亚")
 
 ---
