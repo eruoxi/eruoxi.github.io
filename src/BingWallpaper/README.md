@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月09日：因时间而改变
+#### 比斯第恶土，新墨西哥州，美国（© Ian Shive/Tandem Stills + Motion）
+
+![因时间而改变](https://cn.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_800x480.jpg&rf=LaDigue_800x480.jpg "因时间而改变")
+
+时间是伟大的变革者，它改变着世界，也改变着我们所有人。例如，新墨西哥州的这片名为比斯第恶土的荒地，曾经是一片郁郁葱葱的热带森林。近7000万年前，这里没有扭曲的地形和高耸的尖塔，而是一群白垩纪晚期恐龙的家园，包括甲龙、鸭嘴龙和强大的霸王龙。如今，这里到处都是另一种奇观，岩层看起来更像是雕塑，而不是自然现象。比斯第恶土的名字“Bisti/De-Na-Zin”是以纳瓦霍语命名的：“Bisti” 的意思是 "在土坯岩层中"，“De-Na-Zin” 则来自附近的 "站立的仙起重机"石刻。来到四角地区的游客一定不要错过这片由页岩和砂岩组成的超凡脱俗的景观。
+
+在世界上任何一个单一的沉积盆地中，荒地展露了跨越白垩纪-古近纪边界的最长、最完整、最丰富的化石层序列。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%b0%e5%a2%a8%e8%a5%bf%e5%93%a5%e5%b7%9e%e6%af%94%e6%96%af%e7%ac%ac%e6%81%b6%e5%9c%9f&form=hpcapt&filters=HpDate:"20240308_1600" "Bing Wallpaper 2024 3月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240309_BistiBlue"&FORM=HPQUIZ "必应主页测验 2024 3月 9")
+[下载480](https://cn.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_800x480.jpg&rf=LaDigue_800x480.jpg "比斯第恶土，新墨西哥州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_1280x720.jpg&rf=LaDigue_1280x720.jpg "比斯第恶土，新墨西哥州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "比斯第恶土，新墨西哥州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_UHD.jpg&rf=LaDigue_UHD.jpg "比斯第恶土，新墨西哥州，美国")
+
+---
 ### 03月08日：世界新七大自然奇观之一
 #### 伊瓜苏大瀑布鸟瞰图，巴西（© Nido Huebl/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_1280x720.jpg&rf=LaDigue_1280x720.jpg "锦里街上悬挂的红色中国灯笼，成都，中国四川省")
 [下载1080](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "锦里街上悬挂的红色中国灯笼，成都，中国四川省")
 [下载UHD](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_UHD.jpg&rf=LaDigue_UHD.jpg "锦里街上悬挂的红色中国灯笼，成都，中国四川省")
-
----
-### 02月23日：老鹰起舞的地方
-#### Haghartsin修道院，迪利扬国家公园，亚美尼亚（© Alexey Kharitonov/Shutterstock）
-
-![老鹰起舞的地方](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_800x480.jpg&rf=LaDigue_800x480.jpg "老鹰起舞的地方")
-
-Haghartsin 修道院隐藏在亚美尼亚北部的森林之中，被迪利扬国家公园郁郁葱葱的风景所环绕，是亚美尼亚中世纪建筑的瑰宝。修道院的建筑群由几座华丽的建筑组成，包括圣母教堂、圣格雷戈里教堂和圣斯特帕诺斯教堂。这些建筑的历史可以追溯到10世纪，上面装饰着精雕细琢的石碑、十字拱门以及其他装饰物，展现了那个时代的精湛工艺。修道院的名字“Haghartsin”的意思是“鹰之舞”，它为那些想要感受亚美尼亚悠久历史的人提供了一个宁静的去处。当你漫步在幽静的庭院中，探索周围的森林时，一种永恒的感觉油然而生。
-
-据说在修道院主楼的落成典礼上，一只雄鹰在修道院的穹顶上方翱翔，因此该修道院被称为 Haghartsin 修道院。（“Hagh”在亚美尼亚语中是游戏的意思，而“Artsin”是 “Artsiv”的一种词形，在亚美尼亚语中是鹰的意思，因此修道院的名字“Haghartsin”可以被翻译为“鹰之舞”。）
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%bf%aa%e5%88%a9%e6%89%ac%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240222_1600" "Bing Wallpaper 2024 2月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240223_HaghartsinMonastery"&FORM=HPQUIZ "必应主页测验 2024 2月 23")
-[下载480](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_800x480.jpg&rf=LaDigue_800x480.jpg "Haghartsin修道院，迪利扬国家公园，亚美尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_1280x720.jpg&rf=LaDigue_1280x720.jpg "Haghartsin修道院，迪利扬国家公园，亚美尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Haghartsin修道院，迪利扬国家公园，亚美尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_UHD.jpg&rf=LaDigue_UHD.jpg "Haghartsin修道院，迪利扬国家公园，亚美尼亚")
 
 ---
