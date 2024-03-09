@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月10日：是时候调整时间了
+#### 圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州（© Richard T. Nowitz/Getty Images）
+
+![是时候调整时间了](https://cn.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_800x480.jpg&rf=LaDigue_800x480.jpg "是时候调整时间了")
+
+今天的时间至关重要：三月的第二个星期日标志着夏令时的开始。今天凌晨2点开始，时钟向前拨动一小时，这意味着今天白天会“多”出一个小时。本杰明·富兰克林通常被认为是夏令时的发明者，但第一个真正意义上提出拨动时钟建议的人是新西兰昆虫学家乔治·赫德森。在1895年，因为他想在白天有更多的时间来采集昆虫，他提出了这一改动。
+
+夏令时规则的改变会给现有的计算机安装带来问题。例如，2007年北美对夏令时规则的修改要求许多计算机系统进行升级，而电子邮件和日历程序的升级压力则是最大的。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%8f%e4%bb%a4%e6%97%b6&form=hpcapt&filters=HpDate:"20240309_1600" "Bing Wallpaper 2024 3月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240310_BeaumontClock"&FORM=HPQUIZ "必应主页测验 2024 3月 10")
+[下载480](https://cn.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_800x480.jpg&rf=LaDigue_800x480.jpg "圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州")
+[下载720](https://cn.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州")
+[下载1080](https://cn.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州")
+[下载UHD](https://cn.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_UHD.jpg&rf=LaDigue_UHD.jpg "圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州")
+
+---
 ### 03月09日：因时间而改变
 #### 比斯第恶土，新墨西哥州，美国（© Ian Shive/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_1280x720.jpg&rf=LaDigue_1280x720.jpg "考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省")
 [下载1080](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省")
 [下载UHD](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_UHD.jpg&rf=LaDigue_UHD.jpg "考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省")
-
----
-### 02月24日：点亮一盏明灯，愿您万事顺意！
-#### 锦里街上悬挂的红色中国灯笼，成都，中国四川省（© Philippe LEJEANVRE/Getty images）
-
-![点亮一盏明灯，愿您万事顺意！](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_800x480.jpg&rf=LaDigue_800x480.jpg "点亮一盏明灯，愿您万事顺意！")
-
-正月是农历的元月，古人称“夜”为“宵”，正月十五是一年中第一个月圆之夜，所以称正月十五为“元宵节”。元宵节习俗自古以来就以热烈喜庆的观灯习俗为主。
-
-锦里曾是西蜀历史上较为古老、较具有商业气息的街道之一，早在秦汉、三国时期便闻名中国。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%85%83%e5%ae%b5%e8%8a%82&form=hpcapt&filters=HpDate:"20240223_1600" "Bing Wallpaper 2024 2月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240224_LaternFestival2024"&FORM=HPQUIZ "必应主页测验 2024 2月 24")
-[下载480](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_800x480.jpg&rf=LaDigue_800x480.jpg "锦里街上悬挂的红色中国灯笼，成都，中国四川省")
-[下载720](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_1280x720.jpg&rf=LaDigue_1280x720.jpg "锦里街上悬挂的红色中国灯笼，成都，中国四川省")
-[下载1080](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "锦里街上悬挂的红色中国灯笼，成都，中国四川省")
-[下载UHD](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_UHD.jpg&rf=LaDigue_UHD.jpg "锦里街上悬挂的红色中国灯笼，成都，中国四川省")
 
 ---
