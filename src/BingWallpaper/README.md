@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月11日：醉人的山峦
+#### Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利（© Richard T. Nowitz/Getty Images）
+
+![醉人的山峦](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_800x480.jpg&rf=LaDigue_800x480.jpg "醉人的山峦")
+
+科内利亚诺和瓦尔多比亚德内的Prosecco丘陵是大自然与人类智慧完美结合的地方。由于其独特性，这些山丘已被联合国教科文组织列入世界遗产名录。特殊的丘陵地带给该地带来了由葡萄园和树林构成的有机环境。而在马赛克般的景观中脱颖而出的小村庄和葡萄园，却只是让这个地方显得独一无二的部分因素。
+
+与香槟和弗朗恰柯塔不同，Prosecco通常采用查玛法（又称马丁诺帝法）生产，即在大型不锈钢罐中进行二次发酵，而不是在每个酒瓶中发酵，从而降低了葡萄酒的生产成本，其最短的生产时间为30天。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%86%85%e6%89%98%e5%a4%a7%e5%8c%ba&form=hpcapt&filters=HpDate:"20240310_1600" "Bing Wallpaper 2024 3月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240311_ProseccoItaly"&FORM=HPQUIZ "必应主页测验 2024 3月 11")
+[下载480](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_800x480.jpg&rf=LaDigue_800x480.jpg "Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_1280x720.jpg&rf=LaDigue_1280x720.jpg "Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_UHD.jpg&rf=LaDigue_UHD.jpg "Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利")
+
+---
 ### 03月10日：是时候调整时间了
 #### 圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州（© Richard T. Nowitz/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_1280x720.jpg&rf=LaDigue_1280x720.jpg "大峡谷国家公园，亚利桑那州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大峡谷国家公园，亚利桑那州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_UHD.jpg&rf=LaDigue_UHD.jpg "大峡谷国家公园，亚利桑那州，美国")
-
----
-### 02月25日：薄雾笼罩
-#### 考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省（© Kevin Oke/Alamy）
-
-![薄雾笼罩](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_800x480.jpg&rf=LaDigue_800x480.jpg "薄雾笼罩")
-
-欢迎来到加拿大不列颠哥伦比亚省温哥华岛的考伊琴山谷。该山谷位于温哥华岛南部，其艺术和历史在普雷沃斯特山等郁郁青山中回荡。作为不列颠哥伦比亚省最大的原住民部落考伊琴部落的政府所在地，邓肯市拥有令人咋舌的原住民艺术收藏品，其中就包括了复杂的雕刻和绘画作品。在这里，您一定要参观图腾柱收藏馆，这些高耸的图腾柱是原住民历史的象征，描绘了原住民祖先的传说和部族的族徽。
-
-邓肯被誉为“图腾之城”，这里有几十根图腾柱，主要分布在市中心和公路沿线。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%80%83%e4%bc%8a%e7%90%b4%e5%b1%b1%e8%b0%b7&form=hpcapt&filters=HpDate:"20240224_1600" "Bing Wallpaper 2024 2月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240225_MtPrevostDuncan"&FORM=HPQUIZ "必应主页测验 2024 2月 25")
-[下载480](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_800x480.jpg&rf=LaDigue_800x480.jpg "考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省")
-[下载720](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_1280x720.jpg&rf=LaDigue_1280x720.jpg "考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省")
-[下载1080](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省")
-[下载UHD](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_UHD.jpg&rf=LaDigue_UHD.jpg "考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省")
 
 ---
