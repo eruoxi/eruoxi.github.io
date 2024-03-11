@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月12日：峡谷的守护者
+#### 布莱斯峡谷国家公园，犹他州，美国（© Jim Patterson/Tandem Stills + Motion）
+
+![峡谷的守护者](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_800x480.jpg&rf=LaDigue_800x480.jpg "峡谷的守护者")
+
+徒步是游览犹他州布莱斯峡谷国家公园这些迷人的红色石柱的最佳选择！公园里的徒步小径可以引导您穿行于世界上最大的石柱岩群之间，这些石柱是由侵蚀作用形成的岩石尖顶。这些马蹄形的天然露天剧场会随着阳光的照射而变化，营造出了一种超现实的景观。该地区最初居住着美洲原住民部落，包括派尤特人。虽然没有证据表明他们曾在此长期居住，但派尤特族印第安人曾利用庞沙冈特高原进行季节性狩猎和采集。布莱斯峡谷于1928年被指定为国家公园，峡谷内分布着多个观景点，如灵感点、约文帕点和彩虹点，可将周围的景致尽收眼底。
+
+彩虹点是布莱斯峡谷国家公园的最高处，海拔9105英尺（2775米），位于18英里（29公里）观光车程的终点处。从这里可以看到宝瓶星座高原、布莱斯露天剧场、亨利山脉、赤岩断崖和白岩断崖。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e8%8e%b1%e6%96%af%e5%b3%a1%e8%b0%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240311_1600" "Bing Wallpaper 2024 3月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240312_BryceSnow"&FORM=HPQUIZ "必应主页测验 2024 3月 12")
+[下载480](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_800x480.jpg&rf=LaDigue_800x480.jpg "布莱斯峡谷国家公园，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_1280x720.jpg&rf=LaDigue_1280x720.jpg "布莱斯峡谷国家公园，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布莱斯峡谷国家公园，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_UHD.jpg&rf=LaDigue_UHD.jpg "布莱斯峡谷国家公园，犹他州，美国")
+
+---
 ### 03月11日：醉人的山峦
 #### Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利（© Richard T. Nowitz/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_1280x720.jpg&rf=LaDigue_1280x720.jpg "玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_UHD.jpg&rf=LaDigue_UHD.jpg "玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国")
-
----
-### 02月26日：深不见底的鸿沟
-#### 大峡谷国家公园，亚利桑那州，美国（© Jeremy Janus/Getty Images）
-
-![深不见底的鸿沟](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_800x480.jpg&rf=LaDigue_800x480.jpg "深不见底的鸿沟")
-
-祝大峡谷国家公园生日快乐！今天是由亚利桑那州科罗拉多河雕刻而成的著名峡谷的一个里程碑：自伍德罗·威尔逊总统于1919年将其指定为国家公园以来，已经过去了105年。大峡谷是由河流、风和山体滑坡形成的独特景观，它的起源可以追溯到500万到600万年前。大峡谷承载着印第安人、欧美拓荒者和旅行者的故事，还有陡峭的山谷和五颜六色的岩层等地质奇观。所有的这些区域都由国家公园管理局监管。除了在科罗拉多河上巡游、参加时光之路徒步旅行或登上沙漠景观瞭望塔等旅游冒险活动以外，该公园还是联合国教科文组织指定的世界遗产和注册在案的国际黑暗天空公园，你可以在这里观赏到清澈的星空。
-
-大峡谷国家公园于1979年被联合国教科文组织指定为世界遗产。2019年2月26日，该公园迎来了建园100周年纪念日。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e5%b3%a1%e8%b0%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240225_1600" "Bing Wallpaper 2024 2月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240226_GrandCanyonWinter"&FORM=HPQUIZ "必应主页测验 2024 2月 26")
-[下载480](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_800x480.jpg&rf=LaDigue_800x480.jpg "大峡谷国家公园，亚利桑那州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_1280x720.jpg&rf=LaDigue_1280x720.jpg "大峡谷国家公园，亚利桑那州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大峡谷国家公园，亚利桑那州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_UHD.jpg&rf=LaDigue_UHD.jpg "大峡谷国家公园，亚利桑那州，美国")
 
 ---
