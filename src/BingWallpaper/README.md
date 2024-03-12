@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月13日：鸟瞰
+#### 小红鹳飞越马加迪湖,肯尼亚（© Vicki Jauron, Babylon and Beyond Photography/Getty Images）
+
+![鸟瞰](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_800x480.jpg&rf=LaDigue_800x480.jpg "鸟瞰")
+
+多么不可思议的景色啊！这张航拍照片展示了以肯尼亚马加迪湖为背景的小红鹳群。小红鹳是六种火烈鸟之一，以其鲜艳的粉红色羽毛和独特的觅食行为而闻名。由于喙的构造，这些鸟喜欢在水面附近进食。它们主要栖息在碳酸盐浓度较高的非洲苏打湖。马加迪湖就是这样一个充满蓝藻和海藻的苏打湖，为火烈鸟提供了充足的营养。成千上万只火烈鸟聚集在湖边的壮观景象揭示了这些独特生态系统的重要性。
+
+小红鹳可能是最常见的火烈鸟品种，其数量在高峰期曾多达两百万只。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b0%8f%e7%ba%a2%e9%b9%b3&form=hpcapt&filters=HpDate:"20240312_1600" "Bing Wallpaper 2024 3月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240313_MagadiFlamingos"&FORM=HPQUIZ "必应主页测验 2024 3月 13")
+[下载480](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_800x480.jpg&rf=LaDigue_800x480.jpg "小红鹳飞越马加迪湖,肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_1280x720.jpg&rf=LaDigue_1280x720.jpg "小红鹳飞越马加迪湖,肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "小红鹳飞越马加迪湖,肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_UHD.jpg&rf=LaDigue_UHD.jpg "小红鹳飞越马加迪湖,肯尼亚")
+
+---
 ### 03月12日：峡谷的守护者
 #### 布莱斯峡谷国家公园，犹他州，美国（© Jim Patterson/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BamburghCastleUK_ZH-CN3201531782_1280x720.jpg&rf=LaDigue_1280x720.jpg "班堡城堡，诺森伯兰郡，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.BamburghCastleUK_ZH-CN3201531782_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "班堡城堡，诺森伯兰郡，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.BamburghCastleUK_ZH-CN3201531782_UHD.jpg&rf=LaDigue_UHD.jpg "班堡城堡，诺森伯兰郡，英格兰")
-
----
-### 02月27日：在冰天雪地里玩耍
-#### 玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国（© Piriya Photography/Getty Images）
-
-![在冰天雪地里玩耍](https://cn.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_800x480.jpg&rf=LaDigue_800x480.jpg "在冰天雪地里玩耍")
-
-今天是国际北极熊日，我们在欣赏这些“冰雪萌主”之际，也呼吁大家关注世界上最大的熊类所面临的挑战。国际北极熊日是由国际北极熊组织设立的，该组织致力于保护这些哺乳动物及其栖息地。选择这个日期是为了配合北极熊幼崽在洞穴中受到母亲保护的时间，因为这是北极熊一生中最脆弱的时期。
-
-北极熊是当今最大的陆地食肉哺乳动物，另一种几乎和北极熊一样大的熊是它的近亲科迪亚克棕熊。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%9e%81%e7%86%8a&form=hpcapt&filters=HpDate:"20240226_1600" "Bing Wallpaper 2024 2月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240227_PolarBearCubs"&FORM=HPQUIZ "必应主页测验 2024 2月 27")
-[下载480](https://cn.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_800x480.jpg&rf=LaDigue_800x480.jpg "玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_1280x720.jpg&rf=LaDigue_1280x720.jpg "玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_UHD.jpg&rf=LaDigue_UHD.jpg "玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国")
 
 ---
