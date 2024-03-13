@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月14日：一个π
+#### Wat Phra Ngam，大城府历史公园，泰国（© boonchai wedmakawand/Alamy Stock Photo）
+
+![一个π](https://cn.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_800x480.jpg&rf=LaDigue_800x480.jpg "一个π")
+
+有人这样说过，世界上唯一不变的是变化。然而，在数学里却有许多固定不变的常数，今天，我们要庆祝的也许是其中最著名的一个：π。圆周率是圆的周长与直径之比，约为3.14159。每年的3月14日，全世界的数学爱好者都会用烘焙来庆祝圆周率π日——这既是对数学常数π的庆祝，也是对其同音字，美味的“派”的庆祝。它始于1988年，当时物理学家拉里·肖将日期（3/14）与这个常数的前三位数联系起来。今天，数学家和爱好者们用吃派和背诵π来庆祝圆周率日。你知道吗，当你的时钟敲响1:59时，表示你离圆周率的实际值又近了三位小数。圆周率无处不在，甚至在大自然中也是如此。图中是泰国大城府寺庙的一棵菩提树，其形状就像圆周率的符号。无论你是数学怪才，还是只是为了享受美食，每个人都可以享受“派”节！
+
+每年的3月14日被称为“圆周率日”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%86%e5%91%a8%e7%8e%87%e6%97%a5&form=hpcapt&filters=HpDate:"20240313_1600" "Bing Wallpaper 2024 3月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240314_AyutthayaTree"&FORM=HPQUIZ "必应主页测验 2024 3月 14")
+[下载480](https://cn.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_800x480.jpg&rf=LaDigue_800x480.jpg "Wat Phra Ngam，大城府历史公园，泰国")
+[下载720](https://cn.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_1280x720.jpg&rf=LaDigue_1280x720.jpg "Wat Phra Ngam，大城府历史公园，泰国")
+[下载1080](https://cn.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Wat Phra Ngam，大城府历史公园，泰国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_UHD.jpg&rf=LaDigue_UHD.jpg "Wat Phra Ngam，大城府历史公园，泰国")
+
+---
 ### 03月13日：鸟瞰
 #### 小红鹳飞越马加迪湖,肯尼亚（© Vicki Jauron, Babylon and Beyond Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LeapingSquirrel_ZH-CN9112090462_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧亚红松鼠")
 [下载1080](https://cn.bing.com/th?id=OHR.LeapingSquirrel_ZH-CN9112090462_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚红松鼠")
 [下载UHD](https://cn.bing.com/th?id=OHR.LeapingSquirrel_ZH-CN9112090462_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚红松鼠")
-
----
-### 02月28日：随波逐流
-#### 班堡城堡，诺森伯兰郡，英格兰（© Blackbeck/Getty Images）
-
-![随波逐流](https://cn.bing.com/th?id=OHR.BamburghCastleUK_ZH-CN3201531782_800x480.jpg&rf=LaDigue_800x480.jpg "随波逐流")
-
-班堡城堡坐落在英格兰诺森伯兰郡班堡地区，矗立在海岸旁边突出的黑色火山岩上。图中所展示的是班堡沙丘，班堡城堡和附近的海滩就掩映在该地区独特的沙质地貌中。班堡城堡曾经是盎格鲁-撒克逊人的战略要塞，经过几个世纪的演变，形成了如今这座宏伟的建筑。这座城堡在抵御维京人的入侵中曾发挥了关键作用。然而，北欧人摧毁了城堡最初的防御工事，之后在中世纪期间又对其进行了重大改造。城堡还是古代诺森伯兰王国的所在地，这是一个中世纪的盎格鲁-撒克逊王国，位于今天的英格兰北部和苏格兰东南部。班堡城堡面朝北海，被生机盎然的绿草所环绕，怀抱如此美景，班堡城堡成为了许多电影的取景地，比如《麦克白》、《夺宝奇兵：命运之盘》、《艾芬豪》等。
-
-城堡的洗衣房内设有阿姆斯特朗和航空文物博物馆，主要展出维多利亚时代企业家威廉·阿姆斯特朗和阿姆斯特朗·惠特沃斯建造的制造公司遗迹，展品包括引擎、大炮和兵器，以及来自两次世界大战的航天文物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8f%ad%e5%a0%a1%e5%9f%8e%e5%a0%a1+%e8%af%ba%e6%a3%ae%e4%bc%af%e5%85%b0%e9%83%a1&form=hpcapt&filters=HpDate:"20240227_1600" "Bing Wallpaper 2024 2月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240228_BamburghCastleUK"&FORM=HPQUIZ "必应主页测验 2024 2月 28")
-[下载480](https://cn.bing.com/th?id=OHR.BamburghCastleUK_ZH-CN3201531782_800x480.jpg&rf=LaDigue_800x480.jpg "班堡城堡，诺森伯兰郡，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.BamburghCastleUK_ZH-CN3201531782_1280x720.jpg&rf=LaDigue_1280x720.jpg "班堡城堡，诺森伯兰郡，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.BamburghCastleUK_ZH-CN3201531782_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "班堡城堡，诺森伯兰郡，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.BamburghCastleUK_ZH-CN3201531782_UHD.jpg&rf=LaDigue_UHD.jpg "班堡城堡，诺森伯兰郡，英格兰")
 
 ---
