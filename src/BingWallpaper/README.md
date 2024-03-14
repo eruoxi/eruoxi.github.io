@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月15日：一抹春色
+#### 安沙波利哥沙漠州立公园，美国加利福尼亚州（© Stephen Matera/Tandem Stills + Motion）
+
+![一抹春色](https://cn.bing.com/th?id=OHR.AnzaBorregoBloom_ZH-CN8284458835_800x480.jpg&rf=LaDigue_800x480.jpg "一抹春色")
+
+也许距离春天伊始还有好些天，但是加州最大的州立公园——安沙波利哥沙漠州立公园的野花已经在这里向你问好了！每年春天，这片贫瘠的沙漠都会经历一次戏剧性的改变。向日葵、沙漠菊和蒲公英等花朵竞相绽放，形成色彩斑斓的奇观。对于那些想要寻求更多冒险体验的游客来说，从半岛山脉仙人掌丛生的丘陵到峡谷、荒地和天然棕榈绿洲，这个公园有很多可供选择的地方。此外，作为指定的国际黑暗天空公园，这里还是绝佳的观星地点。除了自然奇观之外，占地超过60万英亩的公园还拥有丰富的文化和历史遗产，如古老的象形文字或岩画。
+
+“超级花开季”下的这片花海是安沙波利哥沙漠州立公园最大的景点之一，它是了解气候变化、降雨量和季节起止期变化影响不可或缺的指标。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%ae%89%e6%b2%99%e6%b3%a2%e5%88%a9%e5%93%a5%e6%b2%99%e6%bc%a0%e5%b7%9e%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240314_1600" "Bing Wallpaper 2024 3月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240315_AnzaBorregoBloom"&FORM=HPQUIZ "必应主页测验 2024 3月 15")
+[下载480](https://cn.bing.com/th?id=OHR.AnzaBorregoBloom_ZH-CN8284458835_800x480.jpg&rf=LaDigue_800x480.jpg "安沙波利哥沙漠州立公园，美国加利福尼亚州")
+[下载720](https://cn.bing.com/th?id=OHR.AnzaBorregoBloom_ZH-CN8284458835_1280x720.jpg&rf=LaDigue_1280x720.jpg "安沙波利哥沙漠州立公园，美国加利福尼亚州")
+[下载1080](https://cn.bing.com/th?id=OHR.AnzaBorregoBloom_ZH-CN8284458835_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安沙波利哥沙漠州立公园，美国加利福尼亚州")
+[下载UHD](https://cn.bing.com/th?id=OHR.AnzaBorregoBloom_ZH-CN8284458835_UHD.jpg&rf=LaDigue_UHD.jpg "安沙波利哥沙漠州立公园，美国加利福尼亚州")
+
+---
 ### 03月14日：一个π
 #### Wat Phra Ngam，大城府历史公园，泰国（© boonchai wedmakawand/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Schmetterlingswiese_ZH-CN3740804088_1280x720.jpg&rf=LaDigue_1280x720.jpg "德国草地上的蝴蝶")
 [下载1080](https://cn.bing.com/th?id=OHR.Schmetterlingswiese_ZH-CN3740804088_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "德国草地上的蝴蝶")
 [下载UHD](https://cn.bing.com/th?id=OHR.Schmetterlingswiese_ZH-CN3740804088_UHD.jpg&rf=LaDigue_UHD.jpg "德国草地上的蝴蝶")
-
----
-### 02月29日：多过一天
-#### 欧亚红松鼠（© Westend61/Getty Images）
-
-![多过一天](https://cn.bing.com/th?id=OHR.LeapingSquirrel_ZH-CN9112090462_800x480.jpg&rf=LaDigue_800x480.jpg "多过一天")
-
-你是一个“跳跃者”吗？不，不是像这只欧亚红松鼠那样跳跃，而是指在闰日出生的人！闰年是日历上的一种奇怪现象，因为地球的轨道和我们通常计算的年份稍有不同，地球绕太阳公转一周需要365天5小时48分46秒，为了解决这个余数，二月每四年就会多出一天，也就是闰日。这一概念可追溯到古罗马，并在教皇格列高利十三世于1582年引入的公历中得到完善。虽然这一天的目的是让我们的一年与阳历保持一致，但它也可以作为额外的一天为即将来临的春天做准备！世界各地都有独特的习俗来纪念闰日和闰年。在爱尔兰和英国，女人向男人求婚；在希腊，闰年结婚被认为会带来不幸；在法国，每四年才出一期的讽刺报刊会在闰日出版。
-
-在闰日出生的人被称为“跳跃者”或“闰日族”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e4%ba%9a%e7%ba%a2%e6%9d%be%e9%bc%a0&form=hpcapt&filters=HpDate:"20240228_1600" "Bing Wallpaper 2024 2月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240229_LeapingSquirrel"&FORM=HPQUIZ "必应主页测验 2024 2月 29")
-[下载480](https://cn.bing.com/th?id=OHR.LeapingSquirrel_ZH-CN9112090462_800x480.jpg&rf=LaDigue_800x480.jpg "欧亚红松鼠")
-[下载720](https://cn.bing.com/th?id=OHR.LeapingSquirrel_ZH-CN9112090462_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧亚红松鼠")
-[下载1080](https://cn.bing.com/th?id=OHR.LeapingSquirrel_ZH-CN9112090462_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚红松鼠")
-[下载UHD](https://cn.bing.com/th?id=OHR.LeapingSquirrel_ZH-CN9112090462_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚红松鼠")
 
 ---
