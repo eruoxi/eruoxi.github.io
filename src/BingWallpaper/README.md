@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月18日：温柔的“沙丘巨人”
+#### 大象岩，古城欧拉，沙特阿拉伯（© Lubo Ivanko/Shutterstock）
+
+![温柔的“沙丘巨人”](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_800x480.jpg&rf=LaDigue_800x480.jpg "温柔的“沙丘巨人”")
+
+经过数百万年的时间，大自然雕琢出了这片耀眼夺目的砂岩地貌，名为大象岩。该岩石高达117英尺，位于沙特阿拉伯古城欧拉附近，由于风水的侵蚀，它呈现出大象的形状，并成为了该地区的著名地标。日落时，夕阳洒在这片沙漠上，为红色的“猛犸象”及其周围金色的沙子镀上一层温暖的光辉。
+
+古城欧拉民俗文化村是一个传统的阿拉伯村庄。大约在8世纪前，绿洲上的人们迁居至此，并一直居住到 20 世纪。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8f%a4%e5%9f%8e%e6%ac%a7%e6%8b%89&form=hpcapt&filters=HpDate:"20240317_1600" "Bing Wallpaper 2024 3月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240318_ElephantRock"&FORM=HPQUIZ "必应主页测验 2024 3月 18")
+[下载480](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_800x480.jpg&rf=LaDigue_800x480.jpg "大象岩，古城欧拉，沙特阿拉伯")
+[下载720](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_1280x720.jpg&rf=LaDigue_1280x720.jpg "大象岩，古城欧拉，沙特阿拉伯")
+[下载1080](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大象岩，古城欧拉，沙特阿拉伯")
+[下载UHD](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_UHD.jpg&rf=LaDigue_UHD.jpg "大象岩，古城欧拉，沙特阿拉伯")
+
+---
 ### 03月17日：今天，让我们穿绿衣裳吧！
 #### 圣菲尼安湾，凯里郡，爱尔兰（© Atlantide Phototravel/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_1280x720.jpg&rf=LaDigue_1280x720.jpg "从蒙特维多看到的阿雷纳尔火山,哥斯达黎加")
 [下载1080](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从蒙特维多看到的阿雷纳尔火山,哥斯达黎加")
 [下载UHD](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_UHD.jpg&rf=LaDigue_UHD.jpg "从蒙特维多看到的阿雷纳尔火山,哥斯达黎加")
-
----
-### 03月03日：一位浑身斑点的杂技演员
-#### 树上的豹子，克鲁格国家公园，南非（© Tonino De Marco/Minden Pictures）
-
-![一位浑身斑点的杂技演员](https://cn.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_800x480.jpg&rf=LaDigue_800x480.jpg "一位浑身斑点的杂技演员")
-
-是时候踏入荒野了！世界野生动植物日是一年一度的活动，旨在强调全世界保护野生动植物的必要性。今年的主题是利用数字技术的进步帮助保护野生动植物：这些技术可以改善相关研究、促进交流和DNA分析，数字平台也可以让年轻人参与到保护地球动植物的努力中来。
-
-“世界野生动植物日”是由联合国大会于2013年12月20日决定设立的节日。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e9%87%8e%e7%94%9f%e5%8a%a8%e7%89%a9%e6%97%a5&form=hpcapt&filters=HpDate:"20240302_1600" "Bing Wallpaper 2024 3月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240303_KrugerLeopard"&FORM=HPQUIZ "必应主页测验 2024 3月 3")
-[下载480](https://cn.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_800x480.jpg&rf=LaDigue_800x480.jpg "树上的豹子，克鲁格国家公园，南非")
-[下载720](https://cn.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_1280x720.jpg&rf=LaDigue_1280x720.jpg "树上的豹子，克鲁格国家公园，南非")
-[下载1080](https://cn.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "树上的豹子，克鲁格国家公园，南非")
-[下载UHD](https://cn.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_UHD.jpg&rf=LaDigue_UHD.jpg "树上的豹子，克鲁格国家公园，南非")
 
 ---
