@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月19日：春日私语
+#### 盛开的扁桃树, 加利福尼亚州，美国（© Jeffrey Lewis/Tandem Stills + Motion）
+
+![春日私语](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_800x480.jpg&rf=LaDigue_800x480.jpg "春日私语")
+
+在阳光普照的金州（加利福尼亚州的别称）果园中，扁桃仁享有崇高的地位，它以美味的果实诱惑着人们的味蕾，用漂亮的花朵装点着自然环境。而加利福尼亚州种植的扁桃仁占世界市场供应量的80%，占美国市场供应量的100%。据悉，扁桃仁中含有对心脏有益的单不饱和脂肪，还富含纤维、蛋白质以及大量的维生素和矿物质，是一种营养丰富的食物。二三月份，在加利福尼亚州的中央山谷中，这些扁桃树的种子会从娇嫩的花朵中孕育出来，然后在一种毛茸茸的、有着保护作用的外壳中生长，直至成熟。扁桃树属于蔷薇科，在花期会绽放出美丽的花朵，而这些芬芳的花朵会将果园涂染成白色和粉色色调。
+
+扁桃仁是在埃及图坦卡蒙陵墓中发现的珍宝之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%89%81%e6%a1%83%e4%bb%81&form=hpcapt&filters=HpDate:"20240318_1600" "Bing Wallpaper 2024 3月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240319_AlmondBloom"&FORM=HPQUIZ "必应主页测验 2024 3月 19")
+[下载480](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_800x480.jpg&rf=LaDigue_800x480.jpg "盛开的扁桃树, 加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_1280x720.jpg&rf=LaDigue_1280x720.jpg "盛开的扁桃树, 加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的扁桃树, 加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的扁桃树, 加利福尼亚州，美国")
+
+---
 ### 03月18日：温柔的“沙丘巨人”
 #### 大象岩，古城欧拉，沙特阿拉伯（© Lubo Ivanko/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_1280x720.jpg&rf=LaDigue_1280x720.jpg "曼谷的交通圈和高速公路，泰国")
 [下载1080](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼谷的交通圈和高速公路，泰国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_UHD.jpg&rf=LaDigue_UHD.jpg "曼谷的交通圈和高速公路，泰国")
-
----
-### 03月04日：睡美人
-#### 从蒙特维多看到的阿雷纳尔火山,哥斯达黎加（© Lukas Bischoff/Getty Images）
-
-![睡美人](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_800x480.jpg&rf=LaDigue_800x480.jpg "睡美人")
-
-热带国家哥斯达黎加在向你招手！图中展示的圆锥形的阿雷纳尔火山高达5437英尺，屹立于周围的热带雨林以及该国最大的湖泊阿雷纳尔湖之上。1968年，在一次大规模的喷发中，这座沉睡的火山咆哮着苏醒了，当时的岩石飞溅了半英里多。而最近一次的大规模火山活动发生在2010年，如今，这座曾被熔岩照亮过山峰正处于休眠状态。对于观鸟者而言，阿雷纳尔火山国家公园是一个必游之地，公园内拥有500多种鸟类，除此之外，该公园还是各种动植物的家园，包括赤短角鹿、美洲狮、白脸卷尾猴、兰花、蝎尾蕉和蕨类植物。高高的阿雷纳尔火山俯瞰着这些热带树木，形成了一副壮观而美丽的风景。
-
-哥斯达黎加拥有全球5%的物种。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e9%9b%b7%e7%ba%b3%e5%b0%94%e7%81%ab%e5%b1%b1&form=hpcapt&filters=HpDate:"20240303_1600" "Bing Wallpaper 2024 3月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240304_ArenalCostaRica"&FORM=HPQUIZ "必应主页测验 2024 3月 4")
-[下载480](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_800x480.jpg&rf=LaDigue_800x480.jpg "从蒙特维多看到的阿雷纳尔火山,哥斯达黎加")
-[下载720](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_1280x720.jpg&rf=LaDigue_1280x720.jpg "从蒙特维多看到的阿雷纳尔火山,哥斯达黎加")
-[下载1080](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从蒙特维多看到的阿雷纳尔火山,哥斯达黎加")
-[下载UHD](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_UHD.jpg&rf=LaDigue_UHD.jpg "从蒙特维多看到的阿雷纳尔火山,哥斯达黎加")
 
 ---
