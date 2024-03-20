@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月21日：森林多美好呀！
+#### 布恩迪国家公园，乌干达（© Art Wolfe/DanitaDelimont.com）
+
+![森林多美好呀！](https://cn.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_800x480.jpg&rf=LaDigue_800x480.jpg "森林多美好呀！")
+
+今天是国际森林日，让我们走出家门，扎根林地吧！森林是地球上重要的生态系统之一，为了提高人们对保护森林和欣赏森林景观的意识，就在11年前的今天，联合国设立了国际森林日。据悉，世界各地的林地占地球陆地面积的30%以上，林地中的树木种类繁多，令人难以置信，据估计，全球共有超6万种不同种类的树。森林在提供食物、水和药物等基础资源方面发挥着至关重要的作用。今天的图片展示的是乌干达的布恩迪国家公园，这里有160种树木和100种蕨类植物，以及世界上50%的山地大猩猩种群。森林中的树木之间还生长着茂密的竹林，导致人们在这片森林中寸步难行，因此布恩迪国家公园又名“难以穿越的森林”。
+
+布恩迪国家公园是乌干达西南部的一个国家公园。它是联合国教科文组织指定的世界遗产地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%a3%ae%e6%9e%97%e6%97%a5&form=hpcapt&filters=HpDate:"20240320_1600" "Bing Wallpaper 2024 3月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240321_BwindiNationalForest"&FORM=HPQUIZ "必应主页测验 2024 3月 21")
+[下载480](https://cn.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_800x480.jpg&rf=LaDigue_800x480.jpg "布恩迪国家公园，乌干达")
+[下载720](https://cn.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_1280x720.jpg&rf=LaDigue_1280x720.jpg "布恩迪国家公园，乌干达")
+[下载1080](https://cn.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布恩迪国家公园，乌干达")
+[下载UHD](https://cn.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_UHD.jpg&rf=LaDigue_UHD.jpg "布恩迪国家公园，乌干达")
+
+---
 ### 03月20日：粉嫩的春日美景
 #### 鸟瞰春日盛开的樱花，中国（© outcast85/Getty images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_1280x720.jpg&rf=LaDigue_1280x720.jpg "Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_UHD.jpg&rf=LaDigue_UHD.jpg "Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙")
-
----
-### 03月06日：尽情地嬉戏玩水吧！
-#### Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国（© Eric Vogt/Tandem Stills + Motion）
-
-![尽情地嬉戏玩水吧！](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_800x480.jpg&rf=LaDigue_800x480.jpg "尽情地嬉戏玩水吧！")
-
-在俄勒冈州一处狭缝型峡谷的尽头，有一个特别的地方正等待着徒步旅行者去探索：瓦克莱拉瀑布。其水源来自哥伦比亚河的支流坦纳河，这个瀑布的名字是由马扎马登山俱乐部的成员以美国原住民村庄的名字命名的。走到步行道的尽头，游客可以观赏到壮观的两级瀑布，水流从350英尺高的地方坠落到下面的水潭中，而这个水潭正是一个绝佳的玩水、纳凉胜地，当你在里面游泳的时候，可别忘了留意附近的水鸫（也被称为美洲河乌），这是一种以瀑布为家的鸟类。人们可以看到它们沿着溪流飞翔，偶尔也会潜入水中。
-
-与大多数瀑布一样，瓦克莱拉瀑布的水流在一定程度上受季节的影响。不过由于坦纳河的水源主要来自地下泉水，因此其水流并不会被恶劣天气严重影响到。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bf%84%e5%8b%92%e5%86%88%e5%b7%9eWahclella+Falls&form=hpcapt&filters=HpDate:"20240305_1600" "Bing Wallpaper 2024 3月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240306_WahclellaFalls"&FORM=HPQUIZ "必应主页测验 2024 3月 6")
-[下载480](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_800x480.jpg&rf=LaDigue_800x480.jpg "Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_1280x720.jpg&rf=LaDigue_1280x720.jpg "Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_UHD.jpg&rf=LaDigue_UHD.jpg "Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国")
 
 ---
