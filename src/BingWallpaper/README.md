@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月25日：春意盎然
+#### 弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大（© LeonU/Getty Images）
+
+![春意盎然](https://cn.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_800x480.jpg&rf=LaDigue_800x480.jpg "春意盎然")
+
+伴随着不断绽放的花朵，春天正式开始倒计时。在今天的照片中，弗雷泽河谷的郁金香绽放出鲜艳的色彩，为四月的阿伯兹福德郁金香节做准备。流经城市北部边界的弗雷泽河滋养了阿伯兹福德肥沃的土壤。
+
+世界上最大的郁金香节在加拿大渥太华举行。荷兰送来的郁金香是为了纪念加拿大和荷兰在第二次世界大战期间所建立的深厚友谊，当时加拿大军队领导了解放荷兰的行动，并接待了流亡海外的荷兰王室。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%8d%e5%88%97%e9%a2%a0%e5%93%a5%e4%bc%a6%e6%af%94%e4%ba%9a%e7%9c%81+%e9%98%bf%e4%bc%af%e5%85%b9%e7%a6%8f%e5%be%b7&form=hpcapt&filters=HpDate:"20240324_1600" "Bing Wallpaper 2024 3月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240325_TulipAbbotsford"&FORM=HPQUIZ "必应主页测验 2024 3月 25")
+[下载480](https://cn.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_800x480.jpg&rf=LaDigue_800x480.jpg "弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_1280x720.jpg&rf=LaDigue_1280x720.jpg "弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_UHD.jpg&rf=LaDigue_UHD.jpg "弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大")
+
+---
 ### 03月24日：你能挪过去一点吗?
 #### 樱花树枝上的灰胸绣眼鸟，韩国（© TigerSeo/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_1280x720.jpg&rf=LaDigue_1280x720.jpg "Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_UHD.jpg&rf=LaDigue_UHD.jpg "Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利")
-
----
-### 03月10日：是时候调整时间了
-#### 圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州（© Richard T. Nowitz/Getty Images）
-
-![是时候调整时间了](https://cn.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_800x480.jpg&rf=LaDigue_800x480.jpg "是时候调整时间了")
-
-今天的时间至关重要：三月的第二个星期日标志着夏令时的开始。今天凌晨2点开始，时钟向前拨动一小时，这意味着今天白天会“多”出一个小时。本杰明·富兰克林通常被认为是夏令时的发明者，但第一个真正意义上提出拨动时钟建议的人是新西兰昆虫学家乔治·赫德森。在1895年，因为他想在白天有更多的时间来采集昆虫，他提出了这一改动。
-
-夏令时规则的改变会给现有的计算机安装带来问题。例如，2007年北美对夏令时规则的修改要求许多计算机系统进行升级，而电子邮件和日历程序的升级压力则是最大的。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%8f%e4%bb%a4%e6%97%b6&form=hpcapt&filters=HpDate:"20240309_1600" "Bing Wallpaper 2024 3月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240310_BeaumontClock"&FORM=HPQUIZ "必应主页测验 2024 3月 10")
-[下载480](https://cn.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_800x480.jpg&rf=LaDigue_800x480.jpg "圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州")
-[下载720](https://cn.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州")
-[下载1080](https://cn.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州")
-[下载UHD](https://cn.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_UHD.jpg&rf=LaDigue_UHD.jpg "圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州")
 
 ---
