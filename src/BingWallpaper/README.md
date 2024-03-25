@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月26日：潮汐探戈
+#### 海水从古老的珊瑚礁上倾泻而下，杭莱，越南（© Thang Tat Nguyen/Getty Images）
+
+![潮汐探戈](https://cn.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_800x480.jpg&rf=LaDigue_800x480.jpg "潮汐探戈")
+
+欢迎来到杭莱，这里既有古老的岩层，又有生机勃勃的珊瑚礁！这个洞穴也被称为獭洞，被努伊蔡国家公园包围着，是越南中南部海岸地区永希湾的一部分。该地区的天然珊瑚礁被岩层环绕，这些岩层堆叠在一起，形成了一组洞穴。“杭莱”或“獭洞”名称的由来之一，是人们偶尔会看到水獭在洞穴中栖息。另一种解释是由于该地区盛产莱树，这种树的油可以用于船只防水。无论是水下还是水上，这里都有令人惊叹的景观：深潜者可以观赏五颜六色的珊瑚，喜欢在海风中露营的游客可以欣赏美丽的日落。
+
+这个洞穴曾经是水獭族的栖息地，故而得名“獭洞”。如果你有机会来到这里，有时会看到成群结队的水獭在洞穴里栖息。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%ae%81%e9%a1%ba%e6%b5%b7%e7%8d%ad%e6%b4%9e&form=hpcapt&filters=HpDate:"20240325_1600" "Bing Wallpaper 2024 3月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240326_HangRaiVietnam"&FORM=HPQUIZ "必应主页测验 2024 3月 26")
+[下载480](https://cn.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_800x480.jpg&rf=LaDigue_800x480.jpg "海水从古老的珊瑚礁上倾泻而下，杭莱，越南")
+[下载720](https://cn.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_1280x720.jpg&rf=LaDigue_1280x720.jpg "海水从古老的珊瑚礁上倾泻而下，杭莱，越南")
+[下载1080](https://cn.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海水从古老的珊瑚礁上倾泻而下，杭莱，越南")
+[下载UHD](https://cn.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_UHD.jpg&rf=LaDigue_UHD.jpg "海水从古老的珊瑚礁上倾泻而下，杭莱，越南")
+
+---
 ### 03月25日：春意盎然
 #### 弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大（© LeonU/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_1280x720.jpg&rf=LaDigue_1280x720.jpg "布莱斯峡谷国家公园，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布莱斯峡谷国家公园，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_UHD.jpg&rf=LaDigue_UHD.jpg "布莱斯峡谷国家公园，犹他州，美国")
-
----
-### 03月11日：醉人的山峦
-#### Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利（© Richard T. Nowitz/Getty Images）
-
-![醉人的山峦](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_800x480.jpg&rf=LaDigue_800x480.jpg "醉人的山峦")
-
-科内利亚诺和瓦尔多比亚德内的Prosecco丘陵是大自然与人类智慧完美结合的地方。由于其独特性，这些山丘已被联合国教科文组织列入世界遗产名录。特殊的丘陵地带给该地带来了由葡萄园和树林构成的有机环境。而在马赛克般的景观中脱颖而出的小村庄和葡萄园，却只是让这个地方显得独一无二的部分因素。
-
-与香槟和弗朗恰柯塔不同，Prosecco通常采用查玛法（又称马丁诺帝法）生产，即在大型不锈钢罐中进行二次发酵，而不是在每个酒瓶中发酵，从而降低了葡萄酒的生产成本，其最短的生产时间为30天。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%86%85%e6%89%98%e5%a4%a7%e5%8c%ba&form=hpcapt&filters=HpDate:"20240310_1600" "Bing Wallpaper 2024 3月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240311_ProseccoItaly"&FORM=HPQUIZ "必应主页测验 2024 3月 11")
-[下载480](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_800x480.jpg&rf=LaDigue_800x480.jpg "Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_1280x720.jpg&rf=LaDigue_1280x720.jpg "Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_UHD.jpg&rf=LaDigue_UHD.jpg "Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利")
 
 ---
