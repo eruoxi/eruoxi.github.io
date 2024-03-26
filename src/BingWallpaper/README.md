@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月27日：戏剧成为关注的焦点
+#### 布宜诺斯艾利斯哥伦布剧院，阿根廷（© Wei Hao Ho/Alamy Stock Photo）
+
+![戏剧成为关注的焦点](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_800x480.jpg&rf=LaDigue_800x480.jpg "戏剧成为关注的焦点")
+
+今天，整个世界都是一个大舞台。每年的3月27日，世界戏剧日都会在雷鸣般的掌声中拉开帷幕，为戏剧这个数百年来一直影响着大众的艺术形式奏响颂歌。世界戏剧日旨在推广戏剧，引起人们对戏剧艺术的重视，共享戏剧艺术给人类带来的精神财富。今天图中所见的是布宜诺斯艾利斯的哥伦布剧院，它是阿根廷丰富戏剧遗产的象征。这座剧院建于1908年，以其宏伟的建筑和卓越的音响效果而闻名，是世界上首屈一指的歌剧院。多年来，这里举办了许多传奇人物的演出，如恩里科·卡鲁索、理查·施特劳斯、莉丽·庞斯、玛丽娜·德·加巴林、乔斯·史东、布兰福德·马萨利斯等。在这个专属于戏剧的日子里，让我们一起欣赏这种以最壮观的方式讲述故事的艺术形式！
+
+哥伦布剧院卓越的音响效果享誉全球，可跻身世界五大演出场所之列，鲁契亚诺·帕瓦罗蒂也认可这一观点。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%88%8f%e5%89%a7%e6%97%a5&form=hpcapt&filters=HpDate:"20240326_1600" "Bing Wallpaper 2024 3月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240327_TeatroColon"&FORM=HPQUIZ "必应主页测验 2024 3月 27")
+[下载480](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_800x480.jpg&rf=LaDigue_800x480.jpg "布宜诺斯艾利斯哥伦布剧院，阿根廷")
+[下载720](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_1280x720.jpg&rf=LaDigue_1280x720.jpg "布宜诺斯艾利斯哥伦布剧院，阿根廷")
+[下载1080](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布宜诺斯艾利斯哥伦布剧院，阿根廷")
+[下载UHD](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_UHD.jpg&rf=LaDigue_UHD.jpg "布宜诺斯艾利斯哥伦布剧院，阿根廷")
+
+---
 ### 03月26日：潮汐探戈
 #### 海水从古老的珊瑚礁上倾泻而下，杭莱，越南（© Thang Tat Nguyen/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_1280x720.jpg&rf=LaDigue_1280x720.jpg "小红鹳飞越马加迪湖,肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "小红鹳飞越马加迪湖,肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_UHD.jpg&rf=LaDigue_UHD.jpg "小红鹳飞越马加迪湖,肯尼亚")
-
----
-### 03月12日：峡谷的守护者
-#### 布莱斯峡谷国家公园，犹他州，美国（© Jim Patterson/Tandem Stills + Motion）
-
-![峡谷的守护者](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_800x480.jpg&rf=LaDigue_800x480.jpg "峡谷的守护者")
-
-徒步是游览犹他州布莱斯峡谷国家公园这些迷人的红色石柱的最佳选择！公园里的徒步小径可以引导您穿行于世界上最大的石柱岩群之间，这些石柱是由侵蚀作用形成的岩石尖顶。这些马蹄形的天然露天剧场会随着阳光的照射而变化，营造出了一种超现实的景观。该地区最初居住着美洲原住民部落，包括派尤特人。虽然没有证据表明他们曾在此长期居住，但派尤特族印第安人曾利用庞沙冈特高原进行季节性狩猎和采集。布莱斯峡谷于1928年被指定为国家公园，峡谷内分布着多个观景点，如灵感点、约文帕点和彩虹点，可将周围的景致尽收眼底。
-
-彩虹点是布莱斯峡谷国家公园的最高处，海拔9105英尺（2775米），位于18英里（29公里）观光车程的终点处。从这里可以看到宝瓶星座高原、布莱斯露天剧场、亨利山脉、赤岩断崖和白岩断崖。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e8%8e%b1%e6%96%af%e5%b3%a1%e8%b0%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240311_1600" "Bing Wallpaper 2024 3月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240312_BryceSnow"&FORM=HPQUIZ "必应主页测验 2024 3月 12")
-[下载480](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_800x480.jpg&rf=LaDigue_800x480.jpg "布莱斯峡谷国家公园，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_1280x720.jpg&rf=LaDigue_1280x720.jpg "布莱斯峡谷国家公园，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布莱斯峡谷国家公园，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_UHD.jpg&rf=LaDigue_UHD.jpg "布莱斯峡谷国家公园，犹他州，美国")
 
 ---
