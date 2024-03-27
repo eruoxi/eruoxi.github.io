@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月28日：花香满径
+#### 上海的樱花，中国（© Yaorusheng/Getty Images）
+
+![花香满径](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_800x480.jpg&rf=LaDigue_800x480.jpg "花香满径")
+
+春天，大自然展现出勃勃生机，樱花盛开标志着一个季节的开始。在全球范围内，从日本到美国，这一奇观吸引了数百万人的目光。在中国，樱花从3月下旬开到4月下旬，粉色和白色的樱花点缀着一幅幅美景。这些脆弱的花瓣在中国人的传统中有着深远的意义，象征着新生、希望和生命的短暂。中国有很多赏樱地点，包括武汉的东湖樱花公园、上海的顾村公园和鲁迅公园，以及北京的玉渊潭公园。樱花看起来与梅花相似，但区分两者的一个简单方法是看它们的花瓣。樱花的花瓣末端有分叉，而梅花没有。
+
+全球变暖可能影响樱花树的花期。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a8%b1%e8%8a%b1&form=hpcapt&filters=HpDate:"20240327_1600" "Bing Wallpaper 2024 3月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240328_ShanghaiBlossoms"&FORM=HPQUIZ "必应主页测验 2024 3月 28")
+[下载480](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_800x480.jpg&rf=LaDigue_800x480.jpg "上海的樱花，中国")
+[下载720](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_1280x720.jpg&rf=LaDigue_1280x720.jpg "上海的樱花，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "上海的樱花，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_UHD.jpg&rf=LaDigue_UHD.jpg "上海的樱花，中国")
+
+---
 ### 03月27日：戏剧成为关注的焦点
 #### 布宜诺斯艾利斯哥伦布剧院，阿根廷（© Wei Hao Ho/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_1280x720.jpg&rf=LaDigue_1280x720.jpg "Wat Phra Ngam，大城府历史公园，泰国")
 [下载1080](https://cn.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Wat Phra Ngam，大城府历史公园，泰国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_UHD.jpg&rf=LaDigue_UHD.jpg "Wat Phra Ngam，大城府历史公园，泰国")
-
----
-### 03月13日：鸟瞰
-#### 小红鹳飞越马加迪湖,肯尼亚（© Vicki Jauron, Babylon and Beyond Photography/Getty Images）
-
-![鸟瞰](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_800x480.jpg&rf=LaDigue_800x480.jpg "鸟瞰")
-
-多么不可思议的景色啊！这张航拍照片展示了以肯尼亚马加迪湖为背景的小红鹳群。小红鹳是六种火烈鸟之一，以其鲜艳的粉红色羽毛和独特的觅食行为而闻名。由于喙的构造，这些鸟喜欢在水面附近进食。它们主要栖息在碳酸盐浓度较高的非洲苏打湖。马加迪湖就是这样一个充满蓝藻和海藻的苏打湖，为火烈鸟提供了充足的营养。成千上万只火烈鸟聚集在湖边的壮观景象揭示了这些独特生态系统的重要性。
-
-小红鹳可能是最常见的火烈鸟品种，其数量在高峰期曾多达两百万只。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b0%8f%e7%ba%a2%e9%b9%b3&form=hpcapt&filters=HpDate:"20240312_1600" "Bing Wallpaper 2024 3月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240313_MagadiFlamingos"&FORM=HPQUIZ "必应主页测验 2024 3月 13")
-[下载480](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_800x480.jpg&rf=LaDigue_800x480.jpg "小红鹳飞越马加迪湖,肯尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_1280x720.jpg&rf=LaDigue_1280x720.jpg "小红鹳飞越马加迪湖,肯尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "小红鹳飞越马加迪湖,肯尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_UHD.jpg&rf=LaDigue_UHD.jpg "小红鹳飞越马加迪湖,肯尼亚")
 
 ---
