@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月29日：潮涨潮落，灯火通明
+#### 日落时的南斯塔克灯塔，霍利希德，威尔士，英国（© mariotlr/Getty Images）
+
+![潮涨潮落，灯火通明](https://cn.bing.com/th?id=OHR.SouthStackLight_ZH-CN5932471774_800x480.jpg&rf=LaDigue_800x480.jpg "潮涨潮落，灯火通明")
+
+南斯塔克灯塔建在威尔士圣岛崎岖的悬崖上，俯瞰着爱尔兰海的深水区。自1809年建成以来，这座91英尺高的白塔一直为水手们指引方向；它为都柏林-霍利黑德-利物浦航线上的船只提供了安全通道。灯塔建成时，使用抹香鲸油点亮灯具；但多年来，灯塔的机械装置已升级为更先进的技术，如LED灯泡和菲涅尔透镜。灯塔于1984年实现自动化，其强大的光束照射范围可达28英里，至今仍是重要的导航设备。当夕阳西下，天空布满五彩斑斓的色彩时，南斯塔克灯塔在黄昏中的剪影令人叹为观止。游客们会勇敢地从陡峭的悬崖上爬下400级台阶，探索灯塔以及它的机房和展览区。
+
+南斯塔克灯塔建于1809年，用于提醒船只注意下方危险的岩石。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%9c%8d%e5%88%a9%e5%b8%8c%e5%be%b7&form=hpcapt&filters=HpDate:"20240328_1600" "Bing Wallpaper 2024 3月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240329_SouthStackLight"&FORM=HPQUIZ "必应主页测验 2024 3月 29")
+[下载480](https://cn.bing.com/th?id=OHR.SouthStackLight_ZH-CN5932471774_800x480.jpg&rf=LaDigue_800x480.jpg "日落时的南斯塔克灯塔，霍利希德，威尔士，英国")
+[下载720](https://cn.bing.com/th?id=OHR.SouthStackLight_ZH-CN5932471774_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时的南斯塔克灯塔，霍利希德，威尔士，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.SouthStackLight_ZH-CN5932471774_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时的南斯塔克灯塔，霍利希德，威尔士，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SouthStackLight_ZH-CN5932471774_UHD.jpg&rf=LaDigue_UHD.jpg "日落时的南斯塔克灯塔，霍利希德，威尔士，英国")
+
+---
 ### 03月28日：花香满径
 #### 上海的樱花，中国（© Yaorusheng/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AnzaBorregoBloom_ZH-CN8284458835_1280x720.jpg&rf=LaDigue_1280x720.jpg "安沙波利哥沙漠州立公园，美国加利福尼亚州")
 [下载1080](https://cn.bing.com/th?id=OHR.AnzaBorregoBloom_ZH-CN8284458835_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安沙波利哥沙漠州立公园，美国加利福尼亚州")
 [下载UHD](https://cn.bing.com/th?id=OHR.AnzaBorregoBloom_ZH-CN8284458835_UHD.jpg&rf=LaDigue_UHD.jpg "安沙波利哥沙漠州立公园，美国加利福尼亚州")
-
----
-### 03月14日：一个π
-#### Wat Phra Ngam，大城府历史公园，泰国（© boonchai wedmakawand/Alamy Stock Photo）
-
-![一个π](https://cn.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_800x480.jpg&rf=LaDigue_800x480.jpg "一个π")
-
-有人这样说过，世界上唯一不变的是变化。然而，在数学里却有许多固定不变的常数，今天，我们要庆祝的也许是其中最著名的一个：π。圆周率是圆的周长与直径之比，约为3.14159。每年的3月14日，全世界的数学爱好者都会用烘焙来庆祝圆周率π日——这既是对数学常数π的庆祝，也是对其同音字，美味的“派”的庆祝。它始于1988年，当时物理学家拉里·肖将日期（3/14）与这个常数的前三位数联系起来。今天，数学家和爱好者们用吃派和背诵π来庆祝圆周率日。你知道吗，当你的时钟敲响1:59时，表示你离圆周率的实际值又近了三位小数。圆周率无处不在，甚至在大自然中也是如此。图中是泰国大城府寺庙的一棵菩提树，其形状就像圆周率的符号。无论你是数学怪才，还是只是为了享受美食，每个人都可以享受“派”节！
-
-每年的3月14日被称为“圆周率日”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%86%e5%91%a8%e7%8e%87%e6%97%a5&form=hpcapt&filters=HpDate:"20240313_1600" "Bing Wallpaper 2024 3月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240314_AyutthayaTree"&FORM=HPQUIZ "必应主页测验 2024 3月 14")
-[下载480](https://cn.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_800x480.jpg&rf=LaDigue_800x480.jpg "Wat Phra Ngam，大城府历史公园，泰国")
-[下载720](https://cn.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_1280x720.jpg&rf=LaDigue_1280x720.jpg "Wat Phra Ngam，大城府历史公园，泰国")
-[下载1080](https://cn.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Wat Phra Ngam，大城府历史公园，泰国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_UHD.jpg&rf=LaDigue_UHD.jpg "Wat Phra Ngam，大城府历史公园，泰国")
 
 ---
