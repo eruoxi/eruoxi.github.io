@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月02日：一缕阳光下的林地
+#### 日德兰半岛的山毛榉树和野生海葵 ，丹麦（© Nick Brundle Photography/Getty Images）
+
+![一缕阳光下的林地](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_800x480.jpg&rf=LaDigue_800x480.jpg "一缕阳光下的林地")
+
+今天，图片上的风景将我们带到了丹麦的日德兰半岛。随着春天的到来，这片北方的土地展现出了一种属于山毛榉树的绿色色调，而山毛榉树正是丹麦的“国树”。对于丹麦人民来说，这些正在发芽的山毛榉树是一种独特的存在，在四五月份，他们会把树上的嫩叶采摘下来用于烹饪中，尤其是用在沙拉中。过去，欧洲人经常使用山毛榉树光滑的树皮来书写文字。这也是为什么，在现代荷兰语中，"书籍"一词直接翻译为"山毛榉树"。当阳光穿过森林中的树冠照耀下来时，野生海葵用白色的花瓣点亮了林地，它们代表着精致之美和真诚纯粹，曾在莫奈和梵高等艺术家的杰作中“担任主角”。
+
+山毛榉树是雌雄同株的植物。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%97%a5%e5%be%b7%e5%85%b0%e5%8d%8a%e5%b2%9b&form=hpcapt&filters=HpDate:"20240401_1600" "Bing Wallpaper 2024 4月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240402_JutlandSpring"&FORM=HPQUIZ "必应主页测验 2024 4月 2")
+[下载480](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_800x480.jpg&rf=LaDigue_800x480.jpg "日德兰半岛的山毛榉树和野生海葵 ，丹麦")
+[下载720](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_1280x720.jpg&rf=LaDigue_1280x720.jpg "日德兰半岛的山毛榉树和野生海葵 ，丹麦")
+[下载1080](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日德兰半岛的山毛榉树和野生海葵 ，丹麦")
+[下载UHD](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_UHD.jpg&rf=LaDigue_UHD.jpg "日德兰半岛的山毛榉树和野生海葵 ，丹麦")
+
+---
 ### 04月01日：岌岌可危的冰川
 #### 勃朗峰上的冰海，夏慕尼，法国（© Hagenmuller Jean-François/Hemis/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_1280x720.jpg&rf=LaDigue_1280x720.jpg "盛开的扁桃树, 加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的扁桃树, 加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的扁桃树, 加利福尼亚州，美国")
-
----
-### 03月18日：温柔的“沙丘巨人”
-#### 大象岩，古城欧拉，沙特阿拉伯（© Lubo Ivanko/Shutterstock）
-
-![温柔的“沙丘巨人”](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_800x480.jpg&rf=LaDigue_800x480.jpg "温柔的“沙丘巨人”")
-
-经过数百万年的时间，大自然雕琢出了这片耀眼夺目的砂岩地貌，名为大象岩。该岩石高达117英尺，位于沙特阿拉伯古城欧拉附近，由于风水的侵蚀，它呈现出大象的形状，并成为了该地区的著名地标。日落时，夕阳洒在这片沙漠上，为红色的“猛犸象”及其周围金色的沙子镀上一层温暖的光辉。
-
-古城欧拉民俗文化村是一个传统的阿拉伯村庄。大约在8世纪前，绿洲上的人们迁居至此，并一直居住到 20 世纪。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8f%a4%e5%9f%8e%e6%ac%a7%e6%8b%89&form=hpcapt&filters=HpDate:"20240317_1600" "Bing Wallpaper 2024 3月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240318_ElephantRock"&FORM=HPQUIZ "必应主页测验 2024 3月 18")
-[下载480](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_800x480.jpg&rf=LaDigue_800x480.jpg "大象岩，古城欧拉，沙特阿拉伯")
-[下载720](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_1280x720.jpg&rf=LaDigue_1280x720.jpg "大象岩，古城欧拉，沙特阿拉伯")
-[下载1080](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大象岩，古城欧拉，沙特阿拉伯")
-[下载UHD](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_UHD.jpg&rf=LaDigue_UHD.jpg "大象岩，古城欧拉，沙特阿拉伯")
 
 ---
