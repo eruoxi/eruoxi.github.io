@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月03日：希望彩虹留在这里
+#### At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦（© Emad aljumah/Getty Images）
+
+![希望彩虹留在这里](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_ZH-CN8027219590_800x480.jpg&rf=LaDigue_800x480.jpg "希望彩虹留在这里")
+
+正如青蛙科米特（《布偶电影》中的主角）曾在歌曲《彩虹般的连接》中所唱的那样：“彩虹是幻象，但只是幻象，彩虹没有什么可以隐藏的……”每年4月3日是美国的 “全国寻找彩虹日”，这一天旨在庆祝这一多彩的自然现象，它让世界各地的人们都欣喜不已。当阳光通过大气中的雨滴，光线被反射和散射时，彩虹就会出现。在“寻找彩虹日”这天，人们会参加相关的活动，例如在雨后寻找彩虹或者是创作以彩虹为主题的艺术。在今天的图片中，我们看到一道彩虹挂在吉尔吉斯斯坦雄伟的Kakshaal Too 山脉上，崎岖的山峰和纯净原始的山谷构成了一副绝美的背景图，与稍纵即逝的彩虹美景相得益彰。
+
+Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景包括高海拔草原、高寒草甸、高海拔苔原草原和冰川雪带。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%bd%a9%e8%99%b9%e7%8e%b0%e8%b1%a1&form=hpcapt&filters=HpDate:"20240402_1600" "Bing Wallpaper 2024 4月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240403_KyrgyzstanRainbow"&FORM=HPQUIZ "必应主页测验 2024 4月 3")
+[下载480](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_ZH-CN8027219590_800x480.jpg&rf=LaDigue_800x480.jpg "At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦")
+[下载720](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_ZH-CN8027219590_1280x720.jpg&rf=LaDigue_1280x720.jpg "At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦")
+[下载1080](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_ZH-CN8027219590_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦")
+[下载UHD](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_ZH-CN8027219590_UHD.jpg&rf=LaDigue_UHD.jpg "At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦")
+
+---
 ### 04月02日：一缕阳光下的林地
 #### 日德兰半岛的山毛榉树和野生海葵 ，丹麦（© Nick Brundle Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_1280x720.jpg&rf=LaDigue_1280x720.jpg "鸟瞰春日盛开的樱花，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟瞰春日盛开的樱花，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_UHD.jpg&rf=LaDigue_UHD.jpg "鸟瞰春日盛开的樱花，中国")
-
----
-### 03月19日：春日私语
-#### 盛开的扁桃树, 加利福尼亚州，美国（© Jeffrey Lewis/Tandem Stills + Motion）
-
-![春日私语](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_800x480.jpg&rf=LaDigue_800x480.jpg "春日私语")
-
-在阳光普照的金州（加利福尼亚州的别称）果园中，扁桃仁享有崇高的地位，它以美味的果实诱惑着人们的味蕾，用漂亮的花朵装点着自然环境。而加利福尼亚州种植的扁桃仁占世界市场供应量的80%，占美国市场供应量的100%。据悉，扁桃仁中含有对心脏有益的单不饱和脂肪，还富含纤维、蛋白质以及大量的维生素和矿物质，是一种营养丰富的食物。二三月份，在加利福尼亚州的中央山谷中，这些扁桃树的种子会从娇嫩的花朵中孕育出来，然后在一种毛茸茸的、有着保护作用的外壳中生长，直至成熟。扁桃树属于蔷薇科，在花期会绽放出美丽的花朵，而这些芬芳的花朵会将果园涂染成白色和粉色色调。
-
-扁桃仁是在埃及图坦卡蒙陵墓中发现的珍宝之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%89%81%e6%a1%83%e4%bb%81&form=hpcapt&filters=HpDate:"20240318_1600" "Bing Wallpaper 2024 3月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240319_AlmondBloom"&FORM=HPQUIZ "必应主页测验 2024 3月 19")
-[下载480](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_800x480.jpg&rf=LaDigue_800x480.jpg "盛开的扁桃树, 加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_1280x720.jpg&rf=LaDigue_1280x720.jpg "盛开的扁桃树, 加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的扁桃树, 加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的扁桃树, 加利福尼亚州，美国")
 
 ---
