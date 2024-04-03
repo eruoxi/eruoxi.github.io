@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月04日：沼泽地上的漫游者
+#### 红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳（© Ibrahim Suha Derbent/Getty Images）
+
+![沼泽地上的漫游者](https://cn.bing.com/th?id=OHR.AntelopeBotswana_ZH-CN8253323519_800x480.jpg&rf=LaDigue_800x480.jpg "沼泽地上的漫游者")
+
+这群动作优美、姿态灵活的动物是非洲大草原上敏捷和优雅的代表：驴羚。它们原产于非洲中南部湿地和洪泛平原地区，以独特的红棕色皮毛和里拉琴形状的角而闻名。而作为其原产地之一的博茨瓦纳的奥卡万戈三角洲还是联合国教科文组织指定的世界遗产地。驴羚是群居性动物，通常成群结队地出现，数量可达上千只。在三角洲的中心地区，它们与大象、狮子、犀牛和河马等其他物种共存，是该地区丰富的生物多样性的重要组成部分。驴羚善于涉水而行，为三角洲增添了一份独特的自然魅力，吸引了成千上万的野生动物爱好者前去观赏。它们的存在也证明了野生动物在面对自然环境挑战时具有独特的适应能力。
+
+驴羚是一种昼行性动物，通常成群结队地出现，数量可达上千只。有趣的是，雄性驴羚群和雌性驴羚群通常是分开生活的，但等到交配季节时，它们会混合在一起。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%b4%e7%be%9a&form=hpcapt&filters=HpDate:"20240403_1600" "Bing Wallpaper 2024 4月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240404_AntelopeBotswana"&FORM=HPQUIZ "必应主页测验 2024 4月 4")
+[下载480](https://cn.bing.com/th?id=OHR.AntelopeBotswana_ZH-CN8253323519_800x480.jpg&rf=LaDigue_800x480.jpg "红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳")
+[下载720](https://cn.bing.com/th?id=OHR.AntelopeBotswana_ZH-CN8253323519_1280x720.jpg&rf=LaDigue_1280x720.jpg "红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳")
+[下载1080](https://cn.bing.com/th?id=OHR.AntelopeBotswana_ZH-CN8253323519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳")
+[下载UHD](https://cn.bing.com/th?id=OHR.AntelopeBotswana_ZH-CN8253323519_UHD.jpg&rf=LaDigue_UHD.jpg "红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳")
+
+---
 ### 04月03日：希望彩虹留在这里
 #### At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦（© Emad aljumah/Getty Images）
 
@@ -235,22 +252,5 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_1280x720.jpg&rf=LaDigue_1280x720.jpg "布恩迪国家公园，乌干达")
 [下载1080](https://cn.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布恩迪国家公园，乌干达")
 [下载UHD](https://cn.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_UHD.jpg&rf=LaDigue_UHD.jpg "布恩迪国家公园，乌干达")
-
----
-### 03月20日：粉嫩的春日美景
-#### 鸟瞰春日盛开的樱花，中国（© outcast85/Getty images）
-
-![粉嫩的春日美景](https://cn.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_800x480.jpg&rf=LaDigue_800x480.jpg "粉嫩的春日美景")
-
-春分时节，中国大部分地区已进入明媚的春天。此时，严寒已过，气温迅速回升。春分过后，人们开始陆续外出。在户外活动中，放风筝是一项重要的项目。古代还有春分戴花、饮酒的习俗。在这一天，无论男女老少都会在头发上戴花。
-
-据文献资料考证，两千多年前的秦汉时期，樱花已在中国宫苑内栽培。唐朝时樱花已普遍出现在私家庭院。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%98%a5%e5%88%86&form=hpcapt&filters=HpDate:"20240319_1600" "Bing Wallpaper 2024 3月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240320_Springequinox2024"&FORM=HPQUIZ "必应主页测验 2024 3月 20")
-[下载480](https://cn.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_800x480.jpg&rf=LaDigue_800x480.jpg "鸟瞰春日盛开的樱花，中国")
-[下载720](https://cn.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_1280x720.jpg&rf=LaDigue_1280x720.jpg "鸟瞰春日盛开的樱花，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟瞰春日盛开的樱花，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_UHD.jpg&rf=LaDigue_UHD.jpg "鸟瞰春日盛开的樱花，中国")
 
 ---
