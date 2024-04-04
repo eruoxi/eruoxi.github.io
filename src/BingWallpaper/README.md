@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月05日：潜入碧海
+#### 从国际空间站拍摄的巴哈马群岛（© NASA）
+
+![潜入碧海](https://cn.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_800x480.jpg&rf=LaDigue_800x480.jpg "潜入碧海")
+
+欢迎来到巴哈马，这里有碧蓝的海水、生机勃勃的珊瑚礁、露天餐饮和海盗的传说！这片西印度群岛位于大西洋，拥有3000多个岛礁，是世界第三大堡礁安德罗斯堡礁的所在地。贾卡努狂欢节是该国的国家级文化节，创意表达在节日游行中占据了中心位置，人们会展示服装、传统音乐、手工艺以及讲故事。每年的节礼日和元旦也会举行庆祝活动。对于热爱大自然的冒险家来说，663英尺深的长岛迪恩斯蓝洞将为您带来刺激的体验。从海港岛宁静的粉色沙滩到首都拿骚那繁华的稻草市场和著名的酒窖，巴哈马不仅是一个旅游胜地，还是一个静待人们探索的迷人故事。
+
+1973年，在林登·奥斯卡·平德林爵士的领导下，巴哈马政府取得独立。查尔斯三世不仅是巴哈马现任君主，还是其他一些英联邦国家的君主。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e5%93%88%e9%a9%ac%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20240404_1600" "Bing Wallpaper 2024 4月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240405_BahamasSpace"&FORM=HPQUIZ "必应主页测验 2024 4月 5")
+[下载480](https://cn.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_800x480.jpg&rf=LaDigue_800x480.jpg "从国际空间站拍摄的巴哈马群岛")
+[下载720](https://cn.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_1280x720.jpg&rf=LaDigue_1280x720.jpg "从国际空间站拍摄的巴哈马群岛")
+[下载1080](https://cn.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从国际空间站拍摄的巴哈马群岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_UHD.jpg&rf=LaDigue_UHD.jpg "从国际空间站拍摄的巴哈马群岛")
+
+---
 ### 04月04日：沼泽地上的漫游者
 #### 红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳（© Ibrahim Suha Derbent/Getty Images）
 
@@ -235,22 +252,5 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.WaikatoWater_ZH-CN0417438809_1280x720.jpg&rf=LaDigue_1280x720.jpg "蓝泉，蒂怀霍步道，新西兰")
 [下载1080](https://cn.bing.com/th?id=OHR.WaikatoWater_ZH-CN0417438809_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓝泉，蒂怀霍步道，新西兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.WaikatoWater_ZH-CN0417438809_UHD.jpg&rf=LaDigue_UHD.jpg "蓝泉，蒂怀霍步道，新西兰")
-
----
-### 03月21日：森林多美好呀！
-#### 布恩迪国家公园，乌干达（© Art Wolfe/DanitaDelimont.com）
-
-![森林多美好呀！](https://cn.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_800x480.jpg&rf=LaDigue_800x480.jpg "森林多美好呀！")
-
-今天是国际森林日，让我们走出家门，扎根林地吧！森林是地球上重要的生态系统之一，为了提高人们对保护森林和欣赏森林景观的意识，就在11年前的今天，联合国设立了国际森林日。据悉，世界各地的林地占地球陆地面积的30%以上，林地中的树木种类繁多，令人难以置信，据估计，全球共有超6万种不同种类的树。森林在提供食物、水和药物等基础资源方面发挥着至关重要的作用。今天的图片展示的是乌干达的布恩迪国家公园，这里有160种树木和100种蕨类植物，以及世界上50%的山地大猩猩种群。森林中的树木之间还生长着茂密的竹林，导致人们在这片森林中寸步难行，因此布恩迪国家公园又名“难以穿越的森林”。
-
-布恩迪国家公园是乌干达西南部的一个国家公园。它是联合国教科文组织指定的世界遗产地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%a3%ae%e6%9e%97%e6%97%a5&form=hpcapt&filters=HpDate:"20240320_1600" "Bing Wallpaper 2024 3月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240321_BwindiNationalForest"&FORM=HPQUIZ "必应主页测验 2024 3月 21")
-[下载480](https://cn.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_800x480.jpg&rf=LaDigue_800x480.jpg "布恩迪国家公园，乌干达")
-[下载720](https://cn.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_1280x720.jpg&rf=LaDigue_1280x720.jpg "布恩迪国家公园，乌干达")
-[下载1080](https://cn.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布恩迪国家公园，乌干达")
-[下载UHD](https://cn.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_UHD.jpg&rf=LaDigue_UHD.jpg "布恩迪国家公园，乌干达")
 
 ---
