@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月06日：皇家景观
+#### 姬路城，姫路，兵库县，日本（© Julian Elliott Photography/Getty Images）
+
+![皇家景观](https://cn.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_800x480.jpg&rf=LaDigue_800x480.jpg "皇家景观")
+
+从“草莓日”到“猫日”，甚至“蔬菜日”，日本有一系列“谐音节日”，这些节日都来源于駄洒落（一种用读音相同或相近的词汇来玩乐的日本文字游戏，与英语中的双关语类似）。今天的日期是4月6日，而日语中的“shiro”（城堡）这个词恰好是由“shi”（4）和“ro”（6）组成的。因此，这一天就成为了庆祝城堡的日子。还有什么比城堡日更好的机会来了解日本最大、游客最多的城堡——姬路城呢？它的历史可以追溯到1333年，是联合国教科文组织认定的世界遗产，拥有先进的防御设计和五个国宝级建筑。
+
+姬路城的建造可以追溯到1333年。当时，在播磨国担任守护之职的赤松则村在姬山上建造了一座堡垒。1346年，他的儿子赤松贞范拆除了这座堡垒，在原址上建造了姬路城。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%97%a5%e6%9c%ac%e5%a7%ac%e8%b7%af%e5%9f%8e&form=hpcapt&filters=HpDate:"20240405_1600" "Bing Wallpaper 2024 4月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240406_JapanHimeji"&FORM=HPQUIZ "必应主页测验 2024 4月 6")
+[下载480](https://cn.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_800x480.jpg&rf=LaDigue_800x480.jpg "姬路城，姫路，兵库县，日本")
+[下载720](https://cn.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_1280x720.jpg&rf=LaDigue_1280x720.jpg "姬路城，姫路，兵库县，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "姬路城，姫路，兵库县，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_UHD.jpg&rf=LaDigue_UHD.jpg "姬路城，姫路，兵库县，日本")
+
+---
 ### 04月05日：潜入碧海
 #### 从国际空间站拍摄的巴哈马群岛（© NASA）
 
@@ -235,22 +252,5 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.AmazonClouds_ZH-CN0578911147_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴西亚马逊上空巨大的砧状云")
 [下载1080](https://cn.bing.com/th?id=OHR.AmazonClouds_ZH-CN0578911147_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴西亚马逊上空巨大的砧状云")
 [下载UHD](https://cn.bing.com/th?id=OHR.AmazonClouds_ZH-CN0578911147_UHD.jpg&rf=LaDigue_UHD.jpg "巴西亚马逊上空巨大的砧状云")
-
----
-### 03月22日：我们在庆祝“水”？
-#### 蓝泉，蒂怀霍步道，新西兰（© Ian Beattie/Alamy Stock Photo）
-
-![我们在庆祝“水”？](https://cn.bing.com/th?id=OHR.WaikatoWater_ZH-CN0417438809_800x480.jpg&rf=LaDigue_800x480.jpg "我们在庆祝“水”？")
-
-今天是世界水日，这是一个已有31年历史的传统节日，在全球范围内具有重要的影响力。世界水日的宗旨是唤起公众的节水意识，加强水资源保护。水是既可以解渴，又能灌溉庄稼。如果没有水，就会破坏社会的繁荣和稳定。世界经济论坛将水危机列为全球最大的风险之一，全球仍有22亿人无法获得干净的饮用水，联合国的这次纪念活动正是为了呼吁大家采取行动解决这一危机。从教育论坛里的科普宣传到各地组织的清理活动，每一个行动，或大或小，都是有用的。今年世界水日的主题是“以水促和平”，当我们在水问题上开展合作时，就会产生积极的连锁效应。所以，你准备好加入这股浪潮了吗？
-
-蓝泉以每分钟42立方米（每分钟9240加仑）的速度流动，只需12分钟多一点，就能注满一个25米长的六道游泳池。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b0%b4%e6%97%a5&form=hpcapt&filters=HpDate:"20240321_1600" "Bing Wallpaper 2024 3月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240322_WaikatoWater"&FORM=HPQUIZ "必应主页测验 2024 3月 22")
-[下载480](https://cn.bing.com/th?id=OHR.WaikatoWater_ZH-CN0417438809_800x480.jpg&rf=LaDigue_800x480.jpg "蓝泉，蒂怀霍步道，新西兰")
-[下载720](https://cn.bing.com/th?id=OHR.WaikatoWater_ZH-CN0417438809_1280x720.jpg&rf=LaDigue_1280x720.jpg "蓝泉，蒂怀霍步道，新西兰")
-[下载1080](https://cn.bing.com/th?id=OHR.WaikatoWater_ZH-CN0417438809_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓝泉，蒂怀霍步道，新西兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.WaikatoWater_ZH-CN0417438809_UHD.jpg&rf=LaDigue_UHD.jpg "蓝泉，蒂怀霍步道，新西兰")
 
 ---
