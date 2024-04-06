@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月07日：看，我是树枝整理师！
+#### 奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国（© Paul Souders/Getty Images）
+
+![看，我是树枝整理师！](https://cn.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_800x480.jpg&rf=LaDigue_800x480.jpg "看，我是树枝整理师！")
+
+海狸被称为大自然的工程师，数百万年来一直在改造着世界。历史上，北美海狸曾面临来自人类的挑战。人们为了它们的皮毛而猎杀它们，它们“讨厌的”淡水栖息地也被摧毁了。然而，近年来，这些长着獠牙、有着桨尾的水坝建造者正在重新赢得尊重。这些动物不仅对水质有益，而且对陆地也有好处。海狸用它们富含铁元素的橙色门牙砍伐树木，辛勤地建造家园和栖息地。它们的水坝为无数物种创造了维持生命的湿地。与此同时，它们的巢穴既安全又舒适，入口处被战略性地淹没在水下，以阻止捕食者进入，并保障自己的隐私安全。作为啮齿类动物的海狸可以憋气长达15分钟，所以他们可以毫不费力地进入自己的水下巢穴。因此，让我们在国际海狸日向这些动物致敬吧！
+
+海狸利用树枝、植被、岩石和泥浆建造水坝和巢穴，它们将树木咬断用作建筑材料。水坝可以限制水流，巢穴则可以作为庇护所。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%b5%b7%e7%8b%b8%e6%97%a5&form=hpcapt&filters=HpDate:"20240406_1600" "Bing Wallpaper 2024 4月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240407_BeaverDenali"&FORM=HPQUIZ "必应主页测验 2024 4月 7")
+[下载480](https://cn.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_800x480.jpg&rf=LaDigue_800x480.jpg "奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_1280x720.jpg&rf=LaDigue_1280x720.jpg "奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_UHD.jpg&rf=LaDigue_UHD.jpg "奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国")
+
+---
 ### 04月06日：皇家景观
 #### 姬路城，姫路，兵库县，日本（© Julian Elliott Photography/Getty Images）
 
@@ -235,22 +252,5 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.WhiteEyes_ZH-CN1130380430_1280x720.jpg&rf=LaDigue_1280x720.jpg "樱花树枝上的灰胸绣眼鸟，韩国")
 [下载1080](https://cn.bing.com/th?id=OHR.WhiteEyes_ZH-CN1130380430_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "樱花树枝上的灰胸绣眼鸟，韩国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WhiteEyes_ZH-CN1130380430_UHD.jpg&rf=LaDigue_UHD.jpg "樱花树枝上的灰胸绣眼鸟，韩国")
-
----
-### 03月23日：造雾
-#### 巴西亚马逊上空巨大的砧状云（© NASA）
-
-![造雾](https://cn.bing.com/th?id=OHR.AmazonClouds_ZH-CN0578911147_800x480.jpg&rf=LaDigue_800x480.jpg "造雾")
-
-“当云层像岩石和高塔一样出现时，地球就会因频繁的阵雨而焕然一新”，这句古老的气象谚语对于雷暴云（又名积雨云或砧状云）来说有几分道理。而照片中展示的正是砧状云。今天，在世界气象日，我们向大气层的这个奇迹致敬。为了纪念世界气象组织于1950年3月23日成立，世界气象日的首次纪念活动于1961年的3月23日举行。但这一天不仅仅是对历史的致敬，还是为了呼吁人们认识到气象学在我们生活中的重要作用。天气预报可能并不总是可靠的，但由于卫星和超级计算机等技术的进步，天气预报已经取得了长足的进步。由于这些进步，全球天气模型可以提供长达16天的预报，龙卷风预警的平均提前时间从1974年的-15分钟缩短到今天的15分钟左右。让我们为气象学已取得的进展和将要取得的进步欢呼吧!
-
-积雨云，又名砧状云，是一种成熟的雷暴云，会引起许多隐患。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b0%94%e8%b1%a1%e6%97%a5&form=hpcapt&filters=HpDate:"20240322_1600" "Bing Wallpaper 2024 3月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240323_AmazonClouds"&FORM=HPQUIZ "必应主页测验 2024 3月 23")
-[下载480](https://cn.bing.com/th?id=OHR.AmazonClouds_ZH-CN0578911147_800x480.jpg&rf=LaDigue_800x480.jpg "巴西亚马逊上空巨大的砧状云")
-[下载720](https://cn.bing.com/th?id=OHR.AmazonClouds_ZH-CN0578911147_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴西亚马逊上空巨大的砧状云")
-[下载1080](https://cn.bing.com/th?id=OHR.AmazonClouds_ZH-CN0578911147_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴西亚马逊上空巨大的砧状云")
-[下载UHD](https://cn.bing.com/th?id=OHR.AmazonClouds_ZH-CN0578911147_UHD.jpg&rf=LaDigue_UHD.jpg "巴西亚马逊上空巨大的砧状云")
 
 ---
