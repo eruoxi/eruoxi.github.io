@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月08日：闻闻春天的气息
+#### 欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国（© Oksana Schmidt/Getty Images）
+
+![闻闻春天的气息](https://cn.bing.com/th?id=OHR.HedgehogMeadow_ZH-CN8845586473_800x480.jpg&rf=LaDigue_800x480.jpg "闻闻春天的气息")
+
+欧洲刺猬，又称西欧刺猬或普通刺猬，是一种原产于欧洲的刺猬物种。北起伊比利亚和意大利，南至斯堪的纳维亚半岛，西至不列颠群岛，均有它们的身影。刺猬之中，偶尔会出现白化刺猬或“金发”刺猬，据说这种刺猬有一对罕见的隐性基因，因此眼睛是黑色的，刺是乳白色的，但严格来说，它们并不是白化刺猬。
+
+刺猬一直是童话故事中富有趣味的形象。最古老的传说是，它们用身上的刺来搬运植物的果实。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e6%b4%b2%e5%88%ba%e7%8c%ac&form=hpcapt&filters=HpDate:"20240407_1600" "Bing Wallpaper 2024 4月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240408_HedgehogMeadow"&FORM=HPQUIZ "必应主页测验 2024 4月 8")
+[下载480](https://cn.bing.com/th?id=OHR.HedgehogMeadow_ZH-CN8845586473_800x480.jpg&rf=LaDigue_800x480.jpg "欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国")
+[下载720](https://cn.bing.com/th?id=OHR.HedgehogMeadow_ZH-CN8845586473_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.HedgehogMeadow_ZH-CN8845586473_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HedgehogMeadow_ZH-CN8845586473_UHD.jpg&rf=LaDigue_UHD.jpg "欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国")
+
+---
 ### 04月07日：看，我是树枝整理师！
 #### 奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国（© Paul Souders/Getty Images）
 
@@ -235,22 +252,5 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_1280x720.jpg&rf=LaDigue_1280x720.jpg "弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_UHD.jpg&rf=LaDigue_UHD.jpg "弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大")
-
----
-### 03月24日：你能挪过去一点吗?
-#### 樱花树枝上的灰胸绣眼鸟，韩国（© TigerSeo/Getty Images）
-
-![你能挪过去一点吗?](https://cn.bing.com/th?id=OHR.WhiteEyes_ZH-CN1130380430_800x480.jpg&rf=LaDigue_800x480.jpg "你能挪过去一点吗?")
-
-跟这些在韩国赏樱花的灰胸绣眼鸟打个招呼吧！它们身披黄羽，身形滚圆，个子小巧，喜欢成群出没。虽然这种雀形目鸟类原产于非洲、澳大拉西亚和亚洲，但由于引进的关系，在法属波利尼西亚和夏威夷等地也能看到它们的身影。灰胸绣眼鸟又名银绣眼鸟，有各种颜色和图案，但它们都有标志性的眼圈。它们嗜甜如命，爱吃花蜜，但也不挑食，水果、昆虫和浆果它们也喜欢吃。在阳春三月，让我们赞美这些为春天增添一抹奇妙色彩的小精灵吧！
-
-虽然灰胸绣眼鸟可以控制昆虫的数量，但由于它们喜欢吃水果，一些果园的主人认为它们是害虫。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%81%b0%e8%83%b8%e7%bb%a3%e7%9c%bc%e9%b8%9f&form=hpcapt&filters=HpDate:"20240323_1600" "Bing Wallpaper 2024 3月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240324_WhiteEyes"&FORM=HPQUIZ "必应主页测验 2024 3月 24")
-[下载480](https://cn.bing.com/th?id=OHR.WhiteEyes_ZH-CN1130380430_800x480.jpg&rf=LaDigue_800x480.jpg "樱花树枝上的灰胸绣眼鸟，韩国")
-[下载720](https://cn.bing.com/th?id=OHR.WhiteEyes_ZH-CN1130380430_1280x720.jpg&rf=LaDigue_1280x720.jpg "樱花树枝上的灰胸绣眼鸟，韩国")
-[下载1080](https://cn.bing.com/th?id=OHR.WhiteEyes_ZH-CN1130380430_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "樱花树枝上的灰胸绣眼鸟，韩国")
-[下载UHD](https://cn.bing.com/th?id=OHR.WhiteEyes_ZH-CN1130380430_UHD.jpg&rf=LaDigue_UHD.jpg "樱花树枝上的灰胸绣眼鸟，韩国")
 
 ---
