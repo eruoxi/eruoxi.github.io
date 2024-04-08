@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月09日：踮起脚尖，穿过郁金香
+#### 郁金香田，斯卡吉特山谷，华盛顿州，美国（© Claudia Cooper/Getty Images）
+
+![踮起脚尖，穿过郁金香](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_ZH-CN9034120306_800x480.jpg&rf=LaDigue_800x480.jpg "踮起脚尖，穿过郁金香")
+
+在弗农山的阴影下，鲜艳的花朵为大地涂上一层色彩，造就了一幅真实的画卷，华盛顿斯卡吉特山谷的郁金香节正在等你。郁金香节于1984年由弗农山商会创办，最初的活动为期三天，后来发展成为为期一个月的盛会。节日从四月持续到五月，吸引了来自世界各地的游客。花展横跨山谷中的多个花园，千万不要错过郁金香镇、郁金香谷农场、罗莎琳花园以及鲁森加德占地50英亩的花展，你可以骑自行车游览郁金香花园，还可以探索当地的酒庄、酿酒厂和餐馆。漫步花间，生活放慢了脚步，让我们记住简单的快乐：深呼吸，绽放笑容，沉醉在斯卡吉特山谷郁金香节的美景中。
+
+虽然斯卡吉特山谷的明星是郁金香，但斯卡吉特山谷的水仙花同样闻名遐迩。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e5%8d%a1%e5%90%89%e7%89%b9%e5%8e%bf&form=hpcapt&filters=HpDate:"20240408_1600" "Bing Wallpaper 2024 4月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240409_SkagitValleyTulips"&FORM=HPQUIZ "必应主页测验 2024 4月 9")
+[下载480](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_ZH-CN9034120306_800x480.jpg&rf=LaDigue_800x480.jpg "郁金香田，斯卡吉特山谷，华盛顿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_ZH-CN9034120306_1280x720.jpg&rf=LaDigue_1280x720.jpg "郁金香田，斯卡吉特山谷，华盛顿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_ZH-CN9034120306_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郁金香田，斯卡吉特山谷，华盛顿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_ZH-CN9034120306_UHD.jpg&rf=LaDigue_UHD.jpg "郁金香田，斯卡吉特山谷，华盛顿州，美国")
+
+---
 ### 04月08日：闻闻春天的气息
 #### 欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国（© Oksana Schmidt/Getty Images）
 
@@ -235,22 +252,5 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_1280x720.jpg&rf=LaDigue_1280x720.jpg "海水从古老的珊瑚礁上倾泻而下，杭莱，越南")
 [下载1080](https://cn.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海水从古老的珊瑚礁上倾泻而下，杭莱，越南")
 [下载UHD](https://cn.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_UHD.jpg&rf=LaDigue_UHD.jpg "海水从古老的珊瑚礁上倾泻而下，杭莱，越南")
-
----
-### 03月25日：春意盎然
-#### 弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大（© LeonU/Getty Images）
-
-![春意盎然](https://cn.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_800x480.jpg&rf=LaDigue_800x480.jpg "春意盎然")
-
-伴随着不断绽放的花朵，春天正式开始倒计时。在今天的照片中，弗雷泽河谷的郁金香绽放出鲜艳的色彩，为四月的阿伯兹福德郁金香节做准备。流经城市北部边界的弗雷泽河滋养了阿伯兹福德肥沃的土壤。
-
-世界上最大的郁金香节在加拿大渥太华举行。荷兰送来的郁金香是为了纪念加拿大和荷兰在第二次世界大战期间所建立的深厚友谊，当时加拿大军队领导了解放荷兰的行动，并接待了流亡海外的荷兰王室。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%8d%e5%88%97%e9%a2%a0%e5%93%a5%e4%bc%a6%e6%af%94%e4%ba%9a%e7%9c%81+%e9%98%bf%e4%bc%af%e5%85%b9%e7%a6%8f%e5%be%b7&form=hpcapt&filters=HpDate:"20240324_1600" "Bing Wallpaper 2024 3月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240325_TulipAbbotsford"&FORM=HPQUIZ "必应主页测验 2024 3月 25")
-[下载480](https://cn.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_800x480.jpg&rf=LaDigue_800x480.jpg "弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_1280x720.jpg&rf=LaDigue_1280x720.jpg "弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_UHD.jpg&rf=LaDigue_UHD.jpg "弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大")
 
 ---
