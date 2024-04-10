@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月11日：把梦想变成现实！
+#### 丘伦梅鲁瀑布鸟瞰图，委内瑞拉（© AirPano LLC/Amazing Aerial Agency）
+
+![把梦想变成现实！](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_800x480.jpg&rf=LaDigue_800x480.jpg "把梦想变成现实！")
+
+在荒野的中心地带，一个令人敬畏的景象从山上倾泻而下，这就是委内瑞拉的丘伦梅鲁瀑布！该瀑布也被称为龙瀑布，位于奥扬特普伊山峡谷南端的一个狭长地带，在雨季会与一条邻近的溪流相连。今天的图片展示的正是丘伦梅鲁瀑布从约1300英尺的高处倾泻而下。委内瑞拉拥有一些令人印象深刻的世界自然奇观，其中包括地球上最高的瀑布，也就是位于丘伦梅鲁以南约4英里处的天使瀑布。詹姆斯·安吉尔发现了天使瀑布，但人们常常误以为他发现了龙瀑布，佐证这一说法的证据是天使瀑布常常被误认为是龙瀑布。因此，无论您是在寻找天使瀑布还是龙瀑布，委内瑞拉都有适合您的瀑布！
+
+丘伦梅鲁瀑布周围每平方公里仅有两人。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a7%94%e5%86%85%e7%91%9e%e6%8b%89&form=hpcapt&filters=HpDate:"20240410_1600" "Bing Wallpaper 2024 4月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240411_DragonWaterfall"&FORM=HPQUIZ "必应主页测验 2024 4月 11")
+[下载480](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_800x480.jpg&rf=LaDigue_800x480.jpg "丘伦梅鲁瀑布鸟瞰图，委内瑞拉")
+[下载720](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_1280x720.jpg&rf=LaDigue_1280x720.jpg "丘伦梅鲁瀑布鸟瞰图，委内瑞拉")
+[下载1080](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丘伦梅鲁瀑布鸟瞰图，委内瑞拉")
+[下载UHD](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_UHD.jpg&rf=LaDigue_UHD.jpg "丘伦梅鲁瀑布鸟瞰图，委内瑞拉")
+
+---
 ### 04月10日：猫头鹰在你身边！
 #### 洞穴附近的穴小鸮雏鸟，怀俄明州，美国（© Danita Delimont/Getty Images）
 
@@ -235,22 +252,5 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_1280x720.jpg&rf=LaDigue_1280x720.jpg "上海的樱花，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "上海的樱花，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_UHD.jpg&rf=LaDigue_UHD.jpg "上海的樱花，中国")
-
----
-### 03月27日：戏剧成为关注的焦点
-#### 布宜诺斯艾利斯哥伦布剧院，阿根廷（© Wei Hao Ho/Alamy Stock Photo）
-
-![戏剧成为关注的焦点](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_800x480.jpg&rf=LaDigue_800x480.jpg "戏剧成为关注的焦点")
-
-今天，整个世界都是一个大舞台。每年的3月27日，世界戏剧日都会在雷鸣般的掌声中拉开帷幕，为戏剧这个数百年来一直影响着大众的艺术形式奏响颂歌。世界戏剧日旨在推广戏剧，引起人们对戏剧艺术的重视，共享戏剧艺术给人类带来的精神财富。今天图中所见的是布宜诺斯艾利斯的哥伦布剧院，它是阿根廷丰富戏剧遗产的象征。这座剧院建于1908年，以其宏伟的建筑和卓越的音响效果而闻名，是世界上首屈一指的歌剧院。多年来，这里举办了许多传奇人物的演出，如恩里科·卡鲁索、理查·施特劳斯、莉丽·庞斯、玛丽娜·德·加巴林、乔斯·史东、布兰福德·马萨利斯等。在这个专属于戏剧的日子里，让我们一起欣赏这种以最壮观的方式讲述故事的艺术形式！
-
-哥伦布剧院卓越的音响效果享誉全球，可跻身世界五大演出场所之列，鲁契亚诺·帕瓦罗蒂也认可这一观点。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%88%8f%e5%89%a7%e6%97%a5&form=hpcapt&filters=HpDate:"20240326_1600" "Bing Wallpaper 2024 3月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240327_TeatroColon"&FORM=HPQUIZ "必应主页测验 2024 3月 27")
-[下载480](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_800x480.jpg&rf=LaDigue_800x480.jpg "布宜诺斯艾利斯哥伦布剧院，阿根廷")
-[下载720](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_1280x720.jpg&rf=LaDigue_1280x720.jpg "布宜诺斯艾利斯哥伦布剧院，阿根廷")
-[下载1080](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布宜诺斯艾利斯哥伦布剧院，阿根廷")
-[下载UHD](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_UHD.jpg&rf=LaDigue_UHD.jpg "布宜诺斯艾利斯哥伦布剧院，阿根廷")
 
 ---
