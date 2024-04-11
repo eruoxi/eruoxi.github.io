@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月12日：一座天然拱门
+#### 拱门国家公园，犹他州，美国（© Anthony Heflin/Shutterstock）
+
+![一座天然拱门](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_800x480.jpg&rf=LaDigue_800x480.jpg "一座天然拱门")
+
+如果你想沉浸式感受在时光中漫步的滋味，拱门国家公园是一个绝佳的选择！该公园拥有2000多座天然石拱，数百座高大的尖塔、大型石鳍和巨大的平衡石，是世界上风景最优美的旅游胜地之一。在两平方英里左右的空间内囊括了不少壮丽景观，包括北窗拱门（最具人气的巨环之一），炮塔拱门和双拱门。而以伊甸园、大象丘（5653英尺高）和大象巡游等名字命名的景点对游客而言，则意味着这里永远不缺壮观的景色。
+
+持续的侵蚀加上垂直应力和水平应力最终会导致拱门坍塌，但新的拱门仍会在数千年内继续形成。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%8b%b1%e9%97%a8%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240411_1600" "Bing Wallpaper 2024 4月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240412_SunsetArchesNP"&FORM=HPQUIZ "必应主页测验 2024 4月 12")
+[下载480](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_800x480.jpg&rf=LaDigue_800x480.jpg "拱门国家公园，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_1280x720.jpg&rf=LaDigue_1280x720.jpg "拱门国家公园，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门国家公园，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_UHD.jpg&rf=LaDigue_UHD.jpg "拱门国家公园，犹他州，美国")
+
+---
 ### 04月11日：把梦想变成现实！
 #### 丘伦梅鲁瀑布鸟瞰图，委内瑞拉（© AirPano LLC/Amazing Aerial Agency）
 
@@ -235,22 +252,5 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.SouthStackLight_ZH-CN5932471774_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时的南斯塔克灯塔，霍利希德，威尔士，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.SouthStackLight_ZH-CN5932471774_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时的南斯塔克灯塔，霍利希德，威尔士，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SouthStackLight_ZH-CN5932471774_UHD.jpg&rf=LaDigue_UHD.jpg "日落时的南斯塔克灯塔，霍利希德，威尔士，英国")
-
----
-### 03月28日：花香满径
-#### 上海的樱花，中国（© Yaorusheng/Getty Images）
-
-![花香满径](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_800x480.jpg&rf=LaDigue_800x480.jpg "花香满径")
-
-春天，大自然展现出勃勃生机，樱花盛开标志着一个季节的开始。在全球范围内，从日本到美国，这一奇观吸引了数百万人的目光。在中国，樱花从3月下旬开到4月下旬，粉色和白色的樱花点缀着一幅幅美景。这些脆弱的花瓣在中国人的传统中有着深远的意义，象征着新生、希望和生命的短暂。中国有很多赏樱地点，包括武汉的东湖樱花公园、上海的顾村公园和鲁迅公园，以及北京的玉渊潭公园。樱花看起来与梅花相似，但区分两者的一个简单方法是看它们的花瓣。樱花的花瓣末端有分叉，而梅花没有。
-
-全球变暖可能影响樱花树的花期。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a8%b1%e8%8a%b1&form=hpcapt&filters=HpDate:"20240327_1600" "Bing Wallpaper 2024 3月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240328_ShanghaiBlossoms"&FORM=HPQUIZ "必应主页测验 2024 3月 28")
-[下载480](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_800x480.jpg&rf=LaDigue_800x480.jpg "上海的樱花，中国")
-[下载720](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_1280x720.jpg&rf=LaDigue_1280x720.jpg "上海的樱花，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "上海的樱花，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_UHD.jpg&rf=LaDigue_UHD.jpg "上海的樱花，中国")
 
 ---
