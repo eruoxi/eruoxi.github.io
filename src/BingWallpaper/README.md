@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月14日：岩石保龄球
+#### 保龄球海滩的日落，门多西诺县，加利福尼亚，美国（© Melo Qiao/Getty Images）
+
+![岩石保龄球](https://cn.bing.com/th?id=OHR.BowlingBallCali_ZH-CN0434558966_800x480.jpg&rf=LaDigue_800x480.jpg "岩石保龄球")
+
+欢迎来到大自然的保龄球馆！位于加州门多西诺海岸的保龄球海滩以散布在海岸上的那些引人注目的岩石而命名。这些砂岩球（一种被称为结核的现象）是在数百万年的沉积过程中形成的，沉积层围绕着由矿物胶结物固定在一起的砂石核心堆积而成。侵蚀作用逐渐磨损了外层，露出我们今天看到的球形。这创造了一个只有在退潮时才会出现的迷人景象。这种砂岩球很罕见，人们对它们的来源有很多疯狂的猜测，有人认为它们是外星碎片，也有人怀疑它们是恐龙化石。然而，答案非常简单：这是大自然的力量在起作用。
+
+由于这些岩块结核的形状、大小和成分各不相同，因此被说成恐龙蛋以及外星碎片。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bf%9d%e9%be%84%e7%90%83%e6%b5%b7%e6%bb%a9&form=hpcapt&filters=HpDate:"20240413_1600" "Bing Wallpaper 2024 4月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240414_BowlingBallCali"&FORM=HPQUIZ "必应主页测验 2024 4月 14")
+[下载480](https://cn.bing.com/th?id=OHR.BowlingBallCali_ZH-CN0434558966_800x480.jpg&rf=LaDigue_800x480.jpg "保龄球海滩的日落，门多西诺县，加利福尼亚，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BowlingBallCali_ZH-CN0434558966_1280x720.jpg&rf=LaDigue_1280x720.jpg "保龄球海滩的日落，门多西诺县，加利福尼亚，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BowlingBallCali_ZH-CN0434558966_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "保龄球海滩的日落，门多西诺县，加利福尼亚，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BowlingBallCali_ZH-CN0434558966_UHD.jpg&rf=LaDigue_UHD.jpg "保龄球海滩的日落，门多西诺县，加利福尼亚，美国")
+
+---
 ### 04月13日：花开正满枝
 #### 春天的苹果树，德国（© Smileus/Getty Images）
 
@@ -235,22 +252,5 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_1280x720.jpg&rf=LaDigue_1280x720.jpg "潘塔纳尔湿地的大白鹭，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "潘塔纳尔湿地的大白鹭，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_UHD.jpg&rf=LaDigue_UHD.jpg "潘塔纳尔湿地的大白鹭，巴西")
-
----
-### 03月30日：来自“颠倒世界”的问候
-#### 睡在号角树上的褐喉树懒，哥斯达黎加（© Juan Carlos Vindas/Getty Images）
-
-![来自“颠倒世界”的问候](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_800x480.jpg&rf=LaDigue_800x480.jpg "来自“颠倒世界”的问候")
-
-哥斯达黎加郁郁葱葱的森林是两种树懒的栖息地：霍夫曼双趾树懒和今天的主角——褐喉树懒。尽管褐喉树懒的体型比许多树栖哺乳动物都要大，但它们为了适应树上的生活，减少了肌肉含量，缩小了体型。它们的胃很大，有四个胃室，吃饱后可占体重的30%。这些毛茸茸的小动物久坐不动，以至于它们的皮毛上长出了藻类。这种共生关系为它们加入了绿色元素，在雨林树冠中提供了有效的伪装。2021年，这些行动缓慢的生物被宣布为哥斯达黎加的国家象征。为了强调树懒在该国生态系统中的重要性，卡洛斯·阿尔瓦拉多总统还签署了这项倡议，使其变成了法律条文。
-
-树懒是致力于森林保护的哥斯达黎加的国家象征。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a4%90%e5%96%89%e6%a0%91%e6%87%92&form=hpcapt&filters=HpDate:"20240329_1600" "Bing Wallpaper 2024 3月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240330_SleepySloth"&FORM=HPQUIZ "必应主页测验 2024 3月 30")
-[下载480](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_800x480.jpg&rf=LaDigue_800x480.jpg "睡在号角树上的褐喉树懒，哥斯达黎加")
-[下载720](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_1280x720.jpg&rf=LaDigue_1280x720.jpg "睡在号角树上的褐喉树懒，哥斯达黎加")
-[下载1080](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "睡在号角树上的褐喉树懒，哥斯达黎加")
-[下载UHD](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_UHD.jpg&rf=LaDigue_UHD.jpg "睡在号角树上的褐喉树懒，哥斯达黎加")
 
 ---
