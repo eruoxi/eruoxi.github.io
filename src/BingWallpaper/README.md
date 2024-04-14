@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月15日：介于文艺复兴与独创性之间
+#### 香波城堡，中央-卢瓦尔河谷大区，法国（© Susanne Kremer/eStock Photo）
+
+![介于文艺复兴与独创性之间](https://cn.bing.com/th?id=OHR.ChambordCastle_ZH-CN0930093515_800x480.jpg&rf=LaDigue_800x480.jpg "介于文艺复兴与独创性之间")
+
+你知道香波城堡吗？这个古建筑是法国文艺复兴时期的一颗“明珠”，其建筑灵感来源于法国国王弗朗西斯一世和著名画家达·芬奇。香波城堡的设计者是谁一直存在争议，至今没有定论，但可以确定的是，它的建筑特色受到了达·芬奇的影响。1515年马里尼亚诺战役后，弗朗西斯一世被意大利壮丽的建筑吸引，倾慕于达·芬奇的才华，他邀请达·芬奇来到法国宫廷担任艺术家和总工程师。香波城堡的中心平面设计和双螺旋楼梯见证了这一非凡的合作。主楼是这座建筑的真正核心，它融合了中世纪的宏伟与文艺复兴时期的创新，展示出了一种独特的引人注目的建筑风格。时光流转，这座古老的建筑见证着荣耀与兴衰，艺术、历史和技术在这里相遇，为游客们创造出一种难忘的体验。
+
+壮观的开放式双螺旋楼梯位于香波城堡的主塔中央，既是城堡的中心元素，也是城堡的建筑亮点之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a6%99%e6%b3%a2%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20240414_1600" "Bing Wallpaper 2024 4月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240415_ChambordCastle"&FORM=HPQUIZ "必应主页测验 2024 4月 15")
+[下载480](https://cn.bing.com/th?id=OHR.ChambordCastle_ZH-CN0930093515_800x480.jpg&rf=LaDigue_800x480.jpg "香波城堡，中央-卢瓦尔河谷大区，法国")
+[下载720](https://cn.bing.com/th?id=OHR.ChambordCastle_ZH-CN0930093515_1280x720.jpg&rf=LaDigue_1280x720.jpg "香波城堡，中央-卢瓦尔河谷大区，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.ChambordCastle_ZH-CN0930093515_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "香波城堡，中央-卢瓦尔河谷大区，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChambordCastle_ZH-CN0930093515_UHD.jpg&rf=LaDigue_UHD.jpg "香波城堡，中央-卢瓦尔河谷大区，法国")
+
+---
 ### 04月14日：岩石保龄球
 #### 保龄球海滩的日落，门多西诺县，加利福尼亚，美国（© Melo Qiao/Getty Images）
 
@@ -235,22 +252,5 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_1280x720.jpg&rf=LaDigue_1280x720.jpg "勃朗峰上的冰海，夏慕尼，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "勃朗峰上的冰海，夏慕尼，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_UHD.jpg&rf=LaDigue_UHD.jpg "勃朗峰上的冰海，夏慕尼，法国")
-
----
-### 03月31日：纯洁与优雅的象征
-#### 潘塔纳尔湿地的大白鹭，巴西（© Geraldi Corsi/Getty Images）
-
-![纯洁与优雅的象征](https://cn.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_800x480.jpg&rf=LaDigue_800x480.jpg "纯洁与优雅的象征")
-
-在巴西潘塔纳尔泻湖平静的水面上，我们看到了一只娇小的白鹭。这些生物具有令人难以置信的调节体温的能力，它们会调节阳光照射面积，甚至用自己的翅膀来控制体温。
-
-大白鹭的飞行速度缓慢却很有力：它们每秒只拍两下翅膀，巡航速度约为每小时25英里。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e7%99%bd%e9%b9%ad&form=hpcapt&filters=HpDate:"20240330_1600" "Bing Wallpaper 2024 3月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240331_ArdeAlba"&FORM=HPQUIZ "必应主页测验 2024 3月 31")
-[下载480](https://cn.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_800x480.jpg&rf=LaDigue_800x480.jpg "潘塔纳尔湿地的大白鹭，巴西")
-[下载720](https://cn.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_1280x720.jpg&rf=LaDigue_1280x720.jpg "潘塔纳尔湿地的大白鹭，巴西")
-[下载1080](https://cn.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "潘塔纳尔湿地的大白鹭，巴西")
-[下载UHD](https://cn.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_UHD.jpg&rf=LaDigue_UHD.jpg "潘塔纳尔湿地的大白鹭，巴西")
 
 ---
