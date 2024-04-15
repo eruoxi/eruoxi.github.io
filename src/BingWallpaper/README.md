@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月16日：灯光，相机，纽约！
+#### 暮色中的曼哈顿下城联合广场，纽约，美国（© Sean Pavone/Getty Images）
+
+![灯光，相机，纽约！](https://cn.bing.com/th?id=OHR.UnionSquareNYC_ZH-CN1533018653_800x480.jpg&rf=LaDigue_800x480.jpg "灯光，相机，纽约！")
+
+“纵横交错的街道令人焕然一新，璀璨的霓虹灯让人热血沸腾。” 流行歌手艾丽西亚·凯斯在歌曲《帝国之心》中这样描述大苹果市（纽约的别称）的繁华与活力。今天，主页的图片将我们带到 “不夜城 ”的其中一个景点：曼哈顿下城的联合广场。在这个历史悠久的十字路口，您可以看到乔治·华盛顿的雕像，它是纽约市所有公园中最古老的雕像，以及雕塑家亨利·柯克·布朗创作的亚伯拉罕·林肯的雕像。1882年，工人们行使他们言论自由和集会自由的权利，在联合广场组织了第一次劳动节游行。正因如此，联合广场在美国劳工史上具有特殊的意义，1997年美国内政部将其认定为国家历史地标。时光飞逝，如今的曼哈顿更加繁华，当你漫步在街头，或许会在广场上看到街头棋手、音乐家、滑板爱好者、舞蹈团体和各类小贩。
+
+如今的联合广场灯火辉煌，而在早期，这周围只是农田。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%81%94%e5%90%88%e5%b9%bf%e5%9c%ba&form=hpcapt&filters=HpDate:"20240415_1600" "Bing Wallpaper 2024 4月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240416_UnionSquareNYC"&FORM=HPQUIZ "必应主页测验 2024 4月 16")
+[下载480](https://cn.bing.com/th?id=OHR.UnionSquareNYC_ZH-CN1533018653_800x480.jpg&rf=LaDigue_800x480.jpg "暮色中的曼哈顿下城联合广场，纽约，美国")
+[下载720](https://cn.bing.com/th?id=OHR.UnionSquareNYC_ZH-CN1533018653_1280x720.jpg&rf=LaDigue_1280x720.jpg "暮色中的曼哈顿下城联合广场，纽约，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.UnionSquareNYC_ZH-CN1533018653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "暮色中的曼哈顿下城联合广场，纽约，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.UnionSquareNYC_ZH-CN1533018653_UHD.jpg&rf=LaDigue_UHD.jpg "暮色中的曼哈顿下城联合广场，纽约，美国")
+
+---
 ### 04月15日：介于文艺复兴与独创性之间
 #### 香波城堡，中央-卢瓦尔河谷大区，法国（© Susanne Kremer/eStock Photo）
 
@@ -235,22 +252,5 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_1280x720.jpg&rf=LaDigue_1280x720.jpg "日德兰半岛的山毛榉树和野生海葵 ，丹麦")
 [下载1080](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日德兰半岛的山毛榉树和野生海葵 ，丹麦")
 [下载UHD](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_UHD.jpg&rf=LaDigue_UHD.jpg "日德兰半岛的山毛榉树和野生海葵 ，丹麦")
-
----
-### 04月01日：岌岌可危的冰川
-#### 勃朗峰上的冰海，夏慕尼，法国（© Hagenmuller Jean-François/Hemis/Alamy）
-
-![岌岌可危的冰川](https://cn.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_800x480.jpg&rf=LaDigue_800x480.jpg "岌岌可危的冰川")
-
-冰海是法国阿尔卑斯山脉最著名的冰川之一，它坐落于勃朗峰地块的北坡，靠近夏慕尼，长约7公里，深200米，是法国最大的冰川。它由冰块缓慢而稳定的运动形成，形成时间可追溯至几千年前。
-
-夏慕尼是攀登勃朗峰的起点。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%86%b0%e6%b5%b7&form=hpcapt&filters=HpDate:"20240331_1600" "Bing Wallpaper 2024 4月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240401_MontBlancGlacier"&FORM=HPQUIZ "必应主页测验 2024 4月 1")
-[下载480](https://cn.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_800x480.jpg&rf=LaDigue_800x480.jpg "勃朗峰上的冰海，夏慕尼，法国")
-[下载720](https://cn.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_1280x720.jpg&rf=LaDigue_1280x720.jpg "勃朗峰上的冰海，夏慕尼，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "勃朗峰上的冰海，夏慕尼，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_UHD.jpg&rf=LaDigue_UHD.jpg "勃朗峰上的冰海，夏慕尼，法国")
 
 ---
