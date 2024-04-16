@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月17日：我是不是睡得太久了？
+#### 春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国（© Scott Suriano/Getty Images）
+
+![我是不是睡得太久了？](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_800x480.jpg&rf=LaDigue_800x480.jpg "我是不是睡得太久了？")
+
+欢迎来到这个世界，可爱的熊宝宝！图中这只毛茸茸的美洲黑熊幼崽才从冬眠中醒来，它在巢穴中度过了生命最初的几个月，现在，它或许对外面的世界感到陌生又困惑。黑熊幼崽一般出生在一月份至二月份，而后一直呆在巢穴里，直到四月中旬或五月初才会离开。刚踏入春天时，小黑熊的体重只有5磅左右，等长到一岁时，体重会长到约80磅。成年黑熊的体重一般在100磅至600磅之间，具体能长到重，取决于它们的年龄、性别、季节、以及栖息地的食物资源。今天图片的背景是弗吉尼亚州仙纳度国家公园，迄今为止，黑熊是这里唯一被发现的熊类。
+
+黑熊有着厚厚的“皮毛外套”，这个外套由多层蓬松的软毛组成，在寒冷的冬天可以保暖。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e6%b4%b2%e9%bb%91%e7%86%8a&form=hpcapt&filters=HpDate:"20240416_1600" "Bing Wallpaper 2024 4月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240417_SpringCub"&FORM=HPQUIZ "必应主页测验 2024 4月 17")
+[下载480](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_800x480.jpg&rf=LaDigue_800x480.jpg "春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_1280x720.jpg&rf=LaDigue_1280x720.jpg "春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_UHD.jpg&rf=LaDigue_UHD.jpg "春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国")
+
+---
 ### 04月16日：灯光，相机，纽约！
 #### 暮色中的曼哈顿下城联合广场，纽约，美国（© Sean Pavone/Getty Images）
 
@@ -235,22 +252,5 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_ZH-CN8027219590_1280x720.jpg&rf=LaDigue_1280x720.jpg "At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦")
 [下载1080](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_ZH-CN8027219590_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦")
 [下载UHD](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_ZH-CN8027219590_UHD.jpg&rf=LaDigue_UHD.jpg "At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦")
-
----
-### 04月02日：一缕阳光下的林地
-#### 日德兰半岛的山毛榉树和野生海葵 ，丹麦（© Nick Brundle Photography/Getty Images）
-
-![一缕阳光下的林地](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_800x480.jpg&rf=LaDigue_800x480.jpg "一缕阳光下的林地")
-
-今天，图片上的风景将我们带到了丹麦的日德兰半岛。随着春天的到来，这片北方的土地展现出了一种属于山毛榉树的绿色色调，而山毛榉树正是丹麦的“国树”。对于丹麦人民来说，这些正在发芽的山毛榉树是一种独特的存在，在四五月份，他们会把树上的嫩叶采摘下来用于烹饪中，尤其是用在沙拉中。过去，欧洲人经常使用山毛榉树光滑的树皮来书写文字。这也是为什么，在现代荷兰语中，"书籍"一词直接翻译为"山毛榉树"。当阳光穿过森林中的树冠照耀下来时，野生海葵用白色的花瓣点亮了林地，它们代表着精致之美和真诚纯粹，曾在莫奈和梵高等艺术家的杰作中“担任主角”。
-
-山毛榉树是雌雄同株的植物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%97%a5%e5%be%b7%e5%85%b0%e5%8d%8a%e5%b2%9b&form=hpcapt&filters=HpDate:"20240401_1600" "Bing Wallpaper 2024 4月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240402_JutlandSpring"&FORM=HPQUIZ "必应主页测验 2024 4月 2")
-[下载480](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_800x480.jpg&rf=LaDigue_800x480.jpg "日德兰半岛的山毛榉树和野生海葵 ，丹麦")
-[下载720](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_1280x720.jpg&rf=LaDigue_1280x720.jpg "日德兰半岛的山毛榉树和野生海葵 ，丹麦")
-[下载1080](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日德兰半岛的山毛榉树和野生海葵 ，丹麦")
-[下载UHD](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_UHD.jpg&rf=LaDigue_UHD.jpg "日德兰半岛的山毛榉树和野生海葵 ，丹麦")
 
 ---
