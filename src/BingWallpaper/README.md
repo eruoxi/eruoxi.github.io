@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月18日：名誉之墙
+#### 中世纪城墙，阿维拉，西班牙（© Scott Suriano/Getty Images）
+
+![名誉之墙](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_800x480.jpg&rf=LaDigue_800x480.jpg "名誉之墙")
+
+今天是一个具有纪念意义的日子：国际古迹遗址日。这一天也被称为“世界遗产日”，旨在强调保护文化遗产的重要性。从建筑物到雕塑，古迹可以是任何一样东西，只要它在历史、艺术或科学层面具有突出的价值。世界上有许多令人惊讶的古迹，例如秘鲁的马丘比丘和埃及的吉萨金字塔等，而今天的图片展示的是一个石头建筑，它是西班牙阿维拉中世纪城墙的其中一部分。这些碉堡修建于11世纪至14世纪，周长超8000英尺，最初的修建目的是保护城市，抵御外来者的进攻，如今这里成为了旅游圣地，游客们可以沿着城墙漫步，欣赏城市和周围乡村的美景。
+
+阿维拉不仅拥有壮观而完整的中世纪城墙，还是最受人尊敬和最有影响力的天主教圣人之一——阿维拉的圣特蕾莎的出生地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e5%8f%a4%e8%bf%b9%e9%81%97%e5%9d%80%e6%97%a5&form=hpcapt&filters=HpDate:"20240417_1600" "Bing Wallpaper 2024 4月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240418_AvilaSpain"&FORM=HPQUIZ "必应主页测验 2024 4月 18")
+[下载480](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_800x480.jpg&rf=LaDigue_800x480.jpg "中世纪城墙，阿维拉，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_1280x720.jpg&rf=LaDigue_1280x720.jpg "中世纪城墙，阿维拉，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中世纪城墙，阿维拉，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_UHD.jpg&rf=LaDigue_UHD.jpg "中世纪城墙，阿维拉，西班牙")
+
+---
 ### 04月17日：我是不是睡得太久了？
 #### 春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国（© Scott Suriano/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AntelopeBotswana_ZH-CN8253323519_1280x720.jpg&rf=LaDigue_1280x720.jpg "红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳")
 [下载1080](https://cn.bing.com/th?id=OHR.AntelopeBotswana_ZH-CN8253323519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳")
 [下载UHD](https://cn.bing.com/th?id=OHR.AntelopeBotswana_ZH-CN8253323519_UHD.jpg&rf=LaDigue_UHD.jpg "红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳")
-
----
-### 04月03日：希望彩虹留在这里
-#### At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦（© Emad aljumah/Getty Images）
-
-![希望彩虹留在这里](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_ZH-CN8027219590_800x480.jpg&rf=LaDigue_800x480.jpg "希望彩虹留在这里")
-
-正如青蛙科米特（《布偶电影》中的主角）曾在歌曲《彩虹般的连接》中所唱的那样：“彩虹是幻象，但只是幻象，彩虹没有什么可以隐藏的……”每年4月3日是美国的 “全国寻找彩虹日”，这一天旨在庆祝这一多彩的自然现象，它让世界各地的人们都欣喜不已。当阳光通过大气中的雨滴，光线被反射和散射时，彩虹就会出现。在“寻找彩虹日”这天，人们会参加相关的活动，例如在雨后寻找彩虹或者是创作以彩虹为主题的艺术。在今天的图片中，我们看到一道彩虹挂在吉尔吉斯斯坦雄伟的Kakshaal Too 山脉上，崎岖的山峰和纯净原始的山谷构成了一副绝美的背景图，与稍纵即逝的彩虹美景相得益彰。
-
-Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景包括高海拔草原、高寒草甸、高海拔苔原草原和冰川雪带。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%bd%a9%e8%99%b9%e7%8e%b0%e8%b1%a1&form=hpcapt&filters=HpDate:"20240402_1600" "Bing Wallpaper 2024 4月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240403_KyrgyzstanRainbow"&FORM=HPQUIZ "必应主页测验 2024 4月 3")
-[下载480](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_ZH-CN8027219590_800x480.jpg&rf=LaDigue_800x480.jpg "At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦")
-[下载720](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_ZH-CN8027219590_1280x720.jpg&rf=LaDigue_1280x720.jpg "At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦")
-[下载1080](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_ZH-CN8027219590_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦")
-[下载UHD](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_ZH-CN8027219590_UHD.jpg&rf=LaDigue_UHD.jpg "At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦")
 
 ---
