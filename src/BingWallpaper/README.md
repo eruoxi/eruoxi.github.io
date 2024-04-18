@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月19日：历史的轮回
+#### 布罗德加环，奥克尼岛，苏格兰（© Paul Williams - FunkyStock/Getty Images）
+
+![历史的轮回](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_800x480.jpg&rf=LaDigue_800x480.jpg "历史的轮回")
+
+在苏格兰北部的奥克尼群岛的中心地带，有一个古老的谜团：布罗德加环。这个新石器时代的石圈是一种古老的圆形土方工程，可以追溯到公元前2500年到2000年之间，石圈的直径约为340英尺。该遗址位于两个湖泊之间的狭长地带，最初由60块石头组成，如今只剩下36块。该石圈的确切用途至今仍不得而知。为了进一步了解该遗址，一项名为“挖掘布罗德加环”的发掘项目于2008年启动，但该项目尚未取得任何结论性成果。1999年，包括布罗德加环在内的新石器时代的奥克尼中心地带被联合国教科文组织列为世界遗产。如果你计划去苏格兰旅行，不妨去布罗德加环逛逛。在这里，你不仅可以呼吸到清新的空气，还可以感受石圈的悠久历史。
+
+布罗德加环已有5000年的历史了。它比巨石阵和埃及的大金字塔还要古老，但比附近的斯丹尼斯立石更年轻。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e7%bd%97%e5%be%b7%e5%8a%a0%e7%8e%af&form=hpcapt&filters=HpDate:"20240418_1600" "Bing Wallpaper 2024 4月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240419_OrkneyStones"&FORM=HPQUIZ "必应主页测验 2024 4月 19")
+[下载480](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_800x480.jpg&rf=LaDigue_800x480.jpg "布罗德加环，奥克尼岛，苏格兰")
+[下载720](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_1280x720.jpg&rf=LaDigue_1280x720.jpg "布罗德加环，奥克尼岛，苏格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布罗德加环，奥克尼岛，苏格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_UHD.jpg&rf=LaDigue_UHD.jpg "布罗德加环，奥克尼岛，苏格兰")
+
+---
 ### 04月18日：名誉之墙
 #### 中世纪城墙，阿维拉，西班牙（© Scott Suriano/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_1280x720.jpg&rf=LaDigue_1280x720.jpg "从国际空间站拍摄的巴哈马群岛")
 [下载1080](https://cn.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从国际空间站拍摄的巴哈马群岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_UHD.jpg&rf=LaDigue_UHD.jpg "从国际空间站拍摄的巴哈马群岛")
-
----
-### 04月04日：沼泽地上的漫游者
-#### 红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳（© Ibrahim Suha Derbent/Getty Images）
-
-![沼泽地上的漫游者](https://cn.bing.com/th?id=OHR.AntelopeBotswana_ZH-CN8253323519_800x480.jpg&rf=LaDigue_800x480.jpg "沼泽地上的漫游者")
-
-这群动作优美、姿态灵活的动物是非洲大草原上敏捷和优雅的代表：驴羚。它们原产于非洲中南部湿地和洪泛平原地区，以独特的红棕色皮毛和里拉琴形状的角而闻名。而作为其原产地之一的博茨瓦纳的奥卡万戈三角洲还是联合国教科文组织指定的世界遗产地。驴羚是群居性动物，通常成群结队地出现，数量可达上千只。在三角洲的中心地区，它们与大象、狮子、犀牛和河马等其他物种共存，是该地区丰富的生物多样性的重要组成部分。驴羚善于涉水而行，为三角洲增添了一份独特的自然魅力，吸引了成千上万的野生动物爱好者前去观赏。它们的存在也证明了野生动物在面对自然环境挑战时具有独特的适应能力。
-
-驴羚是一种昼行性动物，通常成群结队地出现，数量可达上千只。有趣的是，雄性驴羚群和雌性驴羚群通常是分开生活的，但等到交配季节时，它们会混合在一起。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%b4%e7%be%9a&form=hpcapt&filters=HpDate:"20240403_1600" "Bing Wallpaper 2024 4月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240404_AntelopeBotswana"&FORM=HPQUIZ "必应主页测验 2024 4月 4")
-[下载480](https://cn.bing.com/th?id=OHR.AntelopeBotswana_ZH-CN8253323519_800x480.jpg&rf=LaDigue_800x480.jpg "红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳")
-[下载720](https://cn.bing.com/th?id=OHR.AntelopeBotswana_ZH-CN8253323519_1280x720.jpg&rf=LaDigue_1280x720.jpg "红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳")
-[下载1080](https://cn.bing.com/th?id=OHR.AntelopeBotswana_ZH-CN8253323519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳")
-[下载UHD](https://cn.bing.com/th?id=OHR.AntelopeBotswana_ZH-CN8253323519_UHD.jpg&rf=LaDigue_UHD.jpg "红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳")
 
 ---
