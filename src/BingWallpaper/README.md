@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月20日：保存，保护，享受！
+#### 日出时分的大棱镜泉，美国怀俄明州黄石国家公园（© XIN WANG/Getty Images）
+
+![保存，保护，享受！](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_800x480.jpg&rf=LaDigue_800x480.jpg "保存，保护，享受！")
+
+准备好你的登山靴吧，因为美国国家公园周到了！美国各地最迷人的风景区已敞开大门，邀请大家免费拥抱大自然。在整个庆祝活动期间，美国国家公园管理局将组织各种活动，包括由护林员带领的参观活动、志愿者活动和教育研讨会。
+
+黄石国家公园坐落在一座休眠火山上，是地球上间歇泉和温泉最多的地方。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%bb%84%e7%9f%b3%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240419_1600" "Bing Wallpaper 2024 4月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240420_YellowstoneGeyser"&FORM=HPQUIZ "必应主页测验 2024 4月 20")
+[下载480](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_800x480.jpg&rf=LaDigue_800x480.jpg "日出时分的大棱镜泉，美国怀俄明州黄石国家公园")
+[下载720](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时分的大棱镜泉，美国怀俄明州黄石国家公园")
+[下载1080](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时分的大棱镜泉，美国怀俄明州黄石国家公园")
+[下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_UHD.jpg&rf=LaDigue_UHD.jpg "日出时分的大棱镜泉，美国怀俄明州黄石国家公园")
+
+---
 ### 04月19日：历史的轮回
 #### 布罗德加环，奥克尼岛，苏格兰（© Paul Williams - FunkyStock/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_1280x720.jpg&rf=LaDigue_1280x720.jpg "姬路城，姫路，兵库县，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "姬路城，姫路，兵库县，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_UHD.jpg&rf=LaDigue_UHD.jpg "姬路城，姫路，兵库县，日本")
-
----
-### 04月05日：潜入碧海
-#### 从国际空间站拍摄的巴哈马群岛（© NASA）
-
-![潜入碧海](https://cn.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_800x480.jpg&rf=LaDigue_800x480.jpg "潜入碧海")
-
-欢迎来到巴哈马，这里有碧蓝的海水、生机勃勃的珊瑚礁、露天餐饮和海盗的传说！这片西印度群岛位于大西洋，拥有3000多个岛礁，是世界第三大堡礁安德罗斯堡礁的所在地。贾卡努狂欢节是该国的国家级文化节，创意表达在节日游行中占据了中心位置，人们会展示服装、传统音乐、手工艺以及讲故事。每年的节礼日和元旦也会举行庆祝活动。对于热爱大自然的冒险家来说，663英尺深的长岛迪恩斯蓝洞将为您带来刺激的体验。从海港岛宁静的粉色沙滩到首都拿骚那繁华的稻草市场和著名的酒窖，巴哈马不仅是一个旅游胜地，还是一个静待人们探索的迷人故事。
-
-1973年，在林登·奥斯卡·平德林爵士的领导下，巴哈马政府取得独立。查尔斯三世不仅是巴哈马现任君主，还是其他一些英联邦国家的君主。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e5%93%88%e9%a9%ac%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20240404_1600" "Bing Wallpaper 2024 4月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240405_BahamasSpace"&FORM=HPQUIZ "必应主页测验 2024 4月 5")
-[下载480](https://cn.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_800x480.jpg&rf=LaDigue_800x480.jpg "从国际空间站拍摄的巴哈马群岛")
-[下载720](https://cn.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_1280x720.jpg&rf=LaDigue_1280x720.jpg "从国际空间站拍摄的巴哈马群岛")
-[下载1080](https://cn.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从国际空间站拍摄的巴哈马群岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_UHD.jpg&rf=LaDigue_UHD.jpg "从国际空间站拍摄的巴哈马群岛")
 
 ---
