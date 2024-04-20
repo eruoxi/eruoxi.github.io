@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月21日：未选择的路
+#### Cades Cove ，大雾山国家公园，田纳西州，美国（© Richard Bernabe/Shutterstock）
+
+![未选择的路](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_800x480.jpg&rf=LaDigue_800x480.jpg "未选择的路")
+
+随着美国国家公园周活动的开展，让我们一起去田纳西州的大雾山国家公园走走吧！该公园成立于1934年，占地面积超过522,419英亩。这座公园的大部分地区都被森林覆盖着，是1500种开花植物、952种藻类、65种哺乳动物和240多种鸟类的家园，大雾山国家公也因此成为了国际生物圈保护区。
+
+你知道大雾山被誉为“世界蝾螈之都”吗？大雾山中有30种不同的蝾螈！
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e9%9b%be%e5%b1%b1%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240420_1600" "Bing Wallpaper 2024 4月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240421_CadesCove"&FORM=HPQUIZ "必应主页测验 2024 4月 21")
+[下载480](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_800x480.jpg&rf=LaDigue_800x480.jpg "Cades Cove ，大雾山国家公园，田纳西州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_1280x720.jpg&rf=LaDigue_1280x720.jpg "Cades Cove ，大雾山国家公园，田纳西州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Cades Cove ，大雾山国家公园，田纳西州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_UHD.jpg&rf=LaDigue_UHD.jpg "Cades Cove ，大雾山国家公园，田纳西州，美国")
+
+---
 ### 04月20日：保存，保护，享受！
 #### 日出时分的大棱镜泉，美国怀俄明州黄石国家公园（© XIN WANG/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_1280x720.jpg&rf=LaDigue_1280x720.jpg "奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_UHD.jpg&rf=LaDigue_UHD.jpg "奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国")
-
----
-### 04月06日：皇家景观
-#### 姬路城，姫路，兵库县，日本（© Julian Elliott Photography/Getty Images）
-
-![皇家景观](https://cn.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_800x480.jpg&rf=LaDigue_800x480.jpg "皇家景观")
-
-从“草莓日”到“猫日”，甚至“蔬菜日”，日本有一系列“谐音节日”，这些节日都来源于駄洒落（一种用读音相同或相近的词汇来玩乐的日本文字游戏，与英语中的双关语类似）。今天的日期是4月6日，而日语中的“shiro”（城堡）这个词恰好是由“shi”（4）和“ro”（6）组成的。因此，这一天就成为了庆祝城堡的日子。还有什么比城堡日更好的机会来了解日本最大、游客最多的城堡——姬路城呢？它的历史可以追溯到1333年，是联合国教科文组织认定的世界遗产，拥有先进的防御设计和五个国宝级建筑。
-
-姬路城的建造可以追溯到1333年。当时，在播磨国担任守护之职的赤松则村在姬山上建造了一座堡垒。1346年，他的儿子赤松贞范拆除了这座堡垒，在原址上建造了姬路城。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%97%a5%e6%9c%ac%e5%a7%ac%e8%b7%af%e5%9f%8e&form=hpcapt&filters=HpDate:"20240405_1600" "Bing Wallpaper 2024 4月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240406_JapanHimeji"&FORM=HPQUIZ "必应主页测验 2024 4月 6")
-[下载480](https://cn.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_800x480.jpg&rf=LaDigue_800x480.jpg "姬路城，姫路，兵库县，日本")
-[下载720](https://cn.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_1280x720.jpg&rf=LaDigue_1280x720.jpg "姬路城，姫路，兵库县，日本")
-[下载1080](https://cn.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "姬路城，姫路，兵库县，日本")
-[下载UHD](https://cn.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_UHD.jpg&rf=LaDigue_UHD.jpg "姬路城，姫路，兵库县，日本")
 
 ---
