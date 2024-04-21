@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月22日：我们在庆祝什么?
+#### 绿海龟，圣地亚哥，加利福尼亚，美国（© Ralph Pace/Minden Pictures）
+
+![我们在庆祝什么?](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_800x480.jpg&rf=LaDigue_800x480.jpg "我们在庆祝什么?")
+
+今天是“地球日”，一个专门为保护地球环境而设立的节日，旨在提高民众对于现有环境问题的认识。1969年，时任威斯康星州参议员的盖洛德·纳尔逊目睹了库亚霍加河着火和圣巴巴拉石油泄漏等事件，他认为世界需要一项环保倡议，于是埋下了设立“地球日”的种子。一年后，首届“地球日”活动举行。现在，“地球日”已经发展成为一年一度的活动，有超过193个国家的10亿多人参加。今年，这项活动的重点是塑料，因为塑料污染已经严重影响了陆地和海洋环境。许多物种，包括图片中的这只绿海龟，误将海洋中的塑料垃圾当作食物食用。并且，这些塑料垃圾还会带来缠绕风险，也有可能分解成微塑料。每年约有2500万吨塑料进入水生生态系统。因此，赶快行动起来吧！植树造林、清理海滩，倡导环境保护及可持续发展，为人类共同的家园贡献自己的一份力量。毕竟，没有第二个地球！
+
+第18届“地球一小时”活动的主题是“为地球献出一小时”。
+
+[Bing搜索](https://cn.bing.com/search?q=2024%e4%b8%96%e7%95%8c%e5%9c%b0%e7%90%83%e6%97%a5&form=hpcapt&filters=HpDate:"20240421_1600" "Bing Wallpaper 2024 4月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240422_EarthDayTurtle"&FORM=HPQUIZ "必应主页测验 2024 4月 22")
+[下载480](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_800x480.jpg&rf=LaDigue_800x480.jpg "绿海龟，圣地亚哥，加利福尼亚，美国")
+[下载720](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_1280x720.jpg&rf=LaDigue_1280x720.jpg "绿海龟，圣地亚哥，加利福尼亚，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "绿海龟，圣地亚哥，加利福尼亚，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_UHD.jpg&rf=LaDigue_UHD.jpg "绿海龟，圣地亚哥，加利福尼亚，美国")
+
+---
 ### 04月21日：未选择的路
 #### Cades Cove ，大雾山国家公园，田纳西州，美国（© Richard Bernabe/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HedgehogMeadow_ZH-CN8845586473_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.HedgehogMeadow_ZH-CN8845586473_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HedgehogMeadow_ZH-CN8845586473_UHD.jpg&rf=LaDigue_UHD.jpg "欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国")
-
----
-### 04月07日：看，我是树枝整理师！
-#### 奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国（© Paul Souders/Getty Images）
-
-![看，我是树枝整理师！](https://cn.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_800x480.jpg&rf=LaDigue_800x480.jpg "看，我是树枝整理师！")
-
-海狸被称为大自然的工程师，数百万年来一直在改造着世界。历史上，北美海狸曾面临来自人类的挑战。人们为了它们的皮毛而猎杀它们，它们“讨厌的”淡水栖息地也被摧毁了。然而，近年来，这些长着獠牙、有着桨尾的水坝建造者正在重新赢得尊重。这些动物不仅对水质有益，而且对陆地也有好处。海狸用它们富含铁元素的橙色门牙砍伐树木，辛勤地建造家园和栖息地。它们的水坝为无数物种创造了维持生命的湿地。与此同时，它们的巢穴既安全又舒适，入口处被战略性地淹没在水下，以阻止捕食者进入，并保障自己的隐私安全。作为啮齿类动物的海狸可以憋气长达15分钟，所以他们可以毫不费力地进入自己的水下巢穴。因此，让我们在国际海狸日向这些动物致敬吧！
-
-海狸利用树枝、植被、岩石和泥浆建造水坝和巢穴，它们将树木咬断用作建筑材料。水坝可以限制水流，巢穴则可以作为庇护所。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%b5%b7%e7%8b%b8%e6%97%a5&form=hpcapt&filters=HpDate:"20240406_1600" "Bing Wallpaper 2024 4月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240407_BeaverDenali"&FORM=HPQUIZ "必应主页测验 2024 4月 7")
-[下载480](https://cn.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_800x480.jpg&rf=LaDigue_800x480.jpg "奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_1280x720.jpg&rf=LaDigue_1280x720.jpg "奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_UHD.jpg&rf=LaDigue_UHD.jpg "奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国")
 
 ---
