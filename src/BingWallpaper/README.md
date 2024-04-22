@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月23日：预订已满！
+#### 三一学院图书馆，都柏林，爱尔兰（© Lukas Bischoff/Getty Images）
+
+![预订已满！](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_800x480.jpg&rf=LaDigue_800x480.jpg "预订已满！")
+
+在爱尔兰中心，在都柏林圣三一学院图书馆历史悠久的大厅里，卷轴和古籍低声诉说着久远的故事。今天，这些沉默的故事讲述者将大放异彩。世界图书日由联合国教科文组织于1995年设立，旨在提醒人们阅读、出版和版权的重要性。但为什么是4月23日呢？因为这一天是威廉·莎士比亚、米格尔·德·塞万提斯和其他几位文学巨匠共同的忌日！从每年在马里兰州肯辛顿举办的汇集众多作家、诗人和文学组织的街头庆祝活动，到世界各地许多国家向孩子们分发图书券，这一天在书页翻动的沙沙声中变得生机勃勃。有趣的是，联合国教科文组织每年都会推选一个城市为“世界图书之都”，被选中的城市将在被授予的一年中开展促进阅读的活动，今年当选是法国斯特拉斯堡。那么，你选好要读的书了吗？
+
+“世界图书之都”是联合国教科文组织发起的一项倡议，旨在表彰那些从4月23日的世界图书和版权日起，在一年内推广图书和促进阅读的城市。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e8%af%bb%e4%b9%a6%e6%97%a5&form=hpcapt&filters=HpDate:"20240422_1600" "Bing Wallpaper 2024 4月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240423_TrinityDublin"&FORM=HPQUIZ "必应主页测验 2024 4月 23")
+[下载480](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_800x480.jpg&rf=LaDigue_800x480.jpg "三一学院图书馆，都柏林，爱尔兰")
+[下载720](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_1280x720.jpg&rf=LaDigue_1280x720.jpg "三一学院图书馆，都柏林，爱尔兰")
+[下载1080](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "三一学院图书馆，都柏林，爱尔兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_UHD.jpg&rf=LaDigue_UHD.jpg "三一学院图书馆，都柏林，爱尔兰")
+
+---
 ### 04月22日：我们在庆祝什么?
 #### 绿海龟，圣地亚哥，加利福尼亚，美国（© Ralph Pace/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_ZH-CN9034120306_1280x720.jpg&rf=LaDigue_1280x720.jpg "郁金香田，斯卡吉特山谷，华盛顿州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_ZH-CN9034120306_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郁金香田，斯卡吉特山谷，华盛顿州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_ZH-CN9034120306_UHD.jpg&rf=LaDigue_UHD.jpg "郁金香田，斯卡吉特山谷，华盛顿州，美国")
-
----
-### 04月08日：闻闻春天的气息
-#### 欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国（© Oksana Schmidt/Getty Images）
-
-![闻闻春天的气息](https://cn.bing.com/th?id=OHR.HedgehogMeadow_ZH-CN8845586473_800x480.jpg&rf=LaDigue_800x480.jpg "闻闻春天的气息")
-
-欧洲刺猬，又称西欧刺猬或普通刺猬，是一种原产于欧洲的刺猬物种。北起伊比利亚和意大利，南至斯堪的纳维亚半岛，西至不列颠群岛，均有它们的身影。刺猬之中，偶尔会出现白化刺猬或“金发”刺猬，据说这种刺猬有一对罕见的隐性基因，因此眼睛是黑色的，刺是乳白色的，但严格来说，它们并不是白化刺猬。
-
-刺猬一直是童话故事中富有趣味的形象。最古老的传说是，它们用身上的刺来搬运植物的果实。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e6%b4%b2%e5%88%ba%e7%8c%ac&form=hpcapt&filters=HpDate:"20240407_1600" "Bing Wallpaper 2024 4月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240408_HedgehogMeadow"&FORM=HPQUIZ "必应主页测验 2024 4月 8")
-[下载480](https://cn.bing.com/th?id=OHR.HedgehogMeadow_ZH-CN8845586473_800x480.jpg&rf=LaDigue_800x480.jpg "欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国")
-[下载720](https://cn.bing.com/th?id=OHR.HedgehogMeadow_ZH-CN8845586473_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.HedgehogMeadow_ZH-CN8845586473_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.HedgehogMeadow_ZH-CN8845586473_UHD.jpg&rf=LaDigue_UHD.jpg "欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国")
 
 ---
