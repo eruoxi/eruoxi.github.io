@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月24日：嘿，今天长势如何？
+#### 盛开的白延龄草，安大略省，加拿大（© Jun Zhang/Getty Images）
+
+![嘿，今天长势如何？](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_800x480.jpg&rf=LaDigue_800x480.jpg "嘿，今天长势如何？")
+
+三片花瓣、三片叶子和三个柱头——这就是白延龄草，它的名字源自拉丁语中的“三”，原产于北美东部，是春季最常见的林地野花之一。与一些稍有暖意就绽放色彩的“冲动型”花朵不同，这种植物开花缓慢。从美国邮票上的图案到俄亥俄州的州花，再到加拿大安大略省的官方象征，白延龄草扎根于各国文化。除了美观之外，白延龄草在草药界也有一席之地。所以，你在林间漫步时，请留意这种花卉珍品！
+
+延龄草在肥沃的高地混交林最为常见。从春末到初夏，它都会绽放迷人的三瓣白色花朵，花朵上有一轮三片叶状苞片，很容易辨认。延龄草是春季典型的短命植物，生命周期与落叶林地的季节变化同步。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%99%bd%e5%bb%b6%e9%be%84%e8%8d%89&form=hpcapt&filters=HpDate:"20240423_1600" "Bing Wallpaper 2024 4月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240424_TrilliumOntario"&FORM=HPQUIZ "必应主页测验 2024 4月 24")
+[下载480](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_800x480.jpg&rf=LaDigue_800x480.jpg "盛开的白延龄草，安大略省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_1280x720.jpg&rf=LaDigue_1280x720.jpg "盛开的白延龄草，安大略省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的白延龄草，安大略省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的白延龄草，安大略省，加拿大")
+
+---
 ### 04月23日：预订已满！
 #### 三一学院图书馆，都柏林，爱尔兰（© Lukas Bischoff/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OwlSiblings_ZH-CN9441687518_1280x720.jpg&rf=LaDigue_1280x720.jpg "洞穴附近的穴小鸮雏鸟，怀俄明州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.OwlSiblings_ZH-CN9441687518_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "洞穴附近的穴小鸮雏鸟，怀俄明州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.OwlSiblings_ZH-CN9441687518_UHD.jpg&rf=LaDigue_UHD.jpg "洞穴附近的穴小鸮雏鸟，怀俄明州，美国")
-
----
-### 04月09日：踮起脚尖，穿过郁金香
-#### 郁金香田，斯卡吉特山谷，华盛顿州，美国（© Claudia Cooper/Getty Images）
-
-![踮起脚尖，穿过郁金香](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_ZH-CN9034120306_800x480.jpg&rf=LaDigue_800x480.jpg "踮起脚尖，穿过郁金香")
-
-在弗农山的阴影下，鲜艳的花朵为大地涂上一层色彩，造就了一幅真实的画卷，华盛顿斯卡吉特山谷的郁金香节正在等你。郁金香节于1984年由弗农山商会创办，最初的活动为期三天，后来发展成为为期一个月的盛会。节日从四月持续到五月，吸引了来自世界各地的游客。花展横跨山谷中的多个花园，千万不要错过郁金香镇、郁金香谷农场、罗莎琳花园以及鲁森加德占地50英亩的花展，你可以骑自行车游览郁金香花园，还可以探索当地的酒庄、酿酒厂和餐馆。漫步花间，生活放慢了脚步，让我们记住简单的快乐：深呼吸，绽放笑容，沉醉在斯卡吉特山谷郁金香节的美景中。
-
-虽然斯卡吉特山谷的明星是郁金香，但斯卡吉特山谷的水仙花同样闻名遐迩。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e5%8d%a1%e5%90%89%e7%89%b9%e5%8e%bf&form=hpcapt&filters=HpDate:"20240408_1600" "Bing Wallpaper 2024 4月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240409_SkagitValleyTulips"&FORM=HPQUIZ "必应主页测验 2024 4月 9")
-[下载480](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_ZH-CN9034120306_800x480.jpg&rf=LaDigue_800x480.jpg "郁金香田，斯卡吉特山谷，华盛顿州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_ZH-CN9034120306_1280x720.jpg&rf=LaDigue_1280x720.jpg "郁金香田，斯卡吉特山谷，华盛顿州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_ZH-CN9034120306_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郁金香田，斯卡吉特山谷，华盛顿州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_ZH-CN9034120306_UHD.jpg&rf=LaDigue_UHD.jpg "郁金香田，斯卡吉特山谷，华盛顿州，美国")
 
 ---
