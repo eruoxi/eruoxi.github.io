@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月25日：很高兴在这里见到你们！
+#### 南极洲冰山上的阿德利企鹅（© Patrick J. Endres/Getty Images）
+
+![很高兴在这里见到你们！](https://cn.bing.com/th?id=OHR.PenguinDirections_ZH-CN8498684753_800x480.jpg&rf=LaDigue_800x480.jpg "很高兴在这里见到你们！")
+
+可以滑行，又何需飞行？世界企鹅日快乐！这些不会飞的鸟主要栖息在南极洲，从帝企鹅到今天的明星阿德利企鹅，种类繁多。1840年，法国冒险家儒勒·杜蒙·德维尔发现了阿德利企鹅，并决定以他心爱的妻子的名字“阿德利”来命名这种企鹅。阿德利企鹅虽然体型娇小，但游泳动作敏捷，可以潜入575英尺深的海底寻找长得像虾一样的磷虾或鱼类。它们是社会性动物，会聚集在小群中觅食、狩猎和保护自己。调皮捣蛋的阿德利企鹅还会偷窃附近巢穴中的鹅卵石来加固自己的巢穴，以保护自己的蛋和雏鸟免受南极洲恶劣环境和捕食者的伤害。
+
+在远古时代，甚至出现过身高近2米、体重80千克的巨型企鹅！
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e4%bc%81%e9%b9%85%e6%97%a5&form=hpcapt&filters=HpDate:"20240424_1600" "Bing Wallpaper 2024 4月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240425_PenguinDirections"&FORM=HPQUIZ "必应主页测验 2024 4月 25")
+[下载480](https://cn.bing.com/th?id=OHR.PenguinDirections_ZH-CN8498684753_800x480.jpg&rf=LaDigue_800x480.jpg "南极洲冰山上的阿德利企鹅")
+[下载720](https://cn.bing.com/th?id=OHR.PenguinDirections_ZH-CN8498684753_1280x720.jpg&rf=LaDigue_1280x720.jpg "南极洲冰山上的阿德利企鹅")
+[下载1080](https://cn.bing.com/th?id=OHR.PenguinDirections_ZH-CN8498684753_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南极洲冰山上的阿德利企鹅")
+[下载UHD](https://cn.bing.com/th?id=OHR.PenguinDirections_ZH-CN8498684753_UHD.jpg&rf=LaDigue_UHD.jpg "南极洲冰山上的阿德利企鹅")
+
+---
 ### 04月24日：嘿，今天长势如何？
 #### 盛开的白延龄草，安大略省，加拿大（© Jun Zhang/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_1280x720.jpg&rf=LaDigue_1280x720.jpg "丘伦梅鲁瀑布鸟瞰图，委内瑞拉")
 [下载1080](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丘伦梅鲁瀑布鸟瞰图，委内瑞拉")
 [下载UHD](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_UHD.jpg&rf=LaDigue_UHD.jpg "丘伦梅鲁瀑布鸟瞰图，委内瑞拉")
-
----
-### 04月10日：猫头鹰在你身边！
-#### 洞穴附近的穴小鸮雏鸟，怀俄明州，美国（© Danita Delimont/Getty Images）
-
-![猫头鹰在你身边！](https://cn.bing.com/th?id=OHR.OwlSiblings_ZH-CN9441687518_800x480.jpg&rf=LaDigue_800x480.jpg "猫头鹰在你身边！")
-
-噢，兄弟姐妹们！4月10日是兄弟姐妹日，一个庆祝兄弟姐妹之间特殊情谊的日子。从友好的竞争到共同的回忆，没有什么比兄弟姐妹之间的关系更美好的了。兄弟姐妹日是克劳迪娅·埃瓦特为纪念她的哥哥艾伦和姐姐莉赛特而设立的。如今，有49个州和14个国家承认这个节日。兄弟姐妹日的庆祝活动可以很简单，比如给你的兄弟姐妹打电话，让他们知道你在想他们，也可以赠送礼物或与他们共进晚餐。
-
-研究表明，弟弟妹妹往往更叛逆、更外向。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a9%b4%e5%b0%8f%e9%b8%ae&form=hpcapt&filters=HpDate:"20240409_1600" "Bing Wallpaper 2024 4月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240410_OwlSiblings"&FORM=HPQUIZ "必应主页测验 2024 4月 10")
-[下载480](https://cn.bing.com/th?id=OHR.OwlSiblings_ZH-CN9441687518_800x480.jpg&rf=LaDigue_800x480.jpg "洞穴附近的穴小鸮雏鸟，怀俄明州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.OwlSiblings_ZH-CN9441687518_1280x720.jpg&rf=LaDigue_1280x720.jpg "洞穴附近的穴小鸮雏鸟，怀俄明州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.OwlSiblings_ZH-CN9441687518_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "洞穴附近的穴小鸮雏鸟，怀俄明州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.OwlSiblings_ZH-CN9441687518_UHD.jpg&rf=LaDigue_UHD.jpg "洞穴附近的穴小鸮雏鸟，怀俄明州，美国")
 
 ---
