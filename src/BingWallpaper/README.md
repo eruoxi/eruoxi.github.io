@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月26日：这棵树是个快乐的家伙！
+#### 卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国（© Abbie Warnock-Matthews/Shutterstock）
+
+![这棵树是个快乐的家伙！](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_800x480.jpg&rf=LaDigue_800x480.jpg "这棵树是个快乐的家伙！")
+
+美国第一个植树节是在1872年举行的，从那以后，这项活动真正地生根发芽。每年四月的最后一个星期五，美国各地的人们都会通过植树来纪念这个节日，通常会把这些树献给所爱的人。这一天也是纪念树木的好日子——树木不仅为无数种动物提供家园，还能吸收二氧化碳，净化我们呼吸的空气，帮助城市保持凉爽，甚至还能起到预防洪水的作用。
+
+1982年，该公园被联合国教科文组织认定为世界遗产，因此获得了国际认可。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a4%8d%e6%a0%91%e8%8a%82&form=hpcapt&filters=HpDate:"20240425_1600" "Bing Wallpaper 2024 4月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240426_KalalochTree"&FORM=HPQUIZ "必应主页测验 2024 4月 26")
+[下载480](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_800x480.jpg&rf=LaDigue_800x480.jpg "卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_UHD.jpg&rf=LaDigue_UHD.jpg "卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国")
+
+---
 ### 04月25日：很高兴在这里见到你们！
 #### 南极洲冰山上的阿德利企鹅（© Patrick J. Endres/Getty Images）
 
@@ -34,20 +51,20 @@
 
 ---
 ### 04月23日：预订已满！
-#### 三一学院图书馆，都柏林，爱尔兰（© Lukas Bischoff/Getty Images）
+#### 三一学院图书馆，都柏林，爱尔兰（© Vincent Isore/Getty Images）
 
-![预订已满！](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_800x480.jpg&rf=LaDigue_800x480.jpg "预订已满！")
+![预订已满！](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_800x480.jpg&rf=LaDigue_800x480.jpg "预订已满！")
 
-在爱尔兰中心，在都柏林圣三一学院图书馆历史悠久的大厅里，卷轴和古籍低声诉说着久远的故事。今天，这些沉默的故事讲述者将大放异彩。世界图书日由联合国教科文组织于1995年设立，旨在提醒人们阅读、出版和版权的重要性。但为什么是4月23日呢？因为这一天是威廉·莎士比亚、米格尔·德·塞万提斯和其他几位文学巨匠共同的忌日！从每年在马里兰州肯辛顿举办的汇集众多作家、诗人和文学组织的街头庆祝活动，到世界各地许多国家向孩子们分发图书券，这一天在书页翻动的沙沙声中变得生机勃勃。有趣的是，联合国教科文组织每年都会推选一个城市为“世界图书之都”，被选中的城市将在被授予的一年中开展促进阅读的活动，今年当选是法国斯特拉斯堡。那么，你选好要读的书了吗？
+在爱尔兰中心，在都柏林三一学院图书馆历史悠久的大厅里，卷轴和古籍低声诉说着久远的故事。今天，这些沉默的故事讲述者将大放异彩。世界图书日由联合国教科文组织于1995年设立，旨在提醒人们阅读、出版和版权的重要性。但为什么是4月23日呢？因为这一天是威廉·莎士比亚、米格尔·德·塞万提斯和其他几位文学巨匠共同的忌日！从每年在马里兰州肯辛顿举办的汇集众多作家、诗人和文学组织的街头庆祝活动，到世界各地许多国家向孩子们分发图书券，这一天在书页翻动的沙沙声中变得生机勃勃。有趣的是，联合国教科文组织每年都会推选一个城市为“世界图书之都”，被选中的城市将在被授予的一年中开展促进阅读的活动，今年当选是法国斯特拉斯堡。那么，你选好要读的书了吗？
 
 “世界图书之都”是联合国教科文组织发起的一项倡议，旨在表彰那些从4月23日的世界图书和版权日起，在一年内推广图书和促进阅读的城市。
 
 [Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e8%af%bb%e4%b9%a6%e6%97%a5&form=hpcapt&filters=HpDate:"20240422_1600" "Bing Wallpaper 2024 4月 23")
 [必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240423_TrinityDublin"&FORM=HPQUIZ "必应主页测验 2024 4月 23")
-[下载480](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_800x480.jpg&rf=LaDigue_800x480.jpg "三一学院图书馆，都柏林，爱尔兰")
-[下载720](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_1280x720.jpg&rf=LaDigue_1280x720.jpg "三一学院图书馆，都柏林，爱尔兰")
-[下载1080](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "三一学院图书馆，都柏林，爱尔兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_UHD.jpg&rf=LaDigue_UHD.jpg "三一学院图书馆，都柏林，爱尔兰")
+[下载480](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_800x480.jpg&rf=LaDigue_800x480.jpg "三一学院图书馆，都柏林，爱尔兰")
+[下载720](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_1280x720.jpg&rf=LaDigue_1280x720.jpg "三一学院图书馆，都柏林，爱尔兰")
+[下载1080](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "三一学院图书馆，都柏林，爱尔兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_UHD.jpg&rf=LaDigue_UHD.jpg "三一学院图书馆，都柏林，爱尔兰")
 
 ---
 ### 04月22日：我们在庆祝什么?
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_1280x720.jpg&rf=LaDigue_1280x720.jpg "拱门国家公园，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门国家公园，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_UHD.jpg&rf=LaDigue_UHD.jpg "拱门国家公园，犹他州，美国")
-
----
-### 04月11日：把梦想变成现实！
-#### 丘伦梅鲁瀑布鸟瞰图，委内瑞拉（© AirPano LLC/Amazing Aerial Agency）
-
-![把梦想变成现实！](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_800x480.jpg&rf=LaDigue_800x480.jpg "把梦想变成现实！")
-
-在荒野的中心地带，一个令人敬畏的景象从山上倾泻而下，这就是委内瑞拉的丘伦梅鲁瀑布！该瀑布也被称为龙瀑布，位于奥扬特普伊山峡谷南端的一个狭长地带，在雨季会与一条邻近的溪流相连。今天的图片展示的正是丘伦梅鲁瀑布从约1300英尺的高处倾泻而下。委内瑞拉拥有一些令人印象深刻的世界自然奇观，其中包括地球上最高的瀑布，也就是位于丘伦梅鲁以南约4英里处的天使瀑布。詹姆斯·安吉尔发现了天使瀑布，但人们常常误以为他发现了龙瀑布，佐证这一说法的证据是天使瀑布常常被误认为是龙瀑布。因此，无论您是在寻找天使瀑布还是龙瀑布，委内瑞拉都有适合您的瀑布！
-
-丘伦梅鲁瀑布周围每平方公里仅有两人。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a7%94%e5%86%85%e7%91%9e%e6%8b%89&form=hpcapt&filters=HpDate:"20240410_1600" "Bing Wallpaper 2024 4月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240411_DragonWaterfall"&FORM=HPQUIZ "必应主页测验 2024 4月 11")
-[下载480](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_800x480.jpg&rf=LaDigue_800x480.jpg "丘伦梅鲁瀑布鸟瞰图，委内瑞拉")
-[下载720](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_1280x720.jpg&rf=LaDigue_1280x720.jpg "丘伦梅鲁瀑布鸟瞰图，委内瑞拉")
-[下载1080](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丘伦梅鲁瀑布鸟瞰图，委内瑞拉")
-[下载UHD](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_UHD.jpg&rf=LaDigue_UHD.jpg "丘伦梅鲁瀑布鸟瞰图，委内瑞拉")
 
 ---
