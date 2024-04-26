@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月27日：观鸟的时间到了！
+#### 澳大利亚花园里的白种安氏蜂鸟，加州大学圣克鲁兹分校植物园，加利福尼亚州，美国（© yhelfman/Getty Images）
+
+![观鸟的时间到了！](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_ZH-CN2921653789_800x480.jpg&rf=LaDigue_800x480.jpg "观鸟的时间到了！")
+
+带上你的双筒望远镜和野外指南，到公园里去吧，因为今天是国家观鸟日！这个节日在四月的最后一个星期六举行，观鸟也是一项全世界数百万人都热衷的活动。世界上大约有18000种已知的鸟类。从雄伟的鹰到图中双翼雪白的蜂鸟，鸟类的形状、大小、颜色和行为多种多样，是地球上最多样化的动物群体之一。这些安娜蜂鸟通常颜色鲜艳，但亮色意味着它们的色素沉淀减少，导致它们的外表看起来更苍白。与白化鸟不同的是，这些蜂鸟的眼睛还保留着一些颜色。它们较浅的羽毛降低了保护性和伪装效果，使它们更容易受到鹰和野猫等掠食者的攻击。
+
+黑色素对蜂鸟非常重要，因为它决定了蜂鸟的肤色、眼睛颜色、羽毛色彩和紫外线防晒能力。较少的黑色素产生较浅的颜色，而较多的黑色素产生较深的颜色。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a7%82%e9%b8%9f%e6%97%a5&form=hpcapt&filters=HpDate:"20240426_1600" "Bing Wallpaper 2024 4月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240427_LeucisticHummingbird"&FORM=HPQUIZ "必应主页测验 2024 4月 27")
+[下载480](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_ZH-CN2921653789_800x480.jpg&rf=LaDigue_800x480.jpg "澳大利亚花园里的白种安氏蜂鸟，加州大学圣克鲁兹分校植物园，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_ZH-CN2921653789_1280x720.jpg&rf=LaDigue_1280x720.jpg "澳大利亚花园里的白种安氏蜂鸟，加州大学圣克鲁兹分校植物园，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_ZH-CN2921653789_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "澳大利亚花园里的白种安氏蜂鸟，加州大学圣克鲁兹分校植物园，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_ZH-CN2921653789_UHD.jpg&rf=LaDigue_UHD.jpg "澳大利亚花园里的白种安氏蜂鸟，加州大学圣克鲁兹分校植物园，加利福尼亚州，美国")
+
+---
 ### 04月26日：这棵树是个快乐的家伙！
 #### 卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国（© Abbie Warnock-Matthews/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpringApple_ZH-CN0101917345_1280x720.jpg&rf=LaDigue_1280x720.jpg "春天的苹果树，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.SpringApple_ZH-CN0101917345_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天的苹果树，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpringApple_ZH-CN0101917345_UHD.jpg&rf=LaDigue_UHD.jpg "春天的苹果树，德国")
-
----
-### 04月12日：一座天然拱门
-#### 拱门国家公园，犹他州，美国（© Anthony Heflin/Shutterstock）
-
-![一座天然拱门](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_800x480.jpg&rf=LaDigue_800x480.jpg "一座天然拱门")
-
-如果你想沉浸式感受在时光中漫步的滋味，拱门国家公园是一个绝佳的选择！该公园拥有2000多座天然石拱，数百座高大的尖塔、大型石鳍和巨大的平衡石，是世界上风景最优美的旅游胜地之一。在两平方英里左右的空间内囊括了不少壮丽景观，包括北窗拱门（最具人气的巨环之一），炮塔拱门和双拱门。而以伊甸园、大象丘（5653英尺高）和大象巡游等名字命名的景点对游客而言，则意味着这里永远不缺壮观的景色。
-
-持续的侵蚀加上垂直应力和水平应力最终会导致拱门坍塌，但新的拱门仍会在数千年内继续形成。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%8b%b1%e9%97%a8%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240411_1600" "Bing Wallpaper 2024 4月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240412_SunsetArchesNP"&FORM=HPQUIZ "必应主页测验 2024 4月 12")
-[下载480](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_800x480.jpg&rf=LaDigue_800x480.jpg "拱门国家公园，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_1280x720.jpg&rf=LaDigue_1280x720.jpg "拱门国家公园，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门国家公园，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_UHD.jpg&rf=LaDigue_UHD.jpg "拱门国家公园，犹他州，美国")
 
 ---
