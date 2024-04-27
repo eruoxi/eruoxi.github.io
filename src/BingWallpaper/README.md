@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月28日：去公园走走吧！
+#### 瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国（© Adam Mowery/Tandem Stills + Motion）
+
+![去公园走走吧！](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_800x480.jpg&rf=LaDigue_800x480.jpg "去公园走走吧！")
+
+好好利用国家公园周的最后一天吧！如果你还没有时间参加为期九天的庆祝活动，请看过来！让我们带你去德克萨斯州西部的瓜达卢佩山脉国家公园看看。该公园于1972年正式成立，占地86,416英亩。在这里，瓜达卢佩山脉耸立在奇瓦瓦沙漠的盐丘之上。海拔8751英尺的瓜达卢佩峰是该山脉的最高点，也是德克萨斯州的最高点。当地另一个突出的地标是8085英尺高的酋长岩，经常被旅行者当作路标。而加利福尼亚州也有一个约3000英尺高的同名“酋长岩”，可别将二者混淆了。即使国家公园周结束了，一年中仍有很多日子可以参观这个国家丰富的自然风光。
+
+这里有许多世界级的洞穴，例如1986年发现的卡尔斯巴德洞穴（最著名的洞穴）和列楚基耶洞穴。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%93%9c%e8%be%be%e5%8d%a2%e4%bd%a9%e5%b1%b1%e8%84%89%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240427_1600" "Bing Wallpaper 2024 4月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240428_GuadalupeTexas"&FORM=HPQUIZ "必应主页测验 2024 4月 28")
+[下载480](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_800x480.jpg&rf=LaDigue_800x480.jpg "瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_UHD.jpg&rf=LaDigue_UHD.jpg "瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国")
+
+---
 ### 04月27日：观鸟的时间到了！
 #### 澳大利亚花园里的白种安氏蜂鸟，加州大学圣克鲁兹分校植物园，加利福尼亚州，美国（© yhelfman/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BowlingBallCali_ZH-CN0434558966_1280x720.jpg&rf=LaDigue_1280x720.jpg "保龄球海滩的日落，门多西诺县，加利福尼亚，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BowlingBallCali_ZH-CN0434558966_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "保龄球海滩的日落，门多西诺县，加利福尼亚，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BowlingBallCali_ZH-CN0434558966_UHD.jpg&rf=LaDigue_UHD.jpg "保龄球海滩的日落，门多西诺县，加利福尼亚，美国")
-
----
-### 04月13日：花开正满枝
-#### 春天的苹果树，德国（© Smileus/Getty Images）
-
-![花开正满枝](https://cn.bing.com/th?id=OHR.SpringApple_ZH-CN0101917345_800x480.jpg&rf=LaDigue_800x480.jpg "花开正满枝")
-
-在这个风景如画的果园里，春天预示着苹果树的繁花盛开。当空气中的寒意开始消退，娇嫩的苹果花绽放了，释放出的甜美气息在整个乡村弥漫开来，标志着丰收进程的开始。苹果属于蔷薇科，以其清脆的口感和酸甜的味道而闻名，是世界上最受人喜爱的水果之一。这些果子有各种各样的颜色，从鲜艳的红色到金黄色以及亮绿色。从酸甜可口的“史密斯奶奶”到纯甜的富士苹果，每种苹果都有其独特的风味。苹果富含膳食纤维、抗氧化剂以及维生素C和维生素K等人体必需维生素，促进身体健康。无论你是喜欢吃新鲜的果肉，还是喜欢烘焙成甜品，抑或是压榨成苹果酒，苹果都是经典的美味佳肴。
-
-苹果体积的25%是由空气构成的，这就是为什么它能漂浮在水面上。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8b%b9%e6%9e%9c%e6%a0%91&form=hpcapt&filters=HpDate:"20240412_1600" "Bing Wallpaper 2024 4月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240413_SpringApple"&FORM=HPQUIZ "必应主页测验 2024 4月 13")
-[下载480](https://cn.bing.com/th?id=OHR.SpringApple_ZH-CN0101917345_800x480.jpg&rf=LaDigue_800x480.jpg "春天的苹果树，德国")
-[下载720](https://cn.bing.com/th?id=OHR.SpringApple_ZH-CN0101917345_1280x720.jpg&rf=LaDigue_1280x720.jpg "春天的苹果树，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.SpringApple_ZH-CN0101917345_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天的苹果树，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpringApple_ZH-CN0101917345_UHD.jpg&rf=LaDigue_UHD.jpg "春天的苹果树，德国")
 
 ---
