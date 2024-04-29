@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月30日：“草原大喵”的完美速度
+#### 清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚（© Paul Souders/Getty Images）
+
+![“草原大喵”的完美速度](https://cn.bing.com/th?id=OHR.CheetahRain_ZH-CN6722375507_800x480.jpg&rf=LaDigue_800x480.jpg "“草原大喵”的完美速度")
+
+别眨眼，它的速度快得惊人！我们在恩戈罗恩戈罗保护区可以看到世界上跑得最快的哺乳动物：猎豹！它们是坦桑尼亚标志性的大型猫科动物之一。猎豹栖息在不同的地形中，从塞伦盖蒂草原到撒哈拉沙漠的干旱地带，都能见到它们的身影。它们有着长长的尾巴、细长的四肢和修长的体型，独特的生理特征使得它们可以快速移动。
+
+猎豹对人类很少展示出攻击性，且很容易被人类驯服，自古以来便是如此。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8c%8e%e8%b1%b9&form=hpcapt&filters=HpDate:"20240429_1600" "Bing Wallpaper 2024 4月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240430_CheetahRain"&FORM=HPQUIZ "必应主页测验 2024 4月 30")
+[下载480](https://cn.bing.com/th?id=OHR.CheetahRain_ZH-CN6722375507_800x480.jpg&rf=LaDigue_800x480.jpg "清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.CheetahRain_ZH-CN6722375507_1280x720.jpg&rf=LaDigue_1280x720.jpg "清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.CheetahRain_ZH-CN6722375507_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.CheetahRain_ZH-CN6722375507_UHD.jpg&rf=LaDigue_UHD.jpg "清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚")
+
+---
 ### 04月29日：被保存得很好的古建筑
 #### 福建土楼，福建省历史文化遗产建筑，中国（© Hongjie Han/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.UnionSquareNYC_ZH-CN1533018653_1280x720.jpg&rf=LaDigue_1280x720.jpg "暮色中的曼哈顿下城联合广场，纽约，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.UnionSquareNYC_ZH-CN1533018653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "暮色中的曼哈顿下城联合广场，纽约，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.UnionSquareNYC_ZH-CN1533018653_UHD.jpg&rf=LaDigue_UHD.jpg "暮色中的曼哈顿下城联合广场，纽约，美国")
-
----
-### 04月15日：介于文艺复兴与独创性之间
-#### 香波城堡，中央-卢瓦尔河谷大区，法国（© Susanne Kremer/eStock Photo）
-
-![介于文艺复兴与独创性之间](https://cn.bing.com/th?id=OHR.ChambordCastle_ZH-CN0930093515_800x480.jpg&rf=LaDigue_800x480.jpg "介于文艺复兴与独创性之间")
-
-你知道香波城堡吗？这个古建筑是法国文艺复兴时期的一颗“明珠”，其建筑灵感来源于法国国王弗朗西斯一世和著名画家达·芬奇。香波城堡的设计者是谁一直存在争议，至今没有定论，但可以确定的是，它的建筑特色受到了达·芬奇的影响。1515年马里尼亚诺战役后，弗朗西斯一世被意大利壮丽的建筑吸引，倾慕于达·芬奇的才华，他邀请达·芬奇来到法国宫廷担任艺术家和总工程师。香波城堡的中心平面设计和双螺旋楼梯见证了这一非凡的合作。主楼是这座建筑的真正核心，它融合了中世纪的宏伟与文艺复兴时期的创新，展示出了一种独特的引人注目的建筑风格。时光流转，这座古老的建筑见证着荣耀与兴衰，艺术、历史和技术在这里相遇，为游客们创造出一种难忘的体验。
-
-壮观的开放式双螺旋楼梯位于香波城堡的主塔中央，既是城堡的中心元素，也是城堡的建筑亮点之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a6%99%e6%b3%a2%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20240414_1600" "Bing Wallpaper 2024 4月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240415_ChambordCastle"&FORM=HPQUIZ "必应主页测验 2024 4月 15")
-[下载480](https://cn.bing.com/th?id=OHR.ChambordCastle_ZH-CN0930093515_800x480.jpg&rf=LaDigue_800x480.jpg "香波城堡，中央-卢瓦尔河谷大区，法国")
-[下载720](https://cn.bing.com/th?id=OHR.ChambordCastle_ZH-CN0930093515_1280x720.jpg&rf=LaDigue_1280x720.jpg "香波城堡，中央-卢瓦尔河谷大区，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.ChambordCastle_ZH-CN0930093515_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "香波城堡，中央-卢瓦尔河谷大区，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ChambordCastle_ZH-CN0930093515_UHD.jpg&rf=LaDigue_UHD.jpg "香波城堡，中央-卢瓦尔河谷大区，法国")
 
 ---
