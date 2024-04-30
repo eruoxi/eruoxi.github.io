@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月01日：夏威夷的花环节
+#### 夏威夷花环（© Jotika Pun/Shutterstock）
+
+![夏威夷的花环节](https://cn.bing.com/th?id=OHR.HawaiianLei_ZH-CN7857272499_800x480.jpg&rf=LaDigue_800x480.jpg "夏威夷的花环节")
+
+随着太阳缓缓升起，夏威夷迎来了五月的第一天。伴随着五颜六色的鲜花、迷人的香氛，花环节在一片欢声笑语中拉开了序幕。夏威夷花环是由各种花朵、叶子甚至贝壳制成的，对于岛上的原住民而言，这些花环承载着重要的文化意义。在很久以前，波利尼西亚人向东迁徙，穿过太平洋群岛，然后在公元1000年至1200年抵达夏威夷岛，为当地的原住民带来了代表爱、尊重和无处不在的“阿洛哈精神”的夏威夷花环。阿洛哈（aloha）是夏威夷原住民的问候语，意为“你好”，它代表着夏威夷岛民平和的生活态度，是一种强调个人思想与心灵协调的精神。花环节全天都有庆祝活动，包括游行、露天表演、花环制作比赛、草裙舞和美食盛宴。
+
+在古代夏威夷，一些特定的花环只有皇室成员才能佩戴，例如用鲸鱼牙齿和人类头发做成的花环。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%8f%e5%a8%81%e5%a4%b7&form=hpcapt&filters=HpDate:"20240430_1600" "Bing Wallpaper 2024 5月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240501_HawaiianLei"&FORM=HPQUIZ "必应主页测验 2024 5月 1")
+[下载480](https://cn.bing.com/th?id=OHR.HawaiianLei_ZH-CN7857272499_800x480.jpg&rf=LaDigue_800x480.jpg "夏威夷花环")
+[下载720](https://cn.bing.com/th?id=OHR.HawaiianLei_ZH-CN7857272499_1280x720.jpg&rf=LaDigue_1280x720.jpg "夏威夷花环")
+[下载1080](https://cn.bing.com/th?id=OHR.HawaiianLei_ZH-CN7857272499_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夏威夷花环")
+[下载UHD](https://cn.bing.com/th?id=OHR.HawaiianLei_ZH-CN7857272499_UHD.jpg&rf=LaDigue_UHD.jpg "夏威夷花环")
+
+---
 ### 04月30日：“草原大喵”的完美速度
 #### 清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚（© Paul Souders/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_1280x720.jpg&rf=LaDigue_1280x720.jpg "春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_UHD.jpg&rf=LaDigue_UHD.jpg "春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国")
-
----
-### 04月16日：灯光，相机，纽约！
-#### 暮色中的曼哈顿下城联合广场，纽约，美国（© Sean Pavone/Getty Images）
-
-![灯光，相机，纽约！](https://cn.bing.com/th?id=OHR.UnionSquareNYC_ZH-CN1533018653_800x480.jpg&rf=LaDigue_800x480.jpg "灯光，相机，纽约！")
-
-“纵横交错的街道令人焕然一新，璀璨的霓虹灯让人热血沸腾。” 流行歌手艾丽西亚·凯斯在歌曲《帝国之心》中这样描述大苹果市（纽约的别称）的繁华与活力。今天，主页的图片将我们带到 “不夜城 ”的其中一个景点：曼哈顿下城的联合广场。在这个历史悠久的十字路口，您可以看到乔治·华盛顿的雕像，它是纽约市所有公园中最古老的雕像，以及雕塑家亨利·柯克·布朗创作的亚伯拉罕·林肯的雕像。1882年，工人们行使他们言论自由和集会自由的权利，在联合广场组织了第一次劳动节游行。正因如此，联合广场在美国劳工史上具有特殊的意义，1997年美国内政部将其认定为国家历史地标。时光飞逝，如今的曼哈顿更加繁华，当你漫步在街头，或许会在广场上看到街头棋手、音乐家、滑板爱好者、舞蹈团体和各类小贩。
-
-如今的联合广场灯火辉煌，而在早期，这周围只是农田。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%81%94%e5%90%88%e5%b9%bf%e5%9c%ba&form=hpcapt&filters=HpDate:"20240415_1600" "Bing Wallpaper 2024 4月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240416_UnionSquareNYC"&FORM=HPQUIZ "必应主页测验 2024 4月 16")
-[下载480](https://cn.bing.com/th?id=OHR.UnionSquareNYC_ZH-CN1533018653_800x480.jpg&rf=LaDigue_800x480.jpg "暮色中的曼哈顿下城联合广场，纽约，美国")
-[下载720](https://cn.bing.com/th?id=OHR.UnionSquareNYC_ZH-CN1533018653_1280x720.jpg&rf=LaDigue_1280x720.jpg "暮色中的曼哈顿下城联合广场，纽约，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.UnionSquareNYC_ZH-CN1533018653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "暮色中的曼哈顿下城联合广场，纽约，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.UnionSquareNYC_ZH-CN1533018653_UHD.jpg&rf=LaDigue_UHD.jpg "暮色中的曼哈顿下城联合广场，纽约，美国")
 
 ---
