@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月02日：“月球一日游”
+#### 蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国（© Alan Majchrowicz/Getty Images）
+
+![“月球一日游”](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_800x480.jpg&rf=LaDigue_800x480.jpg "“月球一日游”")
+
+系好安全带！让我们一起出发，去地球上的“外星王国”探险吧！今天主页展示的图片是月球陨石坑国家纪念碑和保护区，它位于爱达荷州，被一片崎岖的地形包围着。数千年前，在火山的作用下，月球陨石坑诞生并形成了独特的地貌。踏上这片土地，迎接游客的是辽阔的熔岩荒原，火山渣锥和寄生熔岩锥，如此超现实的景象仿佛月球表面，因此这个占地近54,000 英亩的地区被取名为月球陨石坑国家纪念碑和保护区。也因为这里的地貌像月球表面，阿波罗14号的宇航员在为登月计划做准备时，曾在这里接受训练，通过探索这里独特的火山地质，宇航员们可以深入了解月球上类似的地貌。
+
+生活在月球陨石坑及其周围的所有动植物都承受着巨大的环境压力，因为干燥的风和熔岩会削弱周遭生物体的水分。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%99%a8%e7%9f%b3%e5%9d%91&form=hpcapt&filters=HpDate:"20240501_1600" "Bing Wallpaper 2024 5月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240502_CratersOfTheMoon"&FORM=HPQUIZ "必应主页测验 2024 5月 2")
+[下载480](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_800x480.jpg&rf=LaDigue_800x480.jpg "蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_1280x720.jpg&rf=LaDigue_1280x720.jpg "蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_UHD.jpg&rf=LaDigue_UHD.jpg "蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国")
+
+---
 ### 05月01日：夏威夷的花环节
 #### 夏威夷花环（© Jotika Pun/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_1280x720.jpg&rf=LaDigue_1280x720.jpg "中世纪城墙，阿维拉，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中世纪城墙，阿维拉，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_UHD.jpg&rf=LaDigue_UHD.jpg "中世纪城墙，阿维拉，西班牙")
-
----
-### 04月17日：我是不是睡得太久了？
-#### 春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国（© Scott Suriano/Getty Images）
-
-![我是不是睡得太久了？](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_800x480.jpg&rf=LaDigue_800x480.jpg "我是不是睡得太久了？")
-
-欢迎来到这个世界，可爱的熊宝宝！图中这只毛茸茸的美洲黑熊幼崽才从冬眠中醒来，它在巢穴中度过了生命最初的几个月，现在，它或许对外面的世界感到陌生又困惑。黑熊幼崽一般出生在一月份至二月份，而后一直呆在巢穴里，直到四月中旬或五月初才会离开。刚踏入春天时，小黑熊的体重只有5磅左右，等长到一岁时，体重会长到约80磅。成年黑熊的体重一般在100磅至600磅之间，具体能长到重，取决于它们的年龄、性别、季节、以及栖息地的食物资源。今天图片的背景是弗吉尼亚州仙纳度国家公园，迄今为止，黑熊是这里唯一被发现的熊类。
-
-黑熊有着厚厚的“皮毛外套”，这个外套由多层蓬松的软毛组成，在寒冷的冬天可以保暖。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e6%b4%b2%e9%bb%91%e7%86%8a&form=hpcapt&filters=HpDate:"20240416_1600" "Bing Wallpaper 2024 4月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240417_SpringCub"&FORM=HPQUIZ "必应主页测验 2024 4月 17")
-[下载480](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_800x480.jpg&rf=LaDigue_800x480.jpg "春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_1280x720.jpg&rf=LaDigue_1280x720.jpg "春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_UHD.jpg&rf=LaDigue_UHD.jpg "春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国")
 
 ---
