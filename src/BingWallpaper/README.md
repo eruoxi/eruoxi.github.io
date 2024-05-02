@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月03日：最热的地方也有凉爽之处
+#### 春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州（© Charles Harker/Getty Images）
+
+![最热的地方也有凉爽之处](https://cn.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_800x480.jpg&rf=LaDigue_800x480.jpg "最热的地方也有凉爽之处")
+
+当温暖的阳光照在你身上时，你就知道自己来到了亚利桑那州的索诺拉沙漠！在这片干旱的土地上，生活着各种动物，如走鹃、吉拉毒蜥和沙漠乌龟。索诺拉沙漠有两个雨季，因此会有五颜六色的野花盛开，图中的沙漠毒菊就是其中之一。这些耐寒的灌木适应了干燥的气候，银灰色的叶子上覆盖着细毛，有助于减少蒸腾作用导致的水分流失。沙漠毒菊开出鲜艳的黄色花朵，一簇簇地挂在枝头，为沙漠增添了一抹亮色。另一种耐旱的沙漠植物是名为巨人柱的仙人掌，它可以活150多年，长到40英尺高。这些仙人掌为沙漠物种提供食物和栖息地。在托霍诺奥德姆人的文化中，仙人掌也是一种神圣的植物，可以用来满足生活需求和举行宗教仪式。
+
+索诺拉沙漠被认为是北美地区最热的沙漠。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%b4%a2%e8%af%ba%e6%8b%89%e6%b2%99%e6%bc%a0&form=hpcapt&filters=HpDate:"20240502_1600" "Bing Wallpaper 2024 5月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240503_SonoranSpring"&FORM=HPQUIZ "必应主页测验 2024 5月 3")
+[下载480](https://cn.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_800x480.jpg&rf=LaDigue_800x480.jpg "春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州")
+[下载720](https://cn.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_1280x720.jpg&rf=LaDigue_1280x720.jpg "春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州")
+[下载1080](https://cn.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州")
+[下载UHD](https://cn.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_UHD.jpg&rf=LaDigue_UHD.jpg "春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州")
+
+---
 ### 05月02日：“月球一日游”
 #### 蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国（© Alan Majchrowicz/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_1280x720.jpg&rf=LaDigue_1280x720.jpg "布罗德加环，奥克尼岛，苏格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布罗德加环，奥克尼岛，苏格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_UHD.jpg&rf=LaDigue_UHD.jpg "布罗德加环，奥克尼岛，苏格兰")
-
----
-### 04月18日：名誉之墙
-#### 中世纪城墙，阿维拉，西班牙（© Scott Suriano/Getty Images）
-
-![名誉之墙](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_800x480.jpg&rf=LaDigue_800x480.jpg "名誉之墙")
-
-今天是一个具有纪念意义的日子：国际古迹遗址日。这一天也被称为“世界遗产日”，旨在强调保护文化遗产的重要性。从建筑物到雕塑，古迹可以是任何一样东西，只要它在历史、艺术或科学层面具有突出的价值。世界上有许多令人惊讶的古迹，例如秘鲁的马丘比丘和埃及的吉萨金字塔等，而今天的图片展示的是一个石头建筑，它是西班牙阿维拉中世纪城墙的其中一部分。这些碉堡修建于11世纪至14世纪，周长超8000英尺，最初的修建目的是保护城市，抵御外来者的进攻，如今这里成为了旅游圣地，游客们可以沿着城墙漫步，欣赏城市和周围乡村的美景。
-
-阿维拉不仅拥有壮观而完整的中世纪城墙，还是最受人尊敬和最有影响力的天主教圣人之一——阿维拉的圣特蕾莎的出生地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e5%8f%a4%e8%bf%b9%e9%81%97%e5%9d%80%e6%97%a5&form=hpcapt&filters=HpDate:"20240417_1600" "Bing Wallpaper 2024 4月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240418_AvilaSpain"&FORM=HPQUIZ "必应主页测验 2024 4月 18")
-[下载480](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_800x480.jpg&rf=LaDigue_800x480.jpg "中世纪城墙，阿维拉，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_1280x720.jpg&rf=LaDigue_1280x720.jpg "中世纪城墙，阿维拉，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中世纪城墙，阿维拉，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_UHD.jpg&rf=LaDigue_UHD.jpg "中世纪城墙，阿维拉，西班牙")
 
 ---
