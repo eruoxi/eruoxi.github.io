@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月04日：愿原力与你同在！
+#### 斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰（© MNStudio/Getty Images）
+
+![愿原力与你同在！](https://cn.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_800x480.jpg&rf=LaDigue_800x480.jpg "愿原力与你同在！")
+
+光剑闪闪发光，机器人嘟嘟作响，让我们尽情狂欢吧！在这个银河系的节日里，从观看《星球大战》电影到装扮成自己最喜欢的角色，全世界的星战迷们开始尽情地享受星战的一切。今天的图片展示的是《星球大战》续集三部曲的拍摄地点：爱尔兰西南海岸的斯凯利格·迈克尔岛。这座被联合国教科文组织列为世界遗产的地标建筑中，保存着一座由早期僧侣建立的六世纪修道院。在《星球大战：原力觉醒》中，绝地大师卢克·天行者曾在阿奇托星球上一座与世隔绝的岛屿避难，其取景地正是斯凯利格·迈克尔岛上的蜂巢小屋和石头楼梯。此外，斯凯利格·迈克尔岛上包括海鹦在内的大量海鸟，正是阿奇托岛上那长得像企鹅的波尔格鸟的灵感来源。所以，带上你的伍基人副驾驶，跳上你的星际飞船，在银河系的地球上，开启一段充满力量的旅程吧！
+
+“星球大战日”源于电影《星球大战》中的一句经典台词，“May the Force be with you”（愿原力与你同在）。而英文中的“May the Fourth be with you”（五月四日与你同在）与这句台词发音类似，于是5月4日就被定为星球大战日。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%98%9f%e7%90%83%e5%a4%a7%e6%88%98%e6%97%a5&form=hpcapt&filters=HpDate:"20240503_1600" "Bing Wallpaper 2024 5月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240504_JediMonastery"&FORM=HPQUIZ "必应主页测验 2024 5月 4")
+[下载480](https://cn.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_800x480.jpg&rf=LaDigue_800x480.jpg "斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰")
+[下载720](https://cn.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰")
+[下载1080](https://cn.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_UHD.jpg&rf=LaDigue_UHD.jpg "斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰")
+
+---
 ### 05月03日：最热的地方也有凉爽之处
 #### 春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州（© Charles Harker/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时分的大棱镜泉，美国怀俄明州黄石国家公园")
 [下载1080](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时分的大棱镜泉，美国怀俄明州黄石国家公园")
 [下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_UHD.jpg&rf=LaDigue_UHD.jpg "日出时分的大棱镜泉，美国怀俄明州黄石国家公园")
-
----
-### 04月19日：历史的轮回
-#### 布罗德加环，奥克尼岛，苏格兰（© Paul Williams - FunkyStock/Getty Images）
-
-![历史的轮回](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_800x480.jpg&rf=LaDigue_800x480.jpg "历史的轮回")
-
-在苏格兰北部的奥克尼群岛的中心地带，有一个古老的谜团：布罗德加环。这个新石器时代的石圈是一种古老的圆形土方工程，可以追溯到公元前2500年到2000年之间，石圈的直径约为340英尺。该遗址位于两个湖泊之间的狭长地带，最初由60块石头组成，如今只剩下36块。该石圈的确切用途至今仍不得而知。为了进一步了解该遗址，一项名为“挖掘布罗德加环”的发掘项目于2008年启动，但该项目尚未取得任何结论性成果。1999年，包括布罗德加环在内的新石器时代的奥克尼中心地带被联合国教科文组织列为世界遗产。如果你计划去苏格兰旅行，不妨去布罗德加环逛逛。在这里，你不仅可以呼吸到清新的空气，还可以感受石圈的悠久历史。
-
-布罗德加环已有5000年的历史了。它比巨石阵和埃及的大金字塔还要古老，但比附近的斯丹尼斯立石更年轻。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e7%bd%97%e5%be%b7%e5%8a%a0%e7%8e%af&form=hpcapt&filters=HpDate:"20240418_1600" "Bing Wallpaper 2024 4月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240419_OrkneyStones"&FORM=HPQUIZ "必应主页测验 2024 4月 19")
-[下载480](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_800x480.jpg&rf=LaDigue_800x480.jpg "布罗德加环，奥克尼岛，苏格兰")
-[下载720](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_1280x720.jpg&rf=LaDigue_1280x720.jpg "布罗德加环，奥克尼岛，苏格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布罗德加环，奥克尼岛，苏格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_UHD.jpg&rf=LaDigue_UHD.jpg "布罗德加环，奥克尼岛，苏格兰")
 
 ---
