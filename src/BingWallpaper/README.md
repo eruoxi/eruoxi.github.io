@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月05日：为墨西哥干杯!
+#### 圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥（© Mint Images/Getty Images）
+
+![为墨西哥干杯!](https://cn.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_800x480.jpg&rf=LaDigue_800x480.jpg "为墨西哥干杯!")
+
+五月五日节是墨西哥传统的爱国主义节日，这一活动不能与9月16日举行的墨西哥独立日混为一谈，20世纪80年代，由于龙舌兰酒、啤酒和葡萄酒的广告宣传，五月五日节在美国得到了认可，难怪如今的五月五日节在美国已成为一个狂欢的节日。值得一提的是，墨西哥除了美酒佳肴之外，丰富多彩的文化也值得品尝，无论是建筑（比如图中的圣米格尔德阿连德市的街道）、历史、艺术还是风景。
+
+如今，五月五日节带来的啤酒销量与“超级碗”相当。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a2%a8%e8%a5%bf%e5%93%a5%e4%ba%94%e6%9c%88%e4%ba%94%e6%97%a5%e8%8a%82&form=hpcapt&filters=HpDate:"20240504_1600" "Bing Wallpaper 2024 5月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240505_SanMiguelAllende"&FORM=HPQUIZ "必应主页测验 2024 5月 5")
+[下载480](https://cn.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_800x480.jpg&rf=LaDigue_800x480.jpg "圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥")
+[下载720](https://cn.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥")
+[下载1080](https://cn.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥")
+[下载UHD](https://cn.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_UHD.jpg&rf=LaDigue_UHD.jpg "圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥")
+
+---
 ### 05月04日：愿原力与你同在！
 #### 斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰（© MNStudio/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_1280x720.jpg&rf=LaDigue_1280x720.jpg "Cades Cove ，大雾山国家公园，田纳西州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Cades Cove ，大雾山国家公园，田纳西州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_UHD.jpg&rf=LaDigue_UHD.jpg "Cades Cove ，大雾山国家公园，田纳西州，美国")
-
----
-### 04月20日：保存，保护，享受！
-#### 日出时分的大棱镜泉，美国怀俄明州黄石国家公园（© XIN WANG/Getty Images）
-
-![保存，保护，享受！](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_800x480.jpg&rf=LaDigue_800x480.jpg "保存，保护，享受！")
-
-准备好你的登山靴吧，因为美国国家公园周到了！美国各地最迷人的风景区已敞开大门，邀请大家免费拥抱大自然。在整个庆祝活动期间，美国国家公园管理局将组织各种活动，包括由护林员带领的参观活动、志愿者活动和教育研讨会。
-
-黄石国家公园坐落在一座休眠火山上，是地球上间歇泉和温泉最多的地方。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%bb%84%e7%9f%b3%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240419_1600" "Bing Wallpaper 2024 4月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240420_YellowstoneGeyser"&FORM=HPQUIZ "必应主页测验 2024 4月 20")
-[下载480](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_800x480.jpg&rf=LaDigue_800x480.jpg "日出时分的大棱镜泉，美国怀俄明州黄石国家公园")
-[下载720](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时分的大棱镜泉，美国怀俄明州黄石国家公园")
-[下载1080](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时分的大棱镜泉，美国怀俄明州黄石国家公园")
-[下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_UHD.jpg&rf=LaDigue_UHD.jpg "日出时分的大棱镜泉，美国怀俄明州黄石国家公园")
 
 ---
