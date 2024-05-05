@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月06日：峰区一瞥
+#### 罗奇斯山脊，英格兰峰区（© George W Johnson/Getty Images）
+
+![峰区一瞥](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_800x480.jpg&rf=LaDigue_800x480.jpg "峰区一瞥")
+
+在今天的图片中，阳光照射在英格兰北部峰区的罗奇斯山脊上。但这个奇怪名字的由来是什么呢？它来自法语“les roches”，意思是“岩石”。罗奇斯山脊是峰区国家公园的一部分，它矗立在斯塔福德郡利克镇的上方，高度超过1600英尺，是登山者和徒步旅行者的热门目的地。在这里，你可以俯瞰荒野的壮丽景色，如果幸运的话，你甚至还能看到沙袋鼠！20世纪30年代，一些澳大利亚有袋动物从附近的私人动物园逃脱，至今仍有原始沙袋鼠后代的目击记录。
+
+罗奇斯山脊有300多条攀岩路线，从短而容易的攀岩路线到长而具有挑战性的多坡度攀爬路线，应有尽有。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b3%b0%e5%8c%ba%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240505_1600" "Bing Wallpaper 2024 5月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240506_TheRoachesPeakDistrict"&FORM=HPQUIZ "必应主页测验 2024 5月 6")
+[下载480](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_800x480.jpg&rf=LaDigue_800x480.jpg "罗奇斯山脊，英格兰峰区")
+[下载720](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗奇斯山脊，英格兰峰区")
+[下载1080](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗奇斯山脊，英格兰峰区")
+[下载UHD](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_UHD.jpg&rf=LaDigue_UHD.jpg "罗奇斯山脊，英格兰峰区")
+
+---
 ### 05月05日：为墨西哥干杯!
 #### 圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥（© Mint Images/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_1280x720.jpg&rf=LaDigue_1280x720.jpg "绿海龟，圣地亚哥，加利福尼亚，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "绿海龟，圣地亚哥，加利福尼亚，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_UHD.jpg&rf=LaDigue_UHD.jpg "绿海龟，圣地亚哥，加利福尼亚，美国")
-
----
-### 04月21日：未选择的路
-#### Cades Cove ，大雾山国家公园，田纳西州，美国（© Richard Bernabe/Shutterstock）
-
-![未选择的路](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_800x480.jpg&rf=LaDigue_800x480.jpg "未选择的路")
-
-随着美国国家公园周活动的开展，让我们一起去田纳西州的大雾山国家公园走走吧！该公园成立于1934年，占地面积超过522,419英亩。这座公园的大部分地区都被森林覆盖着，是1500种开花植物、952种藻类、65种哺乳动物和240多种鸟类的家园，大雾山国家公也因此成为了国际生物圈保护区。
-
-你知道大雾山被誉为“世界蝾螈之都”吗？大雾山中有30种不同的蝾螈！
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e9%9b%be%e5%b1%b1%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240420_1600" "Bing Wallpaper 2024 4月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240421_CadesCove"&FORM=HPQUIZ "必应主页测验 2024 4月 21")
-[下载480](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_800x480.jpg&rf=LaDigue_800x480.jpg "Cades Cove ，大雾山国家公园，田纳西州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_1280x720.jpg&rf=LaDigue_1280x720.jpg "Cades Cove ，大雾山国家公园，田纳西州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Cades Cove ，大雾山国家公园，田纳西州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_UHD.jpg&rf=LaDigue_UHD.jpg "Cades Cove ，大雾山国家公园，田纳西州，美国")
 
 ---
