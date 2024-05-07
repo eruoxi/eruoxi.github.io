@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月08日：海港景色
+#### 伊夫堡，马赛，法国（© Sergii Figurnyi/Alamy）
+
+![海港景色](https://cn.bing.com/th?id=OHR.PortMarseille_ZH-CN3194394496_800x480.jpg&rf=LaDigue_800x480.jpg "海港景色")
+
+准备好在法国马赛享受阳光和奥林匹克精神吧。马赛是一座充满活力的海滨城市，以其丰富的海洋遗产和文化多样性而闻名，是通往地中海的门户。今天，奥运火炬的到来点燃了这里期待奥运的热潮。作为连接现代奥运会与古希腊文化遗产的一个象征，奥运火炬于4月16日在希腊奥林匹亚点燃，奥运圣火就此开启环绕法国的旅程，直至抵达巴黎奥运会。夏季奥运会将于7月26日开幕，而马赛正在为举办奥运会帆船比赛做准备，这座城市充满活力，将传统与创新融为一体。
+
+马赛拥有世界上最大的商业港口，每年吞吐量超过1亿吨。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%95%e5%9b%bd%e9%a9%ac%e8%b5%9b&form=hpcapt&filters=HpDate:"20240507_1600" "Bing Wallpaper 2024 5月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240508_PortMarseille"&FORM=HPQUIZ "必应主页测验 2024 5月 8")
+[下载480](https://cn.bing.com/th?id=OHR.PortMarseille_ZH-CN3194394496_800x480.jpg&rf=LaDigue_800x480.jpg "伊夫堡，马赛，法国")
+[下载720](https://cn.bing.com/th?id=OHR.PortMarseille_ZH-CN3194394496_1280x720.jpg&rf=LaDigue_1280x720.jpg "伊夫堡，马赛，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.PortMarseille_ZH-CN3194394496_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊夫堡，马赛，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PortMarseille_ZH-CN3194394496_UHD.jpg&rf=LaDigue_UHD.jpg "伊夫堡，马赛，法国")
+
+---
 ### 05月07日：水影里的小黄鸭
 #### 一只小鸭子在水草地上游泳，萨福克郡，英国（© Nick Hurst/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_1280x720.jpg&rf=LaDigue_1280x720.jpg "盛开的白延龄草，安大略省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的白延龄草，安大略省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的白延龄草，安大略省，加拿大")
-
----
-### 04月23日：预订已满！
-#### 三一学院图书馆，都柏林，爱尔兰（© Vincent Isore/Getty Images）
-
-![预订已满！](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_800x480.jpg&rf=LaDigue_800x480.jpg "预订已满！")
-
-在爱尔兰中心，在都柏林三一学院图书馆历史悠久的大厅里，卷轴和古籍低声诉说着久远的故事。今天，这些沉默的故事讲述者将大放异彩。世界图书日由联合国教科文组织于1995年设立，旨在提醒人们阅读、出版和版权的重要性。但为什么是4月23日呢？因为这一天是威廉·莎士比亚、米格尔·德·塞万提斯和其他几位文学巨匠共同的忌日！从每年在马里兰州肯辛顿举办的汇集众多作家、诗人和文学组织的街头庆祝活动，到世界各地许多国家向孩子们分发图书券，这一天在书页翻动的沙沙声中变得生机勃勃。有趣的是，联合国教科文组织每年都会推选一个城市为“世界图书之都”，被选中的城市将在被授予的一年中开展促进阅读的活动，今年当选是法国斯特拉斯堡。那么，你选好要读的书了吗？
-
-“世界图书之都”是联合国教科文组织发起的一项倡议，旨在表彰那些从4月23日的世界图书和版权日起，在一年内推广图书和促进阅读的城市。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e8%af%bb%e4%b9%a6%e6%97%a5&form=hpcapt&filters=HpDate:"20240422_1600" "Bing Wallpaper 2024 4月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240423_TrinityDublin"&FORM=HPQUIZ "必应主页测验 2024 4月 23")
-[下载480](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_800x480.jpg&rf=LaDigue_800x480.jpg "三一学院图书馆，都柏林，爱尔兰")
-[下载720](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_1280x720.jpg&rf=LaDigue_1280x720.jpg "三一学院图书馆，都柏林，爱尔兰")
-[下载1080](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "三一学院图书馆，都柏林，爱尔兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_UHD.jpg&rf=LaDigue_UHD.jpg "三一学院图书馆，都柏林，爱尔兰")
 
 ---
