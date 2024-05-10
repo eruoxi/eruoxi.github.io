@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月11日：小蓝鸟一路顺风
+#### 树枝上栖息的靛蓝彩鹀，德克萨斯州（© Jeff R Clow/Getty Images）
+
+![小蓝鸟一路顺风](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_800x480.jpg&rf=LaDigue_800x480.jpg "小蓝鸟一路顺风")
+
+候鸟为什么要迁徙？它们又是如何飞越半个地球的？今天，为了纪念世界候鸟日，我们向大家介绍靛蓝彩鹀，一种羽毛像天空的颜色的小鸟。它们利用星星导航，穿越数千英里，在北美洲的繁殖地和中美洲及南美洲北部的越冬地之间迁徙。
+
+和其他迁徙物种一样，靛蓝彩鹀在夜间迁徙，利用星星导航！
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%9d%9b%e8%93%9d%e5%bd%a9%e9%b9%80&form=hpcapt&filters=HpDate:"20240510_1600" "Bing Wallpaper 2024 5月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240511_TexasIndigoBunting"&FORM=HPQUIZ "必应主页测验 2024 5月 11")
+[下载480](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_800x480.jpg&rf=LaDigue_800x480.jpg "树枝上栖息的靛蓝彩鹀，德克萨斯州")
+[下载720](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_1280x720.jpg&rf=LaDigue_1280x720.jpg "树枝上栖息的靛蓝彩鹀，德克萨斯州")
+[下载1080](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "树枝上栖息的靛蓝彩鹀，德克萨斯州")
+[下载UHD](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_UHD.jpg&rf=LaDigue_UHD.jpg "树枝上栖息的靛蓝彩鹀，德克萨斯州")
+
+---
 ### 05月10日：岛屿在召唤！
 #### 米苏尔岛，拉贾安帕群岛，印度尼西亚（© Giordano Cipriani/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_ZH-CN2921653789_1280x720.jpg&rf=LaDigue_1280x720.jpg "澳大利亚花园里的白种安氏蜂鸟，加州大学圣克鲁兹分校植物园，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_ZH-CN2921653789_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "澳大利亚花园里的白种安氏蜂鸟，加州大学圣克鲁兹分校植物园，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_ZH-CN2921653789_UHD.jpg&rf=LaDigue_UHD.jpg "澳大利亚花园里的白种安氏蜂鸟，加州大学圣克鲁兹分校植物园，加利福尼亚州，美国")
-
----
-### 04月26日：这棵树是个快乐的家伙！
-#### 卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国（© Abbie Warnock-Matthews/Shutterstock）
-
-![这棵树是个快乐的家伙！](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_800x480.jpg&rf=LaDigue_800x480.jpg "这棵树是个快乐的家伙！")
-
-美国第一个植树节是在1872年举行的，从那以后，这项活动真正地生根发芽。每年四月的最后一个星期五，美国各地的人们都会通过植树来纪念这个节日，通常会把这些树献给所爱的人。这一天也是纪念树木的好日子——树木不仅为无数种动物提供家园，还能吸收二氧化碳，净化我们呼吸的空气，帮助城市保持凉爽，甚至还能起到预防洪水的作用。
-
-1982年，该公园被联合国教科文组织认定为世界遗产，因此获得了国际认可。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a4%8d%e6%a0%91%e8%8a%82&form=hpcapt&filters=HpDate:"20240425_1600" "Bing Wallpaper 2024 4月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240426_KalalochTree"&FORM=HPQUIZ "必应主页测验 2024 4月 26")
-[下载480](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_800x480.jpg&rf=LaDigue_800x480.jpg "卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_UHD.jpg&rf=LaDigue_UHD.jpg "卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国")
 
 ---
