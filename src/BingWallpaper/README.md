@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月13日：鱼眼视角
+#### 鱼河大峡谷，纳米比亚（© R. M. Nunes/Getty Images）
+
+![鱼眼视角](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_800x480.jpg&rf=LaDigue_800x480.jpg "鱼眼视角")
+
+从世界上最古老的沙漠——纳米布沙漠，到奇妙的箭袋树森林，南非的纳米比亚拥有许多宝藏旅游景点。该国家最长的河流——鱼河，在数百万年的时间里侵蚀出了欧洲大陆最大的峡谷：鱼河大峡谷，它长约100英里，深约1800英尺，蜿蜒曲折，穿过风化的片麻岩层和白云岩。作为纳米比亚的热门景点之一，鱼河大峡谷以其长达50多英里的徒步小径和“鱼河峡谷超级马拉松比赛”吸引了无数探险者。此外，峡谷里还生活着哈特曼山斑马、山羚、东部岩象鼩等大大小小的生物。无论您是来轻徒步、远足、露营或者只是欣赏美景，鱼河大峡谷一定会让您终身难忘的。
+
+鱼河大峡谷徒步路线是南非最受欢迎的徒步路线之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%b3%e7%b1%b3%e6%af%94%e4%ba%9a%e9%b1%bc%e6%b2%b3%e5%b3%a1%e8%b0%b7&form=hpcapt&filters=HpDate:"20240512_1600" "Bing Wallpaper 2024 5月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240513_NamibiaCanyon"&FORM=HPQUIZ "必应主页测验 2024 5月 13")
+[下载480](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_800x480.jpg&rf=LaDigue_800x480.jpg "鱼河大峡谷，纳米比亚")
+[下载720](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_1280x720.jpg&rf=LaDigue_1280x720.jpg "鱼河大峡谷，纳米比亚")
+[下载1080](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鱼河大峡谷，纳米比亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_UHD.jpg&rf=LaDigue_UHD.jpg "鱼河大峡谷，纳米比亚")
+
+---
 ### 05月12日：放牧和饲养
 #### 潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷（© Gabriel Rojo/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_1280x720.jpg&rf=LaDigue_1280x720.jpg "福建土楼，福建省历史文化遗产建筑，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "福建土楼，福建省历史文化遗产建筑，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_UHD.jpg&rf=LaDigue_UHD.jpg "福建土楼，福建省历史文化遗产建筑，中国")
-
----
-### 04月28日：去公园走走吧！
-#### 瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国（© Adam Mowery/Tandem Stills + Motion）
-
-![去公园走走吧！](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_800x480.jpg&rf=LaDigue_800x480.jpg "去公园走走吧！")
-
-好好利用国家公园周的最后一天吧！如果你还没有时间参加为期九天的庆祝活动，请看过来！让我们带你去德克萨斯州西部的瓜达卢佩山脉国家公园看看。该公园于1972年正式成立，占地86,416英亩。在这里，瓜达卢佩山脉耸立在奇瓦瓦沙漠的盐丘之上。海拔8751英尺的瓜达卢佩峰是该山脉的最高点，也是德克萨斯州的最高点。当地另一个突出的地标是8085英尺高的酋长岩，经常被旅行者当作路标。而加利福尼亚州也有一个约3000英尺高的同名“酋长岩”，可别将二者混淆了。即使国家公园周结束了，一年中仍有很多日子可以参观这个国家丰富的自然风光。
-
-这里有许多世界级的洞穴，例如1986年发现的卡尔斯巴德洞穴（最著名的洞穴）和列楚基耶洞穴。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%93%9c%e8%be%be%e5%8d%a2%e4%bd%a9%e5%b1%b1%e8%84%89%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240427_1600" "Bing Wallpaper 2024 4月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240428_GuadalupeTexas"&FORM=HPQUIZ "必应主页测验 2024 4月 28")
-[下载480](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_800x480.jpg&rf=LaDigue_800x480.jpg "瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_UHD.jpg&rf=LaDigue_UHD.jpg "瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国")
 
 ---
