@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月14日：“深渊”探险
+#### 通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州（© Doug Meek/Getty Images）
+
+![“深渊”探险](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_800x480.jpg&rf=LaDigue_800x480.jpg "“深渊”探险")
+
+深邃的岩石峡谷，高耸的古代海礁，新墨西哥州的卡尔斯巴德洞窟国家公园拥有世界上最独特的岩层。在其沙漠美景下隐藏着119余个洞穴，这些洞穴是由硫酸溶解周围的石灰岩时形成的。1930年的今天，卡尔斯巴德洞窟国家公园正式成立，它拥有北美最大的地下洞室——“大房间”，洞室里每一个角落和缝隙都是经过数百万年时光雕琢而成的杰作，例如像枝形吊灯一样悬挂着的巨大钟乳石，以及直插“天花板”的钟乳石笋，因此它被联合国教科文组织指定为世界遗产保护地，除了拥有奇特的自然美景外，卡尔斯巴德洞窟国家公园还会组织“蝙蝠飞行观赏”等活动，游客们可以看到成千上万只蝙蝠在洞穴里飞进飞出，场面刺激又壮观。如果您向往地下探险，卡尔斯巴德洞窟国家公园一定会带给您一段独特的体验。
+
+卡尔斯巴德洞窟国家公园里有一个巨大的石灰岩洞室，简称为“大房间”，它长约4000英尺（1220米），宽625英尺（191米），最高点高达255英尺（78米）。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e5%b0%94%e6%96%af%e5%b7%b4%e5%be%b7%e6%b4%9e%e7%aa%9f%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240513_1600" "Bing Wallpaper 2024 5月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240514_CarlsbadNP"&FORM=HPQUIZ "必应主页测验 2024 5月 14")
+[下载480](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_800x480.jpg&rf=LaDigue_800x480.jpg "通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州")
+[下载720](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_1280x720.jpg&rf=LaDigue_1280x720.jpg "通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州")
+[下载1080](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州")
+[下载UHD](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg&rf=LaDigue_UHD.jpg "通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州")
+
+---
 ### 05月13日：鱼眼视角
 #### 鱼河大峡谷，纳米比亚（© R. M. Nunes/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CheetahRain_ZH-CN6722375507_1280x720.jpg&rf=LaDigue_1280x720.jpg "清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.CheetahRain_ZH-CN6722375507_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.CheetahRain_ZH-CN6722375507_UHD.jpg&rf=LaDigue_UHD.jpg "清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚")
-
----
-### 04月29日：被保存得很好的古建筑
-#### 福建土楼，福建省历史文化遗产建筑，中国（© Hongjie Han/Getty Images）
-
-![被保存得很好的古建筑](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_800x480.jpg&rf=LaDigue_800x480.jpg "被保存得很好的古建筑")
-
-准备好踏入独特的建筑世界了吗？在这里，主流的住宅是如此的古旧。今天的图片展示的是福建土楼，它们修建于12世纪至20世纪，是中国福建东南部山区客家人独一无二的乡村住宅。客家人是汉族的一个独特分支，拥有独特的客家文化。福建土楼便是客家人在辗转迁徙中，发扬古老建筑技术创造的“建筑奇迹”。土楼以竹条作为支撑，由粘土、沙土和灰瓦建造而成。这些圆形住宅有着浅色的墙壁，深色的屋顶和宽敞的内部空间，从上往下看，它们就像一个个巨大的轮胎或卷筒侧躺在道路旁。
-
-直径14米，南靖县南坑镇的翠林楼是最小的土楼。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a6%8f%e5%bb%ba%e5%9c%9f%e6%a5%bc&form=hpcapt&filters=HpDate:"20240428_1600" "Bing Wallpaper 2024 4月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240429_TulouFujian"&FORM=HPQUIZ "必应主页测验 2024 4月 29")
-[下载480](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_800x480.jpg&rf=LaDigue_800x480.jpg "福建土楼，福建省历史文化遗产建筑，中国")
-[下载720](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_1280x720.jpg&rf=LaDigue_1280x720.jpg "福建土楼，福建省历史文化遗产建筑，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "福建土楼，福建省历史文化遗产建筑，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_UHD.jpg&rf=LaDigue_UHD.jpg "福建土楼，福建省历史文化遗产建筑，中国")
 
 ---
