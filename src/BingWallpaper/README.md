@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月16日：这片水域里有很多故事！
+#### 维戈的兰德大桥，西班牙（© Julio Conde/Getty Images）
+
+![这片水域里有很多故事！](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_800x480.jpg&rf=LaDigue_800x480.jpg "这片水域里有很多故事！")
+
+您准备好穿越时空了吗？为了纪念1809年维戈人民发动起义反对法国入侵，使维戈成为欧洲首个成功驱逐拿破仑军队的城市，每年春天，维戈的居民都会盛装打扮，回到1809年，庆祝他们重新夺回维戈。
+
+维哥湾是儒勒·凡尔纳的小说《海底两万里》的背景之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e7%bb%b4%e6%88%88&form=hpcapt&filters=HpDate:"20240515_1600" "Bing Wallpaper 2024 5月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240516_ReconquistaVigo"&FORM=HPQUIZ "必应主页测验 2024 5月 16")
+[下载480](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_800x480.jpg&rf=LaDigue_800x480.jpg "维戈的兰德大桥，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_1280x720.jpg&rf=LaDigue_1280x720.jpg "维戈的兰德大桥，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维戈的兰德大桥，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_UHD.jpg&rf=LaDigue_UHD.jpg "维戈的兰德大桥，西班牙")
+
+---
 ### 05月15日：迷失在蓝色的美丽国度
 #### 焦特布尔蓝色之城，印度（© cinoby/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_1280x720.jpg&rf=LaDigue_1280x720.jpg "蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_UHD.jpg&rf=LaDigue_UHD.jpg "蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国")
-
----
-### 05月01日：夏威夷的花环节
-#### 夏威夷花环（© Jotika Pun/Shutterstock）
-
-![夏威夷的花环节](https://cn.bing.com/th?id=OHR.HawaiianLei_ZH-CN7857272499_800x480.jpg&rf=LaDigue_800x480.jpg "夏威夷的花环节")
-
-随着太阳缓缓升起，夏威夷迎来了五月的第一天。伴随着五颜六色的鲜花、迷人的香氛，花环节在一片欢声笑语中拉开了序幕。夏威夷花环是由各种花朵、叶子甚至贝壳制成的，对于岛上的原住民而言，这些花环承载着重要的文化意义。在很久以前，波利尼西亚人向东迁徙，穿过太平洋群岛，然后在公元1000年至1200年抵达夏威夷岛，为当地的原住民带来了代表爱、尊重和无处不在的“阿洛哈精神”的夏威夷花环。阿洛哈（aloha）是夏威夷原住民的问候语，意为“你好”，它代表着夏威夷岛民平和的生活态度，是一种强调个人思想与心灵协调的精神。花环节全天都有庆祝活动，包括游行、露天表演、花环制作比赛、草裙舞和美食盛宴。
-
-在古代夏威夷，一些特定的花环只有皇室成员才能佩戴，例如用鲸鱼牙齿和人类头发做成的花环。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%8f%e5%a8%81%e5%a4%b7&form=hpcapt&filters=HpDate:"20240430_1600" "Bing Wallpaper 2024 5月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240501_HawaiianLei"&FORM=HPQUIZ "必应主页测验 2024 5月 1")
-[下载480](https://cn.bing.com/th?id=OHR.HawaiianLei_ZH-CN7857272499_800x480.jpg&rf=LaDigue_800x480.jpg "夏威夷花环")
-[下载720](https://cn.bing.com/th?id=OHR.HawaiianLei_ZH-CN7857272499_1280x720.jpg&rf=LaDigue_1280x720.jpg "夏威夷花环")
-[下载1080](https://cn.bing.com/th?id=OHR.HawaiianLei_ZH-CN7857272499_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夏威夷花环")
-[下载UHD](https://cn.bing.com/th?id=OHR.HawaiianLei_ZH-CN7857272499_UHD.jpg&rf=LaDigue_UHD.jpg "夏威夷花环")
 
 ---
