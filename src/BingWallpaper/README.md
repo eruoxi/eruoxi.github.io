@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月17日：今天不是无关紧要的一天
+#### 塔兰吉雷国家公园的非洲象家族，坦桑尼亚（© Vicki Jauron, Babylon and Beyond Photography/Getty Images）
+
+![今天不是无关紧要的一天](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_800x480.jpg&rf=LaDigue_800x480.jpg "今天不是无关紧要的一天")
+
+今天是“濒危物种日”，让我们齐心协力保护濒危物种。每年五月的第三个星期五，我们都会密切关注动物和植物。濒危物种联盟于2006年创立了这个活动，旨在为拯救濒危物种而努力。目前，濒临灭绝的物种已超过44,000种。世界上最濒危的动物包括爪哇犀牛、黑犀牛、山地大猩猩和玳瑁。
+
+地球大气中的二氧化碳被认为是导致动物濒危的主要原因之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%bf%92%e5%8d%b1%e7%89%a9%e7%a7%8d&form=hpcapt&filters=HpDate:"20240516_1600" "Bing Wallpaper 2024 5月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240517_TarangireElephants"&FORM=HPQUIZ "必应主页测验 2024 5月 17")
+[下载480](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_800x480.jpg&rf=LaDigue_800x480.jpg "塔兰吉雷国家公园的非洲象家族，坦桑尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_1280x720.jpg&rf=LaDigue_1280x720.jpg "塔兰吉雷国家公园的非洲象家族，坦桑尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔兰吉雷国家公园的非洲象家族，坦桑尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_UHD.jpg&rf=LaDigue_UHD.jpg "塔兰吉雷国家公园的非洲象家族，坦桑尼亚")
+
+---
 ### 05月16日：这片水域里有很多故事！
 #### 维戈的兰德大桥，西班牙（© Julio Conde/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_1280x720.jpg&rf=LaDigue_1280x720.jpg "春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州")
 [下载1080](https://cn.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州")
 [下载UHD](https://cn.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_UHD.jpg&rf=LaDigue_UHD.jpg "春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州")
-
----
-### 05月02日：“月球一日游”
-#### 蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国（© Alan Majchrowicz/Getty Images）
-
-![“月球一日游”](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_800x480.jpg&rf=LaDigue_800x480.jpg "“月球一日游”")
-
-系好安全带！让我们一起出发，去地球上的“外星王国”探险吧！今天主页展示的图片是月球陨石坑国家纪念碑和保护区，它位于爱达荷州，被一片崎岖的地形包围着。数千年前，在火山的作用下，月球陨石坑诞生并形成了独特的地貌。踏上这片土地，迎接游客的是辽阔的熔岩荒原，火山渣锥和寄生熔岩锥，如此超现实的景象仿佛月球表面，因此这个占地近54,000 英亩的地区被取名为月球陨石坑国家纪念碑和保护区。也因为这里的地貌像月球表面，阿波罗14号的宇航员在为登月计划做准备时，曾在这里接受训练，通过探索这里独特的火山地质，宇航员们可以深入了解月球上类似的地貌。
-
-生活在月球陨石坑及其周围的所有动植物都承受着巨大的环境压力，因为干燥的风和熔岩会削弱周遭生物体的水分。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%99%a8%e7%9f%b3%e5%9d%91&form=hpcapt&filters=HpDate:"20240501_1600" "Bing Wallpaper 2024 5月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240502_CratersOfTheMoon"&FORM=HPQUIZ "必应主页测验 2024 5月 2")
-[下载480](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_800x480.jpg&rf=LaDigue_800x480.jpg "蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_1280x720.jpg&rf=LaDigue_1280x720.jpg "蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_UHD.jpg&rf=LaDigue_UHD.jpg "蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国")
 
 ---
