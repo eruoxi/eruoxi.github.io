@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月18日：流浪者未必都是迷路人
+#### 破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大（© Ron Watts/Design Pics/Getty Images）
+
+![流浪者未必都是迷路人](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_800x480.jpg&rf=LaDigue_800x480.jpg "流浪者未必都是迷路人")
+
+在温哥华岛的西海岸，深绿色的温带雨林与岩石海岸和沙滩交相辉映。让我们一起参观一下环太平洋国家公园保护区吧！该保护区占地511平方公里，于1970年被认定为国家公园。几个世纪以来，该地区的努查努阿特人一直在这片土地上生活。如今，努查努阿特人下属的15个部落中，有7个部落在公园内拥有至少22个小型保护区，有9个部落与公园接壤。保护区的另一个显著特征是沿海西部铁杉生物气候带。这片温带森林地带是黑熊、温哥华岛美洲狮和貂等多种动物的家园。
+
+破碎群岛因其超棒的皮划艇活动和野外露营而闻名于世，吸引着冒险者们组队前来探索这个遥远而荒凉的公园内的小岛。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8e%af%e5%a4%aa%e5%b9%b3%e6%b4%8b%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad%e4%bf%9d%e6%8a%a4%e5%8c%ba&form=hpcapt&filters=HpDate:"20240517_1600" "Bing Wallpaper 2024 5月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240518_PacificRimNationalPark"&FORM=HPQUIZ "必应主页测验 2024 5月 18")
+[下载480](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_800x480.jpg&rf=LaDigue_800x480.jpg "破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_1280x720.jpg&rf=LaDigue_1280x720.jpg "破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_UHD.jpg&rf=LaDigue_UHD.jpg "破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大")
+
+---
 ### 05月17日：今天不是无关紧要的一天
 #### 塔兰吉雷国家公园的非洲象家族，坦桑尼亚（© Vicki Jauron, Babylon and Beyond Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰")
 [下载1080](https://cn.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_UHD.jpg&rf=LaDigue_UHD.jpg "斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰")
-
----
-### 05月03日：最热的地方也有凉爽之处
-#### 春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州（© Charles Harker/Getty Images）
-
-![最热的地方也有凉爽之处](https://cn.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_800x480.jpg&rf=LaDigue_800x480.jpg "最热的地方也有凉爽之处")
-
-当温暖的阳光照在你身上时，你就知道自己来到了亚利桑那州的索诺拉沙漠！在这片干旱的土地上，生活着各种动物，如走鹃、吉拉毒蜥和沙漠乌龟。索诺拉沙漠有两个雨季，因此会有五颜六色的野花盛开，图中的沙漠毒菊就是其中之一。这些耐寒的灌木适应了干燥的气候，银灰色的叶子上覆盖着细毛，有助于减少蒸腾作用导致的水分流失。沙漠毒菊开出鲜艳的黄色花朵，一簇簇地挂在枝头，为沙漠增添了一抹亮色。另一种耐旱的沙漠植物是名为巨人柱的仙人掌，它可以活150多年，长到40英尺高。这些仙人掌为沙漠物种提供食物和栖息地。在托霍诺奥德姆人的文化中，仙人掌也是一种神圣的植物，可以用来满足生活需求和举行宗教仪式。
-
-索诺拉沙漠被认为是北美地区最热的沙漠。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%b4%a2%e8%af%ba%e6%8b%89%e6%b2%99%e6%bc%a0&form=hpcapt&filters=HpDate:"20240502_1600" "Bing Wallpaper 2024 5月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240503_SonoranSpring"&FORM=HPQUIZ "必应主页测验 2024 5月 3")
-[下载480](https://cn.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_800x480.jpg&rf=LaDigue_800x480.jpg "春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州")
-[下载720](https://cn.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_1280x720.jpg&rf=LaDigue_1280x720.jpg "春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州")
-[下载1080](https://cn.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州")
-[下载UHD](https://cn.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_UHD.jpg&rf=LaDigue_UHD.jpg "春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州")
 
 ---
