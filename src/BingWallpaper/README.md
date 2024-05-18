@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月19日：历史与大海的交汇处
+#### 韦尔纳扎村，五渔村，利古里亚，意大利（© Roberto Moiola/Sysaworld/Getty Images）
+
+![历史与大海的交汇处](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_800x480.jpg&rf=LaDigue_800x480.jpg "历史与大海的交汇处")
+
+韦尔纳扎是意大利西北部五渔村的一个村庄，坐落在意大利里维埃拉崎岖的悬崖上。在这里，古建筑矗立在利古里亚海的海岸线上，生活中充满了渔民的喧嚣。韦尔纳扎（Vernazza）得名于当地一种名为“Vernaccia”的葡萄酒，“Vernaccia”这个词的意思是“本地的”或“我们的”。该地区最著名的古迹之一是多利亚城堡，建于15世纪，是一个防御堡垒，用于保护村庄免受频繁的海盗袭击。由于19世纪热那亚-拉斯佩齐亚铁路的修建，该村的陆路交通变得更加便利。鹅卵石铺就的街道没有汽车，非常适合步行游览。在这里，你可能想参观圣玛尔塔教堂和雷焦圣母圣殿。你知道吗，这里还是2021年动画电影《卢卡》的灵感来源！韦尔纳扎不仅仅是一个旅游胜地，它还是为那些追求意大利最纯粹灵魂的人准备的一片世外桃源。
+
+五渔村往北走的第四个小镇名叫韦尔纳扎，这里没有汽车通行，仍然是意大利里维埃拉最真实的“渔村”之一。它还是五渔村唯一的天然港口，以其优雅的房屋闻名于世。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%ba%94%e6%b8%94%e6%9d%91+%e9%9f%a6%e5%b0%94%e7%ba%b3%e6%89%8e%e6%9d%91&form=hpcapt&filters=HpDate:"20240518_1600" "Bing Wallpaper 2024 5月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240519_VernazzaItaly"&FORM=HPQUIZ "必应主页测验 2024 5月 19")
+[下载480](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_800x480.jpg&rf=LaDigue_800x480.jpg "韦尔纳扎村，五渔村，利古里亚，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_1280x720.jpg&rf=LaDigue_1280x720.jpg "韦尔纳扎村，五渔村，利古里亚，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦尔纳扎村，五渔村，利古里亚，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_UHD.jpg&rf=LaDigue_UHD.jpg "韦尔纳扎村，五渔村，利古里亚，意大利")
+
+---
 ### 05月18日：流浪者未必都是迷路人
 #### 破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大（© Ron Watts/Design Pics/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥")
 [下载1080](https://cn.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_UHD.jpg&rf=LaDigue_UHD.jpg "圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥")
-
----
-### 05月04日：愿原力与你同在！
-#### 斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰（© MNStudio/Getty Images）
-
-![愿原力与你同在！](https://cn.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_800x480.jpg&rf=LaDigue_800x480.jpg "愿原力与你同在！")
-
-光剑闪闪发光，机器人嘟嘟作响，让我们尽情狂欢吧！在这个银河系的节日里，从观看《星球大战》电影到装扮成自己最喜欢的角色，全世界的星战迷们开始尽情地享受星战的一切。今天的图片展示的是《星球大战》续集三部曲的拍摄地点：爱尔兰西南海岸的斯凯利格·迈克尔岛。这座被联合国教科文组织列为世界遗产的地标建筑中，保存着一座由早期僧侣建立的六世纪修道院。在《星球大战：原力觉醒》中，绝地大师卢克·天行者曾在阿奇托星球上一座与世隔绝的岛屿避难，其取景地正是斯凯利格·迈克尔岛上的蜂巢小屋和石头楼梯。此外，斯凯利格·迈克尔岛上包括海鹦在内的大量海鸟，正是阿奇托岛上那长得像企鹅的波尔格鸟的灵感来源。所以，带上你的伍基人副驾驶，跳上你的星际飞船，在银河系的地球上，开启一段充满力量的旅程吧！
-
-“星球大战日”源于电影《星球大战》中的一句经典台词，“May the Force be with you”（愿原力与你同在）。而英文中的“May the Fourth be with you”（五月四日与你同在）与这句台词发音类似，于是5月4日就被定为星球大战日。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%98%9f%e7%90%83%e5%a4%a7%e6%88%98%e6%97%a5&form=hpcapt&filters=HpDate:"20240503_1600" "Bing Wallpaper 2024 5月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240504_JediMonastery"&FORM=HPQUIZ "必应主页测验 2024 5月 4")
-[下载480](https://cn.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_800x480.jpg&rf=LaDigue_800x480.jpg "斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰")
-[下载720](https://cn.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰")
-[下载1080](https://cn.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_UHD.jpg&rf=LaDigue_UHD.jpg "斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰")
 
 ---
