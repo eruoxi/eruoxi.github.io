@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月20日：我简直不敢相信！
+#### 蜜蜂照料蜂巢（© Simun Ascic/Alamy Stock Photo）
+
+![我简直不敢相信！](https://cn.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_800x480.jpg&rf=LaDigue_800x480.jpg "我简直不敢相信！")
+
+今天是世界蜜蜂日！这一节日是为了庆祝这些有翼昆虫以及它们在生物多样性和农业中发挥的重要作用。蜜蜂的体型大小不一，从0.08英寸到1.54英寸不等，已知的种类超过2万种。蜜蜂是世界上最重要的传粉生物之一，它们在野外和农田中传播花粉，帮助植物繁殖。这不仅有助于确保农作物的产量，还能维持生物的多样性。毫不夸张地说，蜜蜂对人类的生存至关重要。比如今天图片中的这只蜜蜂，它用蜂蜡筑巢，产出的蜂蜜它自己也吃不完。这种过剩意味着人类可以在不危及蜜蜂本身的情况下采蜜。人类在人工蜂巢中饲养蜜蜂的历史已有约1万年，其中西方蜜蜂是最常见的养殖品种。
+
+一只蜜蜂一生只能产出约1/12茶匙的蜂蜜。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e8%9c%9c%e8%9c%82%e6%97%a5&form=hpcapt&filters=HpDate:"20240519_1600" "Bing Wallpaper 2024 5月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240520_HoneycombBee"&FORM=HPQUIZ "必应主页测验 2024 5月 20")
+[下载480](https://cn.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_800x480.jpg&rf=LaDigue_800x480.jpg "蜜蜂照料蜂巢")
+[下载720](https://cn.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_1280x720.jpg&rf=LaDigue_1280x720.jpg "蜜蜂照料蜂巢")
+[下载1080](https://cn.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蜜蜂照料蜂巢")
+[下载UHD](https://cn.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_UHD.jpg&rf=LaDigue_UHD.jpg "蜜蜂照料蜂巢")
+
+---
 ### 05月19日：历史与大海的交汇处
 #### 韦尔纳扎村，五渔村，利古里亚，意大利（© Roberto Moiola/Sysaworld/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗奇斯山脊，英格兰峰区")
 [下载1080](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗奇斯山脊，英格兰峰区")
 [下载UHD](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_UHD.jpg&rf=LaDigue_UHD.jpg "罗奇斯山脊，英格兰峰区")
-
----
-### 05月05日：为墨西哥干杯!
-#### 圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥（© Mint Images/Getty Images）
-
-![为墨西哥干杯!](https://cn.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_800x480.jpg&rf=LaDigue_800x480.jpg "为墨西哥干杯!")
-
-五月五日节是墨西哥传统的爱国主义节日，这一活动不能与9月16日举行的墨西哥独立日混为一谈，20世纪80年代，由于龙舌兰酒、啤酒和葡萄酒的广告宣传，五月五日节在美国得到了认可，难怪如今的五月五日节在美国已成为一个狂欢的节日。值得一提的是，墨西哥除了美酒佳肴之外，丰富多彩的文化也值得品尝，无论是建筑（比如图中的圣米格尔德阿连德市的街道）、历史、艺术还是风景。
-
-如今，五月五日节带来的啤酒销量与“超级碗”相当。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a2%a8%e8%a5%bf%e5%93%a5%e4%ba%94%e6%9c%88%e4%ba%94%e6%97%a5%e8%8a%82&form=hpcapt&filters=HpDate:"20240504_1600" "Bing Wallpaper 2024 5月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240505_SanMiguelAllende"&FORM=HPQUIZ "必应主页测验 2024 5月 5")
-[下载480](https://cn.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_800x480.jpg&rf=LaDigue_800x480.jpg "圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥")
-[下载720](https://cn.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥")
-[下载1080](https://cn.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥")
-[下载UHD](https://cn.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_UHD.jpg&rf=LaDigue_UHD.jpg "圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥")
 
 ---
