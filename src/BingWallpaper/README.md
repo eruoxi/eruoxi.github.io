@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月21日：充满茶香的一天
+#### 卡梅隆高地茶园，马拉西亚（© alex cheong/Getty Images）
+
+![充满茶香的一天](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_800x480.jpg&rf=LaDigue_800x480.jpg "充满茶香的一天")
+
+没有什么能比得上一杯好茶！无论您喜欢大吉岭茶、伯爵茶、乌龙茶、抹茶，还是英式早餐茶，今天都是为这个受人喜爱的饮品而庆祝的日子——因为5月21日是国际茶日。人类饮茶的历史至少有5000年了，它起源中国，在16世纪和17世纪，西方商人通过丝绸之路将茶叶引入欧洲，并逐渐传播到世界各地。现在，茶已成为仅次于水的世界第二大饮料。
+
+1885年，英国探险家卡梅伦勋爵在一次测绘任务中发现了金马仑高原。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e8%8c%b6%e6%97%a5&form=hpcapt&filters=HpDate:"20240520_1600" "Bing Wallpaper 2024 5月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240521_MalaysiaTea"&FORM=HPQUIZ "必应主页测验 2024 5月 21")
+[下载480](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_800x480.jpg&rf=LaDigue_800x480.jpg "卡梅隆高地茶园，马拉西亚")
+[下载720](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡梅隆高地茶园，马拉西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡梅隆高地茶园，马拉西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_UHD.jpg&rf=LaDigue_UHD.jpg "卡梅隆高地茶园，马拉西亚")
+
+---
 ### 05月20日：我简直不敢相信！
 #### 蜜蜂照料蜂巢（© Simun Ascic/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只小鸭子在水草地上游泳，萨福克郡，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只小鸭子在水草地上游泳，萨福克郡，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_UHD.jpg&rf=LaDigue_UHD.jpg "一只小鸭子在水草地上游泳，萨福克郡，英国")
-
----
-### 05月06日：峰区一瞥
-#### 罗奇斯山脊，英格兰峰区（© George W Johnson/Getty Images）
-
-![峰区一瞥](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_800x480.jpg&rf=LaDigue_800x480.jpg "峰区一瞥")
-
-在今天的图片中，阳光照射在英格兰北部峰区的罗奇斯山脊上。但这个奇怪名字的由来是什么呢？它来自法语“les roches”，意思是“岩石”。罗奇斯山脊是峰区国家公园的一部分，它矗立在斯塔福德郡利克镇的上方，高度超过1600英尺，是登山者和徒步旅行者的热门目的地。在这里，你可以俯瞰荒野的壮丽景色，如果幸运的话，你甚至还能看到沙袋鼠！20世纪30年代，一些澳大利亚有袋动物从附近的私人动物园逃脱，至今仍有原始沙袋鼠后代的目击记录。
-
-罗奇斯山脊有300多条攀岩路线，从短而容易的攀岩路线到长而具有挑战性的多坡度攀爬路线，应有尽有。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b3%b0%e5%8c%ba%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240505_1600" "Bing Wallpaper 2024 5月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240506_TheRoachesPeakDistrict"&FORM=HPQUIZ "必应主页测验 2024 5月 6")
-[下载480](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_800x480.jpg&rf=LaDigue_800x480.jpg "罗奇斯山脊，英格兰峰区")
-[下载720](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗奇斯山脊，英格兰峰区")
-[下载1080](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗奇斯山脊，英格兰峰区")
-[下载UHD](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_UHD.jpg&rf=LaDigue_UHD.jpg "罗奇斯山脊，英格兰峰区")
 
 ---
