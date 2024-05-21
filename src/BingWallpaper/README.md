@@ -1,6 +1,23 @@
 ## Bing Wallpaper(最近15天)
+### 05月22日：深入了解生物多样性
+#### 塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚（© Ignacio Palacios/Getty Images）
+
+![深入了解生物多样性](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_800x480.jpg&rf=LaDigue_800x480.jpg "深入了解生物多样性")
+
+今天，我们要庆祝地球的生物多样性！究竟什么是生物多样性？它指的是一个地区的所有生物，从动物和植物到真菌和微生物。大自然中这种微妙而又充满活力的平衡是我们赖以生存的基础。这绝对值得庆祝！2000年，联合国正式宣布5月22日为 "国际生物多样性日"。不幸的是，由于气候变化、自然资源枯竭、城市化和污染等因素，地球上的生物多样性正在慢慢减少。我们有责任回馈大自然，保护地球环境。毕竟，大自然赠与了我们很多珍贵迷人的物种，比如塔斯马尼亚雪桉树，也就是今天图片中的这棵树，它扎根于地球上生物多样性最丰富的地方——澳大利亚塔斯马尼亚的菲尔德山国家公园。
+
+“参与部分计划”是2024年国际生物多样性日的主题，旨在扭转生物种类减少的趋势。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e7%94%9f%e7%89%a9%e5%a4%9a%e6%a0%b7%e6%80%a7%e6%97%a5&form=hpcapt&filters=HpDate:"20240521_1600" "Bing Wallpaper 2024 5月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240522_SnowGumTasmania"&FORM=HPQUIZ "必应主页测验 2024 5月 22")
+[下载480](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_800x480.jpg&rf=LaDigue_800x480.jpg "塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_1280x720.jpg&rf=LaDigue_1280x720.jpg "塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_UHD.jpg&rf=LaDigue_UHD.jpg "塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚")
+
+---
 ### 05月21日：充满茶香的一天
-#### 卡梅隆高地茶园，马拉西亚（© alex cheong/Getty Images）
+#### 卡梅隆高地茶园，马来西亚（© alex cheong/Getty Images）
 
 ![充满茶香的一天](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_800x480.jpg&rf=LaDigue_800x480.jpg "充满茶香的一天")
 
@@ -10,10 +27,10 @@
 
 [Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e8%8c%b6%e6%97%a5&form=hpcapt&filters=HpDate:"20240520_1600" "Bing Wallpaper 2024 5月 21")
 [必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240521_MalaysiaTea"&FORM=HPQUIZ "必应主页测验 2024 5月 21")
-[下载480](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_800x480.jpg&rf=LaDigue_800x480.jpg "卡梅隆高地茶园，马拉西亚")
-[下载720](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡梅隆高地茶园，马拉西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡梅隆高地茶园，马拉西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_UHD.jpg&rf=LaDigue_UHD.jpg "卡梅隆高地茶园，马拉西亚")
+[下载480](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_800x480.jpg&rf=LaDigue_800x480.jpg "卡梅隆高地茶园，马来西亚")
+[下载720](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡梅隆高地茶园，马来西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡梅隆高地茶园，马来西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_UHD.jpg&rf=LaDigue_UHD.jpg "卡梅隆高地茶园，马来西亚")
 
 ---
 ### 05月20日：我简直不敢相信！
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PortMarseille_ZH-CN3194394496_1280x720.jpg&rf=LaDigue_1280x720.jpg "伊夫堡，马赛，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.PortMarseille_ZH-CN3194394496_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊夫堡，马赛，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PortMarseille_ZH-CN3194394496_UHD.jpg&rf=LaDigue_UHD.jpg "伊夫堡，马赛，法国")
-
----
-### 05月07日：水影里的小黄鸭
-#### 一只小鸭子在水草地上游泳，萨福克郡，英国（© Nick Hurst/Getty Images）
-
-![水影里的小黄鸭](https://cn.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_800x480.jpg&rf=LaDigue_800x480.jpg "水影里的小黄鸭")
-
-今天，这只小鸭子摇摇摆摆地走到聚光灯下，准备用它俏皮又滑稽的动作吸引我们！鸭子羽毛鲜艳，叫声欢快，是田园风光的缩影，但它们在一些城市环境中也同样自在。然而，真正抢尽风头的是小鸭子的到来！小小的，毛茸茸的小鸭子顺从地跟随着鸭妈妈，在每一次划水和啄食中学习水性。这些水禽以昆虫和藻类为食，在保持水生生态系统平衡方面发挥着重要作用。
-
-小鸭子们是相亲相爱的兄弟姐妹，在孵化前就会互相交流。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%b8%ad&form=hpcapt&filters=HpDate:"20240506_1600" "Bing Wallpaper 2024 5月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240507_LittleDuckling"&FORM=HPQUIZ "必应主页测验 2024 5月 7")
-[下载480](https://cn.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_800x480.jpg&rf=LaDigue_800x480.jpg "一只小鸭子在水草地上游泳，萨福克郡，英国")
-[下载720](https://cn.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只小鸭子在水草地上游泳，萨福克郡，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只小鸭子在水草地上游泳，萨福克郡，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_UHD.jpg&rf=LaDigue_UHD.jpg "一只小鸭子在水草地上游泳，萨福克郡，英国")
 
 ---
