@@ -1,4 +1,38 @@
 ## Bing Wallpaper(最近15天)
+### 05月25日：沙丘守护者
+#### 阿伊特本哈杜，摩洛哥（© Grant Faint/Getty Images）
+
+![沙丘守护者](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_800x480.jpg&rf=LaDigue_800x480.jpg "沙丘守护者")
+
+你在寻找沙地的魅力吗？来摩洛哥的阿伊特本哈杜吧，它位于连接撒哈拉和马拉喀什的古商道上。这个被联合国教科文组织列为世界遗产的地方展示了摩洛哥的粘土建筑，这是一种用晒干的泥土建造建筑的技术。虽然这里的建筑据说都不是17世纪以前建造的，但它们采用的技术和风格却比17世纪还要古老得多。在俯瞰乌尼拉河的缓坡上，就有一个由泥砖结构组成的阿伊特本哈杜防御村庄。阿伊特本哈杜筑垒村的公共景观包括一个公共广场、一座清真寺、防御区外的打谷场和一个商队客栈，以及其他特色景观。如果你正在寻求一次与众不同的旅程，阿伊特本哈杜正在等着你！
+
+虽然有时会被误认成城堡，但阿伊特本哈杜筑垒村实际上是一个古老的防御性村庄。换句话说，它是一个由土坯混合物（沙子、粘土、水，以及稻草或粪便等有机材料）建造的多个“城堡”组成的一座坚固的城镇。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e4%bc%8a%e7%89%b9%e6%9c%ac%e5%93%88%e6%9d%9c+%e6%91%a9%e6%b4%9b%e5%93%a5&form=hpcapt&filters=HpDate:"20240524_1600" "Bing Wallpaper 2024 5月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240525_MoroccoBenhaddou"&FORM=HPQUIZ "必应主页测验 2024 5月 25")
+[下载480](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_800x480.jpg&rf=LaDigue_800x480.jpg "阿伊特本哈杜，摩洛哥")
+[下载720](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿伊特本哈杜，摩洛哥")
+[下载1080](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿伊特本哈杜，摩洛哥")
+[下载UHD](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_UHD.jpg&rf=LaDigue_UHD.jpg "阿伊特本哈杜，摩洛哥")
+
+---
+### 05月24日：一路到顶峰
+#### 阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙（© Marisa Estivill/Shutterstock）
+
+![一路到顶峰](https://cn.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_800x480.jpg&rf=LaDigue_800x480.jpg "一路到顶峰")
+
+今天是欧洲公园日！1909年的今天，欧洲最早的九个国家公园在瑞典成立。今年的庆祝活动聚焦于保护区在制定和实施自然政策方面的重要作用。此外，庆祝活动还强调了保护区如何为欧洲公民建设一个可持续发展和具有复原力的社会做出贡献。从本质上讲，这些地区不仅仅是生物多样性的守护者；它们也是我们集体福祉的支柱，提醒我们保护自然遗产。
+
+奥德萨和佩尔迪多山国家公园的海拔高度从700米到3000多米不等，是比利牛斯山自然之美的完美典范。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e6%b4%b2%e5%85%ac%e5%9b%ad%e6%97%a5&form=hpcapt&filters=HpDate:"20240523_1600" "Bing Wallpaper 2024 5月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240524_OrdesaNationalPark"&FORM=HPQUIZ "必应主页测验 2024 5月 24")
+[下载480](https://cn.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_800x480.jpg&rf=LaDigue_800x480.jpg "阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_UHD.jpg&rf=LaDigue_UHD.jpg "阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙")
+
+---
 ### 05月23日：寻找一个“庇护所”
 #### 印度星龟，斯里兰卡（© Robin Chittenden/Minden Pictures）
 
@@ -218,39 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_1280x720.jpg&rf=LaDigue_1280x720.jpg "树枝上栖息的靛蓝彩鹀，德克萨斯州")
 [下载1080](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "树枝上栖息的靛蓝彩鹀，德克萨斯州")
 [下载UHD](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_UHD.jpg&rf=LaDigue_UHD.jpg "树枝上栖息的靛蓝彩鹀，德克萨斯州")
-
----
-### 05月10日：岛屿在召唤！
-#### 米苏尔岛，拉贾安帕群岛，印度尼西亚（© Giordano Cipriani/Getty Images）
-
-![岛屿在召唤！](https://cn.bing.com/th?id=OHR.MisoolRajaAmpat_ZH-CN3557473032_800x480.jpg&rf=LaDigue_800x480.jpg "岛屿在召唤！")
-
-想象一下，身在一个如此纯净的水生保护区，听着海洋把它的秘密悄悄告诉你！米苏尔岛是印度尼西亚拉贾安帕群岛中的一个岛屿，面积近800平方英里。群岛由四个主要岛屿组成，包括米索尔岛、威吉奥岛、巴丹塔岛和萨拉瓦蒂岛。在这里，海浪轻柔地抚摸着粉白色的沙滩，海面下则游弋着绚丽的海洋生物。这里的珊瑚礁以生物多样性著称，是许多潜水爱好者的梦想之地。游客还可以游览1982年建立的米苏尔岛自然保护区，观赏白色袋貂、蜜袋鼯、普通袋狸和其他有袋类动物。作为禁止捕鱼和狩猎的“禁渔区”以及鲨鱼和蝠鲼保护区，米苏尔岛为我们海洋的未来带来了希望。在这个小岛上，大自然最美好的礼物得到了保护和珍惜。
-
-1526年，葡萄牙航海家豪尔赫·德·梅内泽斯和他的船员在从比亚克、鸟头半岛和卫古岛前往哈马黑拉岛（特尔纳特）的途中，首次记录了欧洲人看到并登陆拉贾安帕群岛。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%8b%89%e8%b4%be%e5%ae%89%e5%b8%95%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20240509_1600" "Bing Wallpaper 2024 5月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240510_MisoolRajaAmpat"&FORM=HPQUIZ "必应主页测验 2024 5月 10")
-[下载480](https://cn.bing.com/th?id=OHR.MisoolRajaAmpat_ZH-CN3557473032_800x480.jpg&rf=LaDigue_800x480.jpg "米苏尔岛，拉贾安帕群岛，印度尼西亚")
-[下载720](https://cn.bing.com/th?id=OHR.MisoolRajaAmpat_ZH-CN3557473032_1280x720.jpg&rf=LaDigue_1280x720.jpg "米苏尔岛，拉贾安帕群岛，印度尼西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.MisoolRajaAmpat_ZH-CN3557473032_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米苏尔岛，拉贾安帕群岛，印度尼西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.MisoolRajaAmpat_ZH-CN3557473032_UHD.jpg&rf=LaDigue_UHD.jpg "米苏尔岛，拉贾安帕群岛，印度尼西亚")
-
----
-### 05月09日：恣意绽放的郁金香
-#### 埃米尔甘公园的郁金香，伊斯坦布尔，土耳其（© Ozbalci/Getty Images）
-
-![恣意绽放的郁金香](https://cn.bing.com/th?id=OHR.EmirganPark_ZH-CN3394557999_800x480.jpg&rf=LaDigue_800x480.jpg "恣意绽放的郁金香")
-
-一大片五颜六色的郁金香给人带来的诱惑不言而喻。郁金香原产于中亚，从弗农山庄园到土耳其伊斯坦布尔熙熙攘攘的街道，这些球茎植物深受世界各地人们的喜爱。但郁金香不仅仅是装饰性花卉，它们还具有重要的文化意义。在不同的传统中，郁金香代表着爱情、生命、美丽和激情。在艺术作品中，郁金香常常被描绘成重生或青春的象征。
-
-自2005年以来，每年四月这里都会举办国际郁金香节，公园在这些郁金香花朵的映衬下变得绚丽多彩。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bc%8a%e6%96%af%e5%9d%a6%e5%b8%83%e5%b0%94%e5%9f%83%e7%b1%b3%e5%b0%94%e7%94%98%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240508_1600" "Bing Wallpaper 2024 5月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240509_EmirganPark"&FORM=HPQUIZ "必应主页测验 2024 5月 9")
-[下载480](https://cn.bing.com/th?id=OHR.EmirganPark_ZH-CN3394557999_800x480.jpg&rf=LaDigue_800x480.jpg "埃米尔甘公园的郁金香，伊斯坦布尔，土耳其")
-[下载720](https://cn.bing.com/th?id=OHR.EmirganPark_ZH-CN3394557999_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃米尔甘公园的郁金香，伊斯坦布尔，土耳其")
-[下载1080](https://cn.bing.com/th?id=OHR.EmirganPark_ZH-CN3394557999_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃米尔甘公园的郁金香，伊斯坦布尔，土耳其")
-[下载UHD](https://cn.bing.com/th?id=OHR.EmirganPark_ZH-CN3394557999_UHD.jpg&rf=LaDigue_UHD.jpg "埃米尔甘公园的郁金香，伊斯坦布尔，土耳其")
 
 ---
