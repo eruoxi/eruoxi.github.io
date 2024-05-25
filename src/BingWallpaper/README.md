@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月26日：野性与自由
+#### 香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国（© Alan Majchrowicz/Getty Images）
+
+![野性与自由](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_800x480.jpg&rf=LaDigue_800x480.jpg "野性与自由")
+
+如果你想寻觅野花铺满青草地这样生机盎然的地方，华盛顿州北喀斯喀特山脉的梅索谷就是你的理想之地。羽扇豆开着紫色、蓝色和白色的尖尖的花朵，箭叶香根开着金黄色的大花朵，配上崎岖的山脉作为背景，造就了如诗如画般的美景。这些花朵在山谷的生态系统中也发挥着至关重要的作用，羽扇豆是固氮植物，它们通过将大气中的氮转化为邻近植物可以吸收和利用的形态来提高土壤肥力。另一方面，箭叶香根能吸引蜜蜂和蝴蝶等传粉者，有助于植物繁殖，进而促进该地区的生物多样性。无论你是经验丰富的植物学家还是自然爱好者，梅索谷的野花和迷人的荒野一定会给你留下深刻的印象。
+
+“梅索”这个名字来自奥肯那根的地名/mətxʷú/，意思是“向日葵（种子）”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%8e%e7%9b%9b%e9%a1%bf%e5%b7%9e%e6%a2%85%e7%b4%a2%e8%b0%b7&form=hpcapt&filters=HpDate:"20240525_1600" "Bing Wallpaper 2024 5月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240526_MethowWildflowers"&FORM=HPQUIZ "必应主页测验 2024 5月 26")
+[下载480](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_800x480.jpg&rf=LaDigue_800x480.jpg "香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_1280x720.jpg&rf=LaDigue_1280x720.jpg "香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_UHD.jpg&rf=LaDigue_UHD.jpg "香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国")
+
+---
 ### 05月25日：沙丘守护者
 #### 阿伊特本哈杜，摩洛哥（© Grant Faint/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_1280x720.jpg&rf=LaDigue_1280x720.jpg "潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷")
 [下载1080](https://cn.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷")
 [下载UHD](https://cn.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_UHD.jpg&rf=LaDigue_UHD.jpg "潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷")
-
----
-### 05月11日：小蓝鸟一路顺风
-#### 树枝上栖息的靛蓝彩鹀，德克萨斯州（© Jeff R Clow/Getty Images）
-
-![小蓝鸟一路顺风](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_800x480.jpg&rf=LaDigue_800x480.jpg "小蓝鸟一路顺风")
-
-候鸟为什么要迁徙？它们又是如何飞越半个地球的？今天，为了纪念世界候鸟日，我们向大家介绍靛蓝彩鹀，一种羽毛像天空的颜色的小鸟。它们利用星星导航，穿越数千英里，在北美洲的繁殖地和中美洲及南美洲北部的越冬地之间迁徙。
-
-和其他迁徙物种一样，靛蓝彩鹀在夜间迁徙，利用星星导航！
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%9d%9b%e8%93%9d%e5%bd%a9%e9%b9%80&form=hpcapt&filters=HpDate:"20240510_1600" "Bing Wallpaper 2024 5月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240511_TexasIndigoBunting"&FORM=HPQUIZ "必应主页测验 2024 5月 11")
-[下载480](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_800x480.jpg&rf=LaDigue_800x480.jpg "树枝上栖息的靛蓝彩鹀，德克萨斯州")
-[下载720](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_1280x720.jpg&rf=LaDigue_1280x720.jpg "树枝上栖息的靛蓝彩鹀，德克萨斯州")
-[下载1080](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "树枝上栖息的靛蓝彩鹀，德克萨斯州")
-[下载UHD](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_UHD.jpg&rf=LaDigue_UHD.jpg "树枝上栖息的靛蓝彩鹀，德克萨斯州")
 
 ---
