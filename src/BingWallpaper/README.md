@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月27日：我们去乘船吧！
+#### 塞斯特里莱万特的沉默湾，利古里亚大区，意大利（© StevanZZ/Getty Images）
+
+![我们去乘船吧！](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_800x480.jpg&rf=LaDigue_800x480.jpg "我们去乘船吧！")
+
+日落时分，塞斯特里莱万特城镇仿佛渲染了一层柔光，美得就像一幅画。这颗隐藏在东利古里亚里维埃拉海岸的明珠，以其自然美景和可追溯至罗马时代的历史遗产吸引了无数游客。该镇位于波托菲诺和五渔村之间，拥有令人惊叹的风景和海滩，如沉默湾、童话湾，后者与安徒生以及“小美人鱼”的传说有着奇妙的关联。美丽的蓬塔马纳拉自然公园和古老的中世纪街道则能带给游客另一种独特的体验，它们的存在使塞斯特里莱万特成为一个拥有罕见美景和历史魅力的目的地。
+
+童话湾是为了纪念丹麦作家汉斯·克里斯汀·安徒生而命名的。1833年，安徒生曾短暂地居住在塞斯特里莱万特。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a1%9e%e6%96%af%e7%89%b9%e9%87%8c%e8%8e%b1%e4%b8%87%e7%89%b9&form=hpcapt&filters=HpDate:"20240526_1600" "Bing Wallpaper 2024 5月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240527_SestriLevante"&FORM=HPQUIZ "必应主页测验 2024 5月 27")
+[下载480](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_800x480.jpg&rf=LaDigue_800x480.jpg "塞斯特里莱万特的沉默湾，利古里亚大区，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞斯特里莱万特的沉默湾，利古里亚大区，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞斯特里莱万特的沉默湾，利古里亚大区，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg&rf=LaDigue_UHD.jpg "塞斯特里莱万特的沉默湾，利古里亚大区，意大利")
+
+---
 ### 05月26日：野性与自由
 #### 香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国（© Alan Majchrowicz/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_1280x720.jpg&rf=LaDigue_1280x720.jpg "鱼河大峡谷，纳米比亚")
 [下载1080](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鱼河大峡谷，纳米比亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_UHD.jpg&rf=LaDigue_UHD.jpg "鱼河大峡谷，纳米比亚")
-
----
-### 05月12日：放牧和饲养
-#### 潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷（© Gabriel Rojo/Minden Pictures）
-
-![放牧和饲养](https://cn.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_800x480.jpg&rf=LaDigue_800x480.jpg "放牧和饲养")
-
-母亲是爱和慰藉永恒的源泉，她们没有穿着超人一样的斗篷，但却是我们生命中真正的英雄。母亲节给了我们一个机会，向妈妈表达我们的爱意。在今天的图片中，我们看到美洲驼的亲戚——原驼妈妈和她的幼崽在阿根廷潘帕斯广阔的草原上漫步。就像人类的母亲一样，雌性原驼也会极力保护自己的孩子，那些幼小未成年的原驼。
-
-母亲节这天，人们拨打电话的次数约有1.22亿次，比一年中其他任何日子都要多。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8e%9f%e9%a9%bc&form=hpcapt&filters=HpDate:"20240511_1600" "Bing Wallpaper 2024 5月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240512_GuanacoMother"&FORM=HPQUIZ "必应主页测验 2024 5月 12")
-[下载480](https://cn.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_800x480.jpg&rf=LaDigue_800x480.jpg "潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷")
-[下载720](https://cn.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_1280x720.jpg&rf=LaDigue_1280x720.jpg "潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷")
-[下载1080](https://cn.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷")
-[下载UHD](https://cn.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_UHD.jpg&rf=LaDigue_UHD.jpg "潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷")
 
 ---
