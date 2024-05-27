@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月28日：屹立于世界之巅
+#### 罗萨诺修道院，迈泰奥拉，色萨利 ，希腊（© Marius Roman/Getty Images）
+
+![屹立于世界之巅](https://cn.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_800x480.jpg&rf=LaDigue_800x480.jpg "屹立于世界之巅")
+
+一提到希腊，您可能会想到大海、沙滩、白色的建筑和蓝色的圆顶。然而，这个国家的宝藏景点可不止这些。今天的图片展示的是罗萨诺修道院，它坐落于希腊北部色萨利的迈泰奥拉（一个砂岩峰林地区），四周是高耸的悬崖。相传在14世纪，一群僧侣为了躲避政治纷争来到了这里，他们攀爬悬崖，在上面建立起了修道院。如今，在迈泰奥拉联合国教科文组织世界遗产区内还有6座仅存的修道院，而罗萨诺修道院便是其中之一。如果您攀爬上去，将会看到令人惊叹的自然美景，不过，真正的“宝藏”在修道院的内部：一个拜占庭艺术和建筑的世界。这种艺术风格起源于东罗马帝国（也被称为拜占庭帝国），该帝国从公元4世纪持续到1453年君士坦丁堡的陷落，而这一时期的艺术便被人们称为：拜占庭艺术。
+
+在前5千年至5万年之间，迈泰奥拉附近的洞穴一直有人居住。这个堵住了西奥佩特拉洞穴入口三分之二的石墙，是已知的最古老的建筑范例，它建于23,000年前，修建的目的可能是抵御寒风，当时地球正在经历冰河时代，洞穴内还发现了许多旧石器时代和新石器时代人类居住使用的文物。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%8c%e8%85%8a%e7%bd%97%e8%90%a8%e8%af%ba%e4%bf%ae%e9%81%93%e9%99%a2&form=hpcapt&filters=HpDate:"20240527_1600" "Bing Wallpaper 2024 5月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240528_MeteoraMonastery"&FORM=HPQUIZ "必应主页测验 2024 5月 28")
+[下载480](https://cn.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_800x480.jpg&rf=LaDigue_800x480.jpg "罗萨诺修道院，迈泰奥拉，色萨利 ，希腊")
+[下载720](https://cn.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗萨诺修道院，迈泰奥拉，色萨利 ，希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗萨诺修道院，迈泰奥拉，色萨利 ，希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_UHD.jpg&rf=LaDigue_UHD.jpg "罗萨诺修道院，迈泰奥拉，色萨利 ，希腊")
+
+---
 ### 05月27日：我们去乘船吧！
 #### 塞斯特里莱万特的沉默湾，利古里亚大区，意大利（© StevanZZ/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_1280x720.jpg&rf=LaDigue_1280x720.jpg "通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州")
 [下载1080](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州")
 [下载UHD](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg&rf=LaDigue_UHD.jpg "通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州")
-
----
-### 05月13日：鱼眼视角
-#### 鱼河大峡谷，纳米比亚（© R. M. Nunes/Getty Images）
-
-![鱼眼视角](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_800x480.jpg&rf=LaDigue_800x480.jpg "鱼眼视角")
-
-从世界上最古老的沙漠——纳米布沙漠，到奇妙的箭袋树森林，南非的纳米比亚拥有许多宝藏旅游景点。该国家最长的河流——鱼河，在数百万年的时间里侵蚀出了欧洲大陆最大的峡谷：鱼河大峡谷，它长约100英里，深约1800英尺，蜿蜒曲折，穿过风化的片麻岩层和白云岩。作为纳米比亚的热门景点之一，鱼河大峡谷以其长达50多英里的徒步小径和“鱼河峡谷超级马拉松比赛”吸引了无数探险者。此外，峡谷里还生活着哈特曼山斑马、山羚、东部岩象鼩等大大小小的生物。无论您是来轻徒步、远足、露营或者只是欣赏美景，鱼河大峡谷一定会让您终身难忘的。
-
-鱼河大峡谷徒步路线是南非最受欢迎的徒步路线之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%b3%e7%b1%b3%e6%af%94%e4%ba%9a%e9%b1%bc%e6%b2%b3%e5%b3%a1%e8%b0%b7&form=hpcapt&filters=HpDate:"20240512_1600" "Bing Wallpaper 2024 5月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240513_NamibiaCanyon"&FORM=HPQUIZ "必应主页测验 2024 5月 13")
-[下载480](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_800x480.jpg&rf=LaDigue_800x480.jpg "鱼河大峡谷，纳米比亚")
-[下载720](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_1280x720.jpg&rf=LaDigue_1280x720.jpg "鱼河大峡谷，纳米比亚")
-[下载1080](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鱼河大峡谷，纳米比亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_UHD.jpg&rf=LaDigue_UHD.jpg "鱼河大峡谷，纳米比亚")
 
 ---
