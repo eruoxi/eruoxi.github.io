@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月29日：水獭在看什么？
+#### 青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛（© Neil Henderson/Alamy Stock Photo）
+
+![水獭在看什么？](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_800x480.jpg&rf=LaDigue_800x480.jpg "水獭在看什么？")
+
+今天，让我们走进水獭的世界，它们顽皮又可爱，既是游泳健将，也是捕猎高手。这些生物分布在除南极洲和澳洲之外的每一个大陆上。目前已知的水獭种类有13种，它们形状和大小各异，有生活在沿海水域的海獭，也有在淡水栖息地嬉戏玩水的河獭。今天的图片展示的是欧亚水獭，它们生活在苏格兰西海岸美丽的姆尔斯岛上。这些水獭拥有蹼足、流线型体形和浓密的皮毛，在水下的速度和灵活性十分出色，除此之外，它们还能深潜并屏住呼吸数分钟。
+
+欧亚水獭（或称欧亚杂种水獭）是一种原产于欧亚大陆的半水栖哺乳动物，是鼬科水獭亚科中分布最广泛的成员。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b0%b4%e7%8d%ad%e6%97%a5&form=hpcapt&filters=HpDate:"20240528_1600" "Bing Wallpaper 2024 5月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240529_MullOtter"&FORM=HPQUIZ "必应主页测验 2024 5月 29")
+[下载480](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_800x480.jpg&rf=LaDigue_800x480.jpg "青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛")
+[下载720](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_1280x720.jpg&rf=LaDigue_1280x720.jpg "青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛")
+[下载1080](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_UHD.jpg&rf=LaDigue_UHD.jpg "青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛")
+
+---
 ### 05月28日：屹立于世界之巅
 #### 罗萨诺修道院，迈泰奥拉，色萨利 ，希腊（© Marius Roman/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_1280x720.jpg&rf=LaDigue_1280x720.jpg "焦特布尔蓝色之城，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "焦特布尔蓝色之城，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg&rf=LaDigue_UHD.jpg "焦特布尔蓝色之城，印度")
-
----
-### 05月14日：“深渊”探险
-#### 通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州（© Doug Meek/Getty Images）
-
-![“深渊”探险](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_800x480.jpg&rf=LaDigue_800x480.jpg "“深渊”探险")
-
-深邃的岩石峡谷，高耸的古代海礁，新墨西哥州的卡尔斯巴德洞窟国家公园拥有世界上最独特的岩层。在其沙漠美景下隐藏着119余个洞穴，这些洞穴是由硫酸溶解周围的石灰岩时形成的。1930年的今天，卡尔斯巴德洞窟国家公园正式成立，它拥有北美最大的地下洞室——“大房间”，洞室里每一个角落和缝隙都是经过数百万年时光雕琢而成的杰作，例如像枝形吊灯一样悬挂着的巨大钟乳石，以及直插“天花板”的钟乳石笋，因此它被联合国教科文组织指定为世界遗产保护地，除了拥有奇特的自然美景外，卡尔斯巴德洞窟国家公园还会组织“蝙蝠飞行观赏”等活动，游客们可以看到成千上万只蝙蝠在洞穴里飞进飞出，场面刺激又壮观。如果您向往地下探险，卡尔斯巴德洞窟国家公园一定会带给您一段独特的体验。
-
-卡尔斯巴德洞窟国家公园里有一个巨大的石灰岩洞室，简称为“大房间”，它长约4000英尺（1220米），宽625英尺（191米），最高点高达255英尺（78米）。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e5%b0%94%e6%96%af%e5%b7%b4%e5%be%b7%e6%b4%9e%e7%aa%9f%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240513_1600" "Bing Wallpaper 2024 5月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240514_CarlsbadNP"&FORM=HPQUIZ "必应主页测验 2024 5月 14")
-[下载480](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_800x480.jpg&rf=LaDigue_800x480.jpg "通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州")
-[下载720](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_1280x720.jpg&rf=LaDigue_1280x720.jpg "通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州")
-[下载1080](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州")
-[下载UHD](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg&rf=LaDigue_UHD.jpg "通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州")
 
 ---
