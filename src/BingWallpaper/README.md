@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月30日：欢迎来到大沼泽地
+#### 一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国（© Jonathan Gewirtz/Tandem Stills + Motion）
+
+![欢迎来到大沼泽地](https://cn.bing.com/th?id=OHR.Everglades90th_ZH-CN9853372570_800x480.jpg&rf=LaDigue_800x480.jpg "欢迎来到大沼泽地")
+
+90年前的今天，美国通过了一项法案，一个自然瑰宝也由此诞生：大沼泽地国家公园。这个位于佛罗里达州的公园囊括了美国最大的亚热带荒野。它占地150多万英亩，园区里生活着36种受联邦保护以及濒危的野生动物，如温顺的海牛、神秘的佛罗里达美洲豹。在这里，空气中回荡着350多种鸟类的叫声，如秧鹤、食螺鸢，水域中也是生机勃勃，有各种各样的鱼类，如锯盖鱼、红鱼，还有美洲鳄的身影。除了生物多样性之外，该公园还赢得了全球的认可，被联合国教科文组织评为世界遗产、国际生物圈保护区和国际重要湿地。因此，让我们向大沼泽地国家公园致敬！愿它可以继续为我们带来惊喜，并激发我们的好奇心以及欣赏周围野生世界的兴趣。
+
+大沼泽地国家公园的部分地区是南佛罗里达州观测暗夜星空的理想场所，其中最佳观赏地点在大沼泽地偏远的南部和西部地区，例如火烈鸟区和万岛。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bd%9b%e7%bd%97%e9%87%8c%e8%be%be%e5%b7%9e%e5%a4%a7%e6%b2%bc%e6%b3%bd%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240529_1600" "Bing Wallpaper 2024 5月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240530_Everglades90th"&FORM=HPQUIZ "必应主页测验 2024 5月 30")
+[下载480](https://cn.bing.com/th?id=OHR.Everglades90th_ZH-CN9853372570_800x480.jpg&rf=LaDigue_800x480.jpg "一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.Everglades90th_ZH-CN9853372570_1280x720.jpg&rf=LaDigue_1280x720.jpg "一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.Everglades90th_ZH-CN9853372570_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Everglades90th_ZH-CN9853372570_UHD.jpg&rf=LaDigue_UHD.jpg "一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国")
+
+---
 ### 05月29日：水獭在看什么？
 #### 青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛（© Neil Henderson/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_1280x720.jpg&rf=LaDigue_1280x720.jpg "维戈的兰德大桥，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维戈的兰德大桥，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_UHD.jpg&rf=LaDigue_UHD.jpg "维戈的兰德大桥，西班牙")
-
----
-### 05月15日：迷失在蓝色的美丽国度
-#### 焦特布尔蓝色之城，印度（© cinoby/Getty Images）
-
-![迷失在蓝色的美丽国度](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_800x480.jpg&rf=LaDigue_800x480.jpg "迷失在蓝色的美丽国度")
-
-欢迎来到印度拉贾斯坦邦的第二大城市焦特布尔，这里不仅天空是蓝色的，房子也是蓝色的！焦特布尔位于塔尔沙漠中，老城区所有的建筑都被涂成了浅蓝色，因此这座城市也被称为蓝色之城。焦特布尔（Jodhpur）这个名字源于其创始人拉奥·乔达(Rao Jodha)（“Jodh”代表Rao Jodha，“pur”在梵文中是城市的意思，连在一起意为“乔达之城”。）拉奥·乔达属于拉索尔氏族，他创建了焦特布尔，推动了城市基础设施的建设，因此被人们熟知。建城五个多世纪以来，焦特布尔一直以繁荣的纺织业、精致的家具店、美食佳肴以及繁华的街市而闻名。在景点方面，它因堡垒、宫殿、陵墓、花园和湖泊而出名，部分景点颇有名气，如梅兰加尔城堡和乌麦巴旺皇宫。快来探索这座蓝色城市的奇观吧!
-
-许多印度菜肴都起源于焦特布尔，这是一个美食之都，这座城市的特色美食是：皮亚杰·卡乔里（辣洋葱馅的油炸点心）、米尔奇·巴达（用辣椒和土豆或花椰菜馅料打成糊状并油炸的点心）、玛瓦·卡乔里（一种奶酪松饼）。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%84%a6%e7%89%b9%e5%b8%83%e5%b0%94+%e5%8d%b0%e5%ba%a6&form=hpcapt&filters=HpDate:"20240514_1600" "Bing Wallpaper 2024 5月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240515_BlueCityIndia"&FORM=HPQUIZ "必应主页测验 2024 5月 15")
-[下载480](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_800x480.jpg&rf=LaDigue_800x480.jpg "焦特布尔蓝色之城，印度")
-[下载720](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_1280x720.jpg&rf=LaDigue_1280x720.jpg "焦特布尔蓝色之城，印度")
-[下载1080](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "焦特布尔蓝色之城，印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg&rf=LaDigue_UHD.jpg "焦特布尔蓝色之城，印度")
 
 ---
