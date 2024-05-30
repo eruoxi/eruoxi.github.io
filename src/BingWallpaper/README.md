@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月31日：绿意盎然的宜人之地
+#### 冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰（© Derek Croucher/Alamy Stock Photo）
+
+![绿意盎然的宜人之地](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_ZH-CN0775378262_800x480.jpg&rf=LaDigue_800x480.jpg "绿意盎然的宜人之地")
+
+在英国约克郡谷地国家公园里，古老的冈纳塞德村充满着英式风情的魅力和历史的气息。想象一下，当你漫步在冈纳塞德狭窄的小巷中，周围是连绵起伏的群山、郁郁葱葱的牧场和石头小屋，耳边只有斯维尔河的咆哮声，这个画面是多么的美好！该国家公园成立于1954年，占地841平方英里，有1000多个农场。该地区最具特色的景观之一是干石墙，据说山谷里的城墙长达5000多英里。这些城墙没有使用任何砂浆，却可以维持数百年之久。冈纳塞德村的名字来自古斯堪的纳维亚语“Gunnar's saetr”，意思是冈纳的山丘或牧场。从17世纪到19世纪，冈纳塞德村附近的一个山谷曾是一个繁荣的铅矿开采中心。村里的老铁匠铺和博物馆已有229年的历史，里面陈列着历史悠久的铁匠工具和采矿器具。无论您是在寻求宁静的度假胜地，还是在探索英格兰的传奇历史，冈纳赛德都将为您带来难忘的回忆。
+
+2020年底，该公园被列为国际黑暗天空保护区。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a6%e5%85%8b%e9%83%a1%e8%b0%b7%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240530_1600" "Bing Wallpaper 2024 5月 31")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240531_YorkshireDalesNP"&FORM=HPQUIZ "必应主页测验 2024 5月 31")
+[下载480](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_ZH-CN0775378262_800x480.jpg&rf=LaDigue_800x480.jpg "冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_ZH-CN0775378262_1280x720.jpg&rf=LaDigue_1280x720.jpg "冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_ZH-CN0775378262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_ZH-CN0775378262_UHD.jpg&rf=LaDigue_UHD.jpg "冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰")
+
+---
 ### 05月30日：欢迎来到大沼泽地
 #### 一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国（© Jonathan Gewirtz/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_1280x720.jpg&rf=LaDigue_1280x720.jpg "塔兰吉雷国家公园的非洲象家族，坦桑尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔兰吉雷国家公园的非洲象家族，坦桑尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_UHD.jpg&rf=LaDigue_UHD.jpg "塔兰吉雷国家公园的非洲象家族，坦桑尼亚")
-
----
-### 05月16日：这片水域里有很多故事！
-#### 维戈的兰德大桥，西班牙（© Julio Conde/Getty Images）
-
-![这片水域里有很多故事！](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_800x480.jpg&rf=LaDigue_800x480.jpg "这片水域里有很多故事！")
-
-您准备好穿越时空了吗？为了纪念1809年维戈人民发动起义反对法国入侵，使维戈成为欧洲首个成功驱逐拿破仑军队的城市，每年春天，维戈的居民都会盛装打扮，回到1809年，庆祝他们重新夺回维戈。
-
-维哥湾是儒勒·凡尔纳的小说《海底两万里》的背景之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e7%bb%b4%e6%88%88&form=hpcapt&filters=HpDate:"20240515_1600" "Bing Wallpaper 2024 5月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240516_ReconquistaVigo"&FORM=HPQUIZ "必应主页测验 2024 5月 16")
-[下载480](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_800x480.jpg&rf=LaDigue_800x480.jpg "维戈的兰德大桥，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_1280x720.jpg&rf=LaDigue_1280x720.jpg "维戈的兰德大桥，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维戈的兰德大桥，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_UHD.jpg&rf=LaDigue_UHD.jpg "维戈的兰德大桥，西班牙")
 
 ---
