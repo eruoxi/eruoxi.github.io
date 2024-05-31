@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月01日：带你游花园
+#### 帝王棕榈树，里约热内卢植物园，巴西（© Marcia Silva de Mendonca/Getty Images）
+
+![带你游花园](https://cn.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_800x480.jpg&rf=LaDigue_800x480.jpg "带你游花园")
+
+里约热内卢植物园是巴西最早规划的植物园之一，始建于殖民时期，园内有8000多种植物，很多都是罕见的品种。这些植物大部分是在温室中繁殖培育而来的，其中一些还模仿了野生品种的自然生长环境。图中展示的是其中一条名为“皇家棕榈大道”的著名的大道，它由134棵棕榈树组成，长约750米（2460英尺），从入口通往花园。
+
+这些棕榈树都是一棵很久以前被闪电摧毁的母棕榈树的后代。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%87%8c%e7%ba%a6%e7%83%ad%e5%86%85%e5%8d%a2%e6%a4%8d%e7%89%a9%e5%9b%ad&form=hpcapt&filters=HpDate:"20240531_1600" "Bing Wallpaper 2024 6月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240601_CancaoDoExilio"&FORM=HPQUIZ "必应主页测验 2024 6月 1")
+[下载480](https://cn.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_800x480.jpg&rf=LaDigue_800x480.jpg "帝王棕榈树，里约热内卢植物园，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_1280x720.jpg&rf=LaDigue_1280x720.jpg "帝王棕榈树，里约热内卢植物园，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帝王棕榈树，里约热内卢植物园，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_UHD.jpg&rf=LaDigue_UHD.jpg "帝王棕榈树，里约热内卢植物园，巴西")
+
+---
 ### 05月31日：绿意盎然的宜人之地
 #### 冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰（© Derek Croucher/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_1280x720.jpg&rf=LaDigue_1280x720.jpg "破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_UHD.jpg&rf=LaDigue_UHD.jpg "破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大")
-
----
-### 05月17日：今天不是无关紧要的一天
-#### 塔兰吉雷国家公园的非洲象家族，坦桑尼亚（© Vicki Jauron, Babylon and Beyond Photography/Getty Images）
-
-![今天不是无关紧要的一天](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_800x480.jpg&rf=LaDigue_800x480.jpg "今天不是无关紧要的一天")
-
-今天是“濒危物种日”，让我们齐心协力保护濒危物种。每年五月的第三个星期五，我们都会密切关注动物和植物。濒危物种联盟于2006年创立了这个活动，旨在为拯救濒危物种而努力。目前，濒临灭绝的物种已超过44,000种。世界上最濒危的动物包括爪哇犀牛、黑犀牛、山地大猩猩和玳瑁。
-
-地球大气中的二氧化碳被认为是导致动物濒危的主要原因之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%bf%92%e5%8d%b1%e7%89%a9%e7%a7%8d&form=hpcapt&filters=HpDate:"20240516_1600" "Bing Wallpaper 2024 5月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240517_TarangireElephants"&FORM=HPQUIZ "必应主页测验 2024 5月 17")
-[下载480](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_800x480.jpg&rf=LaDigue_800x480.jpg "塔兰吉雷国家公园的非洲象家族，坦桑尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_1280x720.jpg&rf=LaDigue_1280x720.jpg "塔兰吉雷国家公园的非洲象家族，坦桑尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔兰吉雷国家公园的非洲象家族，坦桑尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_UHD.jpg&rf=LaDigue_UHD.jpg "塔兰吉雷国家公园的非洲象家族，坦桑尼亚")
 
 ---
