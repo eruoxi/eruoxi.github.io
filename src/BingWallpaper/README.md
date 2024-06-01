@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月02日：黑夜中的一盏明灯
+#### 普卢马纳克的灯塔，阿摩尔滨海省，法国（© Christian Handl/Getty Images）
+
+![黑夜中的一盏明灯](https://cn.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_800x480.jpg&rf=LaDigue_800x480.jpg "黑夜中的一盏明灯")
+
+布列塔尼阿摩尔滨海省的粉红色花岗岩海岸线是世界上独一无二的景点。它绵延约十公里，穿过特雷伯当、特雷加斯泰勒和佩罗斯-吉雷克等市镇。这些花岗岩石形成于近3亿年前，它们从岩浆腔中慢慢冷却而成，并富含外来矿物质。与科西嘉岛或中国等其他类似的海岸不同，这片海岸的特点是矿物杂乱无章，巨石层层叠叠，或在侵蚀作用下形成柔和的圆角结构。
+
+该灯塔的俗名“Ploumanac'h ”源自附近的普鲁马纳克镇，在布列塔尼语中的意思是 “僧侣池”。而灯塔的官方名称 “Mean Ruz”则来自布列塔尼语中的“Maen Ruz”，意为“红色的石头”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e6%91%a9%e5%b0%94%e6%bb%a8%e6%b5%b7%e7%9c%81&form=hpcapt&filters=HpDate:"20240601_1600" "Bing Wallpaper 2024 6月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240602_MenRuz"&FORM=HPQUIZ "必应主页测验 2024 6月 2")
+[下载480](https://cn.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_800x480.jpg&rf=LaDigue_800x480.jpg "普卢马纳克的灯塔，阿摩尔滨海省，法国")
+[下载720](https://cn.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_1280x720.jpg&rf=LaDigue_1280x720.jpg "普卢马纳克的灯塔，阿摩尔滨海省，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普卢马纳克的灯塔，阿摩尔滨海省，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_UHD.jpg&rf=LaDigue_UHD.jpg "普卢马纳克的灯塔，阿摩尔滨海省，法国")
+
+---
 ### 06月01日：带你游花园
 #### 帝王棕榈树，里约热内卢植物园，巴西（© Marcia Silva de Mendonca/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_1280x720.jpg&rf=LaDigue_1280x720.jpg "韦尔纳扎村，五渔村，利古里亚，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦尔纳扎村，五渔村，利古里亚，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_UHD.jpg&rf=LaDigue_UHD.jpg "韦尔纳扎村，五渔村，利古里亚，意大利")
-
----
-### 05月18日：流浪者未必都是迷路人
-#### 破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大（© Ron Watts/Design Pics/Getty Images）
-
-![流浪者未必都是迷路人](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_800x480.jpg&rf=LaDigue_800x480.jpg "流浪者未必都是迷路人")
-
-在温哥华岛的西海岸，深绿色的温带雨林与岩石海岸和沙滩交相辉映。让我们一起参观一下环太平洋国家公园保护区吧！该保护区占地511平方公里，于1970年被认定为国家公园。几个世纪以来，该地区的努查努阿特人一直在这片土地上生活。如今，努查努阿特人下属的15个部落中，有7个部落在公园内拥有至少22个小型保护区，有9个部落与公园接壤。保护区的另一个显著特征是沿海西部铁杉生物气候带。这片温带森林地带是黑熊、温哥华岛美洲狮和貂等多种动物的家园。
-
-破碎群岛因其超棒的皮划艇活动和野外露营而闻名于世，吸引着冒险者们组队前来探索这个遥远而荒凉的公园内的小岛。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8e%af%e5%a4%aa%e5%b9%b3%e6%b4%8b%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad%e4%bf%9d%e6%8a%a4%e5%8c%ba&form=hpcapt&filters=HpDate:"20240517_1600" "Bing Wallpaper 2024 5月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240518_PacificRimNationalPark"&FORM=HPQUIZ "必应主页测验 2024 5月 18")
-[下载480](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_800x480.jpg&rf=LaDigue_800x480.jpg "破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_1280x720.jpg&rf=LaDigue_1280x720.jpg "破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_UHD.jpg&rf=LaDigue_UHD.jpg "破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大")
 
 ---
