@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月03日：一起骑车去兜风吧
+#### 哥本哈根的自行车，丹麦（© Alphotographic/Getty Images）
+
+![一起骑车去兜风吧](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_ZH-CN3047958346_800x480.jpg&rf=LaDigue_800x480.jpg "一起骑车去兜风吧")
+
+德国发明家卡尔·冯·德雷斯于1817年发明了第一辆两轮车“德莱辛”。这辆车当然需要进一步的改善，因为木制车架和轮子没有脚踏板，需要依靠骑行者推动！现代版本的自行车是在19世纪后期开发出来的，但其所用的材料仍在不断地改进，以使骑行更轻松、更安全。所以，在世界自行车日，骑上自行车去找你的伙伴吧！
+
+自行车是最好的交通工具！既环保又健康，经济实惠，简单耐用，而且充满乐趣。一旦学会骑车，你将永远不会忘记如何骑车兜风。在美籍波兰科学家莱泽克·西比里斯基的倡议下，联合国宣布2018年6月3日为“世界自行车日”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e8%87%aa%e8%a1%8c%e8%bd%a6%e6%97%a5&form=hpcapt&filters=HpDate:"20240602_1600" "Bing Wallpaper 2024 6月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240603_CopenhagenBicycles"&FORM=HPQUIZ "必应主页测验 2024 6月 3")
+[下载480](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_ZH-CN3047958346_800x480.jpg&rf=LaDigue_800x480.jpg "哥本哈根的自行车，丹麦")
+[下载720](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_ZH-CN3047958346_1280x720.jpg&rf=LaDigue_1280x720.jpg "哥本哈根的自行车，丹麦")
+[下载1080](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_ZH-CN3047958346_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哥本哈根的自行车，丹麦")
+[下载UHD](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_ZH-CN3047958346_UHD.jpg&rf=LaDigue_UHD.jpg "哥本哈根的自行车，丹麦")
+
+---
 ### 06月02日：黑夜中的一盏明灯
 #### 普卢马纳克的灯塔，阿摩尔滨海省，法国（© Christian Handl/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_1280x720.jpg&rf=LaDigue_1280x720.jpg "蜜蜂照料蜂巢")
 [下载1080](https://cn.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蜜蜂照料蜂巢")
 [下载UHD](https://cn.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_UHD.jpg&rf=LaDigue_UHD.jpg "蜜蜂照料蜂巢")
-
----
-### 05月19日：历史与大海的交汇处
-#### 韦尔纳扎村，五渔村，利古里亚，意大利（© Roberto Moiola/Sysaworld/Getty Images）
-
-![历史与大海的交汇处](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_800x480.jpg&rf=LaDigue_800x480.jpg "历史与大海的交汇处")
-
-韦尔纳扎是意大利西北部五渔村的一个村庄，坐落在意大利里维埃拉崎岖的悬崖上。在这里，古建筑矗立在利古里亚海的海岸线上，生活中充满了渔民的喧嚣。韦尔纳扎（Vernazza）得名于当地一种名为“Vernaccia”的葡萄酒，“Vernaccia”这个词的意思是“本地的”或“我们的”。该地区最著名的古迹之一是多利亚城堡，建于15世纪，是一个防御堡垒，用于保护村庄免受频繁的海盗袭击。由于19世纪热那亚-拉斯佩齐亚铁路的修建，该村的陆路交通变得更加便利。鹅卵石铺就的街道没有汽车，非常适合步行游览。在这里，你可能想参观圣玛尔塔教堂和雷焦圣母圣殿。你知道吗，这里还是2021年动画电影《卢卡》的灵感来源！韦尔纳扎不仅仅是一个旅游胜地，它还是为那些追求意大利最纯粹灵魂的人准备的一片世外桃源。
-
-五渔村往北走的第四个小镇名叫韦尔纳扎，这里没有汽车通行，仍然是意大利里维埃拉最真实的“渔村”之一。它还是五渔村唯一的天然港口，以其优雅的房屋闻名于世。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%ba%94%e6%b8%94%e6%9d%91+%e9%9f%a6%e5%b0%94%e7%ba%b3%e6%89%8e%e6%9d%91&form=hpcapt&filters=HpDate:"20240518_1600" "Bing Wallpaper 2024 5月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240519_VernazzaItaly"&FORM=HPQUIZ "必应主页测验 2024 5月 19")
-[下载480](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_800x480.jpg&rf=LaDigue_800x480.jpg "韦尔纳扎村，五渔村，利古里亚，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_1280x720.jpg&rf=LaDigue_1280x720.jpg "韦尔纳扎村，五渔村，利古里亚，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦尔纳扎村，五渔村，利古里亚，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_UHD.jpg&rf=LaDigue_UHD.jpg "韦尔纳扎村，五渔村，利古里亚，意大利")
 
 ---
