@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月04日：物以类聚
+#### 黑胸蜂虎，巴迪亚国家公园，尼泊尔（© PACO COMO/Shutterstock）
+
+![物以类聚](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_ZH-CN3514753872_800x480.jpg&rf=LaDigue_800x480.jpg "物以类聚")
+
+黑胸蜂虎可不是徒有其名，它们确实整天都在捕食带刺的昆虫。除了蜜蜂，它们还捕食黄蜂、马蜂和其他昆虫。今天的图片中的鸟儿生活在尼泊尔的巴迪亚国家公园，但在南亚许多国家，从印度、孟加拉国到斯里兰卡、泰国，都能发现它们的踪迹。它们擅长在飞行途中捕捉猎物，然后飞回栖息地，在那里拍打带刺的昆虫，把它们拍晕后，就可以安全地食用了。这些鸟儿专为捕猎而生：它们鲜艳的绿色羽毛与周围的植被相似，有助于在丛林中伪装自己，弯曲的喙可以完美且精准地捕捉昆虫，而且它们的眼睛可以独立活动，这种特殊的眼睛结构可以有效地追踪和捕捉蜜蜂。
+
+这是一种在亚热带开阔林地繁殖的鸟类，通常栖息在水边。它在高原地区最为常见。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%bb%91%e8%83%b8%e8%9c%82%e8%99%8e&form=hpcapt&filters=HpDate:"20240603_1600" "Bing Wallpaper 2024 6月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240604_ChestnutBeeEater"&FORM=HPQUIZ "必应主页测验 2024 6月 4")
+[下载480](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_ZH-CN3514753872_800x480.jpg&rf=LaDigue_800x480.jpg "黑胸蜂虎，巴迪亚国家公园，尼泊尔")
+[下载720](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_ZH-CN3514753872_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑胸蜂虎，巴迪亚国家公园，尼泊尔")
+[下载1080](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_ZH-CN3514753872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑胸蜂虎，巴迪亚国家公园，尼泊尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_ZH-CN3514753872_UHD.jpg&rf=LaDigue_UHD.jpg "黑胸蜂虎，巴迪亚国家公园，尼泊尔")
+
+---
 ### 06月03日：一起骑车去兜风吧
 #### 哥本哈根的自行车，丹麦（© Alphotographic/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡梅隆高地茶园，马来西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡梅隆高地茶园，马来西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_UHD.jpg&rf=LaDigue_UHD.jpg "卡梅隆高地茶园，马来西亚")
-
----
-### 05月20日：我简直不敢相信！
-#### 蜜蜂照料蜂巢（© Simun Ascic/Alamy Stock Photo）
-
-![我简直不敢相信！](https://cn.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_800x480.jpg&rf=LaDigue_800x480.jpg "我简直不敢相信！")
-
-今天是世界蜜蜂日！这一节日是为了庆祝这些有翼昆虫以及它们在生物多样性和农业中发挥的重要作用。蜜蜂的体型大小不一，从0.08英寸到1.54英寸不等，已知的种类超过2万种。蜜蜂是世界上最重要的传粉生物之一，它们在野外和农田中传播花粉，帮助植物繁殖。这不仅有助于确保农作物的产量，还能维持生物的多样性。毫不夸张地说，蜜蜂对人类的生存至关重要。比如今天图片中的这只蜜蜂，它用蜂蜡筑巢，产出的蜂蜜它自己也吃不完。这种过剩意味着人类可以在不危及蜜蜂本身的情况下采蜜。人类在人工蜂巢中饲养蜜蜂的历史已有约1万年，其中西方蜜蜂是最常见的养殖品种。
-
-一只蜜蜂一生只能产出约1/12茶匙的蜂蜜。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e8%9c%9c%e8%9c%82%e6%97%a5&form=hpcapt&filters=HpDate:"20240519_1600" "Bing Wallpaper 2024 5月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240520_HoneycombBee"&FORM=HPQUIZ "必应主页测验 2024 5月 20")
-[下载480](https://cn.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_800x480.jpg&rf=LaDigue_800x480.jpg "蜜蜂照料蜂巢")
-[下载720](https://cn.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_1280x720.jpg&rf=LaDigue_1280x720.jpg "蜜蜂照料蜂巢")
-[下载1080](https://cn.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蜜蜂照料蜂巢")
-[下载UHD](https://cn.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_UHD.jpg&rf=LaDigue_UHD.jpg "蜜蜂照料蜂巢")
 
 ---
