@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月05日：世界环境日快乐！
+#### 马达加斯加的马苏阿拉国家公园（© Dennis van de Water/Shutterstock）
+
+![世界环境日快乐！](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_800x480.jpg&rf=LaDigue_800x480.jpg "世界环境日快乐！")
+
+世界环境日快乐！1973年，首届世界环境日活动以“只有一个地球”为主题，由联合国组织举办，旨在鼓励人们保护环境。如今，全世界有143个国家庆祝这个节日。今年的主题将聚于焦土地恢复、荒漠化和抗旱能力。
+
+2024年世界环境日将在沙特阿拉伯举行，主题活动将聚焦于土地恢复、荒漠化和抗旱能力。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%8e%af%e5%a2%83%e6%97%a5&form=hpcapt&filters=HpDate:"20240604_1600" "Bing Wallpaper 2024 6月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240605_MadagascarRiver"&FORM=HPQUIZ "必应主页测验 2024 6月 5")
+[下载480](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_800x480.jpg&rf=LaDigue_800x480.jpg "马达加斯加的马苏阿拉国家公园")
+[下载720](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_1280x720.jpg&rf=LaDigue_1280x720.jpg "马达加斯加的马苏阿拉国家公园")
+[下载1080](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马达加斯加的马苏阿拉国家公园")
+[下载UHD](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_UHD.jpg&rf=LaDigue_UHD.jpg "马达加斯加的马苏阿拉国家公园")
+
+---
 ### 06月04日：物以类聚
 #### 黑胸蜂虎，巴迪亚国家公园，尼泊尔（© PACO COMO/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_1280x720.jpg&rf=LaDigue_1280x720.jpg "塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_UHD.jpg&rf=LaDigue_UHD.jpg "塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚")
-
----
-### 05月21日：充满茶香的一天
-#### 卡梅隆高地茶园，马来西亚（© alex cheong/Getty Images）
-
-![充满茶香的一天](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_800x480.jpg&rf=LaDigue_800x480.jpg "充满茶香的一天")
-
-没有什么能比得上一杯好茶！无论您喜欢大吉岭茶、伯爵茶、乌龙茶、抹茶，还是英式早餐茶，今天都是为这个受人喜爱的饮品而庆祝的日子——因为5月21日是国际茶日。人类饮茶的历史至少有5000年了，它起源中国，在16世纪和17世纪，西方商人通过丝绸之路将茶叶引入欧洲，并逐渐传播到世界各地。现在，茶已成为仅次于水的世界第二大饮料。
-
-1885年，英国探险家卡梅伦勋爵在一次测绘任务中发现了金马仑高原。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e8%8c%b6%e6%97%a5&form=hpcapt&filters=HpDate:"20240520_1600" "Bing Wallpaper 2024 5月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240521_MalaysiaTea"&FORM=HPQUIZ "必应主页测验 2024 5月 21")
-[下载480](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_800x480.jpg&rf=LaDigue_800x480.jpg "卡梅隆高地茶园，马来西亚")
-[下载720](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡梅隆高地茶园，马来西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡梅隆高地茶园，马来西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_UHD.jpg&rf=LaDigue_UHD.jpg "卡梅隆高地茶园，马来西亚")
 
 ---
