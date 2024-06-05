@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月06日：有趣的野生动物!
+#### 蓬德高鸟类公园的大红鹳，卡玛格，法国（© Yann Guichaoua-Photos/Getty Images）
+
+![有趣的野生动物!](https://cn.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_800x480.jpg&rf=LaDigue_800x480.jpg "有趣的野生动物!")
+
+准备好在蓬德高自然保护区，被大红鹳的壮观景象迷住吧！这些雄伟的生物是该地区真正的象征，它们的粉红色羽毛来自于日常饮食中的类胡萝卜素。这些鸟类以丰年虾为食，因此它们的羽毛呈现出特有的粉红色。大红鹳的喙可以过滤水中的食物，这也是一道迷人的风景线！保护区全年都欢迎大红鹳的到来，但夏季是观赏大红鹳的理想季节。想象一下，漫步在小径上，四周鸟鸣环绕，抬眼望去又是优雅飞翔的大红鹳。这是一种不容错过的全新体验！那么，你准备好迎接一场丰富多彩的冒险了吗?
+
+以前人们认为大红鹳与美洲火烈鸟（加勒比海红鹳）是同一物种，但由于其头部、颈部、身体和喙的颜色不同，现在人们通常认为这两种火烈鸟是不同的物种。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e7%ba%a2%e9%b9%b3&form=hpcapt&filters=HpDate:"20240605_1600" "Bing Wallpaper 2024 6月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240606_CamargueFlamingos"&FORM=HPQUIZ "必应主页测验 2024 6月 6")
+[下载480](https://cn.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_800x480.jpg&rf=LaDigue_800x480.jpg "蓬德高鸟类公园的大红鹳，卡玛格，法国")
+[下载720](https://cn.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_1280x720.jpg&rf=LaDigue_1280x720.jpg "蓬德高鸟类公园的大红鹳，卡玛格，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓬德高鸟类公园的大红鹳，卡玛格，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_UHD.jpg&rf=LaDigue_UHD.jpg "蓬德高鸟类公园的大红鹳，卡玛格，法国")
+
+---
 ### 06月05日：世界环境日快乐！
 #### 马达加斯加的马苏阿拉国家公园（© Dennis van de Water/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_1280x720.jpg&rf=LaDigue_1280x720.jpg "印度星龟，斯里兰卡")
 [下载1080](https://cn.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印度星龟，斯里兰卡")
 [下载UHD](https://cn.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_UHD.jpg&rf=LaDigue_UHD.jpg "印度星龟，斯里兰卡")
-
----
-### 05月22日：深入了解生物多样性
-#### 塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚（© Ignacio Palacios/Getty Images）
-
-![深入了解生物多样性](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_800x480.jpg&rf=LaDigue_800x480.jpg "深入了解生物多样性")
-
-今天，我们要庆祝地球的生物多样性！究竟什么是生物多样性？它指的是一个地区的所有生物，从动物和植物到真菌和微生物。大自然中这种微妙而又充满活力的平衡是我们赖以生存的基础。这绝对值得庆祝！2000年，联合国正式宣布5月22日为 "国际生物多样性日"。不幸的是，由于气候变化、自然资源枯竭、城市化和污染等因素，地球上的生物多样性正在慢慢减少。我们有责任回馈大自然，保护地球环境。毕竟，大自然赠与了我们很多珍贵迷人的物种，比如塔斯马尼亚雪桉树，也就是今天图片中的这棵树，它扎根于地球上生物多样性最丰富的地方——澳大利亚塔斯马尼亚的菲尔德山国家公园。
-
-“参与部分计划”是2024年国际生物多样性日的主题，旨在扭转生物种类减少的趋势。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e7%94%9f%e7%89%a9%e5%a4%9a%e6%a0%b7%e6%80%a7%e6%97%a5&form=hpcapt&filters=HpDate:"20240521_1600" "Bing Wallpaper 2024 5月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240522_SnowGumTasmania"&FORM=HPQUIZ "必应主页测验 2024 5月 22")
-[下载480](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_800x480.jpg&rf=LaDigue_800x480.jpg "塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_1280x720.jpg&rf=LaDigue_1280x720.jpg "塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_UHD.jpg&rf=LaDigue_UHD.jpg "塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚")
 
 ---
