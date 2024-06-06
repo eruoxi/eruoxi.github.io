@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月07日：希望的浪潮
+#### 座头鲸家族，荷兰港，阿拉斯加州（© Jude Newkirk/Amazing Aerial Agency）
+
+![希望的浪潮](https://cn.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_800x480.jpg&rf=LaDigue_800x480.jpg "希望的浪潮")
+
+今天，在庆祝世界海洋日之际，让我们共同踏上一场海洋之旅吧！世界海洋日是为了纪念和保护世界上的海洋，提醒人们海洋在维持地球生命方面所发挥的关键性作用。毕竟，从最小的浮游生物到如图中所示的座头鲸一样巨大的鲸鱼，这些庞大的水体中充满了奇迹。由于浮游生物（微小的植物、藻类和细菌）的光合作用，海洋还产生了地球上近一半的氧气。此外，海洋还从大气中吸收大量的二氧化碳，这有助于减轻人类活动造成的气候变化影响。
+
+座头鲸通常每年迁徙路程长达16,000公里。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b5%b7%e6%b4%8b%e6%97%a5&form=hpcapt&filters=HpDate:"20240606_1600" "Bing Wallpaper 2024 6月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240607_HumpbackFamily"&FORM=HPQUIZ "必应主页测验 2024 6月 7")
+[下载480](https://cn.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_800x480.jpg&rf=LaDigue_800x480.jpg "座头鲸家族，荷兰港，阿拉斯加州")
+[下载720](https://cn.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_1280x720.jpg&rf=LaDigue_1280x720.jpg "座头鲸家族，荷兰港，阿拉斯加州")
+[下载1080](https://cn.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "座头鲸家族，荷兰港，阿拉斯加州")
+[下载UHD](https://cn.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_UHD.jpg&rf=LaDigue_UHD.jpg "座头鲸家族，荷兰港，阿拉斯加州")
+
+---
 ### 06月06日：有趣的野生动物!
 #### 蓬德高鸟类公园的大红鹳，卡玛格，法国（© Yann Guichaoua-Photos/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_UHD.jpg&rf=LaDigue_UHD.jpg "阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙")
-
----
-### 05月23日：寻找一个“庇护所”
-#### 印度星龟，斯里兰卡（© Robin Chittenden/Minden Pictures）
-
-![寻找一个“庇护所”](https://cn.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_800x480.jpg&rf=LaDigue_800x480.jpg "寻找一个“庇护所”")
-
-这才是真正的明星！印度星龟迈着自信而缓慢的脚步走进了大家的视野里。今天是世界海龟日！自2000年以来，美国龟类救援组织每年都会庆祝这一节日。那么陆龟和乌龟有什么区别呢？最大的区别在于陆龟是一种专门生活在陆地上的龟类，而乌龟则更喜欢水，可以在水中生活。
-
-海龟在一个繁殖季会产2到8窝蛋，每个窝里会有100余颗蛋。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b5%b7%e9%be%9f%e6%97%a5&form=hpcapt&filters=HpDate:"20240522_1600" "Bing Wallpaper 2024 5月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240523_IndianStarTortoise"&FORM=HPQUIZ "必应主页测验 2024 5月 23")
-[下载480](https://cn.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_800x480.jpg&rf=LaDigue_800x480.jpg "印度星龟，斯里兰卡")
-[下载720](https://cn.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_1280x720.jpg&rf=LaDigue_1280x720.jpg "印度星龟，斯里兰卡")
-[下载1080](https://cn.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印度星龟，斯里兰卡")
-[下载UHD](https://cn.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_UHD.jpg&rf=LaDigue_UHD.jpg "印度星龟，斯里兰卡")
 
 ---
