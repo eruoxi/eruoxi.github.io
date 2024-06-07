@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月08日：河流的交汇
+#### 复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国（© Patrick J. Endres/Getty Images）
+
+![河流的交汇](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_ZH-CN5736211272_800x480.jpg&rf=LaDigue_800x480.jpg "河流的交汇")
+
+加拿大活动家马克·安吉洛发起了为期三十天的“国家河流月”活动，向地球脉络致敬。今天的图片展示的是阿拉斯加复活节溪和基利克河的交汇处，真是一幅美丽的画卷啊！和这些溪流一样，人们每年也会聚集在一起，为保护这些河流出力。随着污染、栖息地破坏和过度使用等情况日益加剧，倡导保护河流比以往任何时候都更加重要。无论你是在平缓的溪流中划桨，还是在垂钓时抛下鱼线，抑或只是沿着河岸悠闲地散步，都可以通过无数种方式与这些流动的奇迹建立联系。仅美国就拥有一个由25万多条河流组成的庞大河网，这些河流在不同的地形上绵延300多万英里。你想去参观哪条河呢？
+
+北极之门最初于1978年12月1日被指定为国家纪念碑。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%9e%81%e4%b9%8b%e9%97%a8%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240607_1600" "Bing Wallpaper 2024 6月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240608_KillikRiverAlaska"&FORM=HPQUIZ "必应主页测验 2024 6月 8")
+[下载480](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_ZH-CN5736211272_800x480.jpg&rf=LaDigue_800x480.jpg "复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_ZH-CN5736211272_1280x720.jpg&rf=LaDigue_1280x720.jpg "复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_ZH-CN5736211272_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_ZH-CN5736211272_UHD.jpg&rf=LaDigue_UHD.jpg "复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国")
+
+---
 ### 06月07日：希望的浪潮
 #### 座头鲸家族，荷兰港，阿拉斯加州（© Jude Newkirk/Amazing Aerial Agency）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿伊特本哈杜，摩洛哥")
 [下载1080](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿伊特本哈杜，摩洛哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_UHD.jpg&rf=LaDigue_UHD.jpg "阿伊特本哈杜，摩洛哥")
-
----
-### 05月24日：一路到顶峰
-#### 阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙（© Marisa Estivill/Shutterstock）
-
-![一路到顶峰](https://cn.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_800x480.jpg&rf=LaDigue_800x480.jpg "一路到顶峰")
-
-今天是欧洲公园日！1909年的今天，欧洲最早的九个国家公园在瑞典成立。今年的庆祝活动聚焦于保护区在制定和实施自然政策方面的重要作用。此外，庆祝活动还强调了保护区如何为欧洲公民建设一个可持续发展和具有复原力的社会做出贡献。从本质上讲，这些地区不仅仅是生物多样性的守护者；它们也是我们集体福祉的支柱，提醒我们保护自然遗产。
-
-奥德萨和佩尔迪多山国家公园的海拔高度从700米到3000多米不等，是比利牛斯山自然之美的完美典范。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e6%b4%b2%e5%85%ac%e5%9b%ad%e6%97%a5&form=hpcapt&filters=HpDate:"20240523_1600" "Bing Wallpaper 2024 5月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240524_OrdesaNationalPark"&FORM=HPQUIZ "必应主页测验 2024 5月 24")
-[下载480](https://cn.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_800x480.jpg&rf=LaDigue_800x480.jpg "阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_UHD.jpg&rf=LaDigue_UHD.jpg "阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙")
 
 ---
