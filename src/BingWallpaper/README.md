@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月09日：令人窒息的寂静
+#### 巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙（© Aliaume Chapelle/Tandem Stills + Motion）
+
+![令人窒息的寂静](https://cn.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_800x480.jpg&rf=LaDigue_800x480.jpg "令人窒息的寂静")
+
+在西班牙北部风景优美的纳瓦拉地区，巴尔德纳斯雷亚尔斯生物圈保护区和自然公园如同一幅栩栩如生的超现实主义绘画吸引了无数游客。公园因其沙漠景观而出名，这些景观经过了数千年的侵蚀才得以形成，以岩石高原、峡谷以及形状奇特的粘土为特色，是地质奇观爱好者的乐园。
+
+巴尔德纳斯雷亚尔斯自然公园分为几个不同的区域，主要包括黑巴尔德纳和白巴尔德纳两个大区域，以及一些独具特色的小区域。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e5%b7%b4%e5%be%b7%e7%ba%b3%e6%96%af&form=hpcapt&filters=HpDate:"20240608_1600" "Bing Wallpaper 2024 6月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240609_BardenasBiosphere"&FORM=HPQUIZ "必应主页测验 2024 6月 9")
+[下载480](https://cn.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_800x480.jpg&rf=LaDigue_800x480.jpg "巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_UHD.jpg&rf=LaDigue_UHD.jpg "巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙")
+
+---
 ### 06月08日：河流的交汇
 #### 复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国（© Patrick J. Endres/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_1280x720.jpg&rf=LaDigue_1280x720.jpg "香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_UHD.jpg&rf=LaDigue_UHD.jpg "香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国")
-
----
-### 05月25日：沙丘守护者
-#### 阿伊特本哈杜，摩洛哥（© Grant Faint/Getty Images）
-
-![沙丘守护者](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_800x480.jpg&rf=LaDigue_800x480.jpg "沙丘守护者")
-
-你在寻找沙地的魅力吗？来摩洛哥的阿伊特本哈杜吧，它位于连接撒哈拉和马拉喀什的古商道上。这个被联合国教科文组织列为世界遗产的地方展示了摩洛哥的粘土建筑，这是一种用晒干的泥土建造建筑的技术。虽然这里的建筑据说都不是17世纪以前建造的，但它们采用的技术和风格却比17世纪还要古老得多。在俯瞰乌尼拉河的缓坡上，就有一个由泥砖结构组成的阿伊特本哈杜防御村庄。阿伊特本哈杜筑垒村的公共景观包括一个公共广场、一座清真寺、防御区外的打谷场和一个商队客栈，以及其他特色景观。如果你正在寻求一次与众不同的旅程，阿伊特本哈杜正在等着你！
-
-虽然有时会被误认成城堡，但阿伊特本哈杜筑垒村实际上是一个古老的防御性村庄。换句话说，它是一个由土坯混合物（沙子、粘土、水，以及稻草或粪便等有机材料）建造的多个“城堡”组成的一座坚固的城镇。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e4%bc%8a%e7%89%b9%e6%9c%ac%e5%93%88%e6%9d%9c+%e6%91%a9%e6%b4%9b%e5%93%a5&form=hpcapt&filters=HpDate:"20240524_1600" "Bing Wallpaper 2024 5月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240525_MoroccoBenhaddou"&FORM=HPQUIZ "必应主页测验 2024 5月 25")
-[下载480](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_800x480.jpg&rf=LaDigue_800x480.jpg "阿伊特本哈杜，摩洛哥")
-[下载720](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿伊特本哈杜，摩洛哥")
-[下载1080](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿伊特本哈杜，摩洛哥")
-[下载UHD](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_UHD.jpg&rf=LaDigue_UHD.jpg "阿伊特本哈杜，摩洛哥")
 
 ---
