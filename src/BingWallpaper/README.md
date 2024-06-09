@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月10日：比赛将在这里开始！
+#### 龙舟池日出，集美区，厦门，中国（© outcast85/Getty images）
+
+![比赛将在这里开始！](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_800x480.jpg&rf=LaDigue_800x480.jpg "比赛将在这里开始！")
+
+吃粽子、看龙舟赛的日子到了！这一天，人们祈福辟邪、欢庆娱乐、分享美食。别忘了，看龙舟赛也是端午节重要的节庆民俗活动之一，早在中国古代战国时期就有了。赛龙舟表达了人们对美好生活的憧憬。
+
+2011年，集美龙舟赛已升格为国家级赛事。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ab%af%e5%8d%88%e8%8a%82&form=hpcapt&filters=HpDate:"20240609_1600" "Bing Wallpaper 2024 6月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240610_DragonBoatFestival2024"&FORM=HPQUIZ "必应主页测验 2024 6月 10")
+[下载480](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_800x480.jpg&rf=LaDigue_800x480.jpg "龙舟池日出，集美区，厦门，中国")
+[下载720](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_1280x720.jpg&rf=LaDigue_1280x720.jpg "龙舟池日出，集美区，厦门，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "龙舟池日出，集美区，厦门，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_UHD.jpg&rf=LaDigue_UHD.jpg "龙舟池日出，集美区，厦门，中国")
+
+---
 ### 06月09日：令人窒息的寂静
 #### 巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙（© Aliaume Chapelle/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞斯特里莱万特的沉默湾，利古里亚大区，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞斯特里莱万特的沉默湾，利古里亚大区，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg&rf=LaDigue_UHD.jpg "塞斯特里莱万特的沉默湾，利古里亚大区，意大利")
-
----
-### 05月26日：野性与自由
-#### 香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国（© Alan Majchrowicz/Getty Images）
-
-![野性与自由](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_800x480.jpg&rf=LaDigue_800x480.jpg "野性与自由")
-
-如果你想寻觅野花铺满青草地这样生机盎然的地方，华盛顿州北喀斯喀特山脉的梅索谷就是你的理想之地。羽扇豆开着紫色、蓝色和白色的尖尖的花朵，箭叶香根开着金黄色的大花朵，配上崎岖的山脉作为背景，造就了如诗如画般的美景。这些花朵在山谷的生态系统中也发挥着至关重要的作用，羽扇豆是固氮植物，它们通过将大气中的氮转化为邻近植物可以吸收和利用的形态来提高土壤肥力。另一方面，箭叶香根能吸引蜜蜂和蝴蝶等传粉者，有助于植物繁殖，进而促进该地区的生物多样性。无论你是经验丰富的植物学家还是自然爱好者，梅索谷的野花和迷人的荒野一定会给你留下深刻的印象。
-
-“梅索”这个名字来自奥肯那根的地名/mətxʷú/，意思是“向日葵（种子）”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%8e%e7%9b%9b%e9%a1%bf%e5%b7%9e%e6%a2%85%e7%b4%a2%e8%b0%b7&form=hpcapt&filters=HpDate:"20240525_1600" "Bing Wallpaper 2024 5月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240526_MethowWildflowers"&FORM=HPQUIZ "必应主页测验 2024 5月 26")
-[下载480](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_800x480.jpg&rf=LaDigue_800x480.jpg "香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_1280x720.jpg&rf=LaDigue_1280x720.jpg "香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_UHD.jpg&rf=LaDigue_UHD.jpg "香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国")
 
 ---
