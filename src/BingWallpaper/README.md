@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月11日：这些羚羊是真正的珍宝
+#### 热带稀树草原上的南非剑羚，博茨瓦纳大草原（© Karine Aigner/Tandem Stills + Motion）
+
+![这些羚羊是真正的珍宝](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_800x480.jpg&rf=LaDigue_800x480.jpg "这些羚羊是真正的珍宝")
+
+竖起犄角，昂首挺胸！今天的图片展示的是一群南非剑羚，这是一种大型羚羊，统治着非洲西南部广袤的热带稀树草原。它们原产于博茨瓦纳、纳米比亚、南非和津巴布韦的部分干旱地区，主要生活在卡拉哈里沙漠和纳米布沙漠。它们能够在极度干旱的条件下生存，可以数周不喝水，仅从吃的食物中获取水分。此外，南非剑羚是草原上的奔跑健将，最高时速可达每小时37英里。它们的显著特征是头上那对又长又直的犄角，尽管雌性剑羚和雄性剑羚都拥有这种强大的防御武器，但雌性的角往往更长更光滑，而雄性的角则更粗、基部更宽。如果有天您去到了卡拉哈里的沙地平原，一定要留意这些沙漠中的珍宝。
+
+南非剑羚的图案被印在了纳米比亚的国徽上。在奥兰治蒙德镇，当地的剑羚可以在街道上自由漫步。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%97%e9%9d%9e%e5%89%91%e7%be%9a&form=hpcapt&filters=HpDate:"20240610_1600" "Bing Wallpaper 2024 6月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240611_GemsbokBotswana"&FORM=HPQUIZ "必应主页测验 2024 6月 11")
+[下载480](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_800x480.jpg&rf=LaDigue_800x480.jpg "热带稀树草原上的南非剑羚，博茨瓦纳大草原")
+[下载720](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_1280x720.jpg&rf=LaDigue_1280x720.jpg "热带稀树草原上的南非剑羚，博茨瓦纳大草原")
+[下载1080](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "热带稀树草原上的南非剑羚，博茨瓦纳大草原")
+[下载UHD](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_UHD.jpg&rf=LaDigue_UHD.jpg "热带稀树草原上的南非剑羚，博茨瓦纳大草原")
+
+---
 ### 06月10日：比赛将在这里开始！
 #### 龙舟池日出，集美区，厦门，中国（© outcast85/Getty images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗萨诺修道院，迈泰奥拉，色萨利 ，希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗萨诺修道院，迈泰奥拉，色萨利 ，希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_UHD.jpg&rf=LaDigue_UHD.jpg "罗萨诺修道院，迈泰奥拉，色萨利 ，希腊")
-
----
-### 05月27日：我们去乘船吧！
-#### 塞斯特里莱万特的沉默湾，利古里亚大区，意大利（© StevanZZ/Getty Images）
-
-![我们去乘船吧！](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_800x480.jpg&rf=LaDigue_800x480.jpg "我们去乘船吧！")
-
-日落时分，塞斯特里莱万特城镇仿佛渲染了一层柔光，美得就像一幅画。这颗隐藏在东利古里亚里维埃拉海岸的明珠，以其自然美景和可追溯至罗马时代的历史遗产吸引了无数游客。该镇位于波托菲诺和五渔村之间，拥有令人惊叹的风景和海滩，如沉默湾、童话湾，后者与安徒生以及“小美人鱼”的传说有着奇妙的关联。美丽的蓬塔马纳拉自然公园和古老的中世纪街道则能带给游客另一种独特的体验，它们的存在使塞斯特里莱万特成为一个拥有罕见美景和历史魅力的目的地。
-
-童话湾是为了纪念丹麦作家汉斯·克里斯汀·安徒生而命名的。1833年，安徒生曾短暂地居住在塞斯特里莱万特。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a1%9e%e6%96%af%e7%89%b9%e9%87%8c%e8%8e%b1%e4%b8%87%e7%89%b9&form=hpcapt&filters=HpDate:"20240526_1600" "Bing Wallpaper 2024 5月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240527_SestriLevante"&FORM=HPQUIZ "必应主页测验 2024 5月 27")
-[下载480](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_800x480.jpg&rf=LaDigue_800x480.jpg "塞斯特里莱万特的沉默湾，利古里亚大区，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞斯特里莱万特的沉默湾，利古里亚大区，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞斯特里莱万特的沉默湾，利古里亚大区，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg&rf=LaDigue_UHD.jpg "塞斯特里莱万特的沉默湾，利古里亚大区，意大利")
 
 ---
