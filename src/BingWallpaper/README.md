@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月12日：星光盛宴
+#### 大弯国家公园上空的银河，得克萨斯州，美国（© wisanuboonrawd/Adobe Stock）
+
+![星光盛宴](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_800x480.jpg&rf=LaDigue_800x480.jpg "星光盛宴")
+
+准备好探索大自然了吗？让我们走进西得克萨斯的大弯国家公园，今天正好是它的80周年纪念日。它于1944年6月12日成立，当时德克萨斯州将这片土地转让给了联邦政府。该公园占地超过1,250平方英里，是奇瓦瓦沙漠最大的保护区。
+
+大弯国家公园是美国最大的奇瓦瓦沙漠地形和生态保护区，对这个国家具有重要的意义。公园因格兰德河（在墨西哥称为布拉沃河）的一个大弯道而命名。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e5%bc%af%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240611_1600" "Bing Wallpaper 2024 6月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240612_BigBendMilkyWay"&FORM=HPQUIZ "必应主页测验 2024 6月 12")
+[下载480](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_800x480.jpg&rf=LaDigue_800x480.jpg "大弯国家公园上空的银河，得克萨斯州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_1280x720.jpg&rf=LaDigue_1280x720.jpg "大弯国家公园上空的银河，得克萨斯州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大弯国家公园上空的银河，得克萨斯州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_UHD.jpg&rf=LaDigue_UHD.jpg "大弯国家公园上空的银河，得克萨斯州，美国")
+
+---
 ### 06月11日：这些羚羊是真正的珍宝
 #### 热带稀树草原上的南非剑羚，博茨瓦纳大草原（© Karine Aigner/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_1280x720.jpg&rf=LaDigue_1280x720.jpg "青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛")
 [下载1080](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_UHD.jpg&rf=LaDigue_UHD.jpg "青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛")
-
----
-### 05月28日：屹立于世界之巅
-#### 罗萨诺修道院，迈泰奥拉，色萨利 ，希腊（© Marius Roman/Getty Images）
-
-![屹立于世界之巅](https://cn.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_800x480.jpg&rf=LaDigue_800x480.jpg "屹立于世界之巅")
-
-一提到希腊，您可能会想到大海、沙滩、白色的建筑和蓝色的圆顶。然而，这个国家的宝藏景点可不止这些。今天的图片展示的是罗萨诺修道院，它坐落于希腊北部色萨利的迈泰奥拉（一个砂岩峰林地区），四周是高耸的悬崖。相传在14世纪，一群僧侣为了躲避政治纷争来到了这里，他们攀爬悬崖，在上面建立起了修道院。如今，在迈泰奥拉联合国教科文组织世界遗产区内还有6座仅存的修道院，而罗萨诺修道院便是其中之一。如果您攀爬上去，将会看到令人惊叹的自然美景，不过，真正的“宝藏”在修道院的内部：一个拜占庭艺术和建筑的世界。这种艺术风格起源于东罗马帝国（也被称为拜占庭帝国），该帝国从公元4世纪持续到1453年君士坦丁堡的陷落，而这一时期的艺术便被人们称为：拜占庭艺术。
-
-在前5千年至5万年之间，迈泰奥拉附近的洞穴一直有人居住。这个堵住了西奥佩特拉洞穴入口三分之二的石墙，是已知的最古老的建筑范例，它建于23,000年前，修建的目的可能是抵御寒风，当时地球正在经历冰河时代，洞穴内还发现了许多旧石器时代和新石器时代人类居住使用的文物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%8c%e8%85%8a%e7%bd%97%e8%90%a8%e8%af%ba%e4%bf%ae%e9%81%93%e9%99%a2&form=hpcapt&filters=HpDate:"20240527_1600" "Bing Wallpaper 2024 5月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240528_MeteoraMonastery"&FORM=HPQUIZ "必应主页测验 2024 5月 28")
-[下载480](https://cn.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_800x480.jpg&rf=LaDigue_800x480.jpg "罗萨诺修道院，迈泰奥拉，色萨利 ，希腊")
-[下载720](https://cn.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗萨诺修道院，迈泰奥拉，色萨利 ，希腊")
-[下载1080](https://cn.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗萨诺修道院，迈泰奥拉，色萨利 ，希腊")
-[下载UHD](https://cn.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_UHD.jpg&rf=LaDigue_UHD.jpg "罗萨诺修道院，迈泰奥拉，色萨利 ，希腊")
 
 ---
