@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月13日：瓷砖的故事
+#### 雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒（© da-kuk/Getty Images）
+
+![瓷砖的故事](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_800x480.jpg&rf=LaDigue_800x480.jpg "瓷砖的故事")
+
+准备好了吗？让我们一起踮起脚尖进入乌兹别克斯坦撒马尔罕市的雷吉斯坦广场。在波斯语中，雷吉斯坦意为“沙地”或“沙漠”，它是帖木儿帝国时期的活动中心。广场上的建筑风格体现了“帖木儿文艺复兴”的精髓，这是一个文化和知识复兴的时期，在公元14世纪至16世纪初期席卷了整个穆斯林世界。
+
+公元前329年，撒马尔罕被亚历山大大帝征服，当时它被称为马拉坎达（希腊语为Mαράκανδα）。在1220年被成吉思汗领导的蒙古人征服之前，这座城市曾先后被伊朗和突厥的统治者统治。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%92%92%e9%a9%ac%e5%b0%94%e7%bd%95&form=hpcapt&filters=HpDate:"20240612_1600" "Bing Wallpaper 2024 6月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240613_RegistanUzbekistan"&FORM=HPQUIZ "必应主页测验 2024 6月 13")
+[下载480](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_800x480.jpg&rf=LaDigue_800x480.jpg "雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒")
+[下载720](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_1280x720.jpg&rf=LaDigue_1280x720.jpg "雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒")
+[下载1080](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒")
+[下载UHD](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_UHD.jpg&rf=LaDigue_UHD.jpg "雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒")
+
+---
 ### 06月12日：星光盛宴
 #### 大弯国家公园上空的银河，得克萨斯州，美国（© wisanuboonrawd/Adobe Stock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Everglades90th_ZH-CN9853372570_1280x720.jpg&rf=LaDigue_1280x720.jpg "一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.Everglades90th_ZH-CN9853372570_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.Everglades90th_ZH-CN9853372570_UHD.jpg&rf=LaDigue_UHD.jpg "一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国")
-
----
-### 05月29日：水獭在看什么？
-#### 青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛（© Neil Henderson/Alamy Stock Photo）
-
-![水獭在看什么？](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_800x480.jpg&rf=LaDigue_800x480.jpg "水獭在看什么？")
-
-今天，让我们走进水獭的世界，它们顽皮又可爱，既是游泳健将，也是捕猎高手。这些生物分布在除南极洲和澳洲之外的每一个大陆上。目前已知的水獭种类有13种，它们形状和大小各异，有生活在沿海水域的海獭，也有在淡水栖息地嬉戏玩水的河獭。今天的图片展示的是欧亚水獭，它们生活在苏格兰西海岸美丽的姆尔斯岛上。这些水獭拥有蹼足、流线型体形和浓密的皮毛，在水下的速度和灵活性十分出色，除此之外，它们还能深潜并屏住呼吸数分钟。
-
-欧亚水獭（或称欧亚杂种水獭）是一种原产于欧亚大陆的半水栖哺乳动物，是鼬科水獭亚科中分布最广泛的成员。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b0%b4%e7%8d%ad%e6%97%a5&form=hpcapt&filters=HpDate:"20240528_1600" "Bing Wallpaper 2024 5月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240529_MullOtter"&FORM=HPQUIZ "必应主页测验 2024 5月 29")
-[下载480](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_800x480.jpg&rf=LaDigue_800x480.jpg "青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛")
-[下载720](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_1280x720.jpg&rf=LaDigue_1280x720.jpg "青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛")
-[下载1080](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_UHD.jpg&rf=LaDigue_UHD.jpg "青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛")
 
 ---
