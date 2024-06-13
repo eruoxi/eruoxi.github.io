@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月14日：孤独，但不寂寞
+#### 佩姬湾灯塔，新斯科舍省，加拿大（© Pugalenthi/Getty Images）
+
+![孤独，但不寂寞](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_800x480.jpg&rf=LaDigue_800x480.jpg "孤独，但不寂寞")
+
+佩姬湾灯塔坐落在崎岖不平的花岗岩上，是新斯科舍省海岸坚毅的守护者。这座灯塔建于1914年，高15米，于1915年首次亮起，是加拿大经久不衰的海洋精神的一个载体。在这座灯塔出现之前，这里曾有一座建于1868年的木质灯塔，于1954年被飓风埃德娜摧毁了。2009年之前，灯塔的底层一直在夏季时扮演着邮局的角色，后来加拿大邮政以霉菌生长存在安全隐患为由关闭了这个邮局。这座灯塔现在已经实现了自动化，吸引着众多游客前来一睹加拿大航海历史的风采，感受海洋的魅力。
+
+佩姬湾灯塔的底层曾设有一个小型的加拿大乡村邮局，游客们在夏季时可以在这里寄送明信片和信件。每封信上都有一个灯塔形状的特殊邮戳标记。然而，加拿大邮政以霉菌生长存在安全隐患为由，于2009年11月关闭了这个灯塔邮局。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bd%a9%e5%a7%ac%e6%b9%be%e7%81%af%e5%a1%94&form=hpcapt&filters=HpDate:"20240613_1600" "Bing Wallpaper 2024 6月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240614_PeggysCove"&FORM=HPQUIZ "必应主页测验 2024 6月 14")
+[下载480](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_800x480.jpg&rf=LaDigue_800x480.jpg "佩姬湾灯塔，新斯科舍省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_1280x720.jpg&rf=LaDigue_1280x720.jpg "佩姬湾灯塔，新斯科舍省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩姬湾灯塔，新斯科舍省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_UHD.jpg&rf=LaDigue_UHD.jpg "佩姬湾灯塔，新斯科舍省，加拿大")
+
+---
 ### 06月13日：瓷砖的故事
 #### 雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒（© da-kuk/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_ZH-CN0775378262_1280x720.jpg&rf=LaDigue_1280x720.jpg "冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_ZH-CN0775378262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_ZH-CN0775378262_UHD.jpg&rf=LaDigue_UHD.jpg "冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰")
-
----
-### 05月30日：欢迎来到大沼泽地
-#### 一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国（© Jonathan Gewirtz/Tandem Stills + Motion）
-
-![欢迎来到大沼泽地](https://cn.bing.com/th?id=OHR.Everglades90th_ZH-CN9853372570_800x480.jpg&rf=LaDigue_800x480.jpg "欢迎来到大沼泽地")
-
-90年前的今天，美国通过了一项法案，一个自然瑰宝也由此诞生：大沼泽地国家公园。这个位于佛罗里达州的公园囊括了美国最大的亚热带荒野。它占地150多万英亩，园区里生活着36种受联邦保护以及濒危的野生动物，如温顺的海牛、神秘的佛罗里达美洲豹。在这里，空气中回荡着350多种鸟类的叫声，如秧鹤、食螺鸢，水域中也是生机勃勃，有各种各样的鱼类，如锯盖鱼、红鱼，还有美洲鳄的身影。除了生物多样性之外，该公园还赢得了全球的认可，被联合国教科文组织评为世界遗产、国际生物圈保护区和国际重要湿地。因此，让我们向大沼泽地国家公园致敬！愿它可以继续为我们带来惊喜，并激发我们的好奇心以及欣赏周围野生世界的兴趣。
-
-大沼泽地国家公园的部分地区是南佛罗里达州观测暗夜星空的理想场所，其中最佳观赏地点在大沼泽地偏远的南部和西部地区，例如火烈鸟区和万岛。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bd%9b%e7%bd%97%e9%87%8c%e8%be%be%e5%b7%9e%e5%a4%a7%e6%b2%bc%e6%b3%bd%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240529_1600" "Bing Wallpaper 2024 5月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240530_Everglades90th"&FORM=HPQUIZ "必应主页测验 2024 5月 30")
-[下载480](https://cn.bing.com/th?id=OHR.Everglades90th_ZH-CN9853372570_800x480.jpg&rf=LaDigue_800x480.jpg "一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.Everglades90th_ZH-CN9853372570_1280x720.jpg&rf=LaDigue_1280x720.jpg "一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.Everglades90th_ZH-CN9853372570_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.Everglades90th_ZH-CN9853372570_UHD.jpg&rf=LaDigue_UHD.jpg "一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国")
 
 ---
