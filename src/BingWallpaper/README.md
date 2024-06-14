@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月15日：有志者事竟成
+#### 在纳扎雷冲浪的冲浪者，葡萄牙（© Rui Caria/Getty Images）
+
+![有志者事竟成](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_800x480.jpg&rf=LaDigue_800x480.jpg "有志者事竟成")
+
+今天是国际冲浪日，大家都在冲浪！这项活动在庆祝冲浪的同时，也提醒人们保护海洋环境的重要性，以及要为野生动物和冲浪者保持水域的纯净。冲浪有着悠久的历史：大约在5000年前的秘鲁，人们在出海捕鱼时用芦苇船冲浪。然而，现代冲浪运动是在前殖民时期的夏威夷诞生的。在这里，人们开始站在冲浪板上冲浪取乐。历史学家认为，冲浪于1885年传入美国，当时有三位十几岁的夏威夷王子在加利福尼亚的寄宿学校放假期间，在红木冲浪板上冲浪。
+
+世界冲浪日的庆祝活动包括举办冲浪比赛、烤烧烤、放电影以及其他与冲浪有关的活动。冲浪者还会利用这一天来组织各种活动回馈环境，比如海滩清洁活动、沙丘和其他栖息地的恢复活动以及诸如游说大家维护加州冲浪休闲娱乐区、在夏威夷种植草海桐（一种开花的海滨植物）等其他活动。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%86%b2%e6%b5%aa%e8%bf%90%e5%8a%a8&form=hpcapt&filters=HpDate:"20240614_1600" "Bing Wallpaper 2024 6月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240615_NazareWave"&FORM=HPQUIZ "必应主页测验 2024 6月 15")
+[下载480](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_800x480.jpg&rf=LaDigue_800x480.jpg "在纳扎雷冲浪的冲浪者，葡萄牙")
+[下载720](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_1280x720.jpg&rf=LaDigue_1280x720.jpg "在纳扎雷冲浪的冲浪者，葡萄牙")
+[下载1080](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在纳扎雷冲浪的冲浪者，葡萄牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_UHD.jpg&rf=LaDigue_UHD.jpg "在纳扎雷冲浪的冲浪者，葡萄牙")
+
+---
 ### 06月14日：孤独，但不寂寞
 #### 佩姬湾灯塔，新斯科舍省，加拿大（© Pugalenthi/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_1280x720.jpg&rf=LaDigue_1280x720.jpg "帝王棕榈树，里约热内卢植物园，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帝王棕榈树，里约热内卢植物园，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_UHD.jpg&rf=LaDigue_UHD.jpg "帝王棕榈树，里约热内卢植物园，巴西")
-
----
-### 05月31日：绿意盎然的宜人之地
-#### 冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰（© Derek Croucher/Alamy Stock Photo）
-
-![绿意盎然的宜人之地](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_ZH-CN0775378262_800x480.jpg&rf=LaDigue_800x480.jpg "绿意盎然的宜人之地")
-
-在英国约克郡谷地国家公园里，古老的冈纳塞德村充满着英式风情的魅力和历史的气息。想象一下，当你漫步在冈纳塞德狭窄的小巷中，周围是连绵起伏的群山、郁郁葱葱的牧场和石头小屋，耳边只有斯维尔河的咆哮声，这个画面是多么的美好！该国家公园成立于1954年，占地841平方英里，有1000多个农场。该地区最具特色的景观之一是干石墙，据说山谷里的城墙长达5000多英里。这些城墙没有使用任何砂浆，却可以维持数百年之久。冈纳塞德村的名字来自古斯堪的纳维亚语“Gunnar's saetr”，意思是冈纳的山丘或牧场。从17世纪到19世纪，冈纳塞德村附近的一个山谷曾是一个繁荣的铅矿开采中心。村里的老铁匠铺和博物馆已有229年的历史，里面陈列着历史悠久的铁匠工具和采矿器具。无论您是在寻求宁静的度假胜地，还是在探索英格兰的传奇历史，冈纳赛德都将为您带来难忘的回忆。
-
-2020年底，该公园被列为国际黑暗天空保护区。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a6%e5%85%8b%e9%83%a1%e8%b0%b7%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240530_1600" "Bing Wallpaper 2024 5月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240531_YorkshireDalesNP"&FORM=HPQUIZ "必应主页测验 2024 5月 31")
-[下载480](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_ZH-CN0775378262_800x480.jpg&rf=LaDigue_800x480.jpg "冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_ZH-CN0775378262_1280x720.jpg&rf=LaDigue_1280x720.jpg "冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_ZH-CN0775378262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_ZH-CN0775378262_UHD.jpg&rf=LaDigue_UHD.jpg "冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰")
 
 ---
