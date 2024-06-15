@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月16日：这位父亲棋高一着
+#### 赤狐父子，华盛顿，美国（© Chase Dekker/Minden Pictures）
+
+![这位父亲棋高一着](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_800x480.jpg&rf=LaDigue_800x480.jpg "这位父亲棋高一着")
+
+今天是父亲节，这是一个庆祝父亲们为我们所做的一切，感恩他们照顾我们、帮助我们成长，以及讲最棒的父亲节笑话的最佳时机。动物界也有伟大的父亲，比如今天的图片中的狐狸爸爸。雌性红狐在产后需要留在洞穴里照顾幼崽，因此雄性红狐会把时间花在外出给雌性红狐送食物上。当幼崽稍大一点时，它们的父亲就会抽时间陪它们玩耍，教它们日后所需的生存技能，比如狩猎和觅食。图中的狐狸患有黑变病，这是一种导致动物颜色变深的疾病。
+
+帝企鹅爸爸孵蛋的时间长达75天。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%88%b6%e4%ba%b2%e8%8a%82&form=hpcapt&filters=HpDate:"20240615_1600" "Bing Wallpaper 2024 6月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240616_RedFoxDad"&FORM=HPQUIZ "必应主页测验 2024 6月 16")
+[下载480](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_800x480.jpg&rf=LaDigue_800x480.jpg "赤狐父子，华盛顿，美国")
+[下载720](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_1280x720.jpg&rf=LaDigue_1280x720.jpg "赤狐父子，华盛顿，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "赤狐父子，华盛顿，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_UHD.jpg&rf=LaDigue_UHD.jpg "赤狐父子，华盛顿，美国")
+
+---
 ### 06月15日：有志者事竟成
 #### 在纳扎雷冲浪的冲浪者，葡萄牙（© Rui Caria/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_1280x720.jpg&rf=LaDigue_1280x720.jpg "普卢马纳克的灯塔，阿摩尔滨海省，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普卢马纳克的灯塔，阿摩尔滨海省，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_UHD.jpg&rf=LaDigue_UHD.jpg "普卢马纳克的灯塔，阿摩尔滨海省，法国")
-
----
-### 06月01日：带你游花园
-#### 帝王棕榈树，里约热内卢植物园，巴西（© Marcia Silva de Mendonca/Getty Images）
-
-![带你游花园](https://cn.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_800x480.jpg&rf=LaDigue_800x480.jpg "带你游花园")
-
-里约热内卢植物园是巴西最早规划的植物园之一，始建于殖民时期，园内有8000多种植物，很多都是罕见的品种。这些植物大部分是在温室中繁殖培育而来的，其中一些还模仿了野生品种的自然生长环境。图中展示的是其中一条名为“皇家棕榈大道”的著名的大道，它由134棵棕榈树组成，长约750米（2460英尺），从入口通往花园。
-
-这些棕榈树都是一棵很久以前被闪电摧毁的母棕榈树的后代。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%87%8c%e7%ba%a6%e7%83%ad%e5%86%85%e5%8d%a2%e6%a4%8d%e7%89%a9%e5%9b%ad&form=hpcapt&filters=HpDate:"20240531_1600" "Bing Wallpaper 2024 6月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240601_CancaoDoExilio"&FORM=HPQUIZ "必应主页测验 2024 6月 1")
-[下载480](https://cn.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_800x480.jpg&rf=LaDigue_800x480.jpg "帝王棕榈树，里约热内卢植物园，巴西")
-[下载720](https://cn.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_1280x720.jpg&rf=LaDigue_1280x720.jpg "帝王棕榈树，里约热内卢植物园，巴西")
-[下载1080](https://cn.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帝王棕榈树，里约热内卢植物园，巴西")
-[下载UHD](https://cn.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_UHD.jpg&rf=LaDigue_UHD.jpg "帝王棕榈树，里约热内卢植物园，巴西")
 
 ---
