@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月19日：一座历史古迹
+#### 库克斯港的水塔，德国（© Andreas Vogel/Alamy）
+
+![一座历史古迹](https://cn.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_800x480.jpg&rf=LaDigue_800x480.jpg "一座历史古迹")
+
+然而，库克斯港不仅有大海和沙滩，还提供了无尽的机会让你消磨时光，享受轻松惬意的假期。你可以乘船游览，或是到沼泽地远足，还可以参观历史遗迹，比如今天图片中的水塔。它建于1897年，直到2004年一直为小镇提供饮用水。此后，它就成为最具象征意义和保护最完好的古迹之一。自2017年起，这座水塔归一个瑞士家族所有，他们在这里开设了一家咖啡馆，成功地保留了这座塔的精髓和特色。
+
+这个位于易北河入海口的小镇还拥有德国最大的渔港之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%ba%93%e5%85%8b%e6%96%af%e6%b8%af&form=hpcapt&filters=HpDate:"20240618_1600" "Bing Wallpaper 2024 6月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240619_CuxhavenTower"&FORM=HPQUIZ "必应主页测验 2024 6月 19")
+[下载480](https://cn.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_800x480.jpg&rf=LaDigue_800x480.jpg "库克斯港的水塔，德国")
+[下载720](https://cn.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_1280x720.jpg&rf=LaDigue_1280x720.jpg "库克斯港的水塔，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "库克斯港的水塔，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_UHD.jpg&rf=LaDigue_UHD.jpg "库克斯港的水塔，德国")
+
+---
 ### 06月18日：鲁冰花盛放的夏季
 #### 日出时的羽扇豆田和教堂，斯奈山半岛，冰岛（© Matteo Colombo/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_1280x720.jpg&rf=LaDigue_1280x720.jpg "马达加斯加的马苏阿拉国家公园")
 [下载1080](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马达加斯加的马苏阿拉国家公园")
 [下载UHD](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_UHD.jpg&rf=LaDigue_UHD.jpg "马达加斯加的马苏阿拉国家公园")
-
----
-### 06月04日：物以类聚
-#### 黑胸蜂虎，巴迪亚国家公园，尼泊尔（© PACO COMO/Shutterstock）
-
-![物以类聚](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_ZH-CN3514753872_800x480.jpg&rf=LaDigue_800x480.jpg "物以类聚")
-
-黑胸蜂虎可不是徒有其名，它们确实整天都在捕食带刺的昆虫。除了蜜蜂，它们还捕食黄蜂、马蜂和其他昆虫。今天的图片中的鸟儿生活在尼泊尔的巴迪亚国家公园，但在南亚许多国家，从印度、孟加拉国到斯里兰卡、泰国，都能发现它们的踪迹。它们擅长在飞行途中捕捉猎物，然后飞回栖息地，在那里拍打带刺的昆虫，把它们拍晕后，就可以安全地食用了。这些鸟儿专为捕猎而生：它们鲜艳的绿色羽毛与周围的植被相似，有助于在丛林中伪装自己，弯曲的喙可以完美且精准地捕捉昆虫，而且它们的眼睛可以独立活动，这种特殊的眼睛结构可以有效地追踪和捕捉蜜蜂。
-
-这是一种在亚热带开阔林地繁殖的鸟类，通常栖息在水边。它在高原地区最为常见。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%bb%91%e8%83%b8%e8%9c%82%e8%99%8e&form=hpcapt&filters=HpDate:"20240603_1600" "Bing Wallpaper 2024 6月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240604_ChestnutBeeEater"&FORM=HPQUIZ "必应主页测验 2024 6月 4")
-[下载480](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_ZH-CN3514753872_800x480.jpg&rf=LaDigue_800x480.jpg "黑胸蜂虎，巴迪亚国家公园，尼泊尔")
-[下载720](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_ZH-CN3514753872_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑胸蜂虎，巴迪亚国家公园，尼泊尔")
-[下载1080](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_ZH-CN3514753872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑胸蜂虎，巴迪亚国家公园，尼泊尔")
-[下载UHD](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_ZH-CN3514753872_UHD.jpg&rf=LaDigue_UHD.jpg "黑胸蜂虎，巴迪亚国家公园，尼泊尔")
 
 ---
