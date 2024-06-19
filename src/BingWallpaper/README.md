@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月20日：夏天的脚步近了
+#### 科基诺，古代巨石观测站，北马其顿（© stoimilov/Shutterstock）
+
+![夏天的脚步近了](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_800x480.jpg&rf=LaDigue_800x480.jpg "夏天的脚步近了")
+
+这种现象被称为夏至，一个北半球的地球极点最偏向太阳的时刻。今天的图片展示的是科基诺巨石天文台，它是北马其顿科基诺考古遗址的一部分。据说，科基诺天文台在夏至、冬至和春分时节标记太阳的位置。天文台由两个平台组成，其上层平台上的一块石块标明了从下层平台的座位上看夏至日出的方向。因此，来到北马其顿，千万不要错过体验这一古老的天文奇观！
+
+该遗址距今已有3800年的历史，遗址中的标记被用于研究太阳和月亮的运动以及制定阴历历法。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e5%85%b6%e9%a1%bf%e7%8e%8b%e5%9b%bd&form=hpcapt&filters=HpDate:"20240619_1600" "Bing Wallpaper 2024 6月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240620_KokinoMacedonia"&FORM=HPQUIZ "必应主页测验 2024 6月 20")
+[下载480](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_800x480.jpg&rf=LaDigue_800x480.jpg "科基诺，古代巨石观测站，北马其顿")
+[下载720](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_1280x720.jpg&rf=LaDigue_1280x720.jpg "科基诺，古代巨石观测站，北马其顿")
+[下载1080](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科基诺，古代巨石观测站，北马其顿")
+[下载UHD](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_UHD.jpg&rf=LaDigue_UHD.jpg "科基诺，古代巨石观测站，北马其顿")
+
+---
 ### 06月19日：一座历史古迹
 #### 库克斯港的水塔，德国（© Andreas Vogel/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_1280x720.jpg&rf=LaDigue_1280x720.jpg "蓬德高鸟类公园的大红鹳，卡玛格，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓬德高鸟类公园的大红鹳，卡玛格，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_UHD.jpg&rf=LaDigue_UHD.jpg "蓬德高鸟类公园的大红鹳，卡玛格，法国")
-
----
-### 06月05日：世界环境日快乐！
-#### 马达加斯加的马苏阿拉国家公园（© Dennis van de Water/Shutterstock）
-
-![世界环境日快乐！](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_800x480.jpg&rf=LaDigue_800x480.jpg "世界环境日快乐！")
-
-世界环境日快乐！1973年，首届世界环境日活动以“只有一个地球”为主题，由联合国组织举办，旨在鼓励人们保护环境。如今，全世界有143个国家庆祝这个节日。今年的主题将聚于焦土地恢复、荒漠化和抗旱能力。
-
-2024年世界环境日将在沙特阿拉伯举行，主题活动将聚焦于土地恢复、荒漠化和抗旱能力。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%8e%af%e5%a2%83%e6%97%a5&form=hpcapt&filters=HpDate:"20240604_1600" "Bing Wallpaper 2024 6月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240605_MadagascarRiver"&FORM=HPQUIZ "必应主页测验 2024 6月 5")
-[下载480](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_800x480.jpg&rf=LaDigue_800x480.jpg "马达加斯加的马苏阿拉国家公园")
-[下载720](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_1280x720.jpg&rf=LaDigue_1280x720.jpg "马达加斯加的马苏阿拉国家公园")
-[下载1080](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马达加斯加的马苏阿拉国家公园")
-[下载UHD](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_UHD.jpg&rf=LaDigue_UHD.jpg "马达加斯加的马苏阿拉国家公园")
 
 ---
