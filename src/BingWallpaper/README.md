@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月21日：清凉的湖水
+#### 蓝色水面上的渔船航拍图，郴州市，湖南省，中国（© Haitong Yu/Getty images）
+
+![清凉的湖水](https://cn.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_800x480.jpg&rf=LaDigue_800x480.jpg "清凉的湖水")
+
+夏至已至，中国的大部分地区即将进入一年中最炎热的时节，您准备好解暑降温的装备了吗？今天，邀请您欣赏的是位于湖南省郴州市的一片天蓝色的湖泊。郴州市位于湖南省的东南部地区，地处长江与珠江交汇处。境内有东江湖、苏仙岭、万华岩、莽山国家森林公园等丰富多彩的历史文化遗迹和名胜古迹。
+
+郴州东江湖地区的水质达到了中国国家一级饮用水标准。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%8f%e8%87%b3&form=hpcapt&filters=HpDate:"20240620_1600" "Bing Wallpaper 2024 6月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240621_SummerSolstice2024"&FORM=HPQUIZ "必应主页测验 2024 6月 21")
+[下载480](https://cn.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_800x480.jpg&rf=LaDigue_800x480.jpg "蓝色水面上的渔船航拍图，郴州市，湖南省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_1280x720.jpg&rf=LaDigue_1280x720.jpg "蓝色水面上的渔船航拍图，郴州市，湖南省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓝色水面上的渔船航拍图，郴州市，湖南省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_UHD.jpg&rf=LaDigue_UHD.jpg "蓝色水面上的渔船航拍图，郴州市，湖南省，中国")
+
+---
 ### 06月20日：夏天的脚步近了
 #### 科基诺，古代巨石观测站，北马其顿（© stoimilov/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_1280x720.jpg&rf=LaDigue_1280x720.jpg "座头鲸家族，荷兰港，阿拉斯加州")
 [下载1080](https://cn.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "座头鲸家族，荷兰港，阿拉斯加州")
 [下载UHD](https://cn.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_UHD.jpg&rf=LaDigue_UHD.jpg "座头鲸家族，荷兰港，阿拉斯加州")
-
----
-### 06月06日：有趣的野生动物!
-#### 蓬德高鸟类公园的大红鹳，卡玛格，法国（© Yann Guichaoua-Photos/Getty Images）
-
-![有趣的野生动物!](https://cn.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_800x480.jpg&rf=LaDigue_800x480.jpg "有趣的野生动物!")
-
-准备好在蓬德高自然保护区，被大红鹳的壮观景象迷住吧！这些雄伟的生物是该地区真正的象征，它们的粉红色羽毛来自于日常饮食中的类胡萝卜素。这些鸟类以丰年虾为食，因此它们的羽毛呈现出特有的粉红色。大红鹳的喙可以过滤水中的食物，这也是一道迷人的风景线！保护区全年都欢迎大红鹳的到来，但夏季是观赏大红鹳的理想季节。想象一下，漫步在小径上，四周鸟鸣环绕，抬眼望去又是优雅飞翔的大红鹳。这是一种不容错过的全新体验！那么，你准备好迎接一场丰富多彩的冒险了吗?
-
-以前人们认为大红鹳与美洲火烈鸟（加勒比海红鹳）是同一物种，但由于其头部、颈部、身体和喙的颜色不同，现在人们通常认为这两种火烈鸟是不同的物种。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e7%ba%a2%e9%b9%b3&form=hpcapt&filters=HpDate:"20240605_1600" "Bing Wallpaper 2024 6月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240606_CamargueFlamingos"&FORM=HPQUIZ "必应主页测验 2024 6月 6")
-[下载480](https://cn.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_800x480.jpg&rf=LaDigue_800x480.jpg "蓬德高鸟类公园的大红鹳，卡玛格，法国")
-[下载720](https://cn.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_1280x720.jpg&rf=LaDigue_1280x720.jpg "蓬德高鸟类公园的大红鹳，卡玛格，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓬德高鸟类公园的大红鹳，卡玛格，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_UHD.jpg&rf=LaDigue_UHD.jpg "蓬德高鸟类公园的大红鹳，卡玛格，法国")
 
 ---
