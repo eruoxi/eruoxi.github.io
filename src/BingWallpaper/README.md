@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月22日：迷失在迷雾之中
+#### 亚马逊雨林，巴西（© Claus Meyer/plainpicture）
+
+![迷失在迷雾之中](https://cn.bing.com/th?id=OHR.BrazilRainforest_ZH-CN6432366530_800x480.jpg&rf=LaDigue_800x480.jpg "迷失在迷雾之中")
+
+欢迎来到亚马逊雨林，这里有清新的空气，茂密的树叶，沙沙作响的树叶，还有成千上万种动物和鸟类的叫声。今天是世界雨林日，让我们向这片土地致敬。亚马逊雨林是南美洲的生态瑰宝，面积超过210万平方英里，其分支遍布九个国家，分别是巴西、秘鲁、哥伦比亚、玻利维亚、厄瓜多尔、法属圭亚那、圭亚那、苏里南和委内瑞拉。如今，亚马逊河流域有3000多万居民，但它也承载着失落文明的秘密，暗示着史前人类的存在。今年早些时候，考古学家在这里发现了一个庞大的城市网络，其历史可以追溯到2500年前。然而，亚马逊雨林的微妙平衡正受到威胁。猖獗的森林砍伐已经使其覆盖面积减少了20%，危及当地和全球气候。据估计，这片森林拥有来自16000个不同物种的3900亿棵树，由于它吸收和储存了大量的二氧化碳，其产生的冷却效应对地球来说是至关重要的。因此，让我们重新承诺，通过学习、分享和采取行动来保护这些至关重要的生态系统。因为他们的生存关系到我们的生存。
+
+亚马逊是世界上最大的热带雨林，面积超过210万平方英里。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e9%9b%a8%e6%9e%97%e6%97%a5&form=hpcapt&filters=HpDate:"20240621_1600" "Bing Wallpaper 2024 6月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240622_BrazilRainforest"&FORM=HPQUIZ "必应主页测验 2024 6月 22")
+[下载480](https://cn.bing.com/th?id=OHR.BrazilRainforest_ZH-CN6432366530_800x480.jpg&rf=LaDigue_800x480.jpg "亚马逊雨林，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.BrazilRainforest_ZH-CN6432366530_1280x720.jpg&rf=LaDigue_1280x720.jpg "亚马逊雨林，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.BrazilRainforest_ZH-CN6432366530_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亚马逊雨林，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.BrazilRainforest_ZH-CN6432366530_UHD.jpg&rf=LaDigue_UHD.jpg "亚马逊雨林，巴西")
+
+---
 ### 06月21日：清凉的湖水
 #### 蓝色水面上的渔船航拍图，郴州市，湖南省，中国（© Haitong Yu/Getty images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_ZH-CN5736211272_1280x720.jpg&rf=LaDigue_1280x720.jpg "复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_ZH-CN5736211272_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_ZH-CN5736211272_UHD.jpg&rf=LaDigue_UHD.jpg "复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国")
-
----
-### 06月07日：希望的浪潮
-#### 座头鲸家族，荷兰港，阿拉斯加州（© Jude Newkirk/Amazing Aerial Agency）
-
-![希望的浪潮](https://cn.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_800x480.jpg&rf=LaDigue_800x480.jpg "希望的浪潮")
-
-今天，在庆祝世界海洋日之际，让我们共同踏上一场海洋之旅吧！世界海洋日是为了纪念和保护世界上的海洋，提醒人们海洋在维持地球生命方面所发挥的关键性作用。毕竟，从最小的浮游生物到如图中所示的座头鲸一样巨大的鲸鱼，这些庞大的水体中充满了奇迹。由于浮游生物（微小的植物、藻类和细菌）的光合作用，海洋还产生了地球上近一半的氧气。此外，海洋还从大气中吸收大量的二氧化碳，这有助于减轻人类活动造成的气候变化影响。
-
-座头鲸通常每年迁徙路程长达16,000公里。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b5%b7%e6%b4%8b%e6%97%a5&form=hpcapt&filters=HpDate:"20240606_1600" "Bing Wallpaper 2024 6月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240607_HumpbackFamily"&FORM=HPQUIZ "必应主页测验 2024 6月 7")
-[下载480](https://cn.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_800x480.jpg&rf=LaDigue_800x480.jpg "座头鲸家族，荷兰港，阿拉斯加州")
-[下载720](https://cn.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_1280x720.jpg&rf=LaDigue_1280x720.jpg "座头鲸家族，荷兰港，阿拉斯加州")
-[下载1080](https://cn.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "座头鲸家族，荷兰港，阿拉斯加州")
-[下载UHD](https://cn.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_UHD.jpg&rf=LaDigue_UHD.jpg "座头鲸家族，荷兰港，阿拉斯加州")
 
 ---
