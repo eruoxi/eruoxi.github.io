@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月23日：漆黑的夜晚，城市的灯光
+#### 达卡环形交叉路口的鸟瞰图，孟加拉国（© Azim Khan Ronnie/Amazing Aerial Agency）
+
+![漆黑的夜晚，城市的灯光](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_800x480.jpg&rf=LaDigue_800x480.jpg "漆黑的夜晚，城市的灯光")
+
+欢迎来到孟加拉国的达卡，这里有丰富的文化、繁荣的经济和充满活力的当地人！这座恒河三角洲上的大都市拥有1020多万人口，是全球人口最稠密的城市之一。达卡曾被称为贾汗吉尔纳加尔，作为莫卧儿帝国的省会长达75年。因市内遍布着数百座优雅的宣礼塔，达卡也被称为“清真寺之城”。在这里，足球场和板球场的欢呼声弥漫在空气之中，绘有彩色花卉图案的人力车在街道上蜿蜒而行，联合国教科文组织甚至将这座城市的人力车艺术认定为人类非物质文化遗产。不过要注意，即使你乘坐的是一辆漆得很时髦的人力车，你也可能需要一段时间才能到达目的地：达卡被公认为世界上最慢的城市！无论你是乘坐人力车穿梭在小巷中，还是品尝辛辣的街头小吃，达卡一定会打动你！达卡正张开双臂，端着一杯热气腾腾的茶等着你。
+
+达卡地区自第一个千禧年以来就有人居住。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%be%be%e5%8d%a1&form=hpcapt&filters=HpDate:"20240622_1600" "Bing Wallpaper 2024 6月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240623_DhakaBangladesh"&FORM=HPQUIZ "必应主页测验 2024 6月 23")
+[下载480](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_800x480.jpg&rf=LaDigue_800x480.jpg "达卡环形交叉路口的鸟瞰图，孟加拉国")
+[下载720](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_1280x720.jpg&rf=LaDigue_1280x720.jpg "达卡环形交叉路口的鸟瞰图，孟加拉国")
+[下载1080](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "达卡环形交叉路口的鸟瞰图，孟加拉国")
+[下载UHD](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_UHD.jpg&rf=LaDigue_UHD.jpg "达卡环形交叉路口的鸟瞰图，孟加拉国")
+
+---
 ### 06月22日：迷失在迷雾之中
 #### 亚马逊雨林，巴西（© Claus Meyer/plainpicture）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_UHD.jpg&rf=LaDigue_UHD.jpg "巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙")
-
----
-### 06月08日：河流的交汇
-#### 复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国（© Patrick J. Endres/Getty Images）
-
-![河流的交汇](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_ZH-CN5736211272_800x480.jpg&rf=LaDigue_800x480.jpg "河流的交汇")
-
-加拿大活动家马克·安吉洛发起了为期三十天的“国家河流月”活动，向地球脉络致敬。今天的图片展示的是阿拉斯加复活节溪和基利克河的交汇处，真是一幅美丽的画卷啊！和这些溪流一样，人们每年也会聚集在一起，为保护这些河流出力。随着污染、栖息地破坏和过度使用等情况日益加剧，倡导保护河流比以往任何时候都更加重要。无论你是在平缓的溪流中划桨，还是在垂钓时抛下鱼线，抑或只是沿着河岸悠闲地散步，都可以通过无数种方式与这些流动的奇迹建立联系。仅美国就拥有一个由25万多条河流组成的庞大河网，这些河流在不同的地形上绵延300多万英里。你想去参观哪条河呢？
-
-北极之门最初于1978年12月1日被指定为国家纪念碑。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%9e%81%e4%b9%8b%e9%97%a8%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240607_1600" "Bing Wallpaper 2024 6月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240608_KillikRiverAlaska"&FORM=HPQUIZ "必应主页测验 2024 6月 8")
-[下载480](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_ZH-CN5736211272_800x480.jpg&rf=LaDigue_800x480.jpg "复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_ZH-CN5736211272_1280x720.jpg&rf=LaDigue_1280x720.jpg "复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_ZH-CN5736211272_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_ZH-CN5736211272_UHD.jpg&rf=LaDigue_UHD.jpg "复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国")
 
 ---
