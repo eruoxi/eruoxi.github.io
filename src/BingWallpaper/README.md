@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月24日：让人心旷神怡的美景
+#### 克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚（© Shane P. White/Minden Pictures）
+
+![让人心旷神怡的美景](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_800x480.jpg&rf=LaDigue_800x480.jpg "让人心旷神怡的美景")
+
+也许您以前见过一些颜色独特的湖泊，但是当您看到印度尼西亚的弗洛勒斯岛上的克里穆图火山口湖后，可能还是会大吃一惊。这个自然奇观拥有三个湖泊，每个湖泊都有自己的颜色和民间传说，吸引着那些寻求超凡脱俗旅行体验的游客。地球深处的火山喷口释放出蒸汽和气体，改变了这些湖泊的矿物成分，导致它们的外观颜色会发生周期性变化。克里穆图的每一个火山口湖都有自己独特的化学成分，这就是为什么它们可以同时呈现不同的颜色，并且这些颜色可以独立变化。最西边的老人湖通常呈现出蓝色调，与此同时，青年湖通常呈现出绿色调，而魔力湖则通常呈现出红色调。当地的利奥人崇敬这些湖泊，认为它们是灵魂的安息之地。如果您已经厌倦了普通的海边旅行，不妨去克里穆图探索这三个能变色的神奇湖泊。
+
+克里穆图是当地利奥人的圣地，他们相信死者的灵魂会迁徙到这里。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%bc%97%e6%b4%9b%e5%8b%92%e6%96%af%e5%b2%9b&form=hpcapt&filters=HpDate:"20240623_1600" "Bing Wallpaper 2024 6月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240624_FloresIsland"&FORM=HPQUIZ "必应主页测验 2024 6月 24")
+[下载480](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_800x480.jpg&rf=LaDigue_800x480.jpg "克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_1280x720.jpg&rf=LaDigue_1280x720.jpg "克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_UHD.jpg&rf=LaDigue_UHD.jpg "克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚")
+
+---
 ### 06月23日：漆黑的夜晚，城市的灯光
 #### 达卡环形交叉路口的鸟瞰图，孟加拉国（© Azim Khan Ronnie/Amazing Aerial Agency）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_1280x720.jpg&rf=LaDigue_1280x720.jpg "龙舟池日出，集美区，厦门，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "龙舟池日出，集美区，厦门，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_UHD.jpg&rf=LaDigue_UHD.jpg "龙舟池日出，集美区，厦门，中国")
-
----
-### 06月09日：令人窒息的寂静
-#### 巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙（© Aliaume Chapelle/Tandem Stills + Motion）
-
-![令人窒息的寂静](https://cn.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_800x480.jpg&rf=LaDigue_800x480.jpg "令人窒息的寂静")
-
-在西班牙北部风景优美的纳瓦拉地区，巴尔德纳斯雷亚尔斯生物圈保护区和自然公园如同一幅栩栩如生的超现实主义绘画吸引了无数游客。公园因其沙漠景观而出名，这些景观经过了数千年的侵蚀才得以形成，以岩石高原、峡谷以及形状奇特的粘土为特色，是地质奇观爱好者的乐园。
-
-巴尔德纳斯雷亚尔斯自然公园分为几个不同的区域，主要包括黑巴尔德纳和白巴尔德纳两个大区域，以及一些独具特色的小区域。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e5%b7%b4%e5%be%b7%e7%ba%b3%e6%96%af&form=hpcapt&filters=HpDate:"20240608_1600" "Bing Wallpaper 2024 6月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240609_BardenasBiosphere"&FORM=HPQUIZ "必应主页测验 2024 6月 9")
-[下载480](https://cn.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_800x480.jpg&rf=LaDigue_800x480.jpg "巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_UHD.jpg&rf=LaDigue_UHD.jpg "巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙")
 
 ---
