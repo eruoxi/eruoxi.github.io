@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月25日：拍出炫酷照片的好地方
+#### 火浪岩层，火焰谷州立公园，内华达州，美国（© Clint Losee/Tandem Stills + Motion）
+
+![拍出炫酷照片的好地方](https://cn.bing.com/th?id=OHR.FireWave_ZH-CN7110736577_800x480.jpg&rf=LaDigue_800x480.jpg "拍出炫酷照片的好地方")
+
+在内华达州干旱广袤的莫哈维沙漠中，坐落着壮观的火焰谷州立公园。该公园占地46000英亩，得名于火红色的阿兹台克砂岩，这是一种侏罗纪早期的地质地层，由古老的沙丘组成。公园最大的亮点是“火浪”，这是一个地质奇观，表面有着红色、粉色和白色的条纹，看上去就像冰冻的波浪。
+
+《星际迷航7：星空奇兵》中的维里迪安III行星的场景是在火焰谷州立公园取景拍摄的。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%81%ab%e7%84%b0%e8%b0%b7%e5%b7%9e%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240624_1600" "Bing Wallpaper 2024 6月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240625_FireWave"&FORM=HPQUIZ "必应主页测验 2024 6月 25")
+[下载480](https://cn.bing.com/th?id=OHR.FireWave_ZH-CN7110736577_800x480.jpg&rf=LaDigue_800x480.jpg "火浪岩层，火焰谷州立公园，内华达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.FireWave_ZH-CN7110736577_1280x720.jpg&rf=LaDigue_1280x720.jpg "火浪岩层，火焰谷州立公园，内华达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.FireWave_ZH-CN7110736577_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "火浪岩层，火焰谷州立公园，内华达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FireWave_ZH-CN7110736577_UHD.jpg&rf=LaDigue_UHD.jpg "火浪岩层，火焰谷州立公园，内华达州，美国")
+
+---
 ### 06月24日：让人心旷神怡的美景
 #### 克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚（© Shane P. White/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_1280x720.jpg&rf=LaDigue_1280x720.jpg "热带稀树草原上的南非剑羚，博茨瓦纳大草原")
 [下载1080](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "热带稀树草原上的南非剑羚，博茨瓦纳大草原")
 [下载UHD](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_UHD.jpg&rf=LaDigue_UHD.jpg "热带稀树草原上的南非剑羚，博茨瓦纳大草原")
-
----
-### 06月10日：比赛将在这里开始！
-#### 龙舟池日出，集美区，厦门，中国（© outcast85/Getty images）
-
-![比赛将在这里开始！](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_800x480.jpg&rf=LaDigue_800x480.jpg "比赛将在这里开始！")
-
-吃粽子、看龙舟赛的日子到了！这一天，人们祈福辟邪、欢庆娱乐、分享美食。别忘了，看龙舟赛也是端午节重要的节庆民俗活动之一，早在中国古代战国时期就有了。赛龙舟表达了人们对美好生活的憧憬。
-
-2011年，集美龙舟赛已升格为国家级赛事。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ab%af%e5%8d%88%e8%8a%82&form=hpcapt&filters=HpDate:"20240609_1600" "Bing Wallpaper 2024 6月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240610_DragonBoatFestival2024"&FORM=HPQUIZ "必应主页测验 2024 6月 10")
-[下载480](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_800x480.jpg&rf=LaDigue_800x480.jpg "龙舟池日出，集美区，厦门，中国")
-[下载720](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_1280x720.jpg&rf=LaDigue_1280x720.jpg "龙舟池日出，集美区，厦门，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "龙舟池日出，集美区，厦门，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_UHD.jpg&rf=LaDigue_UHD.jpg "龙舟池日出，集美区，厦门，中国")
 
 ---
