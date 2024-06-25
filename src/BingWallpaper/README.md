@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月26日：美丽的条纹小鱼！
+#### 考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚（© Constantinos Petrinos/NPL/Minden Pictures）
+
+![美丽的条纹小鱼！](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_ZH-CN7249037417_800x480.jpg&rf=LaDigue_800x480.jpg "美丽的条纹小鱼！")
+
+今天，让我们潜入印度尼西亚邦盖群岛周围的海浪深处，邂逅考氏鳍竺鲷。天竺鲷鱼可以长到3英寸，它们微小的身体能发出微微光亮，黑色的竖条纹和白边鳍则有助于它们伪装。与那些会远距离洄游的有鳍生物不同，这种小型鱼类活动范围比较小，很少远离当地的珊瑚礁。
+
+考氏鳍竺鲷是海洋中的伪装大师，它们自然地隐藏在海葵的触手之中来抵御捕食者们。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%80%83%e6%b0%8f%e9%b3%8d%e7%ab%ba%e9%b2%b7&form=hpcapt&filters=HpDate:"20240625_1600" "Bing Wallpaper 2024 6月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240626_CardinalfishAnemone"&FORM=HPQUIZ "必应主页测验 2024 6月 26")
+[下载480](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_ZH-CN7249037417_800x480.jpg&rf=LaDigue_800x480.jpg "考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_ZH-CN7249037417_1280x720.jpg&rf=LaDigue_1280x720.jpg "考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_ZH-CN7249037417_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_ZH-CN7249037417_UHD.jpg&rf=LaDigue_UHD.jpg "考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚")
+
+---
 ### 06月25日：拍出炫酷照片的好地方
 #### 火浪岩层，火焰谷州立公园，内华达州，美国（© Clint Losee/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_1280x720.jpg&rf=LaDigue_1280x720.jpg "大弯国家公园上空的银河，得克萨斯州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大弯国家公园上空的银河，得克萨斯州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_UHD.jpg&rf=LaDigue_UHD.jpg "大弯国家公园上空的银河，得克萨斯州，美国")
-
----
-### 06月11日：这些羚羊是真正的珍宝
-#### 热带稀树草原上的南非剑羚，博茨瓦纳大草原（© Karine Aigner/Tandem Stills + Motion）
-
-![这些羚羊是真正的珍宝](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_800x480.jpg&rf=LaDigue_800x480.jpg "这些羚羊是真正的珍宝")
-
-竖起犄角，昂首挺胸！今天的图片展示的是一群南非剑羚，这是一种大型羚羊，统治着非洲西南部广袤的热带稀树草原。它们原产于博茨瓦纳、纳米比亚、南非和津巴布韦的部分干旱地区，主要生活在卡拉哈里沙漠和纳米布沙漠。它们能够在极度干旱的条件下生存，可以数周不喝水，仅从吃的食物中获取水分。此外，南非剑羚是草原上的奔跑健将，最高时速可达每小时37英里。它们的显著特征是头上那对又长又直的犄角，尽管雌性剑羚和雄性剑羚都拥有这种强大的防御武器，但雌性的角往往更长更光滑，而雄性的角则更粗、基部更宽。如果有天您去到了卡拉哈里的沙地平原，一定要留意这些沙漠中的珍宝。
-
-南非剑羚的图案被印在了纳米比亚的国徽上。在奥兰治蒙德镇，当地的剑羚可以在街道上自由漫步。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%97%e9%9d%9e%e5%89%91%e7%be%9a&form=hpcapt&filters=HpDate:"20240610_1600" "Bing Wallpaper 2024 6月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240611_GemsbokBotswana"&FORM=HPQUIZ "必应主页测验 2024 6月 11")
-[下载480](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_800x480.jpg&rf=LaDigue_800x480.jpg "热带稀树草原上的南非剑羚，博茨瓦纳大草原")
-[下载720](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_1280x720.jpg&rf=LaDigue_1280x720.jpg "热带稀树草原上的南非剑羚，博茨瓦纳大草原")
-[下载1080](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "热带稀树草原上的南非剑羚，博茨瓦纳大草原")
-[下载UHD](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_UHD.jpg&rf=LaDigue_UHD.jpg "热带稀树草原上的南非剑羚，博茨瓦纳大草原")
 
 ---
