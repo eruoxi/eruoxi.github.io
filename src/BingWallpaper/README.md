@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月27日：“甜蜜的”穹顶
+#### 黄昏时分的圣母百花大教堂，佛罗伦萨，意大利（© Elena Pueyo/Getty Images）
+
+![“甜蜜的”穹顶](https://cn.bing.com/th?id=OHR.FlorenceDuomo_ZH-CN7379412586_800x480.jpg&rf=LaDigue_800x480.jpg "“甜蜜的”穹顶")
+
+欢迎来到文艺复兴的摇篮佛罗伦萨！让我们跟着圣母百花大教堂一起穿越时空吧。这座拥有红砖穹顶的哥特式建筑可不是一座普通的教堂，它拥有数百年的历史，令人叹为观止。圣母百花大教堂建在一座老教堂的旧址上，该教堂供奉着圣雷帕拉塔。1296年，在建筑师阿诺尔夫·迪坎比奥的监督下，新教堂开始动工兴建。意大利建筑师和设计师菲利波·布鲁内莱斯基设计了教堂的穹顶，这也是有史以来最大的砖砌穹顶。作为教堂最后动工的部分，这个穹顶没有使用传统的木制框架做支撑，于1436年修建完毕。圣母百花大教堂的迷人之处，不仅仅在于其美丽的外观，在教堂里面，还有许多艺术珍品等待人们的探索，如乔尔乔·瓦萨里的壁画《最后的审判》，保罗·乌切洛绘制的复杂精细的钟面。大教堂建筑群中还有洗礼堂（一座小型教堂）和乔托钟楼（一座独立的钟楼）。行走在圣母百花大教堂里，就如同行走在历史的长河中，每一次转身都能听见历史的回响。
+
+它拥有世界上最大的砖砌穹顶。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e6%af%8d%e7%99%be%e8%8a%b1%e5%a4%a7%e6%95%99%e5%a0%82&form=hpcapt&filters=HpDate:"20240626_1600" "Bing Wallpaper 2024 6月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240627_FlorenceDuomo"&FORM=HPQUIZ "必应主页测验 2024 6月 27")
+[下载480](https://cn.bing.com/th?id=OHR.FlorenceDuomo_ZH-CN7379412586_800x480.jpg&rf=LaDigue_800x480.jpg "黄昏时分的圣母百花大教堂，佛罗伦萨，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.FlorenceDuomo_ZH-CN7379412586_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄昏时分的圣母百花大教堂，佛罗伦萨，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.FlorenceDuomo_ZH-CN7379412586_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄昏时分的圣母百花大教堂，佛罗伦萨，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.FlorenceDuomo_ZH-CN7379412586_UHD.jpg&rf=LaDigue_UHD.jpg "黄昏时分的圣母百花大教堂，佛罗伦萨，意大利")
+
+---
 ### 06月26日：美丽的条纹小鱼！
 #### 考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚（© Constantinos Petrinos/NPL/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7063825008_1280x720.jpg&rf=LaDigue_1280x720.jpg "雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦")
 [下载1080](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7063825008_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦")
 [下载UHD](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7063825008_UHD.jpg&rf=LaDigue_UHD.jpg "雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦")
-
----
-### 06月12日：星光盛宴
-#### 大弯国家公园上空的银河，得克萨斯州，美国（© wisanuboonrawd/Adobe Stock）
-
-![星光盛宴](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_800x480.jpg&rf=LaDigue_800x480.jpg "星光盛宴")
-
-准备好探索大自然了吗？让我们走进西得克萨斯的大弯国家公园，今天正好是它的80周年纪念日。它于1944年6月12日成立，当时德克萨斯州将这片土地转让给了联邦政府。该公园占地超过1,250平方英里，是奇瓦瓦沙漠最大的保护区。
-
-大弯国家公园是美国最大的奇瓦瓦沙漠地形和生态保护区，对这个国家具有重要的意义。公园因格兰德河（在墨西哥称为布拉沃河）的一个大弯道而命名。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e5%bc%af%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240611_1600" "Bing Wallpaper 2024 6月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240612_BigBendMilkyWay"&FORM=HPQUIZ "必应主页测验 2024 6月 12")
-[下载480](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_800x480.jpg&rf=LaDigue_800x480.jpg "大弯国家公园上空的银河，得克萨斯州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_1280x720.jpg&rf=LaDigue_1280x720.jpg "大弯国家公园上空的银河，得克萨斯州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大弯国家公园上空的银河，得克萨斯州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_UHD.jpg&rf=LaDigue_UHD.jpg "大弯国家公园上空的银河，得克萨斯州，美国")
 
 ---
