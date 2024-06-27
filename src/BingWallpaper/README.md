@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月28日：最具加勒比海风情的海岛
+#### 诺曼底海岸的绍塞群岛，法国（© Tuul & Bruno Morandi/Getty Images）
+
+![最具加勒比海风情的海岛](https://cn.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_800x480.jpg&rf=LaDigue_800x480.jpg "最具加勒比海风情的海岛")
+
+绍塞群岛位于圣米歇尔山海湾北部，是诺曼底群岛的一部分。这是一个梦幻般的群岛，不仅有轻抚着花岗岩的海浪，还有在退潮时会展现出迷宫般的小岛和沙洲的大海。大岛是群岛中的一颗明珠，它在第一缕阳光中醒来，沐浴在温暖着石屋的柔和光线中。渔民们在准备渔船，海鸥在为日出伴奏。
+
+绍塞群岛是欧洲最大的群岛，退潮时有365个小岛，涨潮时有52个。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%bb%8d%e5%a1%9e%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20240627_1600" "Bing Wallpaper 2024 6月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240628_ChauseyIslands"&FORM=HPQUIZ "必应主页测验 2024 6月 28")
+[下载480](https://cn.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_800x480.jpg&rf=LaDigue_800x480.jpg "诺曼底海岸的绍塞群岛，法国")
+[下载720](https://cn.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_1280x720.jpg&rf=LaDigue_1280x720.jpg "诺曼底海岸的绍塞群岛，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "诺曼底海岸的绍塞群岛，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_UHD.jpg&rf=LaDigue_UHD.jpg "诺曼底海岸的绍塞群岛，法国")
+
+---
 ### 06月27日：“甜蜜的”穹顶
 #### 黄昏时分的圣母百花大教堂，佛罗伦萨，意大利（© Elena Pueyo/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_1280x720.jpg&rf=LaDigue_1280x720.jpg "佩姬湾灯塔，新斯科舍省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩姬湾灯塔，新斯科舍省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_UHD.jpg&rf=LaDigue_UHD.jpg "佩姬湾灯塔，新斯科舍省，加拿大")
-
----
-### 06月13日：瓷砖的故事
-#### 雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦（© da-kuk/Getty Images）
-
-![瓷砖的故事](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7063825008_800x480.jpg&rf=LaDigue_800x480.jpg "瓷砖的故事")
-
-准备好了吗？让我们一起踮起脚尖进入乌兹别克斯坦撒马尔罕市的雷吉斯坦广场。在波斯语中，雷吉斯坦意为“沙地”或“沙漠”，它是帖木儿帝国时期的活动中心。广场上的建筑风格体现了“帖木儿文艺复兴”的精髓，这是一个文化和知识复兴的时期，在公元14世纪至16世纪初期席卷了整个穆斯林世界。
-
-公元前329年，撒马尔罕被亚历山大大帝征服，当时它被称为马拉坎达（希腊语为Mαράκανδα）。在1220年被成吉思汗领导的蒙古人征服之前，这座城市曾先后被伊朗和突厥的统治者统治。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%92%92%e9%a9%ac%e5%b0%94%e7%bd%95&form=hpcapt&filters=HpDate:"20240612_1600" "Bing Wallpaper 2024 6月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240613_RegistanUzbekistan"&FORM=HPQUIZ "必应主页测验 2024 6月 13")
-[下载480](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7063825008_800x480.jpg&rf=LaDigue_800x480.jpg "雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦")
-[下载720](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7063825008_1280x720.jpg&rf=LaDigue_1280x720.jpg "雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦")
-[下载1080](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7063825008_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦")
-[下载UHD](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7063825008_UHD.jpg&rf=LaDigue_UHD.jpg "雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦")
 
 ---
