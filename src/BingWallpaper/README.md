@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月29日：只见树木，不见森林
+#### 宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国（© Martin Ruegner/Getty Images）
+
+![只见树木，不见森林](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_800x480.jpg&rf=LaDigue_800x480.jpg "只见树木，不见森林")
+
+在德国北部梅克伦堡-前波美拉尼亚州的宁哈根有一处独特的宝藏，名叫“幽灵森林”，它是波罗的海沿岸的一片由山毛榉、橡树和白蜡树组成的混交林。春天，神秘的树木焕发出勃勃生机，就像一个个警惕的幽灵。连绵起伏的丘陵和涛声是这一神奇景色的背景。在这里，空气中弥漫着咸咸的泥土气息，春天绽放出灿烂的光芒。参天的山毛榉树将枝条伸向天空，仿佛在庆祝时间的流逝。树叶在轻风中翩翩起舞，空气中弥漫着淡淡的神秘气息。在长满青苔的小径间，树木低声诉说着过去的故事，而海浪则唱着新生之歌。欢迎来到宁哈根的幽灵森林，春天将手指伸向大地，将灵魂包裹在无限美丽的大自然中。
+
+山毛榉可以长到40到45米高，树枝伸展的宽度几乎与树的高度相当。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b1%b1%e6%af%9b%e6%a6%89%e6%9e%97&form=hpcapt&filters=HpDate:"20240628_1600" "Bing Wallpaper 2024 6月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240629_NienhagenMecklenburg"&FORM=HPQUIZ "必应主页测验 2024 6月 29")
+[下载480](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_800x480.jpg&rf=LaDigue_800x480.jpg "宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国")
+[下载720](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_1280x720.jpg&rf=LaDigue_1280x720.jpg "宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_UHD.jpg&rf=LaDigue_UHD.jpg "宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国")
+
+---
 ### 06月28日：最具加勒比海风情的海岛
 #### 诺曼底海岸的绍塞群岛，法国（© Tuul & Bruno Morandi/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_1280x720.jpg&rf=LaDigue_1280x720.jpg "在纳扎雷冲浪的冲浪者，葡萄牙")
 [下载1080](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在纳扎雷冲浪的冲浪者，葡萄牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_UHD.jpg&rf=LaDigue_UHD.jpg "在纳扎雷冲浪的冲浪者，葡萄牙")
-
----
-### 06月14日：孤独，但不寂寞
-#### 佩姬湾灯塔，新斯科舍省，加拿大（© Pugalenthi/Getty Images）
-
-![孤独，但不寂寞](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_800x480.jpg&rf=LaDigue_800x480.jpg "孤独，但不寂寞")
-
-佩姬湾灯塔坐落在崎岖不平的花岗岩上，是新斯科舍省海岸坚毅的守护者。这座灯塔建于1914年，高15米，于1915年首次亮起，是加拿大经久不衰的海洋精神的一个载体。在这座灯塔出现之前，这里曾有一座建于1868年的木质灯塔，于1954年被飓风埃德娜摧毁了。2009年之前，灯塔的底层一直在夏季时扮演着邮局的角色，后来加拿大邮政以霉菌生长存在安全隐患为由关闭了这个邮局。这座灯塔现在已经实现了自动化，吸引着众多游客前来一睹加拿大航海历史的风采，感受海洋的魅力。
-
-佩姬湾灯塔的底层曾设有一个小型的加拿大乡村邮局，游客们在夏季时可以在这里寄送明信片和信件。每封信上都有一个灯塔形状的特殊邮戳标记。然而，加拿大邮政以霉菌生长存在安全隐患为由，于2009年11月关闭了这个灯塔邮局。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bd%a9%e5%a7%ac%e6%b9%be%e7%81%af%e5%a1%94&form=hpcapt&filters=HpDate:"20240613_1600" "Bing Wallpaper 2024 6月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240614_PeggysCove"&FORM=HPQUIZ "必应主页测验 2024 6月 14")
-[下载480](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_800x480.jpg&rf=LaDigue_800x480.jpg "佩姬湾灯塔，新斯科舍省，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_1280x720.jpg&rf=LaDigue_1280x720.jpg "佩姬湾灯塔，新斯科舍省，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩姬湾灯塔，新斯科舍省，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_UHD.jpg&rf=LaDigue_UHD.jpg "佩姬湾灯塔，新斯科舍省，加拿大")
 
 ---
