@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月30日：你不会忘记它的！
+#### 乌布寺庙的石雕,巴厘岛,印度尼西亚（© R. Schönebaum/plainpicture）
+
+![你不会忘记它的！](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_800x480.jpg&rf=LaDigue_800x480.jpg "你不会忘记它的！")
+
+在莽莽苍苍的雨林、稻田和陡峭的峡谷中，藏着印度尼西亚巴厘岛的文化中心乌布村。据说在8世纪时，一位印度教祭司来到巴厘岛，发现了一个盛产药草和植物的地方。乌布的名字就来源于“ubad”这个词，意为医药。乌布村坐落在青山绿水之间，这里印度教寺庙林立，本土的神话故事也很丰富。今天的图片上展示的神话生物是巴龙，作为精灵之王，它是一种像豹子一样的生物，还是幸运和繁荣的象征。巴龙舞是巴厘岛土生土长的舞蹈，表演时要戴上装饰好的动物面具。
+
+猴子丛林是乌布最知名的景点。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e5%8e%98%e5%b2%9b+%e4%b9%8c%e5%b8%83&form=hpcapt&filters=HpDate:"20240629_1600" "Bing Wallpaper 2024 6月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240630_UbudBali"&FORM=HPQUIZ "必应主页测验 2024 6月 30")
+[下载480](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_800x480.jpg&rf=LaDigue_800x480.jpg "乌布寺庙的石雕,巴厘岛,印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌布寺庙的石雕,巴厘岛,印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌布寺庙的石雕,巴厘岛,印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg&rf=LaDigue_UHD.jpg "乌布寺庙的石雕,巴厘岛,印度尼西亚")
+
+---
 ### 06月29日：只见树木，不见森林
 #### 宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国（© Martin Ruegner/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_1280x720.jpg&rf=LaDigue_1280x720.jpg "赤狐父子，华盛顿，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "赤狐父子，华盛顿，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_UHD.jpg&rf=LaDigue_UHD.jpg "赤狐父子，华盛顿，美国")
-
----
-### 06月15日：有志者事竟成
-#### 在纳扎雷冲浪的冲浪者，葡萄牙（© Rui Caria/Getty Images）
-
-![有志者事竟成](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_800x480.jpg&rf=LaDigue_800x480.jpg "有志者事竟成")
-
-今天是国际冲浪日，大家都在冲浪！这项活动在庆祝冲浪的同时，也提醒人们保护海洋环境的重要性，以及要为野生动物和冲浪者保持水域的纯净。冲浪有着悠久的历史：大约在5000年前的秘鲁，人们在出海捕鱼时用芦苇船冲浪。然而，现代冲浪运动是在前殖民时期的夏威夷诞生的。在这里，人们开始站在冲浪板上冲浪取乐。历史学家认为，冲浪于1885年传入美国，当时有三位十几岁的夏威夷王子在加利福尼亚的寄宿学校放假期间，在红木冲浪板上冲浪。
-
-世界冲浪日的庆祝活动包括举办冲浪比赛、烤烧烤、放电影以及其他与冲浪有关的活动。冲浪者还会利用这一天来组织各种活动回馈环境，比如海滩清洁活动、沙丘和其他栖息地的恢复活动以及诸如游说大家维护加州冲浪休闲娱乐区、在夏威夷种植草海桐（一种开花的海滨植物）等其他活动。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%86%b2%e6%b5%aa%e8%bf%90%e5%8a%a8&form=hpcapt&filters=HpDate:"20240614_1600" "Bing Wallpaper 2024 6月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240615_NazareWave"&FORM=HPQUIZ "必应主页测验 2024 6月 15")
-[下载480](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_800x480.jpg&rf=LaDigue_800x480.jpg "在纳扎雷冲浪的冲浪者，葡萄牙")
-[下载720](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_1280x720.jpg&rf=LaDigue_1280x720.jpg "在纳扎雷冲浪的冲浪者，葡萄牙")
-[下载1080](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在纳扎雷冲浪的冲浪者，葡萄牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_UHD.jpg&rf=LaDigue_UHD.jpg "在纳扎雷冲浪的冲浪者，葡萄牙")
 
 ---
