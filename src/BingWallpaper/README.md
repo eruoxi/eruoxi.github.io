@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月01日：为加拿大干杯
+#### 菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大（© davemantel/Getty Images）
+
+![为加拿大干杯](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_800x480.jpg&rf=LaDigue_800x480.jpg "为加拿大干杯")
+
+今天，加拿大迎来了国庆日。它是为了纪念1867年《英属北美条约》的通过，该条约将加拿大联邦、新不伦瑞克省和新斯科舍省这三个英属殖民地合并为加拿大自治国。在1982年之前，联邦成立纪念日一直被称为 "多米尼克日"，直到加拿大完全独立于英国议会，庆祝活动才正式更名为 "加拿大日"。
+
+菲斯加德灯塔及其姊妹站赛礁灯塔建于1859年至1860年。这两座灯塔的建造旨在为航行中的船只提供导航和警示，以方便军舰、商船驶入埃斯奎莫尔特港和维多利亚港。这些灯塔也象征着英国政府对温哥华岛的政治承诺和责任，建造它们的部分原因是为了应对北美的淘金热，特别是1858年弗雷泽河淘金热，约2.5万名美国淘金者涌入该地区。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8f%b2%e6%96%af%e5%8a%a0%e5%be%b7%e7%81%af%e5%a1%94&form=hpcapt&filters=HpDate:"20240630_1600" "Bing Wallpaper 2024 7月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240701_FisgardLighthouse"&FORM=HPQUIZ "必应主页测验 2024 7月 1")
+[下载480](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_800x480.jpg&rf=LaDigue_800x480.jpg "菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_1280x720.jpg&rf=LaDigue_1280x720.jpg "菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_UHD.jpg&rf=LaDigue_UHD.jpg "菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大")
+
+---
 ### 06月30日：你不会忘记它的！
 #### 乌布寺庙的石雕,巴厘岛,印度尼西亚（© R. Schönebaum/plainpicture）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_1280x720.jpg&rf=LaDigue_1280x720.jpg "绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加")
 [下载1080](https://cn.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加")
 [下载UHD](https://cn.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_UHD.jpg&rf=LaDigue_UHD.jpg "绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加")
-
----
-### 06月16日：这位父亲棋高一着
-#### 赤狐父子，华盛顿，美国（© Chase Dekker/Minden Pictures）
-
-![这位父亲棋高一着](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_800x480.jpg&rf=LaDigue_800x480.jpg "这位父亲棋高一着")
-
-今天是父亲节，这是一个庆祝父亲们为我们所做的一切，感恩他们照顾我们、帮助我们成长，以及讲最棒的父亲节笑话的最佳时机。动物界也有伟大的父亲，比如今天的图片中的狐狸爸爸。雌性红狐在产后需要留在洞穴里照顾幼崽，因此雄性红狐会把时间花在外出给雌性红狐送食物上。当幼崽稍大一点时，它们的父亲就会抽时间陪它们玩耍，教它们日后所需的生存技能，比如狩猎和觅食。图中的狐狸患有黑变病，这是一种导致动物颜色变深的疾病。
-
-帝企鹅爸爸孵蛋的时间长达75天。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%88%b6%e4%ba%b2%e8%8a%82&form=hpcapt&filters=HpDate:"20240615_1600" "Bing Wallpaper 2024 6月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240616_RedFoxDad"&FORM=HPQUIZ "必应主页测验 2024 6月 16")
-[下载480](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_800x480.jpg&rf=LaDigue_800x480.jpg "赤狐父子，华盛顿，美国")
-[下载720](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_1280x720.jpg&rf=LaDigue_1280x720.jpg "赤狐父子，华盛顿，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "赤狐父子，华盛顿，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_UHD.jpg&rf=LaDigue_UHD.jpg "赤狐父子，华盛顿，美国")
 
 ---
