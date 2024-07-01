@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月02日：昔日城市的“灵魂”
+#### 意大利卡，桑蒂蓬塞的一座古罗马城市，塞维利亚，安达卢西亚，西班牙（© Moses Palermo/Amazing Aerial Agency）
+
+![昔日城市的“灵魂”](https://cn.bing.com/th?id=OHR.ItalicaRuins_ZH-CN5932138207_800x480.jpg&rf=LaDigue_800x480.jpg "昔日城市的“灵魂”")
+
+公元前206年，在伊利帕战役之后，罗马将军兼政治家普布利乌斯·科尼利乌斯·西庇阿为帮助打败迦太基人的罗马老兵建造了一个定居点。该城位于瓜达尔基维尔河右岸，因居民来自意大利而被命名为“意大利卡”。这座城市是罗马人在伊比利亚半岛建立的第一个定居点，在该地区的罗马化进程中发挥了重要作用，该地区当时被称为伊斯帕尼亚，即今天的西班牙。意大利卡在建城后的几个世纪里蓬勃发展，尤其是在图拉真皇帝和哈德良皇帝统治时期。
+
+这座城市可能是皇帝狄奥多西一世及其长子阿尔卡狄乌斯（公元377年，在其父流亡期间出生于西班牙）的出生地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e6%84%8f%e5%a4%a7%e5%88%a9%e5%8d%a1&form=hpcapt&filters=HpDate:"20240701_1600" "Bing Wallpaper 2024 7月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240702_ItalicaRuins"&FORM=HPQUIZ "必应主页测验 2024 7月 2")
+[下载480](https://cn.bing.com/th?id=OHR.ItalicaRuins_ZH-CN5932138207_800x480.jpg&rf=LaDigue_800x480.jpg "意大利卡，桑蒂蓬塞的一座古罗马城市，塞维利亚，安达卢西亚，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.ItalicaRuins_ZH-CN5932138207_1280x720.jpg&rf=LaDigue_1280x720.jpg "意大利卡，桑蒂蓬塞的一座古罗马城市，塞维利亚，安达卢西亚，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.ItalicaRuins_ZH-CN5932138207_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "意大利卡，桑蒂蓬塞的一座古罗马城市，塞维利亚，安达卢西亚，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.ItalicaRuins_ZH-CN5932138207_UHD.jpg&rf=LaDigue_UHD.jpg "意大利卡，桑蒂蓬塞的一座古罗马城市，塞维利亚，安达卢西亚，西班牙")
+
+---
 ### 07月01日：为加拿大干杯
 #### 菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大（© davemantel/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的羽扇豆田和教堂，斯奈山半岛，冰岛")
 [下载1080](https://cn.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的羽扇豆田和教堂，斯奈山半岛，冰岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的羽扇豆田和教堂，斯奈山半岛，冰岛")
-
----
-### 06月17日：传播花粉
-#### 绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加（© adrian hepworth/Alamy Stock Photo）
-
-![传播花粉](https://cn.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_800x480.jpg&rf=LaDigue_800x480.jpg "传播花粉")
-
-让我们为帮助植物繁茂生长的小英雄们喝彩！“授粉者周”活动期间，我们要为这些运送花粉、帮助植物繁衍的生物而庆祝。虽然有些植物是自花授粉，或以风或水为媒介传粉，但大多数植物都是在蜜蜂、黄蜂、蝴蝶、飞蛾、鸟类（如今天图片中的绿顶辉蜂鸟），甚至蝙蝠的帮助下实现受精。非营利组织“授粉者合作伙伴”发起了“授粉者周”活动，以提高人们保护这些生物的意识。现在，世界各地的教育活动和其他项目也加入了这一庆祝活动。我们应该关心授粉者吗？当然应该！从水果、蔬菜到坚果、巧克力和甘蔗，我们饮食中的很多成分都是由这些授粉生物带来的。
-
-我们每吃三口食物，就有一口是授粉生物的功劳。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%bb%bf%e9%a1%b6%e8%be%89%e8%9c%82%e9%b8%9f&form=hpcapt&filters=HpDate:"20240616_1600" "Bing Wallpaper 2024 6月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240617_HummingThistle"&FORM=HPQUIZ "必应主页测验 2024 6月 17")
-[下载480](https://cn.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_800x480.jpg&rf=LaDigue_800x480.jpg "绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加")
-[下载720](https://cn.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_1280x720.jpg&rf=LaDigue_1280x720.jpg "绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加")
-[下载1080](https://cn.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加")
-[下载UHD](https://cn.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_UHD.jpg&rf=LaDigue_UHD.jpg "绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加")
 
 ---
