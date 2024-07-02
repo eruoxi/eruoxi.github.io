@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月03日：等等，谁在那儿？
+#### 猫鼬家族（© anetapics/Shutterstock）
+
+![等等，谁在那儿？](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_800x480.jpg&rf=LaDigue_800x480.jpg "等等，谁在那儿？")
+
+大家一起说，“哈库纳·马塔塔”！今天是“世界猫鼬日”，一个庆祝这些以直立姿势而闻名的可爱动物的节日。但不要被它们的名字所迷惑，猫鼬并不是猫。它们是獴科的小型食肉动物，原产于非洲西南部的沙漠和草原。猫鼬是高度社会化的动物，生活在被称为“暴徒”的紧密群体中，最多可由30只个体组成。这些群体通力合作，一起觅食、相互梳理毛发、照看孩子，并轮流担任哨兵，监视捕食者。猫鼬在洞穴中过夜，并躲避中午的炎热——它们喜欢午休。
+
+猫鼬因同类暴力致死的比例高达19%，是哺乳动物中占比最高的。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8c%ab%e9%bc%ac&form=hpcapt&filters=HpDate:"20240702_1600" "Bing Wallpaper 2024 7月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240703_MeerkatManor"&FORM=HPQUIZ "必应主页测验 2024 7月 3")
+[下载480](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_800x480.jpg&rf=LaDigue_800x480.jpg "猫鼬家族")
+[下载720](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_1280x720.jpg&rf=LaDigue_1280x720.jpg "猫鼬家族")
+[下载1080](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "猫鼬家族")
+[下载UHD](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_UHD.jpg&rf=LaDigue_UHD.jpg "猫鼬家族")
+
+---
 ### 07月02日：昔日城市的“灵魂”
 #### 意大利卡，桑蒂蓬塞的一座古罗马城市，塞维利亚，安达卢西亚，西班牙（© Moses Palermo/Amazing Aerial Agency）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_1280x720.jpg&rf=LaDigue_1280x720.jpg "库克斯港的水塔，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "库克斯港的水塔，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_UHD.jpg&rf=LaDigue_UHD.jpg "库克斯港的水塔，德国")
-
----
-### 06月18日：鲁冰花盛放的夏季
-#### 日出时的羽扇豆田和教堂，斯奈山半岛，冰岛（© Matteo Colombo/Getty Images）
-
-![鲁冰花盛放的夏季](https://cn.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_800x480.jpg&rf=LaDigue_800x480.jpg "鲁冰花盛放的夏季")
-
-随着冰岛春夏交替，崎岖的地貌呈现出五彩缤纷的景象。由于羽扇豆的根部具有土壤粘结性，冰岛在20世纪40年代引进了羽扇豆，用于控制水土流失。羽扇豆在含沙和含盐的土壤中生长茂盛，繁殖迅速，给乡村涂上了绚丽的紫色、粉色和蓝色。虽然有些人认为羽扇豆是一种入侵物种，会对本地植物造成威胁，但它深受当地人和游客的喜爱，被视为夏季景观的一大亮点。在雷克雅未克和斯科加福斯瀑布附近等多个地区都能看到羽扇豆花田。这些花儿也盛开在通往斯奈山半岛海利桑杜尔教堂的道路两旁，如今天的图片所示。
-
-斯奈山半岛是冬天观赏北极光的绝佳之地，因为在这里，你很容易找到远离光污染的地方。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e5%a5%88%e5%b1%b1%e5%8d%8a%e5%b2%9b&form=hpcapt&filters=HpDate:"20240617_1600" "Bing Wallpaper 2024 6月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240618_LupinIceland"&FORM=HPQUIZ "必应主页测验 2024 6月 18")
-[下载480](https://cn.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_800x480.jpg&rf=LaDigue_800x480.jpg "日出时的羽扇豆田和教堂，斯奈山半岛，冰岛")
-[下载720](https://cn.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的羽扇豆田和教堂，斯奈山半岛，冰岛")
-[下载1080](https://cn.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的羽扇豆田和教堂，斯奈山半岛，冰岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的羽扇豆田和教堂，斯奈山半岛，冰岛")
 
 ---
