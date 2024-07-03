@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月04日：风景如画的白色小镇
+#### 扎哈拉德拉谢拉，安达卢西亚，西班牙（© Francesco Carovillano/eStock Photo）
+
+![风景如画的白色小镇](https://cn.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_800x480.jpg&rf=LaDigue_800x480.jpg "风景如画的白色小镇")
+
+扎哈拉德拉谢拉是西班牙加的斯省的一个白色小镇，它位于格拉萨莱马山脉自然公园内，毗邻扎哈拉-埃尔加斯托水库，在小镇的高处可以欣赏到水库绿松石般的壮丽景色。它还有美丽的鹅卵石街道网，保留着格拉纳达王国时期的布局。这片景观形成于安达卢斯时期，是王国之间商业交流和政治会议的战略要地。它悠久的历史和向现代城镇的演变可以追溯到16世纪。
+
+由于绝大多数建筑都是白色的，该地被认为是“白色小镇”之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%89%8e%e5%93%88%e6%8b%89%e5%be%b7%e6%8b%89%e8%b0%a2%e6%8b%89&form=hpcapt&filters=HpDate:"20240703_1600" "Bing Wallpaper 2024 7月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240704_ZaharaDeLaSierra"&FORM=HPQUIZ "必应主页测验 2024 7月 4")
+[下载480](https://cn.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_800x480.jpg&rf=LaDigue_800x480.jpg "扎哈拉德拉谢拉，安达卢西亚，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_1280x720.jpg&rf=LaDigue_1280x720.jpg "扎哈拉德拉谢拉，安达卢西亚，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "扎哈拉德拉谢拉，安达卢西亚，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_UHD.jpg&rf=LaDigue_UHD.jpg "扎哈拉德拉谢拉，安达卢西亚，西班牙")
+
+---
 ### 07月03日：等等，谁在那儿？
 #### 猫鼬家族（© anetapics/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_1280x720.jpg&rf=LaDigue_1280x720.jpg "科基诺，古代巨石观测站，北马其顿")
 [下载1080](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科基诺，古代巨石观测站，北马其顿")
 [下载UHD](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_UHD.jpg&rf=LaDigue_UHD.jpg "科基诺，古代巨石观测站，北马其顿")
-
----
-### 06月19日：一座历史古迹
-#### 库克斯港的水塔，德国（© Andreas Vogel/Alamy）
-
-![一座历史古迹](https://cn.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_800x480.jpg&rf=LaDigue_800x480.jpg "一座历史古迹")
-
-然而，库克斯港不仅有大海和沙滩，还提供了无尽的机会让你消磨时光，享受轻松惬意的假期。你可以乘船游览，或是到沼泽地远足，还可以参观历史遗迹，比如今天图片中的水塔。它建于1897年，直到2004年一直为小镇提供饮用水。此后，它就成为最具象征意义和保护最完好的古迹之一。自2017年起，这座水塔归一个瑞士家族所有，他们在这里开设了一家咖啡馆，成功地保留了这座塔的精髓和特色。
-
-这个位于易北河入海口的小镇还拥有德国最大的渔港之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%ba%93%e5%85%8b%e6%96%af%e6%b8%af&form=hpcapt&filters=HpDate:"20240618_1600" "Bing Wallpaper 2024 6月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240619_CuxhavenTower"&FORM=HPQUIZ "必应主页测验 2024 6月 19")
-[下载480](https://cn.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_800x480.jpg&rf=LaDigue_800x480.jpg "库克斯港的水塔，德国")
-[下载720](https://cn.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_1280x720.jpg&rf=LaDigue_1280x720.jpg "库克斯港的水塔，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "库克斯港的水塔，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_UHD.jpg&rf=LaDigue_UHD.jpg "库克斯港的水塔，德国")
 
 ---
