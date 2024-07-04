@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月05日：邂逅美丽海岸线
+#### 丹翠雨林的诺亚海滩，昆士兰州，澳大利亚（© bjeayes/Getty Images）
+
+![邂逅美丽海岸线](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_800x480.jpg&rf=LaDigue_800x480.jpg "邂逅美丽海岸线")
+
+欢迎来到这片绿色与无尽蔚蓝交汇的土地！诺亚海滩位于澳大利亚昆士兰州北海岸，是丹翠雨林茂密枝叶环绕下的一片净土。这片海滩毗邻珊瑚海，作为两种截然不同的生态系统，热带雨林与蔚蓝海水却能完美融合。丹翠国家公园这个僻静区域拥有一片柔软的金色沙滩，国家公园内有参天大树、茂盛的蕨类植物以及该地区特有的其他植物物种。这片热带雨林是澳大利亚同类雨林中面积最大的，据说已经存在了1.8亿年，是世界上最古老的热带雨林。这里有一个保护区，是稀有和濒危物种的家园，比如双垂鹤鸵和班尼特树袋鼠，在地球上其他地方找不到。无论是在森林树冠下探险，还是享受大海的涛声，这个地方都能满足你！
+
+对于徒步旅行爱好者来说，丹翠雨林是世界上最具异国情调和挑战性的荒野体验之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%b9%e7%bf%a0%e9%9b%a8%e6%9e%97&form=hpcapt&filters=HpDate:"20240704_1600" "Bing Wallpaper 2024 7月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240705_NoahBeach"&FORM=HPQUIZ "必应主页测验 2024 7月 5")
+[下载480](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_800x480.jpg&rf=LaDigue_800x480.jpg "丹翠雨林的诺亚海滩，昆士兰州，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_1280x720.jpg&rf=LaDigue_1280x720.jpg "丹翠雨林的诺亚海滩，昆士兰州，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丹翠雨林的诺亚海滩，昆士兰州，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg&rf=LaDigue_UHD.jpg "丹翠雨林的诺亚海滩，昆士兰州，澳大利亚")
+
+---
 ### 07月04日：风景如画的白色小镇
 #### 扎哈拉德拉谢拉，安达卢西亚，西班牙（© Francesco Carovillano/eStock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_1280x720.jpg&rf=LaDigue_1280x720.jpg "蓝色水面上的渔船航拍图，郴州市，湖南省，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓝色水面上的渔船航拍图，郴州市，湖南省，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_UHD.jpg&rf=LaDigue_UHD.jpg "蓝色水面上的渔船航拍图，郴州市，湖南省，中国")
-
----
-### 06月20日：夏天的脚步近了
-#### 科基诺，古代巨石观测站，北马其顿（© stoimilov/Shutterstock）
-
-![夏天的脚步近了](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_800x480.jpg&rf=LaDigue_800x480.jpg "夏天的脚步近了")
-
-这种现象被称为夏至，一个北半球的地球极点最偏向太阳的时刻。今天的图片展示的是科基诺巨石天文台，它是北马其顿科基诺考古遗址的一部分。据说，科基诺天文台在夏至、冬至和春分时节标记太阳的位置。天文台由两个平台组成，其上层平台上的一块石块标明了从下层平台的座位上看夏至日出的方向。因此，来到北马其顿，千万不要错过体验这一古老的天文奇观！
-
-该遗址距今已有3800年的历史，遗址中的标记被用于研究太阳和月亮的运动以及制定阴历历法。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e5%85%b6%e9%a1%bf%e7%8e%8b%e5%9b%bd&form=hpcapt&filters=HpDate:"20240619_1600" "Bing Wallpaper 2024 6月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240620_KokinoMacedonia"&FORM=HPQUIZ "必应主页测验 2024 6月 20")
-[下载480](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_800x480.jpg&rf=LaDigue_800x480.jpg "科基诺，古代巨石观测站，北马其顿")
-[下载720](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_1280x720.jpg&rf=LaDigue_1280x720.jpg "科基诺，古代巨石观测站，北马其顿")
-[下载1080](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科基诺，古代巨石观测站，北马其顿")
-[下载UHD](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_UHD.jpg&rf=LaDigue_UHD.jpg "科基诺，古代巨石观测站，北马其顿")
 
 ---
