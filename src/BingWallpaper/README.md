@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月07日：阳光下的梯田
+#### 越南安沛省木仓寨的水稻梯田（© Kiatanan Sugsompian/Getty Images）
+
+![阳光下的梯田](https://cn.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_800x480.jpg&rf=LaDigue_800x480.jpg "阳光下的梯田")
+
+在越南安沛省连绵起伏的群山之中，木仓寨地区的水稻梯田是农耕文化的精华所在。苗族是一个以其丰富的文化和充满活力的服装而闻名的少数民族，世世代代精心雕刻着这些层叠的山丘。19世纪，苗族从中国迁徙到越南北部。他们擅长轮作（一种农业系统），在这种农业系统中，土地被暂时耕种，种植的作物包括小米、水稻、玉米和大麦，随后再恢复其自然植被。
+
+据说一年四季都适合观赏木仓寨，因为这里的梯田全年都很美。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%9c%a8%e4%bb%93%e5%af%a8%e6%a2%af%e7%94%b0&form=hpcapt&filters=HpDate:"20240706_1600" "Bing Wallpaper 2024 7月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240707_YenBaiTerraces"&FORM=HPQUIZ "必应主页测验 2024 7月 7")
+[下载480](https://cn.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_800x480.jpg&rf=LaDigue_800x480.jpg "越南安沛省木仓寨的水稻梯田")
+[下载720](https://cn.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_1280x720.jpg&rf=LaDigue_1280x720.jpg "越南安沛省木仓寨的水稻梯田")
+[下载1080](https://cn.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "越南安沛省木仓寨的水稻梯田")
+[下载UHD](https://cn.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_UHD.jpg&rf=LaDigue_UHD.jpg "越南安沛省木仓寨的水稻梯田")
+
+---
 ### 07月06日：让我们扬帆起航！
 #### 从康威河眺望康威城堡，威尔士（© David Chapman/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_1280x720.jpg&rf=LaDigue_1280x720.jpg "达卡环形交叉路口的鸟瞰图，孟加拉国")
 [下载1080](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "达卡环形交叉路口的鸟瞰图，孟加拉国")
 [下载UHD](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_UHD.jpg&rf=LaDigue_UHD.jpg "达卡环形交叉路口的鸟瞰图，孟加拉国")
-
----
-### 06月22日：迷失在迷雾之中
-#### 亚马逊雨林，巴西（© Claus Meyer/plainpicture）
-
-![迷失在迷雾之中](https://cn.bing.com/th?id=OHR.BrazilRainforest_ZH-CN6432366530_800x480.jpg&rf=LaDigue_800x480.jpg "迷失在迷雾之中")
-
-欢迎来到亚马逊雨林，这里有清新的空气，茂密的树叶，沙沙作响的树叶，还有成千上万种动物和鸟类的叫声。今天是世界雨林日，让我们向这片土地致敬。亚马逊雨林是南美洲的生态瑰宝，面积超过210万平方英里，其分支遍布九个国家，分别是巴西、秘鲁、哥伦比亚、玻利维亚、厄瓜多尔、法属圭亚那、圭亚那、苏里南和委内瑞拉。如今，亚马逊河流域有3000多万居民，但它也承载着失落文明的秘密，暗示着史前人类的存在。今年早些时候，考古学家在这里发现了一个庞大的城市网络，其历史可以追溯到2500年前。然而，亚马逊雨林的微妙平衡正受到威胁。猖獗的森林砍伐已经使其覆盖面积减少了20%，危及当地和全球气候。据估计，这片森林拥有来自16000个不同物种的3900亿棵树，由于它吸收和储存了大量的二氧化碳，其产生的冷却效应对地球来说是至关重要的。因此，让我们重新承诺，通过学习、分享和采取行动来保护这些至关重要的生态系统。因为他们的生存关系到我们的生存。
-
-亚马逊是世界上最大的热带雨林，面积超过210万平方英里。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e9%9b%a8%e6%9e%97%e6%97%a5&form=hpcapt&filters=HpDate:"20240621_1600" "Bing Wallpaper 2024 6月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240622_BrazilRainforest"&FORM=HPQUIZ "必应主页测验 2024 6月 22")
-[下载480](https://cn.bing.com/th?id=OHR.BrazilRainforest_ZH-CN6432366530_800x480.jpg&rf=LaDigue_800x480.jpg "亚马逊雨林，巴西")
-[下载720](https://cn.bing.com/th?id=OHR.BrazilRainforest_ZH-CN6432366530_1280x720.jpg&rf=LaDigue_1280x720.jpg "亚马逊雨林，巴西")
-[下载1080](https://cn.bing.com/th?id=OHR.BrazilRainforest_ZH-CN6432366530_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亚马逊雨林，巴西")
-[下载UHD](https://cn.bing.com/th?id=OHR.BrazilRainforest_ZH-CN6432366530_UHD.jpg&rf=LaDigue_UHD.jpg "亚马逊雨林，巴西")
 
 ---
