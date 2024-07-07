@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月08日：一剂抗氧化剂
+#### 野生蓝莓（© Baac3nes/Getty Images）
+
+![一剂抗氧化剂](https://cn.bing.com/th?id=OHR.NorwayBlueberries_ZH-CN7643097235_800x480.jpg&rf=LaDigue_800x480.jpg "一剂抗氧化剂")
+
+今天，空气中弥漫着一种酸酸甜甜的水果香味，这是美国人心爱的蓝莓，这一天也是美国蓝莓日。野生蓝莓有13000多年的历史，而人工栽培的蓝莓直到20世纪初才出现。当时，农业专家伊丽莎白·科尔曼·怀特和植物学家弗雷德里克·科维尔在新泽西州合作培育出第一个栽培品种，蓝莓才开始被人工种植。
+
+蓝莓实际上不是蓝色的，而是深紫色。深紫色是花青素的颜色，而蓝莓中恰好含有大量的花青素。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%93%9d%e8%8e%93&form=hpcapt&filters=HpDate:"20240707_1600" "Bing Wallpaper 2024 7月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240708_NorwayBlueberries"&FORM=HPQUIZ "必应主页测验 2024 7月 8")
+[下载480](https://cn.bing.com/th?id=OHR.NorwayBlueberries_ZH-CN7643097235_800x480.jpg&rf=LaDigue_800x480.jpg "野生蓝莓")
+[下载720](https://cn.bing.com/th?id=OHR.NorwayBlueberries_ZH-CN7643097235_1280x720.jpg&rf=LaDigue_1280x720.jpg "野生蓝莓")
+[下载1080](https://cn.bing.com/th?id=OHR.NorwayBlueberries_ZH-CN7643097235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "野生蓝莓")
+[下载UHD](https://cn.bing.com/th?id=OHR.NorwayBlueberries_ZH-CN7643097235_UHD.jpg&rf=LaDigue_UHD.jpg "野生蓝莓")
+
+---
 ### 07月07日：阳光下的梯田
 #### 越南安沛省木仓寨的水稻梯田（© Kiatanan Sugsompian/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_1280x720.jpg&rf=LaDigue_1280x720.jpg "克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_UHD.jpg&rf=LaDigue_UHD.jpg "克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚")
-
----
-### 06月23日：漆黑的夜晚，城市的灯光
-#### 达卡环形交叉路口的鸟瞰图，孟加拉国（© Azim Khan Ronnie/Amazing Aerial Agency）
-
-![漆黑的夜晚，城市的灯光](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_800x480.jpg&rf=LaDigue_800x480.jpg "漆黑的夜晚，城市的灯光")
-
-欢迎来到孟加拉国的达卡，这里有丰富的文化、繁荣的经济和充满活力的当地人！这座恒河三角洲上的大都市拥有1020多万人口，是全球人口最稠密的城市之一。达卡曾被称为贾汗吉尔纳加尔，作为莫卧儿帝国的省会长达75年。因市内遍布着数百座优雅的宣礼塔，达卡也被称为“清真寺之城”。在这里，足球场和板球场的欢呼声弥漫在空气之中，绘有彩色花卉图案的人力车在街道上蜿蜒而行，联合国教科文组织甚至将这座城市的人力车艺术认定为人类非物质文化遗产。不过要注意，即使你乘坐的是一辆漆得很时髦的人力车，你也可能需要一段时间才能到达目的地：达卡被公认为世界上最慢的城市！无论你是乘坐人力车穿梭在小巷中，还是品尝辛辣的街头小吃，达卡一定会打动你！达卡正张开双臂，端着一杯热气腾腾的茶等着你。
-
-达卡地区自第一个千禧年以来就有人居住。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%be%be%e5%8d%a1&form=hpcapt&filters=HpDate:"20240622_1600" "Bing Wallpaper 2024 6月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240623_DhakaBangladesh"&FORM=HPQUIZ "必应主页测验 2024 6月 23")
-[下载480](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_800x480.jpg&rf=LaDigue_800x480.jpg "达卡环形交叉路口的鸟瞰图，孟加拉国")
-[下载720](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_1280x720.jpg&rf=LaDigue_1280x720.jpg "达卡环形交叉路口的鸟瞰图，孟加拉国")
-[下载1080](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "达卡环形交叉路口的鸟瞰图，孟加拉国")
-[下载UHD](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_UHD.jpg&rf=LaDigue_UHD.jpg "达卡环形交叉路口的鸟瞰图，孟加拉国")
 
 ---
