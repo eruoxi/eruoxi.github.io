@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月10日：感恩的巨嘴鸟
+#### 领簇舌巨嘴鸟，哥斯达黎加（© Juan Carlos Vindas/Getty Images）
+
+![感恩的巨嘴鸟](https://cn.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_800x480.jpg&rf=LaDigue_800x480.jpg "感恩的巨嘴鸟")
+
+眼前这只有着明亮的眼睛、超大号的嘴巴以及黑黄相间的羽毛的鸟儿名叫领簇舌巨嘴鸟，它是一种生活在热带的迷人鸟类。作为巨嘴鸟家族的成员之一，领簇舌巨嘴鸟因其颈后的红色“项圈”而得名，它们通常栖息在森林里，从墨西哥到哥斯达黎加（今天的照片就是在那里拍摄的），再到哥伦比亚和委内瑞拉，都能见到它们的身影。领簇舌巨嘴鸟体长约38厘米至41厘米，体重却只有175克至249克左右，如此比例，堪称大自然的奇迹。它们会成群结队地行动，组成6至15只的鸟群在空中盘旋，晚上则依偎在树洞里休息。其叫声和外表一样独特，既能发出尖锐的鸣叫，又能发出奇特又柔和的叫声，有时又是咕噜咕噜的声音，甚至是粗糙的嗄叫。森林砍伐和狩猎对这些鸟儿造成了一定的威胁，幸运的是，它们目前仍属于无危物种。领簇舌巨嘴鸟穿着色彩斑斓的外衣，穿梭于林间，是森林中最亮丽的风景线。
+
+与其他巨嘴鸟一样，领簇舌巨嘴鸟有着鲜艳的斑纹和大嘴。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a2%86%e7%b0%87%e8%88%8c%e5%b7%a8%e5%98%b4%e9%b8%9f&form=hpcapt&filters=HpDate:"20240709_1600" "Bing Wallpaper 2024 7月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240710_CollaredAracari"&FORM=HPQUIZ "必应主页测验 2024 7月 10")
+[下载480](https://cn.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_800x480.jpg&rf=LaDigue_800x480.jpg "领簇舌巨嘴鸟，哥斯达黎加")
+[下载720](https://cn.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_1280x720.jpg&rf=LaDigue_1280x720.jpg "领簇舌巨嘴鸟，哥斯达黎加")
+[下载1080](https://cn.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "领簇舌巨嘴鸟，哥斯达黎加")
+[下载UHD](https://cn.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_UHD.jpg&rf=LaDigue_UHD.jpg "领簇舌巨嘴鸟，哥斯达黎加")
+
+---
 ### 07月09日：千仞高壁
 #### 阿根廷拉里奥哈省塔兰帕亚国家公园（© Gonzalo Azumendi/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_ZH-CN7249037417_1280x720.jpg&rf=LaDigue_1280x720.jpg "考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_ZH-CN7249037417_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_ZH-CN7249037417_UHD.jpg&rf=LaDigue_UHD.jpg "考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚")
-
----
-### 06月25日：拍出炫酷照片的好地方
-#### 火浪岩层，火焰谷州立公园，内华达州，美国（© Clint Losee/Tandem Stills + Motion）
-
-![拍出炫酷照片的好地方](https://cn.bing.com/th?id=OHR.FireWave_ZH-CN7110736577_800x480.jpg&rf=LaDigue_800x480.jpg "拍出炫酷照片的好地方")
-
-在内华达州干旱广袤的莫哈维沙漠中，坐落着壮观的火焰谷州立公园。该公园占地46000英亩，得名于火红色的阿兹台克砂岩，这是一种侏罗纪早期的地质地层，由古老的沙丘组成。公园最大的亮点是“火浪”，这是一个地质奇观，表面有着红色、粉色和白色的条纹，看上去就像冰冻的波浪。
-
-《星际迷航7：星空奇兵》中的维里迪安III行星的场景是在火焰谷州立公园取景拍摄的。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%81%ab%e7%84%b0%e8%b0%b7%e5%b7%9e%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240624_1600" "Bing Wallpaper 2024 6月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240625_FireWave"&FORM=HPQUIZ "必应主页测验 2024 6月 25")
-[下载480](https://cn.bing.com/th?id=OHR.FireWave_ZH-CN7110736577_800x480.jpg&rf=LaDigue_800x480.jpg "火浪岩层，火焰谷州立公园，内华达州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.FireWave_ZH-CN7110736577_1280x720.jpg&rf=LaDigue_1280x720.jpg "火浪岩层，火焰谷州立公园，内华达州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.FireWave_ZH-CN7110736577_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "火浪岩层，火焰谷州立公园，内华达州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.FireWave_ZH-CN7110736577_UHD.jpg&rf=LaDigue_UHD.jpg "火浪岩层，火焰谷州立公园，内华达州，美国")
 
 ---
