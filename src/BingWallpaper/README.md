@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月11日：你是81亿人口中的一员
+#### 甘吉，西西里岛，意大利（© Andrea Caruso/Amazing Aerial Agency）
+
+![你是81亿人口中的一员](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_800x480.jpg&rf=LaDigue_800x480.jpg "你是81亿人口中的一员")
+
+1987年，世界人口达到50亿大关，这是一个意义非凡的里程碑，由此产生了一个国际性的纪念日：五十亿人口日。伴随着急速增长的人口，一些相关的问题也亟待解决。因此，在1989年，联合国设立了世界人口日。如今，这不仅仅是一个纪念日，更是一个行动的呼吁。人口过剩导致地球的资源越来越少，敦促人类去正视那些紧迫的问题，如计划生育、垃圾和污染的增加、基础设施的缺失等等。当大都市里的人在和“过度拥挤”做斗争时，小地方的人口却在不断流失，导致人口分布失衡。一个典型的案例就是意大利西西里岛的甘吉镇，即今天图片展示的地方。在20世纪50年代，这个村庄大约有1.6万居民，如今，其人口只有6000多一点。为了振兴小镇，吸引人们的关注，甘吉镇将废弃的房屋赠送给那些有需要且愿意修复房屋的人。
+
+甘吉和迪甘吉是西西里岛人常见的姓氏。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e4%ba%ba%e5%8f%a3%e6%97%a5&form=hpcapt&filters=HpDate:"20240710_1600" "Bing Wallpaper 2024 7月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240711_GangiSicily"&FORM=HPQUIZ "必应主页测验 2024 7月 11")
+[下载480](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_800x480.jpg&rf=LaDigue_800x480.jpg "甘吉，西西里岛，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_1280x720.jpg&rf=LaDigue_1280x720.jpg "甘吉，西西里岛，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "甘吉，西西里岛，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_UHD.jpg&rf=LaDigue_UHD.jpg "甘吉，西西里岛，意大利")
+
+---
 ### 07月10日：感恩的巨嘴鸟
 #### 领簇舌巨嘴鸟，哥斯达黎加（© Juan Carlos Vindas/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FlorenceDuomo_ZH-CN7379412586_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄昏时分的圣母百花大教堂，佛罗伦萨，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.FlorenceDuomo_ZH-CN7379412586_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄昏时分的圣母百花大教堂，佛罗伦萨，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.FlorenceDuomo_ZH-CN7379412586_UHD.jpg&rf=LaDigue_UHD.jpg "黄昏时分的圣母百花大教堂，佛罗伦萨，意大利")
-
----
-### 06月26日：美丽的条纹小鱼！
-#### 考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚（© Constantinos Petrinos/NPL/Minden Pictures）
-
-![美丽的条纹小鱼！](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_ZH-CN7249037417_800x480.jpg&rf=LaDigue_800x480.jpg "美丽的条纹小鱼！")
-
-今天，让我们潜入印度尼西亚邦盖群岛周围的海浪深处，邂逅考氏鳍竺鲷。天竺鲷鱼可以长到3英寸，它们微小的身体能发出微微光亮，黑色的竖条纹和白边鳍则有助于它们伪装。与那些会远距离洄游的有鳍生物不同，这种小型鱼类活动范围比较小，很少远离当地的珊瑚礁。
-
-考氏鳍竺鲷是海洋中的伪装大师，它们自然地隐藏在海葵的触手之中来抵御捕食者们。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%80%83%e6%b0%8f%e9%b3%8d%e7%ab%ba%e9%b2%b7&form=hpcapt&filters=HpDate:"20240625_1600" "Bing Wallpaper 2024 6月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240626_CardinalfishAnemone"&FORM=HPQUIZ "必应主页测验 2024 6月 26")
-[下载480](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_ZH-CN7249037417_800x480.jpg&rf=LaDigue_800x480.jpg "考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚")
-[下载720](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_ZH-CN7249037417_1280x720.jpg&rf=LaDigue_1280x720.jpg "考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_ZH-CN7249037417_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_ZH-CN7249037417_UHD.jpg&rf=LaDigue_UHD.jpg "考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚")
 
 ---
