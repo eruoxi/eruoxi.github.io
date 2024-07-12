@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月13日：快看，这是沉积岩哦
+#### 卡帕多西亚的童话烟囱和窑洞，土耳其（© Storm Is Me/Shutterstock）
+
+![快看，这是沉积岩哦](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_800x480.jpg&rf=LaDigue_800x480.jpg "快看，这是沉积岩哦")
+
+今天是国际岩石日，我们要讨论的是花岗岩、石灰石和板岩。岩石有三种类型：火成岩是由凝固的岩浆和熔岩形成的；沉积岩是由沉积颗粒（如沙子）层层堆积而成；变质岩是其他岩石受热和受压后形成的。
+
+古代火山爆发后，厚厚的火山灰覆盖了这一地区，凝固成一种几十米厚的软岩石，被称为凝灰岩。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e5%b8%95%e5%a4%9a%e8%a5%bf%e4%ba%9a&form=hpcapt&filters=HpDate:"20240712_1600" "Bing Wallpaper 2024 7月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240713_CappadociaRocks"&FORM=HPQUIZ "必应主页测验 2024 7月 13")
+[下载480](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_800x480.jpg&rf=LaDigue_800x480.jpg "卡帕多西亚的童话烟囱和窑洞，土耳其")
+[下载720](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡帕多西亚的童话烟囱和窑洞，土耳其")
+[下载1080](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡帕多西亚的童话烟囱和窑洞，土耳其")
+[下载UHD](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_UHD.jpg&rf=LaDigue_UHD.jpg "卡帕多西亚的童话烟囱和窑洞，土耳其")
+
+---
 ### 07月12日：风雨无阻
 #### 雷尼尔山国家公园的野花，华盛顿州，美国（© RomanKhomlyak/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_1280x720.jpg&rf=LaDigue_1280x720.jpg "宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_UHD.jpg&rf=LaDigue_UHD.jpg "宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国")
-
----
-### 06月28日：最具加勒比海风情的海岛
-#### 诺曼底海岸的绍塞群岛，法国（© Tuul & Bruno Morandi/Getty Images）
-
-![最具加勒比海风情的海岛](https://cn.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_800x480.jpg&rf=LaDigue_800x480.jpg "最具加勒比海风情的海岛")
-
-绍塞群岛位于圣米歇尔山海湾北部，是诺曼底群岛的一部分。这是一个梦幻般的群岛，不仅有轻抚着花岗岩的海浪，还有在退潮时会展现出迷宫般的小岛和沙洲的大海。大岛是群岛中的一颗明珠，它在第一缕阳光中醒来，沐浴在温暖着石屋的柔和光线中。渔民们在准备渔船，海鸥在为日出伴奏。
-
-绍塞群岛是欧洲最大的群岛，退潮时有365个小岛，涨潮时有52个。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%bb%8d%e5%a1%9e%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20240627_1600" "Bing Wallpaper 2024 6月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240628_ChauseyIslands"&FORM=HPQUIZ "必应主页测验 2024 6月 28")
-[下载480](https://cn.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_800x480.jpg&rf=LaDigue_800x480.jpg "诺曼底海岸的绍塞群岛，法国")
-[下载720](https://cn.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_1280x720.jpg&rf=LaDigue_1280x720.jpg "诺曼底海岸的绍塞群岛，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "诺曼底海岸的绍塞群岛，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_UHD.jpg&rf=LaDigue_UHD.jpg "诺曼底海岸的绍塞群岛，法国")
 
 ---
