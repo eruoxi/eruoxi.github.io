@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月14日：鲨鱼保护日
+#### 女王花园群岛的镰形真鲨，古巴（© Christian Vizl/Tandem Stills + Motion）
+
+![鲨鱼保护日](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_800x480.jpg&rf=LaDigue_800x480.jpg "鲨鱼保护日")
+
+准备好冒险了吗？今天，让我们一起潜入海洋，庆祝鲨鱼保护日。这些被误解的捕食者已经在七大洋中遨游了数千年。第一批鲨鱼大约在4.39亿年前进化而来，比恐龙的出现还要早2亿年。如今，鲨鱼的种类已超过500种，其中三分之一已濒临灭绝。多年来，鲨鱼一直被认为对人类有害，它们还因鱼皮、鱼鳍和鱼肉而被猎杀。但这种情况正在开始改变。世界各地的许多组织都在努力改变人们的态度，帮助人们认识到鲨鱼在海洋生活中扮演的重要角色，以及如何保护它们。
+
+丝鲨是好奇心强且好斗的捕食者，主要以硬骨鱼类为食。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%b2%a8%e9%b1%bc&form=hpcapt&filters=HpDate:"20240713_1600" "Bing Wallpaper 2024 7月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240714_SilkyShark"&FORM=HPQUIZ "必应主页测验 2024 7月 14")
+[下载480](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_800x480.jpg&rf=LaDigue_800x480.jpg "女王花园群岛的镰形真鲨，古巴")
+[下载720](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_1280x720.jpg&rf=LaDigue_1280x720.jpg "女王花园群岛的镰形真鲨，古巴")
+[下载1080](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "女王花园群岛的镰形真鲨，古巴")
+[下载UHD](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_UHD.jpg&rf=LaDigue_UHD.jpg "女王花园群岛的镰形真鲨，古巴")
+
+---
 ### 07月13日：快看，这是沉积岩哦
 #### 卡帕多西亚的童话烟囱和窑洞，土耳其（© Storm Is Me/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌布寺庙的石雕,巴厘岛,印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌布寺庙的石雕,巴厘岛,印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg&rf=LaDigue_UHD.jpg "乌布寺庙的石雕,巴厘岛,印度尼西亚")
-
----
-### 06月29日：只见树木，不见森林
-#### 宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国（© Martin Ruegner/Getty Images）
-
-![只见树木，不见森林](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_800x480.jpg&rf=LaDigue_800x480.jpg "只见树木，不见森林")
-
-在德国北部梅克伦堡-前波美拉尼亚州的宁哈根有一处独特的宝藏，名叫“幽灵森林”，它是波罗的海沿岸的一片由山毛榉、橡树和白蜡树组成的混交林。春天，神秘的树木焕发出勃勃生机，就像一个个警惕的幽灵。连绵起伏的丘陵和涛声是这一神奇景色的背景。在这里，空气中弥漫着咸咸的泥土气息，春天绽放出灿烂的光芒。参天的山毛榉树将枝条伸向天空，仿佛在庆祝时间的流逝。树叶在轻风中翩翩起舞，空气中弥漫着淡淡的神秘气息。在长满青苔的小径间，树木低声诉说着过去的故事，而海浪则唱着新生之歌。欢迎来到宁哈根的幽灵森林，春天将手指伸向大地，将灵魂包裹在无限美丽的大自然中。
-
-山毛榉可以长到40到45米高，树枝伸展的宽度几乎与树的高度相当。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b1%b1%e6%af%9b%e6%a6%89%e6%9e%97&form=hpcapt&filters=HpDate:"20240628_1600" "Bing Wallpaper 2024 6月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240629_NienhagenMecklenburg"&FORM=HPQUIZ "必应主页测验 2024 6月 29")
-[下载480](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_800x480.jpg&rf=LaDigue_800x480.jpg "宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国")
-[下载720](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_1280x720.jpg&rf=LaDigue_1280x720.jpg "宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_UHD.jpg&rf=LaDigue_UHD.jpg "宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国")
 
 ---
