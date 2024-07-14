@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月15日：宁静惬意的海滨风光
+#### 立石公园，神奈川县，日本（© blew_s/Shutterstock）
+
+![宁静惬意的海滨风光](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_800x480.jpg&rf=LaDigue_800x480.jpg "宁静惬意的海滨风光")
+
+今天的图片带我们来到横须贺市的立石公园，在这里可以欣赏相模湾和富士山的壮丽景色，是庆祝海洋日的理想场所。立石公园是一个风景优美的海滨公园，历史上曾激发过艺术家和摄影师的创作灵感。
+
+该公园以立石海岸线的美丽景色而闻名，远处的富士山能尽收眼底。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%97%a5%e6%9c%ac%e7%ab%8b%e7%9f%b3%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240714_1600" "Bing Wallpaper 2024 7月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240715_TateishiPark"&FORM=HPQUIZ "必应主页测验 2024 7月 15")
+[下载480](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_800x480.jpg&rf=LaDigue_800x480.jpg "立石公园，神奈川县，日本")
+[下载720](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_1280x720.jpg&rf=LaDigue_1280x720.jpg "立石公园，神奈川县，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "立石公园，神奈川县，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_UHD.jpg&rf=LaDigue_UHD.jpg "立石公园，神奈川县，日本")
+
+---
 ### 07月14日：鲨鱼保护日
 #### 女王花园群岛的镰形真鲨，古巴（© Christian Vizl/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_1280x720.jpg&rf=LaDigue_1280x720.jpg "菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_UHD.jpg&rf=LaDigue_UHD.jpg "菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大")
-
----
-### 06月30日：你不会忘记它的！
-#### 乌布寺庙的石雕,巴厘岛,印度尼西亚（© R. Schönebaum/plainpicture）
-
-![你不会忘记它的！](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_800x480.jpg&rf=LaDigue_800x480.jpg "你不会忘记它的！")
-
-在莽莽苍苍的雨林、稻田和陡峭的峡谷中，藏着印度尼西亚巴厘岛的文化中心乌布村。据说在8世纪时，一位印度教祭司来到巴厘岛，发现了一个盛产药草和植物的地方。乌布的名字就来源于“ubad”这个词，意为医药。乌布村坐落在青山绿水之间，这里印度教寺庙林立，本土的神话故事也很丰富。今天的图片上展示的神话生物是巴龙，作为精灵之王，它是一种像豹子一样的生物，还是幸运和繁荣的象征。巴龙舞是巴厘岛土生土长的舞蹈，表演时要戴上装饰好的动物面具。
-
-猴子丛林是乌布最知名的景点。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e5%8e%98%e5%b2%9b+%e4%b9%8c%e5%b8%83&form=hpcapt&filters=HpDate:"20240629_1600" "Bing Wallpaper 2024 6月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240630_UbudBali"&FORM=HPQUIZ "必应主页测验 2024 6月 30")
-[下载480](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_800x480.jpg&rf=LaDigue_800x480.jpg "乌布寺庙的石雕,巴厘岛,印度尼西亚")
-[下载720](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌布寺庙的石雕,巴厘岛,印度尼西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌布寺庙的石雕,巴厘岛,印度尼西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg&rf=LaDigue_UHD.jpg "乌布寺庙的石雕,巴厘岛,印度尼西亚")
 
 ---
