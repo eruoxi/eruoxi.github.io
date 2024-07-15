@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月16日：挖掘过去
+#### 斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰（© Paul Williams - FunkyStock/Getty Images）
+
+![挖掘过去](https://cn.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_800x480.jpg&rf=LaDigue_800x480.jpg "挖掘过去")
+
+说起节日，考古可能不是人们首先想到的，但7月13日至28日举办的英国考古节将改变这一现状。自1990年创办以来，英国考古节已发展成一个为期两周的活动。从9月到7月的巧妙转变让考古迷们更容易探索夏季挖掘工作和各种文物奇迹。今年的主题是“考古与社区”，邀请英国各地的考古爱好者参加由遗产组织、地方协会和热心人士组织的一系列现场和虚拟活动。想象一下，站在苏格兰奥克尼群岛斯卡拉布雷古老的石屋中（如图所示），这是5000多年前，新石器时代的定居者繁衍生息的地方。这座史前奇迹因1850年的一场暴风雨而暴露，因其惊人的保存能力而被誉为“苏格兰庞贝古城”，它比巨石阵甚至大金字塔还要古老。因此，拿起你的小铲子，准备深入挖掘传奇的历史故事吧。谁知道你会发现什么呢？
+
+斯卡拉布雷的房屋拥有坚固的石板结构，这些房屋还使用了一种类似于粘土的材料，这种材料由生活垃圾（如骨头、壳、谷物等）混合而成，既有助于隔热，又能防潮。因此，斯卡拉布雷既是新石器时代高超工艺的绝佳典范，也是新石器时代村庄的杰出代表。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e5%8d%a1%e6%8b%89%e5%b8%83%e9%9b%b7&form=hpcapt&filters=HpDate:"20240715_1600" "Bing Wallpaper 2024 7月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240716_AncientOrkney"&FORM=HPQUIZ "必应主页测验 2024 7月 16")
+[下载480](https://cn.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_800x480.jpg&rf=LaDigue_800x480.jpg "斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰")
+[下载720](https://cn.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_UHD.jpg&rf=LaDigue_UHD.jpg "斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰")
+
+---
 ### 07月15日：宁静惬意的海滨风光
 #### 立石公园，神奈川县，日本（© blew_s/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ItalicaRuins_ZH-CN5932138207_1280x720.jpg&rf=LaDigue_1280x720.jpg "意大利卡，桑蒂蓬塞的一座古罗马城市，塞维利亚，安达卢西亚，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.ItalicaRuins_ZH-CN5932138207_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "意大利卡，桑蒂蓬塞的一座古罗马城市，塞维利亚，安达卢西亚，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.ItalicaRuins_ZH-CN5932138207_UHD.jpg&rf=LaDigue_UHD.jpg "意大利卡，桑蒂蓬塞的一座古罗马城市，塞维利亚，安达卢西亚，西班牙")
-
----
-### 07月01日：为加拿大干杯
-#### 菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大（© davemantel/Getty Images）
-
-![为加拿大干杯](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_800x480.jpg&rf=LaDigue_800x480.jpg "为加拿大干杯")
-
-今天，加拿大迎来了国庆日。它是为了纪念1867年《英属北美条约》的通过，该条约将加拿大联邦、新不伦瑞克省和新斯科舍省这三个英属殖民地合并为加拿大自治国。在1982年之前，联邦成立纪念日一直被称为 "多米尼克日"，直到加拿大完全独立于英国议会，庆祝活动才正式更名为 "加拿大日"。
-
-菲斯加德灯塔及其姊妹站赛礁灯塔建于1859年至1860年。这两座灯塔的建造旨在为航行中的船只提供导航和警示，以方便军舰、商船驶入埃斯奎莫尔特港和维多利亚港。这些灯塔也象征着英国政府对温哥华岛的政治承诺和责任，建造它们的部分原因是为了应对北美的淘金热，特别是1858年弗雷泽河淘金热，约2.5万名美国淘金者涌入该地区。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8f%b2%e6%96%af%e5%8a%a0%e5%be%b7%e7%81%af%e5%a1%94&form=hpcapt&filters=HpDate:"20240630_1600" "Bing Wallpaper 2024 7月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240701_FisgardLighthouse"&FORM=HPQUIZ "必应主页测验 2024 7月 1")
-[下载480](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_800x480.jpg&rf=LaDigue_800x480.jpg "菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_1280x720.jpg&rf=LaDigue_1280x720.jpg "菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_UHD.jpg&rf=LaDigue_UHD.jpg "菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大")
 
 ---
