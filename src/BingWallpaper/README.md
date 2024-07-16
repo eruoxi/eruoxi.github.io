@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月17日：高耸入云的历史建筑
+#### 德国中世纪城市罗滕堡（© kanuman/Getty Images）
+
+![高耸入云的历史建筑](https://cn.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_800x480.jpg&rf=LaDigue_800x480.jpg "高耸入云的历史建筑")
+
+看到这张图，你的脑海中是否浮现出了“童话”这个词？欢迎来到陶伯河畔的罗滕堡，或称“陶伯河上的红色要塞”，这里每个鹅卵石铺就的角落都散发着中世纪的魅力。在中世纪，这座巴伐利亚州的城墙小镇曾是一座自治城市，拥有6000名居民，是当时神圣罗马帝国的第二大城市。17世纪，罗滕堡的发展速度有所放缓，但仍保留了其原有的特色。图为城堡大门，它是在1356年罗滕堡城堡被地震摧毁后修建的。城堡大门内有一扇“针眼”门，其设计目的是在夜间主门关闭时作为进出城堡的唯一通道。但罗滕堡的魔力并不仅限于城墙，从维尔茨堡到富森的浪漫之路全长290英里，覆盖了巴伐利亚城堡林立的山谷。回程时，可以去凯特·沃尔法特圣诞村，这里是节日爱好者的梦想之地。所以，城堡迷们，来一场中世纪的探险吧。
+
+在中世纪，当柏林和慕尼黑还只是路边的荒地时，罗滕堡已成为德国第二大城市，人口多达6000人。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%be%b7%e5%9b%bd%e7%bd%97%e6%bb%95%e5%a0%a1&form=hpcapt&filters=HpDate:"20240716_1600" "Bing Wallpaper 2024 7月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240717_MedievalRothenburg"&FORM=HPQUIZ "必应主页测验 2024 7月 17")
+[下载480](https://cn.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_800x480.jpg&rf=LaDigue_800x480.jpg "德国中世纪城市罗滕堡")
+[下载720](https://cn.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_1280x720.jpg&rf=LaDigue_1280x720.jpg "德国中世纪城市罗滕堡")
+[下载1080](https://cn.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "德国中世纪城市罗滕堡")
+[下载UHD](https://cn.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_UHD.jpg&rf=LaDigue_UHD.jpg "德国中世纪城市罗滕堡")
+
+---
 ### 07月16日：挖掘过去
 #### 斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰（© Paul Williams - FunkyStock/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_1280x720.jpg&rf=LaDigue_1280x720.jpg "猫鼬家族")
 [下载1080](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "猫鼬家族")
 [下载UHD](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_UHD.jpg&rf=LaDigue_UHD.jpg "猫鼬家族")
-
----
-### 07月02日：昔日城市的“灵魂”
-#### 意大利卡，桑蒂蓬塞的一座古罗马城市，塞维利亚，安达卢西亚，西班牙（© Moses Palermo/Amazing Aerial Agency）
-
-![昔日城市的“灵魂”](https://cn.bing.com/th?id=OHR.ItalicaRuins_ZH-CN5932138207_800x480.jpg&rf=LaDigue_800x480.jpg "昔日城市的“灵魂”")
-
-公元前206年，在伊利帕战役之后，罗马将军兼政治家普布利乌斯·科尼利乌斯·西庇阿为帮助打败迦太基人的罗马老兵建造了一个定居点。该城位于瓜达尔基维尔河右岸，因居民来自意大利而被命名为“意大利卡”。这座城市是罗马人在伊比利亚半岛建立的第一个定居点，在该地区的罗马化进程中发挥了重要作用，该地区当时被称为伊斯帕尼亚，即今天的西班牙。意大利卡在建城后的几个世纪里蓬勃发展，尤其是在图拉真皇帝和哈德良皇帝统治时期。
-
-这座城市可能是皇帝狄奥多西一世及其长子阿尔卡狄乌斯（公元377年，在其父流亡期间出生于西班牙）的出生地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e6%84%8f%e5%a4%a7%e5%88%a9%e5%8d%a1&form=hpcapt&filters=HpDate:"20240701_1600" "Bing Wallpaper 2024 7月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240702_ItalicaRuins"&FORM=HPQUIZ "必应主页测验 2024 7月 2")
-[下载480](https://cn.bing.com/th?id=OHR.ItalicaRuins_ZH-CN5932138207_800x480.jpg&rf=LaDigue_800x480.jpg "意大利卡，桑蒂蓬塞的一座古罗马城市，塞维利亚，安达卢西亚，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.ItalicaRuins_ZH-CN5932138207_1280x720.jpg&rf=LaDigue_1280x720.jpg "意大利卡，桑蒂蓬塞的一座古罗马城市，塞维利亚，安达卢西亚，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.ItalicaRuins_ZH-CN5932138207_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "意大利卡，桑蒂蓬塞的一座古罗马城市，塞维利亚，安达卢西亚，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.ItalicaRuins_ZH-CN5932138207_UHD.jpg&rf=LaDigue_UHD.jpg "意大利卡，桑蒂蓬塞的一座古罗马城市，塞维利亚，安达卢西亚，西班牙")
 
 ---
