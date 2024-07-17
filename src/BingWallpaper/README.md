@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月18日：意义深远
+#### Coral reef in the Indian Ocean, Mayotte, France（© Gabriel Barathieu/Minden Pictures）
+
+![意义深远](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_800x480.jpg&rf=LaDigue_800x480.jpg "意义深远")
+
+盛开的柱状珊瑚、绿色的海龟和五颜六色的珊瑚鱼，欢迎来到珊瑚礁这个欣欣向荣的水下世界。从7月15日到21日，珊瑚礁保护意识周是向他们致敬的最佳时机。珊瑚礁是由被称为珊瑚虫的微小海洋生物形成的，珊瑚虫创造了巨大的群落，为各种海洋物种提供了家园。当我们把注意力转向它们的美丽和益处的同时，认识到潜在的威胁（气候变化、污染和有害的人类活动）也至关重要。
+
+大多数珊瑚礁在温暖、浅水、清澈、阳光充足、激荡的水中生长得最好。珊瑚礁最早出现于4.85亿年前的早奥陶纪初期，取代了寒武纪的微生物和海绵珊瑚礁。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8f%8a%e7%91%9a%e7%a4%81%e4%bf%9d%e6%8a%a4%e6%84%8f%e8%af%86%e5%91%a8&form=hpcapt&filters=HpDate:"20240717_1600" "Bing Wallpaper 2024 7月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240718_MayotteCoral"&FORM=HPQUIZ "必应主页测验 2024 7月 18")
+[下载480](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_800x480.jpg&rf=LaDigue_800x480.jpg "Coral reef in the Indian Ocean, Mayotte, France")
+[下载720](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_1280x720.jpg&rf=LaDigue_1280x720.jpg "Coral reef in the Indian Ocean, Mayotte, France")
+[下载1080](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Coral reef in the Indian Ocean, Mayotte, France")
+[下载UHD](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_UHD.jpg&rf=LaDigue_UHD.jpg "Coral reef in the Indian Ocean, Mayotte, France")
+
+---
 ### 07月17日：高耸入云的历史建筑
 #### 德国中世纪城市罗滕堡（© kanuman/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_1280x720.jpg&rf=LaDigue_1280x720.jpg "扎哈拉德拉谢拉，安达卢西亚，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "扎哈拉德拉谢拉，安达卢西亚，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_UHD.jpg&rf=LaDigue_UHD.jpg "扎哈拉德拉谢拉，安达卢西亚，西班牙")
-
----
-### 07月03日：等等，谁在那儿？
-#### 猫鼬家族（© anetapics/Shutterstock）
-
-![等等，谁在那儿？](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_800x480.jpg&rf=LaDigue_800x480.jpg "等等，谁在那儿？")
-
-大家一起说，“哈库纳·马塔塔”！今天是“世界猫鼬日”，一个庆祝这些以直立姿势而闻名的可爱动物的节日。但不要被它们的名字所迷惑，猫鼬并不是猫。它们是獴科的小型食肉动物，原产于非洲西南部的沙漠和草原。猫鼬是高度社会化的动物，生活在被称为“暴徒”的紧密群体中，最多可由30只个体组成。这些群体通力合作，一起觅食、相互梳理毛发、照看孩子，并轮流担任哨兵，监视捕食者。猫鼬在洞穴中过夜，并躲避中午的炎热——它们喜欢午休。
-
-猫鼬因同类暴力致死的比例高达19%，是哺乳动物中占比最高的。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8c%ab%e9%bc%ac&form=hpcapt&filters=HpDate:"20240702_1600" "Bing Wallpaper 2024 7月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240703_MeerkatManor"&FORM=HPQUIZ "必应主页测验 2024 7月 3")
-[下载480](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_800x480.jpg&rf=LaDigue_800x480.jpg "猫鼬家族")
-[下载720](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_1280x720.jpg&rf=LaDigue_1280x720.jpg "猫鼬家族")
-[下载1080](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "猫鼬家族")
-[下载UHD](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_UHD.jpg&rf=LaDigue_UHD.jpg "猫鼬家族")
 
 ---
