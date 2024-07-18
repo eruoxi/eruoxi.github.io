@@ -1,6 +1,23 @@
 ## Bing Wallpaper(最近15天)
+### 07月19日：巧妙的伪装
+#### 河岸上的一只年轻美洲虎，潘塔纳尔，巴西（© Tambako the Jaguar/Getty Images）
+
+![巧妙的伪装](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_800x480.jpg&rf=LaDigue_800x480.jpg "巧妙的伪装")
+
+请看今天的图片中的野生动物：美洲虎！它是美洲最大的猫科动物，在这里可以看到它在巴西潘塔纳尔的美丽身影。美洲虎大约在200万年前从欧亚大陆经白令海峡迁徙到美洲。如今，美洲虎栖息在从美国西南部林地到阿根廷北部雨林的各种栖息地。
+
+现代美洲虎的祖先很可能是在早更新世时期通过曾经横跨白令海峡的陆桥从欧亚大陆进入美洲的。如今，美洲虎的活动范围从美国西南部横跨墨西哥和中美洲大部分地区、亚马逊雨林，向南延伸到巴拉圭和阿根廷北部。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e6%b4%b2%e8%99%8e&form=hpcapt&filters=HpDate:"20240718_1600" "Bing Wallpaper 2024 7月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240719_YoungJaguar"&FORM=HPQUIZ "必应主页测验 2024 7月 19")
+[下载480](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_800x480.jpg&rf=LaDigue_800x480.jpg "河岸上的一只年轻美洲虎，潘塔纳尔，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_1280x720.jpg&rf=LaDigue_1280x720.jpg "河岸上的一只年轻美洲虎，潘塔纳尔，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "河岸上的一只年轻美洲虎，潘塔纳尔，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_UHD.jpg&rf=LaDigue_UHD.jpg "河岸上的一只年轻美洲虎，潘塔纳尔，巴西")
+
+---
 ### 07月18日：意义深远
-#### Coral reef in the Indian Ocean, Mayotte, France（© Gabriel Barathieu/Minden Pictures）
+#### 印度洋的珊瑚礁，马约特岛，法国（© Gabriel Barathieu/Minden Pictures）
 
 ![意义深远](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_800x480.jpg&rf=LaDigue_800x480.jpg "意义深远")
 
@@ -10,10 +27,10 @@
 
 [Bing搜索](https://cn.bing.com/search?q=%e7%8f%8a%e7%91%9a%e7%a4%81%e4%bf%9d%e6%8a%a4%e6%84%8f%e8%af%86%e5%91%a8&form=hpcapt&filters=HpDate:"20240717_1600" "Bing Wallpaper 2024 7月 18")
 [必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240718_MayotteCoral"&FORM=HPQUIZ "必应主页测验 2024 7月 18")
-[下载480](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_800x480.jpg&rf=LaDigue_800x480.jpg "Coral reef in the Indian Ocean, Mayotte, France")
-[下载720](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_1280x720.jpg&rf=LaDigue_1280x720.jpg "Coral reef in the Indian Ocean, Mayotte, France")
-[下载1080](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Coral reef in the Indian Ocean, Mayotte, France")
-[下载UHD](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_UHD.jpg&rf=LaDigue_UHD.jpg "Coral reef in the Indian Ocean, Mayotte, France")
+[下载480](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_800x480.jpg&rf=LaDigue_800x480.jpg "印度洋的珊瑚礁，马约特岛，法国")
+[下载720](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_1280x720.jpg&rf=LaDigue_1280x720.jpg "印度洋的珊瑚礁，马约特岛，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印度洋的珊瑚礁，马约特岛，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_UHD.jpg&rf=LaDigue_UHD.jpg "印度洋的珊瑚礁，马约特岛，法国")
 
 ---
 ### 07月17日：高耸入云的历史建筑
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_1280x720.jpg&rf=LaDigue_1280x720.jpg "丹翠雨林的诺亚海滩，昆士兰州，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丹翠雨林的诺亚海滩，昆士兰州，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg&rf=LaDigue_UHD.jpg "丹翠雨林的诺亚海滩，昆士兰州，澳大利亚")
-
----
-### 07月04日：风景如画的白色小镇
-#### 扎哈拉德拉谢拉，安达卢西亚，西班牙（© Francesco Carovillano/eStock Photo）
-
-![风景如画的白色小镇](https://cn.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_800x480.jpg&rf=LaDigue_800x480.jpg "风景如画的白色小镇")
-
-扎哈拉德拉谢拉是西班牙加的斯省的一个白色小镇，它位于格拉萨莱马山脉自然公园内，毗邻扎哈拉-埃尔加斯托水库，在小镇的高处可以欣赏到水库绿松石般的壮丽景色。它还有美丽的鹅卵石街道网，保留着格拉纳达王国时期的布局。这片景观形成于安达卢斯时期，是王国之间商业交流和政治会议的战略要地。它悠久的历史和向现代城镇的演变可以追溯到16世纪。
-
-由于绝大多数建筑都是白色的，该地被认为是“白色小镇”之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%89%8e%e5%93%88%e6%8b%89%e5%be%b7%e6%8b%89%e8%b0%a2%e6%8b%89&form=hpcapt&filters=HpDate:"20240703_1600" "Bing Wallpaper 2024 7月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240704_ZaharaDeLaSierra"&FORM=HPQUIZ "必应主页测验 2024 7月 4")
-[下载480](https://cn.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_800x480.jpg&rf=LaDigue_800x480.jpg "扎哈拉德拉谢拉，安达卢西亚，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_1280x720.jpg&rf=LaDigue_1280x720.jpg "扎哈拉德拉谢拉，安达卢西亚，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "扎哈拉德拉谢拉，安达卢西亚，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_UHD.jpg&rf=LaDigue_UHD.jpg "扎哈拉德拉谢拉，安达卢西亚，西班牙")
 
 ---
