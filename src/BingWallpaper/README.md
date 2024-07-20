@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月21日：香料岛之旅
+#### 肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚（© Lubos Paukeje/Alamy Stock Photo）
+
+![香料岛之旅](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_800x480.jpg&rf=LaDigue_800x480.jpg "香料岛之旅")
+
+肯杜瓦村位于东非海岸的桑给巴尔群岛，这是坦桑尼亚的一个半自治区。历史上，这个宁静的小村庄在岛上的渔业中扮演着一个不大不小的角色，传统的木船（也被称为单桅帆船）在水面上划出了一道道印记，述说着这段历史。通过当地的单桅帆船制作者，人们可以欣赏到村庄代代相传的手工艺，船只经由工匠的巧手用古老的技术打造而成，代表了这个村庄坚韧的精神。如果深入当地，您还会发现繁茂的香料农场，那里的空气弥漫着肉豆蔻和黑胡椒的香味。在这里，您还能品尝到传统的斯瓦希里菜肴，如特色烤肉、椰子酱烤鱼。当来自海洋和陆地的馈赠与香料融为一体，美味就此诞生。日落时分，篝火闪烁，岛上的人们随着塔拉布音乐（一种融合了非洲、阿拉伯和印度特色的音乐）欢快起舞。这就是桑给巴尔，美食、美景、音乐等各种“生活调味品”都应有尽有。
+
+肯杜瓦海滩与桑给巴尔的大多数海滩不同，它不受强烈潮汐变化的影响。在这里，您不必在退潮时走很远的路才能达到海边，如果您想整天闲逛和游泳，这里就是您的理想海滩。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a1%91%e7%bb%99%e5%b7%b4%e5%b0%94&form=hpcapt&filters=HpDate:"20240720_1600" "Bing Wallpaper 2024 7月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240721_ZanzibarBoats"&FORM=HPQUIZ "必应主页测验 2024 7月 21")
+[下载480](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_800x480.jpg&rf=LaDigue_800x480.jpg "肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_1280x720.jpg&rf=LaDigue_1280x720.jpg "肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_UHD.jpg&rf=LaDigue_UHD.jpg "肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚")
+
+---
 ### 07月20日：到月亮上去
 #### 月球（© Victor Blum/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_1280x720.jpg&rf=LaDigue_1280x720.jpg "越南安沛省木仓寨的水稻梯田")
 [下载1080](https://cn.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "越南安沛省木仓寨的水稻梯田")
 [下载UHD](https://cn.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_UHD.jpg&rf=LaDigue_UHD.jpg "越南安沛省木仓寨的水稻梯田")
-
----
-### 07月06日：让我们扬帆起航！
-#### 从康威河眺望康威城堡，威尔士（© David Chapman/Alamy Stock Photo）
-
-![让我们扬帆起航！](https://cn.bing.com/th?id=OHR.ConwyRiver_ZH-CN6871799250_800x480.jpg&rf=LaDigue_800x480.jpg "让我们扬帆起航！")
-
-在康威河节上穿越时空，扬帆起航！这项活动于1993年首次在康威城堡下的康威码头举行，体现了威尔士航海传统的精髓。在码头日这一免费露天活动中，划船爱好者们可以尽情体验传统船只和现代船只进行友谊赛的乐趣。人们聚集在一起观看航海游行，品尝当地美食，如用茶、干果和香料调味的茶面包，以及由可食用海藻组成的海藻面包。
-
-联合国教科文组织认为康威是“13世纪末和14世纪初欧洲军事建筑的最佳典范”之一，并将其列为世界遗产。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%ba%b7%e5%a8%81%e6%b2%b3&form=hpcapt&filters=HpDate:"20240705_1600" "Bing Wallpaper 2024 7月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240706_ConwyRiver"&FORM=HPQUIZ "必应主页测验 2024 7月 6")
-[下载480](https://cn.bing.com/th?id=OHR.ConwyRiver_ZH-CN6871799250_800x480.jpg&rf=LaDigue_800x480.jpg "从康威河眺望康威城堡，威尔士")
-[下载720](https://cn.bing.com/th?id=OHR.ConwyRiver_ZH-CN6871799250_1280x720.jpg&rf=LaDigue_1280x720.jpg "从康威河眺望康威城堡，威尔士")
-[下载1080](https://cn.bing.com/th?id=OHR.ConwyRiver_ZH-CN6871799250_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从康威河眺望康威城堡，威尔士")
-[下载UHD](https://cn.bing.com/th?id=OHR.ConwyRiver_ZH-CN6871799250_UHD.jpg&rf=LaDigue_UHD.jpg "从康威河眺望康威城堡，威尔士")
 
 ---
