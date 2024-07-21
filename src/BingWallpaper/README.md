@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月22日：和我一起避暑吧！
+#### 树上的中国小熊猫, 成都, 四川省, 中国（© Jackyenjoyphotography/Getty Images）
+
+![和我一起避暑吧！](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN6033129823_800x480.jpg&rf=LaDigue_800x480.jpg "和我一起避暑吧！")
+
+今天是大暑节气，既是夏季的最后一个节气，也是一年中阳光最猛烈、最炎热的日子。图中那只在树枝上看向我们的小可爱是大名鼎鼎的中华小熊猫。夏日炎炎，我们也需要放松一下，挑个绿荫密布的地方避暑吧！
+
+2020年，中国科学院动物研究所研究员魏辅文研究发现两个小熊猫亚种约于22万年前就分家了，其后鲜有基因交流，故将小熊猫川西亚种提升为种阶并命名为中华小熊猫。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e6%9a%91%e8%8a%82%e6%b0%94&form=hpcapt&filters=HpDate:"20240721_1600" "Bing Wallpaper 2024 7月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240722_TheGreatHeat2024"&FORM=HPQUIZ "必应主页测验 2024 7月 22")
+[下载480](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN6033129823_800x480.jpg&rf=LaDigue_800x480.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
+[下载720](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN6033129823_1280x720.jpg&rf=LaDigue_1280x720.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
+[下载1080](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN6033129823_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN6033129823_UHD.jpg&rf=LaDigue_UHD.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
+
+---
 ### 07月21日：香料岛之旅
 #### 肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚（© Lubos Paukeje/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NorwayBlueberries_ZH-CN7643097235_1280x720.jpg&rf=LaDigue_1280x720.jpg "野生蓝莓")
 [下载1080](https://cn.bing.com/th?id=OHR.NorwayBlueberries_ZH-CN7643097235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "野生蓝莓")
 [下载UHD](https://cn.bing.com/th?id=OHR.NorwayBlueberries_ZH-CN7643097235_UHD.jpg&rf=LaDigue_UHD.jpg "野生蓝莓")
-
----
-### 07月07日：阳光下的梯田
-#### 越南安沛省木仓寨的水稻梯田（© Kiatanan Sugsompian/Getty Images）
-
-![阳光下的梯田](https://cn.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_800x480.jpg&rf=LaDigue_800x480.jpg "阳光下的梯田")
-
-在越南安沛省连绵起伏的群山之中，木仓寨地区的水稻梯田是农耕文化的精华所在。苗族是一个以其丰富的文化和充满活力的服装而闻名的少数民族，世世代代精心雕刻着这些层叠的山丘。19世纪，苗族从中国迁徙到越南北部。他们擅长轮作（一种农业系统），在这种农业系统中，土地被暂时耕种，种植的作物包括小米、水稻、玉米和大麦，随后再恢复其自然植被。
-
-据说一年四季都适合观赏木仓寨，因为这里的梯田全年都很美。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9c%a8%e4%bb%93%e5%af%a8%e6%a2%af%e7%94%b0&form=hpcapt&filters=HpDate:"20240706_1600" "Bing Wallpaper 2024 7月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240707_YenBaiTerraces"&FORM=HPQUIZ "必应主页测验 2024 7月 7")
-[下载480](https://cn.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_800x480.jpg&rf=LaDigue_800x480.jpg "越南安沛省木仓寨的水稻梯田")
-[下载720](https://cn.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_1280x720.jpg&rf=LaDigue_1280x720.jpg "越南安沛省木仓寨的水稻梯田")
-[下载1080](https://cn.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "越南安沛省木仓寨的水稻梯田")
-[下载UHD](https://cn.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_UHD.jpg&rf=LaDigue_UHD.jpg "越南安沛省木仓寨的水稻梯田")
 
 ---
