@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月24日：可爱的羊咩咩一家
+#### 北约克郡的黑面羊羊群，英格兰（© R A Kearton/Getty Images）
+
+![可爱的羊咩咩一家](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_800x480.jpg&rf=LaDigue_800x480.jpg "可爱的羊咩咩一家")
+
+如果没有他们，家庭聚会的氛围就会大打折扣！今天是美国的堂表亲日，让我们聚在一起庆祝与堂表亲之间独特的亲情纽带。趁此机会，不妨回忆一下你们之间经历过的冒险，成长的秘密，以及那些打打闹闹却让彼此更亲近的时光。“一代堂表亲”（指父亲或母亲的兄弟姐妹的孩子）共享约12.5%的DNA，这就是为什么你对他们常常充满爱和理解。所以，快去和你的堂表亲们好好计划一下，是去野餐？还是去你最喜欢的地方共享美食，度过这愉快的一天。欢乐的时光，不要忘记拍照留念，就像英格兰北约克郡山谷中的这群黑面羊一样。也许，这群羊里面也有几只是“堂表亲”。
+
+斯瓦乐代尔羊（又称黑面羊）这个品种与苏格兰黑脸羊和粗毛羊有着“亲戚关系”，它们主要分布在英国高地，能在开阔的地区茁壮成长，并以此闻名。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a0%82%e8%a1%a8%e4%ba%b2&form=hpcapt&filters=HpDate:"20240723_1600" "Bing Wallpaper 2024 7月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240724_SheepCousins"&FORM=HPQUIZ "必应主页测验 2024 7月 24")
+[下载480](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_800x480.jpg&rf=LaDigue_800x480.jpg "北约克郡的黑面羊羊群，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_1280x720.jpg&rf=LaDigue_1280x720.jpg "北约克郡的黑面羊羊群，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北约克郡的黑面羊羊群，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_UHD.jpg&rf=LaDigue_UHD.jpg "北约克郡的黑面羊羊群，英格兰")
+
+---
 ### 07月23日：历史的回响
 #### 迈索尼城堡，麦西尼亚州，希腊（© Andrew Mayovskyy/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_1280x720.jpg&rf=LaDigue_1280x720.jpg "领簇舌巨嘴鸟，哥斯达黎加")
 [下载1080](https://cn.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "领簇舌巨嘴鸟，哥斯达黎加")
 [下载UHD](https://cn.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_UHD.jpg&rf=LaDigue_UHD.jpg "领簇舌巨嘴鸟，哥斯达黎加")
-
----
-### 07月09日：千仞高壁
-#### 阿根廷拉里奥哈省塔兰帕亚国家公园（© Gonzalo Azumendi/Getty Images）
-
-![千仞高壁](https://cn.bing.com/th?id=OHR.TalampayaNP_ZH-CN7905859626_800x480.jpg&rf=LaDigue_800x480.jpg "千仞高壁")
-
-今天是阿根廷独立日，塔兰帕亚国家公园邀请我们走进这个国家古老的心脏地带。它坐落在拉里奥哈省，占地830平方英里，是联合国教科文组织认定的世界遗产。公园里，红色的岩层高耸入云，海拔高达469英尺，上面还刻有史前生命的秘密。这里发现过迄今为止最古老的恐龙化石，还有神秘的岩画展示出古老的艺术。公园的悬崖和洞穴上有西恩纳加人、迪亚吉塔人和其他土著文明创造的岩画，他们曾在公元3世纪至9世纪居住在该地区。此外，当地的植物（如耐旱的灌木和仙人掌）和动物则展现了大自然的美丽。原驼、野兔和狐狸在土地上自由漫步，秃鹰、白喉沙雀和沙色窜鸟在天空翩翩起舞。野性的大自然在召唤你，邀请你到塔兰帕亚国家公园探险。
-
-这种地貌是沙漠气候下水和风侵蚀的结果，当地温差很大，白天高温，晚上低温，夏季有暴雨，春季有强风。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e6%a0%b9%e5%bb%b7%e5%a1%94%e5%85%b0%e5%b8%95%e4%ba%9a%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240708_1600" "Bing Wallpaper 2024 7月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240709_TalampayaNP"&FORM=HPQUIZ "必应主页测验 2024 7月 9")
-[下载480](https://cn.bing.com/th?id=OHR.TalampayaNP_ZH-CN7905859626_800x480.jpg&rf=LaDigue_800x480.jpg "阿根廷拉里奥哈省塔兰帕亚国家公园")
-[下载720](https://cn.bing.com/th?id=OHR.TalampayaNP_ZH-CN7905859626_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿根廷拉里奥哈省塔兰帕亚国家公园")
-[下载1080](https://cn.bing.com/th?id=OHR.TalampayaNP_ZH-CN7905859626_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿根廷拉里奥哈省塔兰帕亚国家公园")
-[下载UHD](https://cn.bing.com/th?id=OHR.TalampayaNP_ZH-CN7905859626_UHD.jpg&rf=LaDigue_UHD.jpg "阿根廷拉里奥哈省塔兰帕亚国家公园")
 
 ---
