@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月25日：深入其中
+#### 大烟山国家公园的森林小道，田纳西州，美国（© putmanphoto/Getty Images）
+
+![深入其中](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_800x480.jpg&rf=LaDigue_800x480.jpg "深入其中")
+
+想漫步穿过田纳西州的大烟山吗？大烟山国家公园位于北卡罗来纳州和田纳西州之间，占地超522,000英亩，是自然美景和生物多样性的宝库。这里有超过19,000种已记录的物种，据科学家估计，还有数以万计的物种尚未被发现。数英里长的徒步小径蜿蜒穿过茂密的森林，引领探险者们到达瀑布以及风景优美的观景点。美国东部几座最高的山峰也在公园里，包括克灵曼斯峰，其海拔高达6643英尺。每天清晨，山峰上都笼罩着一层淡淡的薄雾，如幻似梦，无数游客为之陶醉，大烟山国家公园也由此得名。公园是联合国教科文组织认定的世界遗产地和国际生物圈保护区，一年四季拥有不同的美景，春天野花盛开，秋天红叶缤纷，冬天白雪皑皑。大烟山国家公园是自然爱好者和冒险家们的天堂，他们可以在这里深入探索大自然，获得一段难忘的经历。
+
+五月下旬至六月初，公园里的埃尔克蒙特地区迎来同步萤火虫的观赏高峰期。大烟山国家公园至少生活着19种萤火虫，同步萤火虫便是其中之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e7%83%9f%e5%b1%b1%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240724_1600" "Bing Wallpaper 2024 7月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240725_SmokyMountainTrail"&FORM=HPQUIZ "必应主页测验 2024 7月 25")
+[下载480](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_800x480.jpg&rf=LaDigue_800x480.jpg "大烟山国家公园的森林小道，田纳西州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_1280x720.jpg&rf=LaDigue_1280x720.jpg "大烟山国家公园的森林小道，田纳西州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大烟山国家公园的森林小道，田纳西州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_UHD.jpg&rf=LaDigue_UHD.jpg "大烟山国家公园的森林小道，田纳西州，美国")
+
+---
 ### 07月24日：可爱的羊咩咩一家
 #### 北约克郡的黑面羊羊群，英格兰（© R A Kearton/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_1280x720.jpg&rf=LaDigue_1280x720.jpg "甘吉，西西里岛，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "甘吉，西西里岛，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_UHD.jpg&rf=LaDigue_UHD.jpg "甘吉，西西里岛，意大利")
-
----
-### 07月10日：感恩的巨嘴鸟
-#### 领簇舌巨嘴鸟，哥斯达黎加（© Juan Carlos Vindas/Getty Images）
-
-![感恩的巨嘴鸟](https://cn.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_800x480.jpg&rf=LaDigue_800x480.jpg "感恩的巨嘴鸟")
-
-眼前这只有着明亮的眼睛、超大号的嘴巴以及黑黄相间的羽毛的鸟儿名叫领簇舌巨嘴鸟，它是一种生活在热带的迷人鸟类。作为巨嘴鸟家族的成员之一，领簇舌巨嘴鸟因其颈后的红色“项圈”而得名，它们通常栖息在森林里，从墨西哥到哥斯达黎加（今天的照片就是在那里拍摄的），再到哥伦比亚和委内瑞拉，都能见到它们的身影。领簇舌巨嘴鸟体长约38厘米至41厘米，体重却只有175克至249克左右，如此比例，堪称大自然的奇迹。它们会成群结队地行动，组成6至15只的鸟群在空中盘旋，晚上则依偎在树洞里休息。其叫声和外表一样独特，既能发出尖锐的鸣叫，又能发出奇特又柔和的叫声，有时又是咕噜咕噜的声音，甚至是粗糙的嗄叫。森林砍伐和狩猎对这些鸟儿造成了一定的威胁，幸运的是，它们目前仍属于无危物种。领簇舌巨嘴鸟穿着色彩斑斓的外衣，穿梭于林间，是森林中最亮丽的风景线。
-
-与其他巨嘴鸟一样，领簇舌巨嘴鸟有着鲜艳的斑纹和大嘴。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a2%86%e7%b0%87%e8%88%8c%e5%b7%a8%e5%98%b4%e9%b8%9f&form=hpcapt&filters=HpDate:"20240709_1600" "Bing Wallpaper 2024 7月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240710_CollaredAracari"&FORM=HPQUIZ "必应主页测验 2024 7月 10")
-[下载480](https://cn.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_800x480.jpg&rf=LaDigue_800x480.jpg "领簇舌巨嘴鸟，哥斯达黎加")
-[下载720](https://cn.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_1280x720.jpg&rf=LaDigue_1280x720.jpg "领簇舌巨嘴鸟，哥斯达黎加")
-[下载1080](https://cn.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "领簇舌巨嘴鸟，哥斯达黎加")
-[下载UHD](https://cn.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_UHD.jpg&rf=LaDigue_UHD.jpg "领簇舌巨嘴鸟，哥斯达黎加")
 
 ---
