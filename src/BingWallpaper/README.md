@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月26日：比赛开始
+#### 塞纳河上的新桥，巴黎，法国（© f11photo/Getty Images）
+
+![比赛开始](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_800x480.jpg&rf=LaDigue_800x480.jpg "比赛开始")
+
+今天是巴黎夏季奥运会开幕的日子。“光之城”巴黎成为继伦敦之后第二个第三次举办夏季奥运会的城市。这届奥运会的独特之处在于其开幕式：参赛选手不再站在体育场内，而将乘坐船队沿塞纳河游行，两岸观众会为之欢呼。其实，这不是巴黎第一次打破陈规了。在1900年的巴黎奥运会中，虽然在997名参赛运动员中只有22名是女性，但这是历史上第一次有女运动员参加奥运会。
+
+2022年11月14日，“弗里热（The Phryges）”作为2024年夏季奥运会和残奥会的吉祥物亮相。它们是一对拟人化的弗里吉亚帽，在法国历史上是自由的象征。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e9%bb%8e%e5%a5%a5%e6%9e%97%e5%8c%b9%e5%85%8b%e8%bf%90%e5%8a%a8%e4%bc%9a&form=hpcapt&filters=HpDate:"20240725_1600" "Bing Wallpaper 2024 7月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240726_PontNeuf"&FORM=HPQUIZ "必应主页测验 2024 7月 26")
+[下载480](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_800x480.jpg&rf=LaDigue_800x480.jpg "塞纳河上的新桥，巴黎，法国")
+[下载720](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞纳河上的新桥，巴黎，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞纳河上的新桥，巴黎，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_UHD.jpg&rf=LaDigue_UHD.jpg "塞纳河上的新桥，巴黎，法国")
+
+---
 ### 07月25日：深入其中
 #### 大烟山国家公园的森林小道，田纳西州，美国（© putmanphoto/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_1280x720.jpg&rf=LaDigue_1280x720.jpg "雷尼尔山国家公园的野花，华盛顿州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷尼尔山国家公园的野花，华盛顿州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_UHD.jpg&rf=LaDigue_UHD.jpg "雷尼尔山国家公园的野花，华盛顿州，美国")
-
----
-### 07月11日：你是81亿人口中的一员
-#### 甘吉，西西里岛，意大利（© Andrea Caruso/Amazing Aerial Agency）
-
-![你是81亿人口中的一员](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_800x480.jpg&rf=LaDigue_800x480.jpg "你是81亿人口中的一员")
-
-1987年，世界人口达到50亿大关，这是一个意义非凡的里程碑，由此产生了一个国际性的纪念日：五十亿人口日。伴随着急速增长的人口，一些相关的问题也亟待解决。因此，在1989年，联合国设立了世界人口日。如今，这不仅仅是一个纪念日，更是一个行动的呼吁。人口过剩导致地球的资源越来越少，敦促人类去正视那些紧迫的问题，如计划生育、垃圾和污染的增加、基础设施的缺失等等。当大都市里的人在和“过度拥挤”做斗争时，小地方的人口却在不断流失，导致人口分布失衡。一个典型的案例就是意大利西西里岛的甘吉镇，即今天图片展示的地方。在20世纪50年代，这个村庄大约有1.6万居民，如今，其人口只有6000多一点。为了振兴小镇，吸引人们的关注，甘吉镇将废弃的房屋赠送给那些有需要且愿意修复房屋的人。
-
-甘吉和迪甘吉是西西里岛人常见的姓氏。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e4%ba%ba%e5%8f%a3%e6%97%a5&form=hpcapt&filters=HpDate:"20240710_1600" "Bing Wallpaper 2024 7月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240711_GangiSicily"&FORM=HPQUIZ "必应主页测验 2024 7月 11")
-[下载480](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_800x480.jpg&rf=LaDigue_800x480.jpg "甘吉，西西里岛，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_1280x720.jpg&rf=LaDigue_1280x720.jpg "甘吉，西西里岛，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "甘吉，西西里岛，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_UHD.jpg&rf=LaDigue_UHD.jpg "甘吉，西西里岛，意大利")
 
 ---
