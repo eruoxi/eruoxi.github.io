@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月27日：完美的葡萄酒
+#### 摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国（© Jorg Greuel/Getty Images）
+
+![完美的葡萄酒](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_800x480.jpg&rf=LaDigue_800x480.jpg "完美的葡萄酒")
+
+欢迎来到让葡萄酒爱好者梦想成真的法尔茨。位于德国西部的法尔茨以风景如画的葡萄园而闻名，这里山峦起伏，土壤肥沃，气候温暖。得天独厚的风土条件培育出了种类繁多的葡萄。除了雷司令，这里还出产霞多丽、长相思、白皮诺、米勒-图高和丹菲特等著名葡萄品种。法尔茨是德国最大的红葡萄酒产区，该地区超过40%的葡萄园所种植的葡萄都用于酿造红葡萄酒。
+
+虽然野生品种的葡萄很可能原产于法尔茨地区，但是罗马人在公元1年左右带来了葡萄的栽培和种植技术。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%95%e5%b0%94%e8%8c%a8%e8%91%a1%e8%90%84%e9%85%92%e4%ba%a7%e5%8c%ba&form=hpcapt&filters=HpDate:"20240726_1600" "Bing Wallpaper 2024 7月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240727_RhinelandVineyards"&FORM=HPQUIZ "必应主页测验 2024 7月 27")
+[下载480](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_800x480.jpg&rf=LaDigue_800x480.jpg "摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国")
+[下载720](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_1280x720.jpg&rf=LaDigue_1280x720.jpg "摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_UHD.jpg&rf=LaDigue_UHD.jpg "摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国")
+
+---
 ### 07月26日：比赛开始
 #### 塞纳河上的新桥，巴黎，法国（© f11photo/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡帕多西亚的童话烟囱和窑洞，土耳其")
 [下载1080](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡帕多西亚的童话烟囱和窑洞，土耳其")
 [下载UHD](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_UHD.jpg&rf=LaDigue_UHD.jpg "卡帕多西亚的童话烟囱和窑洞，土耳其")
-
----
-### 07月12日：风雨无阻
-#### 雷尼尔山国家公园的野花，华盛顿州，美国（© RomanKhomlyak/Getty Images）
-
-![风雨无阻](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_800x480.jpg&rf=LaDigue_800x480.jpg "风雨无阻")
-
-在雷尼尔山冰川的注视下，成片的野花绽放出勃勃的生机。每年夏天，这座山周围的草地上都会盛开着色彩鲜艳的亚高山花朵：紫色的紫菀、粉色的珊瑚兰和黄色的虎皮花只是这里的部分植物。雷尼尔山又名塔霍马山，海拔超14400英尺，是华盛顿州最高的山峰。它被36平方英里的冰川和永久雪原覆盖，是美国48个州中冰川覆盖率最高的山峰。
-
-雷尼尔山是一座冰川覆盖的活火山，从几百英里外就能看到。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%9b%b7%e5%b0%bc%e5%b0%94%e5%b1%b1%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240711_1600" "Bing Wallpaper 2024 7月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240712_RainierWildflowers"&FORM=HPQUIZ "必应主页测验 2024 7月 12")
-[下载480](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_800x480.jpg&rf=LaDigue_800x480.jpg "雷尼尔山国家公园的野花，华盛顿州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_1280x720.jpg&rf=LaDigue_1280x720.jpg "雷尼尔山国家公园的野花，华盛顿州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷尼尔山国家公园的野花，华盛顿州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_UHD.jpg&rf=LaDigue_UHD.jpg "雷尼尔山国家公园的野花，华盛顿州，美国")
 
 ---
