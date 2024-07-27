@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月28日：色彩斑斓的海岸线
+#### 斯科讷省海滩上的浴场小屋，瑞典（© Martin Wahlborg/Getty Images）
+
+![色彩斑斓的海岸线](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_800x480.jpg&rf=LaDigue_800x480.jpg "色彩斑斓的海岸线")
+
+说到生机勃勃的海滩景色，瑞典的斯科讷省绝对不会让人失望。今天的图片展示的是斯科讷镇沙滩上的彩色小屋。这片海滩位于法尔斯特布半岛西侧，绵延6英里多，是最受欢迎的海滩之一。这部分海滩靠近斯卡诺尔码头，是夏季游客最喜欢的沐浴地点。
+
+从拥有海滩和避暑胜地的平坦沿海地区向北方内陆深入，是瑞典最肥沃的平原之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%91%9e%e5%85%b8%e6%96%af%e7%a7%91%e8%ae%b7%e9%83%a1&form=hpcapt&filters=HpDate:"20240727_1600" "Bing Wallpaper 2024 7月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240728_BeachHutsSweden"&FORM=HPQUIZ "必应主页测验 2024 7月 28")
+[下载480](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_800x480.jpg&rf=LaDigue_800x480.jpg "斯科讷省海滩上的浴场小屋，瑞典")
+[下载720](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯科讷省海滩上的浴场小屋，瑞典")
+[下载1080](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯科讷省海滩上的浴场小屋，瑞典")
+[下载UHD](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_UHD.jpg&rf=LaDigue_UHD.jpg "斯科讷省海滩上的浴场小屋，瑞典")
+
+---
 ### 07月27日：完美的葡萄酒
 #### 摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国（© Jorg Greuel/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_1280x720.jpg&rf=LaDigue_1280x720.jpg "女王花园群岛的镰形真鲨，古巴")
 [下载1080](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "女王花园群岛的镰形真鲨，古巴")
 [下载UHD](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_UHD.jpg&rf=LaDigue_UHD.jpg "女王花园群岛的镰形真鲨，古巴")
-
----
-### 07月13日：快看，这是沉积岩哦
-#### 卡帕多西亚的童话烟囱和窑洞，土耳其（© Storm Is Me/Shutterstock）
-
-![快看，这是沉积岩哦](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_800x480.jpg&rf=LaDigue_800x480.jpg "快看，这是沉积岩哦")
-
-今天是国际岩石日，我们要讨论的是花岗岩、石灰石和板岩。岩石有三种类型：火成岩是由凝固的岩浆和熔岩形成的；沉积岩是由沉积颗粒（如沙子）层层堆积而成；变质岩是其他岩石受热和受压后形成的。
-
-古代火山爆发后，厚厚的火山灰覆盖了这一地区，凝固成一种几十米厚的软岩石，被称为凝灰岩。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e5%b8%95%e5%a4%9a%e8%a5%bf%e4%ba%9a&form=hpcapt&filters=HpDate:"20240712_1600" "Bing Wallpaper 2024 7月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240713_CappadociaRocks"&FORM=HPQUIZ "必应主页测验 2024 7月 13")
-[下载480](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_800x480.jpg&rf=LaDigue_800x480.jpg "卡帕多西亚的童话烟囱和窑洞，土耳其")
-[下载720](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡帕多西亚的童话烟囱和窑洞，土耳其")
-[下载1080](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡帕多西亚的童话烟囱和窑洞，土耳其")
-[下载UHD](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_UHD.jpg&rf=LaDigue_UHD.jpg "卡帕多西亚的童话烟囱和窑洞，土耳其")
 
 ---
