@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月29日：咆哮与探索
+#### 科贝国家公园的老虎兄弟，北阿坎德邦，印度（© Sourabh Bharti/Getty Images）
+
+![咆哮与探索](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_800x480.jpg&rf=LaDigue_800x480.jpg "咆哮与探索")
+
+今天是世界爱虎日，这一节日设立于2010年，在每年的7月29日举办庆祝活动，旨在保护老虎免受偷猎和因森林砍伐导致栖息地丧失等威胁。19世纪末，野生老虎的数量估计约为10万只。而如今，老虎的数量已不足6000只。
+
+老虎是世界上现存最大的猫科动物。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%88%b1%e8%99%8e%e6%97%a5&form=hpcapt&filters=HpDate:"20240728_1600" "Bing Wallpaper 2024 7月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240729_CorbettTigers"&FORM=HPQUIZ "必应主页测验 2024 7月 29")
+[下载480](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_800x480.jpg&rf=LaDigue_800x480.jpg "科贝国家公园的老虎兄弟，北阿坎德邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_1280x720.jpg&rf=LaDigue_1280x720.jpg "科贝国家公园的老虎兄弟，北阿坎德邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科贝国家公园的老虎兄弟，北阿坎德邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_UHD.jpg&rf=LaDigue_UHD.jpg "科贝国家公园的老虎兄弟，北阿坎德邦，印度")
+
+---
 ### 07月28日：色彩斑斓的海岸线
 #### 斯科讷省海滩上的浴场小屋，瑞典（© Martin Wahlborg/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_1280x720.jpg&rf=LaDigue_1280x720.jpg "立石公园，神奈川县，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "立石公园，神奈川县，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_UHD.jpg&rf=LaDigue_UHD.jpg "立石公园，神奈川县，日本")
-
----
-### 07月14日：鲨鱼保护日
-#### 女王花园群岛的镰形真鲨，古巴（© Christian Vizl/Tandem Stills + Motion）
-
-![鲨鱼保护日](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_800x480.jpg&rf=LaDigue_800x480.jpg "鲨鱼保护日")
-
-准备好冒险了吗？今天，让我们一起潜入海洋，庆祝鲨鱼保护日。这些被误解的捕食者已经在七大洋中遨游了数千年。第一批鲨鱼大约在4.39亿年前进化而来，比恐龙的出现还要早2亿年。如今，鲨鱼的种类已超过500种，其中三分之一已濒临灭绝。多年来，鲨鱼一直被认为对人类有害，它们还因鱼皮、鱼鳍和鱼肉而被猎杀。但这种情况正在开始改变。世界各地的许多组织都在努力改变人们的态度，帮助人们认识到鲨鱼在海洋生活中扮演的重要角色，以及如何保护它们。
-
-丝鲨是好奇心强且好斗的捕食者，主要以硬骨鱼类为食。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%b2%a8%e9%b1%bc&form=hpcapt&filters=HpDate:"20240713_1600" "Bing Wallpaper 2024 7月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240714_SilkyShark"&FORM=HPQUIZ "必应主页测验 2024 7月 14")
-[下载480](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_800x480.jpg&rf=LaDigue_800x480.jpg "女王花园群岛的镰形真鲨，古巴")
-[下载720](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_1280x720.jpg&rf=LaDigue_1280x720.jpg "女王花园群岛的镰形真鲨，古巴")
-[下载1080](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "女王花园群岛的镰形真鲨，古巴")
-[下载UHD](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_UHD.jpg&rf=LaDigue_UHD.jpg "女王花园群岛的镰形真鲨，古巴")
 
 ---
