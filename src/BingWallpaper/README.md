@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月30日：中世纪的曼哈顿
+#### 圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚（© MNStudio/Shutterstock）
+
+![中世纪的曼哈顿](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_800x480.jpg&rf=LaDigue_800x480.jpg "中世纪的曼哈顿")
+
+这些中世纪塔楼高高耸立在意大利中北部锡耶纳附近的小镇圣吉米尼亚诺。中世纪时，围绕着一座供奉圣吉米亚努斯的教堂（意大利语为“圣吉米尼亚诺”），一个小镇逐渐发展起来。除了是朝圣者前往罗马的必经之地外，该镇还因当地的维奈西卡葡萄酒和附近山上种植的藏红花而繁荣起来。然而，1348年席卷欧洲的黑死病减缓了小镇的发展，小镇人口损失过半，至今仍保留着中世纪的特色。
+
+圣吉米尼亚诺成功保护了14座高低错落的塔楼，并因此而闻名于世。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e5%90%89%e7%b1%b3%e5%b0%bc%e4%ba%9a%e8%af%ba&form=hpcapt&filters=HpDate:"20240729_1600" "Bing Wallpaper 2024 7月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240730_GimignanoTuscany"&FORM=HPQUIZ "必应主页测验 2024 7月 30")
+[下载480](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_800x480.jpg&rf=LaDigue_800x480.jpg "圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_UHD.jpg&rf=LaDigue_UHD.jpg "圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚")
+
+---
 ### 07月29日：咆哮与探索
 #### 科贝国家公园的老虎兄弟，北阿坎德邦，印度（© Sourabh Bharti/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_UHD.jpg&rf=LaDigue_UHD.jpg "斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰")
-
----
-### 07月15日：宁静惬意的海滨风光
-#### 立石公园，神奈川县，日本（© blew_s/Shutterstock）
-
-![宁静惬意的海滨风光](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_800x480.jpg&rf=LaDigue_800x480.jpg "宁静惬意的海滨风光")
-
-今天的图片带我们来到横须贺市的立石公园，在这里可以欣赏相模湾和富士山的壮丽景色，是庆祝海洋日的理想场所。立石公园是一个风景优美的海滨公园，历史上曾激发过艺术家和摄影师的创作灵感。
-
-该公园以立石海岸线的美丽景色而闻名，远处的富士山能尽收眼底。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%97%a5%e6%9c%ac%e7%ab%8b%e7%9f%b3%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240714_1600" "Bing Wallpaper 2024 7月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240715_TateishiPark"&FORM=HPQUIZ "必应主页测验 2024 7月 15")
-[下载480](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_800x480.jpg&rf=LaDigue_800x480.jpg "立石公园，神奈川县，日本")
-[下载720](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_1280x720.jpg&rf=LaDigue_1280x720.jpg "立石公园，神奈川县，日本")
-[下载1080](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "立石公园，神奈川县，日本")
-[下载UHD](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_UHD.jpg&rf=LaDigue_UHD.jpg "立石公园，神奈川县，日本")
 
 ---
