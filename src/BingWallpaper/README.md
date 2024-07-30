@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月31日：这里有“胡图”吗？
+#### 石林，日落点，布莱斯峡谷国家公园，犹他州，美国（© Tim Fitzharris/Minden Pictures）
+
+![这里有“胡图”吗？](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_800x480.jpg&rf=LaDigue_800x480.jpg "这里有“胡图”吗？")
+
+让我们去石林旅行吧，犹他州的布莱斯峡谷国家公园就是我们的目的地。这座公园以摩门先驱埃比尼泽·布莱斯的名字命名，公园内有日落点，也就是今天图片中看到的石林。这些岩层是由霜冻风化和溪流侵蚀形成的，将石头塑造成超凡脱俗的地貌。日落点位于海拔8000至9000英尺的地方，可以一览红色、橙色和白色的石峰全景。其中最著名的是雷神之锤，这是一座石林，俯瞰着被称为“寂静之城”的公园的一部分。在日落点通往日出点的女王花园小径，你可以欣赏到更多美景和岩层，包括维多利亚女王石林。据居住在这一地区的派尤特土著居民所讲述的传说，石林是被狡猾的库伊特狐狸变成石头的罪人。无论你是徒步旅行者、摄影师还是普通游客，石林都在期待你的到来。
+
+公园的主要景点是布莱斯峡谷，尽管它的名字有“峡谷”，但实际上它并不是一个峡谷。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e8%8e%b1%e6%96%af%e5%b3%a1%e8%b0%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240730_1600" "Bing Wallpaper 2024 7月 31")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240731_HoodoosBryce"&FORM=HPQUIZ "必应主页测验 2024 7月 31")
+[下载480](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_800x480.jpg&rf=LaDigue_800x480.jpg "石林，日落点，布莱斯峡谷国家公园，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_1280x720.jpg&rf=LaDigue_1280x720.jpg "石林，日落点，布莱斯峡谷国家公园，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "石林，日落点，布莱斯峡谷国家公园，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_UHD.jpg&rf=LaDigue_UHD.jpg "石林，日落点，布莱斯峡谷国家公园，犹他州，美国")
+
+---
 ### 07月30日：中世纪的曼哈顿
 #### 圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚（© MNStudio/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_1280x720.jpg&rf=LaDigue_1280x720.jpg "德国中世纪城市罗滕堡")
 [下载1080](https://cn.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "德国中世纪城市罗滕堡")
 [下载UHD](https://cn.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_UHD.jpg&rf=LaDigue_UHD.jpg "德国中世纪城市罗滕堡")
-
----
-### 07月16日：挖掘过去
-#### 斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰（© Paul Williams - FunkyStock/Getty Images）
-
-![挖掘过去](https://cn.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_800x480.jpg&rf=LaDigue_800x480.jpg "挖掘过去")
-
-说起节日，考古可能不是人们首先想到的，但7月13日至28日举办的英国考古节将改变这一现状。自1990年创办以来，英国考古节已发展成一个为期两周的活动。从9月到7月的巧妙转变让考古迷们更容易探索夏季挖掘工作和各种文物奇迹。今年的主题是“考古与社区”，邀请英国各地的考古爱好者参加由遗产组织、地方协会和热心人士组织的一系列现场和虚拟活动。想象一下，站在苏格兰奥克尼群岛斯卡拉布雷古老的石屋中（如图所示），这是5000多年前，新石器时代的定居者繁衍生息的地方。这座史前奇迹因1850年的一场暴风雨而暴露，因其惊人的保存能力而被誉为“苏格兰庞贝古城”，它比巨石阵甚至大金字塔还要古老。因此，拿起你的小铲子，准备深入挖掘传奇的历史故事吧。谁知道你会发现什么呢？
-
-斯卡拉布雷的房屋拥有坚固的石板结构，这些房屋还使用了一种类似于粘土的材料，这种材料由生活垃圾（如骨头、壳、谷物等）混合而成，既有助于隔热，又能防潮。因此，斯卡拉布雷既是新石器时代高超工艺的绝佳典范，也是新石器时代村庄的杰出代表。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e5%8d%a1%e6%8b%89%e5%b8%83%e9%9b%b7&form=hpcapt&filters=HpDate:"20240715_1600" "Bing Wallpaper 2024 7月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240716_AncientOrkney"&FORM=HPQUIZ "必应主页测验 2024 7月 16")
-[下载480](https://cn.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_800x480.jpg&rf=LaDigue_800x480.jpg "斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰")
-[下载720](https://cn.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_UHD.jpg&rf=LaDigue_UHD.jpg "斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰")
 
 ---
