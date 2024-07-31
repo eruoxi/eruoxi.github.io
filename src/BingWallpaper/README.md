@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月01日：物价喜人
+#### 卡普泰湖水上市场，兰加马蒂，孟加拉（© Azim Khan Ronnie/Amazing Aerial Agency）
+
+![物价喜人](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_800x480.jpg&rf=LaDigue_800x480.jpg "物价喜人")
+
+每周六，孟加拉国最大的人工湖都会变得五彩缤纷、生机勃勃。兰加马蒂区的卡普泰湖是今天画面中时令水果水上市场的所在地。然而，卡普泰湖自身的魅力更为深远。该湖建于1961年，用于水力发电，不仅淹没了土地和查克马斯国王的宫殿，还导致10万人流离失所。然而，顽强的生命力战胜了这一切，当地社区进行了调整。现在，繁荣的集市已成为人们的生计。在这里，农民们沿着河岸驾着木船与热心的买家打交道。在这里，你既可以带着满满一袋新鲜水果离开，也可以带着难忘的回忆离开，选择你喜欢的方式就好。
+
+从熙熙攘攘的气氛到令人垂涎的街头美食，每个人都能在这个市场上找到自己喜欢的东西。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%85%b0%e5%8a%a0%e9%a9%ac%e8%92%82+%e5%ad%9f%e5%8a%a0%e6%8b%89&form=hpcapt&filters=HpDate:"20240731_1600" "Bing Wallpaper 2024 8月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240801_KaptaiLake"&FORM=HPQUIZ "必应主页测验 2024 8月 1")
+[下载480](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_800x480.jpg&rf=LaDigue_800x480.jpg "卡普泰湖水上市场，兰加马蒂，孟加拉")
+[下载720](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡普泰湖水上市场，兰加马蒂，孟加拉")
+[下载1080](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡普泰湖水上市场，兰加马蒂，孟加拉")
+[下载UHD](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_UHD.jpg&rf=LaDigue_UHD.jpg "卡普泰湖水上市场，兰加马蒂，孟加拉")
+
+---
 ### 07月31日：这里有“胡图”吗？
 #### 石林，日落点，布莱斯峡谷国家公园，犹他州，美国（© Tim Fitzharris/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_1280x720.jpg&rf=LaDigue_1280x720.jpg "印度洋的珊瑚礁，马约特岛，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印度洋的珊瑚礁，马约特岛，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_UHD.jpg&rf=LaDigue_UHD.jpg "印度洋的珊瑚礁，马约特岛，法国")
-
----
-### 07月17日：高耸入云的历史建筑
-#### 德国中世纪城市罗滕堡（© kanuman/Getty Images）
-
-![高耸入云的历史建筑](https://cn.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_800x480.jpg&rf=LaDigue_800x480.jpg "高耸入云的历史建筑")
-
-看到这张图，你的脑海中是否浮现出了“童话”这个词？欢迎来到陶伯河畔的罗滕堡，或称“陶伯河上的红色要塞”，这里每个鹅卵石铺就的角落都散发着中世纪的魅力。在中世纪，这座巴伐利亚州的城墙小镇曾是一座自治城市，拥有6000名居民，是当时神圣罗马帝国的第二大城市。17世纪，罗滕堡的发展速度有所放缓，但仍保留了其原有的特色。图为城堡大门，它是在1356年罗滕堡城堡被地震摧毁后修建的。城堡大门内有一扇“针眼”门，其设计目的是在夜间主门关闭时作为进出城堡的唯一通道。但罗滕堡的魔力并不仅限于城墙，从维尔茨堡到富森的浪漫之路全长290英里，覆盖了巴伐利亚城堡林立的山谷。回程时，可以去凯特·沃尔法特圣诞村，这里是节日爱好者的梦想之地。所以，城堡迷们，来一场中世纪的探险吧。
-
-在中世纪，当柏林和慕尼黑还只是路边的荒地时，罗滕堡已成为德国第二大城市，人口多达6000人。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%be%b7%e5%9b%bd%e7%bd%97%e6%bb%95%e5%a0%a1&form=hpcapt&filters=HpDate:"20240716_1600" "Bing Wallpaper 2024 7月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240717_MedievalRothenburg"&FORM=HPQUIZ "必应主页测验 2024 7月 17")
-[下载480](https://cn.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_800x480.jpg&rf=LaDigue_800x480.jpg "德国中世纪城市罗滕堡")
-[下载720](https://cn.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_1280x720.jpg&rf=LaDigue_1280x720.jpg "德国中世纪城市罗滕堡")
-[下载1080](https://cn.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "德国中世纪城市罗滕堡")
-[下载UHD](https://cn.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_UHD.jpg&rf=LaDigue_UHD.jpg "德国中世纪城市罗滕堡")
 
 ---
