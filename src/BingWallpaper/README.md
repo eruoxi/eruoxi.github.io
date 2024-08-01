@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月02日：彩虹之下的某个地方
+#### 象鼻湾，维尔京群岛国家公园，圣约翰岛（© wheatley/Getty Images）
+
+![彩虹之下的某个地方](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_800x480.jpg&rf=LaDigue_800x480.jpg "彩虹之下的某个地方")
+
+1956年，商人兼自然保护主义者劳伦斯·洛克菲勒看到了加勒比海美属维尔京群岛之一圣约翰岛的美景，并意识到必须保护它。时间快进到今天，我们正在庆祝维尔京群岛国家公园成立68周年。这座公园占地约60%的岛屿和5,650英亩的水下土地，是一个活生生的保护范例，这还要归功于洛克菲勒向美国政府捐赠了5,000多英亩的土地。即使在2017年飓风“厄玛”和“玛丽亚”造成破坏之后，公园仍然强势回归，仅2018年就接待了超过10万名游客。公园里有800多种植物，如野生罗望子和世纪树，140种鸟类，如绿颈鹑鸠和绿喉蜂鸟，以及大约50种珊瑚。在礁湾小径上，徒步旅行者可以看到古老的泰诺岩画和甘蔗种植园遗址，展示了该岛的殖民历史。从图中树干湾的水下浮潜小径到马霍湾满是海龟的水域，公园提供了各种各样的海洋冒险活动。
+
+维尔京群岛国家公园覆盖了圣约翰岛的大部分地区，公园40%的面积都在水下。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%b1%a1%e9%bc%bb%e6%b9%be+%e5%9c%a3%e7%ba%a6%e7%bf%b0%e5%b2%9b&form=hpcapt&filters=HpDate:"20240801_1600" "Bing Wallpaper 2024 8月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240802_TrunkBay"&FORM=HPQUIZ "必应主页测验 2024 8月 2")
+[下载480](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_800x480.jpg&rf=LaDigue_800x480.jpg "象鼻湾，维尔京群岛国家公园，圣约翰岛")
+[下载720](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_1280x720.jpg&rf=LaDigue_1280x720.jpg "象鼻湾，维尔京群岛国家公园，圣约翰岛")
+[下载1080](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "象鼻湾，维尔京群岛国家公园，圣约翰岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_UHD.jpg&rf=LaDigue_UHD.jpg "象鼻湾，维尔京群岛国家公园，圣约翰岛")
+
+---
 ### 08月01日：物价喜人
 #### 卡普泰湖水上市场，兰加马蒂，孟加拉（© Azim Khan Ronnie/Amazing Aerial Agency）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_1280x720.jpg&rf=LaDigue_1280x720.jpg "河岸上的一只年轻美洲虎，潘塔纳尔，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "河岸上的一只年轻美洲虎，潘塔纳尔，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_UHD.jpg&rf=LaDigue_UHD.jpg "河岸上的一只年轻美洲虎，潘塔纳尔，巴西")
-
----
-### 07月18日：意义深远
-#### 印度洋的珊瑚礁，马约特岛，法国（© Gabriel Barathieu/Minden Pictures）
-
-![意义深远](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_800x480.jpg&rf=LaDigue_800x480.jpg "意义深远")
-
-盛开的柱状珊瑚、绿色的海龟和五颜六色的珊瑚鱼，欢迎来到珊瑚礁这个欣欣向荣的水下世界。从7月15日到21日，珊瑚礁保护意识周是向他们致敬的最佳时机。珊瑚礁是由被称为珊瑚虫的微小海洋生物形成的，珊瑚虫创造了巨大的群落，为各种海洋物种提供了家园。当我们把注意力转向它们的美丽和益处的同时，认识到潜在的威胁（气候变化、污染和有害的人类活动）也至关重要。
-
-大多数珊瑚礁在温暖、浅水、清澈、阳光充足、激荡的水中生长得最好。珊瑚礁最早出现于4.85亿年前的早奥陶纪初期，取代了寒武纪的微生物和海绵珊瑚礁。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8f%8a%e7%91%9a%e7%a4%81%e4%bf%9d%e6%8a%a4%e6%84%8f%e8%af%86%e5%91%a8&form=hpcapt&filters=HpDate:"20240717_1600" "Bing Wallpaper 2024 7月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240718_MayotteCoral"&FORM=HPQUIZ "必应主页测验 2024 7月 18")
-[下载480](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_800x480.jpg&rf=LaDigue_800x480.jpg "印度洋的珊瑚礁，马约特岛，法国")
-[下载720](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_1280x720.jpg&rf=LaDigue_1280x720.jpg "印度洋的珊瑚礁，马约特岛，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印度洋的珊瑚礁，马约特岛，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_UHD.jpg&rf=LaDigue_UHD.jpg "印度洋的珊瑚礁，马约特岛，法国")
 
 ---
