@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月03日：武隆景区的“三生三世”
+#### 天生三桥，重庆武隆岩溶国家地质公园，中国（© Pav-Pro Photography Ltd/Shutterstock）
+
+![武隆景区的“三生三世”](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_800x480.jpg&rf=LaDigue_800x480.jpg "武隆景区的“三生三世”")
+
+中国武隆喀斯特“天生三桥”是大自然历经数百年雕琢而成的地质奇观。这些石灰岩桥耸立在幽深的峡谷中，以三条龙的名字命名：天龙、青龙和黑龙。天龙桥高771英尺，桥墩上有一个迷宫般的洞穴。青龙桥高922英尺，在太阳出来的时候可以欣赏到壮丽的景色。黑龙桥是三座桥中最宽的一座，长633英尺，高732英尺。游客可以游览武隆喀斯特国家地质公园，参观芙蓉洞等景点。芙蓉洞高9337英尺，洞内有巨大的石灰岩钟乳石，这些钟乳石是悬挂在洞顶的矿物。站在这些壮观的天生桥下，你不禁会对时间和自然的巨大力量而肃然起敬。
+
+从令人叹为观止的洞穴到迷人的天坑，喀斯特地貌让我们得以一窥地球错综复杂的进程和水侵蚀的力量。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a9%e7%94%9f%e4%b8%89%e6%a1%a5+&form=hpcapt&filters=HpDate:"20240802_1600" "Bing Wallpaper 2024 8月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240803_WulongKarst"&FORM=HPQUIZ "必应主页测验 2024 8月 3")
+[下载480](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_800x480.jpg&rf=LaDigue_800x480.jpg "天生三桥，重庆武隆岩溶国家地质公园，中国")
+[下载720](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_1280x720.jpg&rf=LaDigue_1280x720.jpg "天生三桥，重庆武隆岩溶国家地质公园，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "天生三桥，重庆武隆岩溶国家地质公园，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_UHD.jpg&rf=LaDigue_UHD.jpg "天生三桥，重庆武隆岩溶国家地质公园，中国")
+
+---
 ### 08月02日：彩虹之下的某个地方
 #### 象鼻湾，维尔京群岛国家公园，圣约翰岛（© wheatley/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MineralMoon_ZH-CN2555749456_1280x720.jpg&rf=LaDigue_1280x720.jpg "月球")
 [下载1080](https://cn.bing.com/th?id=OHR.MineralMoon_ZH-CN2555749456_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "月球")
 [下载UHD](https://cn.bing.com/th?id=OHR.MineralMoon_ZH-CN2555749456_UHD.jpg&rf=LaDigue_UHD.jpg "月球")
-
----
-### 07月19日：巧妙的伪装
-#### 河岸上的一只年轻美洲虎，潘塔纳尔，巴西（© Tambako the Jaguar/Getty Images）
-
-![巧妙的伪装](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_800x480.jpg&rf=LaDigue_800x480.jpg "巧妙的伪装")
-
-请看今天的图片中的野生动物：美洲虎！它是美洲最大的猫科动物，在这里可以看到它在巴西潘塔纳尔的美丽身影。美洲虎大约在200万年前从欧亚大陆经白令海峡迁徙到美洲。如今，美洲虎栖息在从美国西南部林地到阿根廷北部雨林的各种栖息地。
-
-现代美洲虎的祖先很可能是在早更新世时期通过曾经横跨白令海峡的陆桥从欧亚大陆进入美洲的。如今，美洲虎的活动范围从美国西南部横跨墨西哥和中美洲大部分地区、亚马逊雨林，向南延伸到巴拉圭和阿根廷北部。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e6%b4%b2%e8%99%8e&form=hpcapt&filters=HpDate:"20240718_1600" "Bing Wallpaper 2024 7月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240719_YoungJaguar"&FORM=HPQUIZ "必应主页测验 2024 7月 19")
-[下载480](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_800x480.jpg&rf=LaDigue_800x480.jpg "河岸上的一只年轻美洲虎，潘塔纳尔，巴西")
-[下载720](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_1280x720.jpg&rf=LaDigue_1280x720.jpg "河岸上的一只年轻美洲虎，潘塔纳尔，巴西")
-[下载1080](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "河岸上的一只年轻美洲虎，潘塔纳尔，巴西")
-[下载UHD](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_UHD.jpg&rf=LaDigue_UHD.jpg "河岸上的一只年轻美洲虎，潘塔纳尔，巴西")
 
 ---
