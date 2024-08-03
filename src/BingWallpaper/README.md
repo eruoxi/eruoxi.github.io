@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月04日：我是你的朋友
+#### 黑斑羚和红嘴牛椋鸟，南非（© Matrishva Vyas/Getty Images）
+
+![我是你的朋友](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_800x480.jpg&rf=LaDigue_800x480.jpg "我是你的朋友")
+
+每年八月的第一个星期日，美国都会庆祝友谊日。这一活动始于1930年，当时霍尔马克贺卡公司创始人乔伊斯·霍尔提议将这一天作为人们通过寄送贺卡来答谢朋友的日子。1935年，美国国会宣布这一天为全国性节日。
+
+1958年7月20日，雷蒙·阿尔特米奥·布拉乔博士在巴拉圭亚松森以北约200英里（320公里）处的河畔小镇与朋友共进晚餐时，首次提出了设立“国际友谊日”的想法。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8f%8b%e8%b0%8a%e6%97%a5&form=hpcapt&filters=HpDate:"20240803_1600" "Bing Wallpaper 2024 8月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240804_ImpalaOxpecker"&FORM=HPQUIZ "必应主页测验 2024 8月 4")
+[下载480](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_800x480.jpg&rf=LaDigue_800x480.jpg "黑斑羚和红嘴牛椋鸟，南非")
+[下载720](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑斑羚和红嘴牛椋鸟，南非")
+[下载1080](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑斑羚和红嘴牛椋鸟，南非")
+[下载UHD](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_UHD.jpg&rf=LaDigue_UHD.jpg "黑斑羚和红嘴牛椋鸟，南非")
+
+---
 ### 08月03日：武隆景区的“三生三世”
 #### 天生三桥，重庆武隆岩溶国家地质公园，中国（© Pav-Pro Photography Ltd/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_1280x720.jpg&rf=LaDigue_1280x720.jpg "肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_UHD.jpg&rf=LaDigue_UHD.jpg "肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚")
-
----
-### 07月20日：到月亮上去
-#### 月球（© Victor Blum/Getty Images）
-
-![到月亮上去](https://cn.bing.com/th?id=OHR.MineralMoon_ZH-CN2555749456_800x480.jpg&rf=LaDigue_800x480.jpg "到月亮上去")
-
-“个人的一小步，人类的一大步！”今天是国际月球日，旨在纪念阿波罗11号首次实现了人类登月的梦想。这一天最初被定为“国家月球日”，并于2021年被联合国确立为一个获得全球认可的节日。几千年来，人类一直凝视着天空，思索着月亮的起源和神秘之处，太空探索的出现使得月球成为许多任务的目标。
-
-想象一下，如果地球缩小到硬币大小，月球会有多大？答案是：月球大约只有一粒咖啡豆大小。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9c%88%e7%90%83&form=hpcapt&filters=HpDate:"20240719_1600" "Bing Wallpaper 2024 7月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240720_MineralMoon"&FORM=HPQUIZ "必应主页测验 2024 7月 20")
-[下载480](https://cn.bing.com/th?id=OHR.MineralMoon_ZH-CN2555749456_800x480.jpg&rf=LaDigue_800x480.jpg "月球")
-[下载720](https://cn.bing.com/th?id=OHR.MineralMoon_ZH-CN2555749456_1280x720.jpg&rf=LaDigue_1280x720.jpg "月球")
-[下载1080](https://cn.bing.com/th?id=OHR.MineralMoon_ZH-CN2555749456_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "月球")
-[下载UHD](https://cn.bing.com/th?id=OHR.MineralMoon_ZH-CN2555749456_UHD.jpg&rf=LaDigue_UHD.jpg "月球")
 
 ---
