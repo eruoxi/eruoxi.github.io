@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月05日：一片紫色的海洋
+#### 薰衣草田，赫特福德郡 ，英格兰，英国（© George W Johnson/Getty Images）
+
+![一片紫色的海洋](https://cn.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_800x480.jpg&rf=LaDigue_800x480.jpg "一片紫色的海洋")
+
+当你漫步在英格兰赫特福德郡的自然风景中时，会看到美丽的薰衣草田，正如今天的图片所展示的那样。作为薄荷科的一员，薰衣草起源于地中海、印度和中东地区。这种紫色的植物在不同的文明中生长蔓延，埃及人曾用它制作木乃伊，在图坦卡蒙的墓穴中便有薰衣草的遗迹，罗马人也将其视若珍宝，因其具有治疗和清洁的特性。
+
+薰衣草是唇形科、薰衣草属半灌木或矮灌木，轮伞花序，花朵长在高出叶子的穗状花序上，有些品种的穗状花序有分枝，有些品种在花序顶端长有彩色苞片。野生品种的薰衣草花朵可能是蓝色、蓝紫色或淡紫色，极少数为黑紫色或淡黄色。花萼呈管状，花冠也是管状的，通常有五个裂片（上唇通常裂开，下唇有两个裂片）。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%96%b0%e8%a1%a3%e8%8d%89&form=hpcapt&filters=HpDate:"20240804_1600" "Bing Wallpaper 2024 8月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240805_HertfordshireLavender"&FORM=HPQUIZ "必应主页测验 2024 8月 5")
+[下载480](https://cn.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_800x480.jpg&rf=LaDigue_800x480.jpg "薰衣草田，赫特福德郡 ，英格兰，英国")
+[下载720](https://cn.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_1280x720.jpg&rf=LaDigue_1280x720.jpg "薰衣草田，赫特福德郡 ，英格兰，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "薰衣草田，赫特福德郡 ，英格兰，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_UHD.jpg&rf=LaDigue_UHD.jpg "薰衣草田，赫特福德郡 ，英格兰，英国")
+
+---
 ### 08月04日：我是你的朋友
 #### 黑斑羚和红嘴牛椋鸟，南非（© Matrishva Vyas/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN5359095820_1280x720.jpg&rf=LaDigue_1280x720.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
 [下载1080](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN5359095820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN5359095820_UHD.jpg&rf=LaDigue_UHD.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
-
----
-### 07月21日：香料岛之旅
-#### 肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚（© Lubos Paukeje/Alamy Stock Photo）
-
-![香料岛之旅](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_800x480.jpg&rf=LaDigue_800x480.jpg "香料岛之旅")
-
-肯杜瓦村位于东非海岸的桑给巴尔群岛，这是坦桑尼亚的一个半自治区。历史上，这个宁静的小村庄在岛上的渔业中扮演着一个不大不小的角色，传统的木船（也被称为单桅帆船）在水面上划出了一道道印记，述说着这段历史。通过当地的单桅帆船制作者，人们可以欣赏到村庄代代相传的手工艺，船只经由工匠的巧手用古老的技术打造而成，代表了这个村庄坚韧的精神。如果深入当地，您还会发现繁茂的香料农场，那里的空气弥漫着肉豆蔻和黑胡椒的香味。在这里，您还能品尝到传统的斯瓦希里菜肴，如特色烤肉、椰子酱烤鱼。当来自海洋和陆地的馈赠与香料融为一体，美味就此诞生。日落时分，篝火闪烁，岛上的人们随着塔拉布音乐（一种融合了非洲、阿拉伯和印度特色的音乐）欢快起舞。这就是桑给巴尔，美食、美景、音乐等各种“生活调味品”都应有尽有。
-
-肯杜瓦海滩与桑给巴尔的大多数海滩不同，它不受强烈潮汐变化的影响。在这里，您不必在退潮时走很远的路才能达到海边，如果您想整天闲逛和游泳，这里就是您的理想海滩。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a1%91%e7%bb%99%e5%b7%b4%e5%b0%94&form=hpcapt&filters=HpDate:"20240720_1600" "Bing Wallpaper 2024 7月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240721_ZanzibarBoats"&FORM=HPQUIZ "必应主页测验 2024 7月 21")
-[下载480](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_800x480.jpg&rf=LaDigue_800x480.jpg "肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_1280x720.jpg&rf=LaDigue_1280x720.jpg "肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_UHD.jpg&rf=LaDigue_UHD.jpg "肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚")
 
 ---
