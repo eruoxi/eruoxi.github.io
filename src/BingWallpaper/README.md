@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月06日：迎合所有人口味的景点
+#### 莫洛基尼，毛伊岛，夏威夷，美国（© Douglas Peebles/eStock Photo）
+
+![迎合所有人口味的景点](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_800x480.jpg&rf=LaDigue_800x480.jpg "迎合所有人口味的景点")
+
+今天我们来到了莫洛基尼火山口。它是太平洋中的一个迷人“月牙”，位于夏威夷的毛伊岛和卡霍奥拉维岛之间的阿拉拉凯基海峡中。小岛是约23万年前火山喷发后留下的遗迹形成的。关于小岛的形成，还有另一个说法。在夏威夷的神话中，火女神佩蕾爱上了一个名叫莫欧的男人，问题是莫欧爱着另一个女人。佩蕾的复仇往往很暴力：她把情敌切成了两半，对方的身体变成了莫洛基尼，脑袋变成了普奥莱，即毛伊岛上的火山渣锥。
+
+在夏威夷的传说中，莫洛基尼是一个美丽的女人，她和火女神佩蕾爱上了同一个男人。嫉妒的佩蕾将情敌切成两半，并将其变成了石头。据说，莫洛基尼的头就是马凯纳海滩边的火山渣锥：普奥莱。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8e%ab%e6%b4%9b%e5%9f%ba%e5%b0%bc%e9%99%a8%e7%9f%b3%e5%9d%91&form=hpcapt&filters=HpDate:"20240805_1600" "Bing Wallpaper 2024 8月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240806_MolokiniHawaii"&FORM=HPQUIZ "必应主页测验 2024 8月 6")
+[下载480](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_800x480.jpg&rf=LaDigue_800x480.jpg "莫洛基尼，毛伊岛，夏威夷，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_1280x720.jpg&rf=LaDigue_1280x720.jpg "莫洛基尼，毛伊岛，夏威夷，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫洛基尼，毛伊岛，夏威夷，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_UHD.jpg&rf=LaDigue_UHD.jpg "莫洛基尼，毛伊岛，夏威夷，美国")
+
+---
 ### 08月05日：一片紫色的海洋
 #### 薰衣草田，赫特福德郡 ，英格兰，英国（© George W Johnson/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_1280x720.jpg&rf=LaDigue_1280x720.jpg "迈索尼城堡，麦西尼亚州，希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "迈索尼城堡，麦西尼亚州，希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_UHD.jpg&rf=LaDigue_UHD.jpg "迈索尼城堡，麦西尼亚州，希腊")
-
----
-### 07月22日：和我一起避暑吧！
-#### 树上的中国小熊猫, 成都, 四川省, 中国（© Jackyenjoyphotography/Getty Images）
-
-![和我一起避暑吧！](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN5359095820_800x480.jpg&rf=LaDigue_800x480.jpg "和我一起避暑吧！")
-
-今天是大暑节气，既是夏季的最后一个节气，也是一年中阳光最猛烈、最炎热的日子。图中那只在树枝上看向我们的小可爱是大名鼎鼎的中华小熊猫。夏日炎炎，我们也需要放松一下，挑个绿荫密布的地方避暑吧！
-
-2020年，中国科学院动物研究所研究员魏辅文研究发现两个小熊猫亚种约于22万年前就分家了，其后鲜有基因交流，故将小熊猫川西亚种提升为种阶并命名为中华小熊猫。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e6%9a%91%e8%8a%82%e6%b0%94&form=hpcapt&filters=HpDate:"20240721_1600" "Bing Wallpaper 2024 7月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240722_TheGreatHeat2024"&FORM=HPQUIZ "必应主页测验 2024 7月 22")
-[下载480](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN5359095820_800x480.jpg&rf=LaDigue_800x480.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
-[下载720](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN5359095820_1280x720.jpg&rf=LaDigue_1280x720.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
-[下载1080](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN5359095820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN5359095820_UHD.jpg&rf=LaDigue_UHD.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
 
 ---
