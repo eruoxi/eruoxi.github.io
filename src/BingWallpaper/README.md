@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月07日：不止是航海需要它
+#### 圣约瑟夫北码头内灯和外灯，密歇根州，美国（© Kenneth Keifer/Getty Images）
+
+![不止是航海需要它](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_800x480.jpg&rf=LaDigue_800x480.jpg "不止是航海需要它")
+
+昏暗的黄昏中，灯塔点亮了密歇根湖与圣约瑟夫河的交汇处。19世纪，密歇根湖上修建了两座码头，它们分别位于圣约瑟夫河河口的两侧，以帮助保护上游航行的船只。到了20世纪初，每个码头的尽头都修建了一座灯塔。如图所示，它们便是圣约瑟夫北码头内灯和外灯。2005年，这些码头尽头的灯塔被添加到美国国家历史遗迹名录中。
+
+花鸟灯塔位于浙江省舟山市嵊泗县，它是中国沿海数百座灯塔中最大、功能最齐全、设备最先进、历史最悠久的灯塔之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e7%ba%a6%e7%91%9f%e5%a4%ab%e5%8c%97%e7%a0%81%e5%a4%b4%e5%86%85%e7%81%af%e5%92%8c%e5%a4%96%e7%81%af&form=hpcapt&filters=HpDate:"20240806_1600" "Bing Wallpaper 2024 8月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240807_MichiganLighthouse"&FORM=HPQUIZ "必应主页测验 2024 8月 7")
+[下载480](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_800x480.jpg&rf=LaDigue_800x480.jpg "圣约瑟夫北码头内灯和外灯，密歇根州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣约瑟夫北码头内灯和外灯，密歇根州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣约瑟夫北码头内灯和外灯，密歇根州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_UHD.jpg&rf=LaDigue_UHD.jpg "圣约瑟夫北码头内灯和外灯，密歇根州，美国")
+
+---
 ### 08月06日：迎合所有人口味的景点
 #### 莫洛基尼，毛伊岛，夏威夷，美国（© Douglas Peebles/eStock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_1280x720.jpg&rf=LaDigue_1280x720.jpg "北约克郡的黑面羊羊群，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北约克郡的黑面羊羊群，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_UHD.jpg&rf=LaDigue_UHD.jpg "北约克郡的黑面羊羊群，英格兰")
-
----
-### 07月23日：历史的回响
-#### 迈索尼城堡，麦西尼亚州，希腊（© Andrew Mayovskyy/Shutterstock）
-
-![历史的回响](https://cn.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_800x480.jpg&rf=LaDigue_800x480.jpg "历史的回响")
-
-迈索尼城堡坐落在希腊南部爱奥尼亚海沿岸的岩石岬角上，是中世纪强权的象征。城堡位于麦西尼亚州一个名为迈索尼的村庄。13世纪初，威尼斯人修建了这座城堡，作为当时一个重要的贸易站和防御堡垒，它保护了西南海岸线免受入侵者的侵害。布尔齐塔是迈索尼城堡的延伸，它坐落在一个小岛上，曾通过一座石桥与主城堡相连。
-
-迈索尼的经济以旅游业为主，当地的海滩和历史悠久的城堡吸引了众多游客。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%8c%e8%85%8a%e9%ba%a6%e8%a5%bf%e5%b0%bc%e4%ba%9a%e5%b7%9e&form=hpcapt&filters=HpDate:"20240722_1600" "Bing Wallpaper 2024 7月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240723_MethoniCastle"&FORM=HPQUIZ "必应主页测验 2024 7月 23")
-[下载480](https://cn.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_800x480.jpg&rf=LaDigue_800x480.jpg "迈索尼城堡，麦西尼亚州，希腊")
-[下载720](https://cn.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_1280x720.jpg&rf=LaDigue_1280x720.jpg "迈索尼城堡，麦西尼亚州，希腊")
-[下载1080](https://cn.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "迈索尼城堡，麦西尼亚州，希腊")
-[下载UHD](https://cn.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_UHD.jpg&rf=LaDigue_UHD.jpg "迈索尼城堡，麦西尼亚州，希腊")
 
 ---
