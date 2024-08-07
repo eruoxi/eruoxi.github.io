@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月08日：小猫头鹰瞪了你一眼
+#### 横斑腹小鸮，曼谷，泰国（© Tfilm/Getty Images）
+
+![小猫头鹰瞪了你一眼](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_800x480.jpg&rf=LaDigue_800x480.jpg "小猫头鹰瞪了你一眼")
+
+如果比赛对视，你觉得你能赢过这种鸟儿吗？横斑腹小鸮有着灰褐色的脸和锐利的黄色眼睛，主要在夜间活动。白天，横斑腹小鸮会休息，当其它小鸟发现它们时，会围攻它们。一旦受到骚扰，横斑腹小鸮往往会瞪着入侵者，晃动脑袋，并发出响亮的尖叫声，这种声音有时也被描述为笑声或咯咯声。
+
+在希腊神话中，雅典娜被誉为智慧、战争和艺术女神。传说中，这位女神和鸟类有着某种特殊的联系。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a8%aa%e6%96%91%e8%85%b9%e5%b0%8f%e9%b8%ae&form=hpcapt&filters=HpDate:"20240807_1600" "Bing Wallpaper 2024 8月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240808_SpottedOwlet"&FORM=HPQUIZ "必应主页测验 2024 8月 8")
+[下载480](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_800x480.jpg&rf=LaDigue_800x480.jpg "横斑腹小鸮，曼谷，泰国")
+[下载720](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_1280x720.jpg&rf=LaDigue_1280x720.jpg "横斑腹小鸮，曼谷，泰国")
+[下载1080](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "横斑腹小鸮，曼谷，泰国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_UHD.jpg&rf=LaDigue_UHD.jpg "横斑腹小鸮，曼谷，泰国")
+
+---
 ### 08月07日：不止是航海需要它
 #### 圣约瑟夫北码头内灯和外灯，密歇根州，美国（© Kenneth Keifer/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_1280x720.jpg&rf=LaDigue_1280x720.jpg "大烟山国家公园的森林小道，田纳西州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大烟山国家公园的森林小道，田纳西州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_UHD.jpg&rf=LaDigue_UHD.jpg "大烟山国家公园的森林小道，田纳西州，美国")
-
----
-### 07月24日：可爱的羊咩咩一家
-#### 北约克郡的黑面羊羊群，英格兰（© R A Kearton/Getty Images）
-
-![可爱的羊咩咩一家](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_800x480.jpg&rf=LaDigue_800x480.jpg "可爱的羊咩咩一家")
-
-如果没有他们，家庭聚会的氛围就会大打折扣！今天是美国的堂表亲日，让我们聚在一起庆祝与堂表亲之间独特的亲情纽带。趁此机会，不妨回忆一下你们之间经历过的冒险，成长的秘密，以及那些打打闹闹却让彼此更亲近的时光。“一代堂表亲”（指父亲或母亲的兄弟姐妹的孩子）共享约12.5%的DNA，这就是为什么你对他们常常充满爱和理解。所以，快去和你的堂表亲们好好计划一下，是去野餐？还是去你最喜欢的地方共享美食，度过这愉快的一天。欢乐的时光，不要忘记拍照留念，就像英格兰北约克郡山谷中的这群黑面羊一样。也许，这群羊里面也有几只是“堂表亲”。
-
-斯瓦乐代尔羊（又称黑面羊）这个品种与苏格兰黑脸羊和粗毛羊有着“亲戚关系”，它们主要分布在英国高地，能在开阔的地区茁壮成长，并以此闻名。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a0%82%e8%a1%a8%e4%ba%b2&form=hpcapt&filters=HpDate:"20240723_1600" "Bing Wallpaper 2024 7月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240724_SheepCousins"&FORM=HPQUIZ "必应主页测验 2024 7月 24")
-[下载480](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_800x480.jpg&rf=LaDigue_800x480.jpg "北约克郡的黑面羊羊群，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_1280x720.jpg&rf=LaDigue_1280x720.jpg "北约克郡的黑面羊羊群，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北约克郡的黑面羊羊群，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_UHD.jpg&rf=LaDigue_UHD.jpg "北约克郡的黑面羊羊群，英格兰")
 
 ---
