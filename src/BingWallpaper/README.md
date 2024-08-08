@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月09日：弘扬土著文化
+#### 库斯科附近的萨克塞华曼印加遗址，秘鲁（© SL_Photography/Getty Images）
+
+![弘扬土著文化](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_800x480.jpg&rf=LaDigue_800x480.jpg "弘扬土著文化")
+
+今天，我们为世界各地土著居民的遗产和文化而庆祝。从萨摩亚和格陵兰到新西兰和尼泊尔，全世界90个国家中约有5000种土著文化。他们面临的主要挑战之一是语言的消失：据估计，在全世界4000种土著语言中，约有2600种面临灭绝的危险。
+
+萨克塞华曼是一座由巨大的石头雕刻而成的建筑，其精密度令人惊叹。印加人建造它时所使用的古老技术至今仍是一个不解之谜。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%90%a8%e5%85%8b%e5%a1%9e%e5%8d%8e%e6%9b%bc%e5%8d%b0%e5%8a%a0%e9%81%97%e5%9d%80&form=hpcapt&filters=HpDate:"20240808_1600" "Bing Wallpaper 2024 8月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240809_IncaRuinPeru"&FORM=HPQUIZ "必应主页测验 2024 8月 9")
+[下载480](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_800x480.jpg&rf=LaDigue_800x480.jpg "库斯科附近的萨克塞华曼印加遗址，秘鲁")
+[下载720](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_1280x720.jpg&rf=LaDigue_1280x720.jpg "库斯科附近的萨克塞华曼印加遗址，秘鲁")
+[下载1080](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "库斯科附近的萨克塞华曼印加遗址，秘鲁")
+[下载UHD](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_UHD.jpg&rf=LaDigue_UHD.jpg "库斯科附近的萨克塞华曼印加遗址，秘鲁")
+
+---
 ### 08月08日：小猫头鹰瞪了你一眼
 #### 横斑腹小鸮，曼谷，泰国（© Tfilm/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞纳河上的新桥，巴黎，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞纳河上的新桥，巴黎，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_UHD.jpg&rf=LaDigue_UHD.jpg "塞纳河上的新桥，巴黎，法国")
-
----
-### 07月25日：深入其中
-#### 大烟山国家公园的森林小道，田纳西州，美国（© putmanphoto/Getty Images）
-
-![深入其中](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_800x480.jpg&rf=LaDigue_800x480.jpg "深入其中")
-
-想漫步穿过田纳西州的大烟山吗？大烟山国家公园位于北卡罗来纳州和田纳西州之间，占地超522,000英亩，是自然美景和生物多样性的宝库。这里有超过19,000种已记录的物种，据科学家估计，还有数以万计的物种尚未被发现。数英里长的徒步小径蜿蜒穿过茂密的森林，引领探险者们到达瀑布以及风景优美的观景点。美国东部几座最高的山峰也在公园里，包括克灵曼斯峰，其海拔高达6643英尺。每天清晨，山峰上都笼罩着一层淡淡的薄雾，如幻似梦，无数游客为之陶醉，大烟山国家公园也由此得名。公园是联合国教科文组织认定的世界遗产地和国际生物圈保护区，一年四季拥有不同的美景，春天野花盛开，秋天红叶缤纷，冬天白雪皑皑。大烟山国家公园是自然爱好者和冒险家们的天堂，他们可以在这里深入探索大自然，获得一段难忘的经历。
-
-五月下旬至六月初，公园里的埃尔克蒙特地区迎来同步萤火虫的观赏高峰期。大烟山国家公园至少生活着19种萤火虫，同步萤火虫便是其中之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e7%83%9f%e5%b1%b1%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240724_1600" "Bing Wallpaper 2024 7月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240725_SmokyMountainTrail"&FORM=HPQUIZ "必应主页测验 2024 7月 25")
-[下载480](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_800x480.jpg&rf=LaDigue_800x480.jpg "大烟山国家公园的森林小道，田纳西州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_1280x720.jpg&rf=LaDigue_1280x720.jpg "大烟山国家公园的森林小道，田纳西州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大烟山国家公园的森林小道，田纳西州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_UHD.jpg&rf=LaDigue_UHD.jpg "大烟山国家公园的森林小道，田纳西州，美国")
 
 ---
