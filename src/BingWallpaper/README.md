@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月10日：星空下的约书亚树
+#### 约书亚树国家公园，加利福尼亚州，美国（© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion）
+
+![星空下的约书亚树](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_800x480.jpg&rf=LaDigue_800x480.jpg "星空下的约书亚树")
+
+加利福尼亚州约书亚树国家公园的历史早在1936年8月10日成为国家纪念碑之前就开始了。它位于莫哈维沙漠和科罗拉多沙漠的交汇处，数千年来一直是各种文化的家园。该地最早的居民是来自平托文化的人，他们在公元前8000年到4000年生活在这里。几个世纪后，卡惠拉人、塞拉诺人和切梅惠维人也开始在这片土地上生活。与公园同名的约书亚树生长在占地1242平方英里的土地上。尽管它们的名字是“树”，但它们并不是真正的树，而是一种多肉植物。它们原产于美国西南部和墨西哥北部，可以长到40英尺高。
+
+在新月前后的晴朗夜晚，约书亚树国家公园的天空黑暗程度按波特尔暗空分类法可被评为2至4级。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a6%e4%b9%a6%e4%ba%9a%e6%a0%91%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240809_1600" "Bing Wallpaper 2024 8月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240810_JoshuaTreeNP"&FORM=HPQUIZ "必应主页测验 2024 8月 10")
+[下载480](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_800x480.jpg&rf=LaDigue_800x480.jpg "约书亚树国家公园，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_1280x720.jpg&rf=LaDigue_1280x720.jpg "约书亚树国家公园，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "约书亚树国家公园，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_UHD.jpg&rf=LaDigue_UHD.jpg "约书亚树国家公园，加利福尼亚州，美国")
+
+---
 ### 08月09日：弘扬土著文化
 #### 库斯科附近的萨克塞华曼印加遗址，秘鲁（© SL_Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_1280x720.jpg&rf=LaDigue_1280x720.jpg "摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_UHD.jpg&rf=LaDigue_UHD.jpg "摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国")
-
----
-### 07月26日：比赛开始
-#### 塞纳河上的新桥，巴黎，法国（© f11photo/Getty Images）
-
-![比赛开始](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_800x480.jpg&rf=LaDigue_800x480.jpg "比赛开始")
-
-今天是巴黎夏季奥运会开幕的日子。“光之城”巴黎成为继伦敦之后第二个第三次举办夏季奥运会的城市。这届奥运会的独特之处在于其开幕式：参赛选手不再站在体育场内，而将乘坐船队沿塞纳河游行，两岸观众会为之欢呼。其实，这不是巴黎第一次打破陈规了。在1900年的巴黎奥运会中，虽然在997名参赛运动员中只有22名是女性，但这是历史上第一次有女运动员参加奥运会。
-
-2022年11月14日，“弗里热（The Phryges）”作为2024年夏季奥运会和残奥会的吉祥物亮相。它们是一对拟人化的弗里吉亚帽，在法国历史上是自由的象征。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e9%bb%8e%e5%a5%a5%e6%9e%97%e5%8c%b9%e5%85%8b%e8%bf%90%e5%8a%a8%e4%bc%9a&form=hpcapt&filters=HpDate:"20240725_1600" "Bing Wallpaper 2024 7月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240726_PontNeuf"&FORM=HPQUIZ "必应主页测验 2024 7月 26")
-[下载480](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_800x480.jpg&rf=LaDigue_800x480.jpg "塞纳河上的新桥，巴黎，法国")
-[下载720](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞纳河上的新桥，巴黎，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞纳河上的新桥，巴黎，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_UHD.jpg&rf=LaDigue_UHD.jpg "塞纳河上的新桥，巴黎，法国")
 
 ---
