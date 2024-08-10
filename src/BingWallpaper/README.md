@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月11日：人迹罕至的路
+#### 通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省（© EB Adventure Photography/Shutterstock）
+
+![人迹罕至的路](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_800x480.jpg&rf=LaDigue_800x480.jpg "人迹罕至的路")
+
+一起探索加拿大温哥华岛的美景吧。今天的图片中的那被古松和雪松环绕的木板路，可以通向岛上最大的淡水湖——肯尼迪湖。这个湖占地16000英亩。它位于克里阔特河和肯尼迪河的交汇处，是特拉-奥奎-阿赫特第一民族祖传土地的一部分。
+
+定居型虎鲸分为两大类，一类生活在南岛水域，另一类生活在北岛水域。人们从远处观察这些虎鲸，并给它们编号，许多虎鲸还有名字。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b8%a9%e5%93%a5%e5%8d%8e%e5%b2%9b%e8%82%af%e5%b0%bc%e8%bf%aa%e6%b9%96&form=hpcapt&filters=HpDate:"20240810_1600" "Bing Wallpaper 2024 8月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240811_TofinoVancouver"&FORM=HPQUIZ "必应主页测验 2024 8月 11")
+[下载480](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_800x480.jpg&rf=LaDigue_800x480.jpg "通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省")
+[下载720](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_1280x720.jpg&rf=LaDigue_1280x720.jpg "通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省")
+[下载1080](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省")
+[下载UHD](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_UHD.jpg&rf=LaDigue_UHD.jpg "通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省")
+
+---
 ### 08月10日：星空下的约书亚树
 #### 约书亚树国家公园，加利福尼亚州，美国（© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯科讷省海滩上的浴场小屋，瑞典")
 [下载1080](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯科讷省海滩上的浴场小屋，瑞典")
 [下载UHD](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_UHD.jpg&rf=LaDigue_UHD.jpg "斯科讷省海滩上的浴场小屋，瑞典")
-
----
-### 07月27日：完美的葡萄酒
-#### 摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国（© Jorg Greuel/Getty Images）
-
-![完美的葡萄酒](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_800x480.jpg&rf=LaDigue_800x480.jpg "完美的葡萄酒")
-
-欢迎来到让葡萄酒爱好者梦想成真的法尔茨。位于德国西部的法尔茨以风景如画的葡萄园而闻名，这里山峦起伏，土壤肥沃，气候温暖。得天独厚的风土条件培育出了种类繁多的葡萄。除了雷司令，这里还出产霞多丽、长相思、白皮诺、米勒-图高和丹菲特等著名葡萄品种。法尔茨是德国最大的红葡萄酒产区，该地区超过40%的葡萄园所种植的葡萄都用于酿造红葡萄酒。
-
-虽然野生品种的葡萄很可能原产于法尔茨地区，但是罗马人在公元1年左右带来了葡萄的栽培和种植技术。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b3%95%e5%b0%94%e8%8c%a8%e8%91%a1%e8%90%84%e9%85%92%e4%ba%a7%e5%8c%ba&form=hpcapt&filters=HpDate:"20240726_1600" "Bing Wallpaper 2024 7月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240727_RhinelandVineyards"&FORM=HPQUIZ "必应主页测验 2024 7月 27")
-[下载480](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_800x480.jpg&rf=LaDigue_800x480.jpg "摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国")
-[下载720](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_1280x720.jpg&rf=LaDigue_1280x720.jpg "摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_UHD.jpg&rf=LaDigue_UHD.jpg "摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国")
 
 ---
