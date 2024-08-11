@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月12日：你的声音嘹亮而清晰
+#### 非洲象，肯尼亚安博塞利国家公园（© Ruzdi Ekenheim/Getty Images）
+
+![你的声音嘹亮而清晰](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_800x480.jpg&rf=LaDigue_800x480.jpg "你的声音嘹亮而清晰")
+
+准备好为大象庆祝吧！大象是最大的陆生动物，现存的大象有三种：非洲丛林象、非洲森林象和亚洲象。8月12日是世界大象日，旨在呼吁人们关注这些身处困境的庞然大物，象牙贸易和栖息地丧失让它们的生存环境面临巨大挑战。另外，栖息地的丧失也让大象与人类的接触更加密切，这可能会给大象和人类都带来严重影响。
+
+大象属于象科，是长鼻目中仅存的一个科。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%a4%a7%e8%b1%a1%e6%97%a5&form=hpcapt&filters=HpDate:"20240811_1600" "Bing Wallpaper 2024 8月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240812_ElephantsAmboseli"&FORM=HPQUIZ "必应主页测验 2024 8月 12")
+[下载480](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_800x480.jpg&rf=LaDigue_800x480.jpg "非洲象，肯尼亚安博塞利国家公园")
+[下载720](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_1280x720.jpg&rf=LaDigue_1280x720.jpg "非洲象，肯尼亚安博塞利国家公园")
+[下载1080](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "非洲象，肯尼亚安博塞利国家公园")
+[下载UHD](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_UHD.jpg&rf=LaDigue_UHD.jpg "非洲象，肯尼亚安博塞利国家公园")
+
+---
 ### 08月11日：人迹罕至的路
 #### 通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省（© EB Adventure Photography/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_1280x720.jpg&rf=LaDigue_1280x720.jpg "科贝国家公园的老虎兄弟，北阿坎德邦，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科贝国家公园的老虎兄弟，北阿坎德邦，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_UHD.jpg&rf=LaDigue_UHD.jpg "科贝国家公园的老虎兄弟，北阿坎德邦，印度")
-
----
-### 07月28日：色彩斑斓的海岸线
-#### 斯科讷省海滩上的浴场小屋，瑞典（© Martin Wahlborg/Getty Images）
-
-![色彩斑斓的海岸线](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_800x480.jpg&rf=LaDigue_800x480.jpg "色彩斑斓的海岸线")
-
-说到生机勃勃的海滩景色，瑞典的斯科讷省绝对不会让人失望。今天的图片展示的是斯科讷镇沙滩上的彩色小屋。这片海滩位于法尔斯特布半岛西侧，绵延6英里多，是最受欢迎的海滩之一。这部分海滩靠近斯卡诺尔码头，是夏季游客最喜欢的沐浴地点。
-
-从拥有海滩和避暑胜地的平坦沿海地区向北方内陆深入，是瑞典最肥沃的平原之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%91%9e%e5%85%b8%e6%96%af%e7%a7%91%e8%ae%b7%e9%83%a1&form=hpcapt&filters=HpDate:"20240727_1600" "Bing Wallpaper 2024 7月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240728_BeachHutsSweden"&FORM=HPQUIZ "必应主页测验 2024 7月 28")
-[下载480](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_800x480.jpg&rf=LaDigue_800x480.jpg "斯科讷省海滩上的浴场小屋，瑞典")
-[下载720](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯科讷省海滩上的浴场小屋，瑞典")
-[下载1080](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯科讷省海滩上的浴场小屋，瑞典")
-[下载UHD](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_UHD.jpg&rf=LaDigue_UHD.jpg "斯科讷省海滩上的浴场小屋，瑞典")
 
 ---
