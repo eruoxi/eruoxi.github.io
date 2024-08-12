@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月13日：亚得里亚海高地
+#### 特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚（© Ilija Ascic/Shutterstock）
+
+![亚得里亚海高地](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_800x480.jpg&rf=LaDigue_800x480.jpg "亚得里亚海高地")
+
+欢迎来到克罗地亚杜吉奥托克岛南部的天堂之地——特拉斯契卡自然公园。特拉斯契卡湾位于克罗地亚亚得里亚海岸，被13个岛屿和6个小岛环绕。今天这张照片展示了海湾悬崖，这里形成了一个绵延6英里的迷人海湾，内有壮观悬崖、小岛和宁静水湾。当地人称这些悬崖为“stene”，海拔高达528英尺。其他特色景观还包括亚得里亚海最安全、最广阔的天然港口（拥有25个僻静的海滩），以及以治疗功效闻名的米尔盐湖。因此，当你有兴致游览岛屿时，就来特拉斯契卡吧，在这里，陆地和海洋将无休止地玩着捉迷藏的游戏。
+
+特拉斯契卡海湾的东北侧是光秃秃的，但西南岸却覆盖着茂密的松树、橄榄树和无花果树林。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%89%b9%e6%8b%89%e6%96%af%e5%a5%91%e5%8d%a1%e8%87%aa%e7%84%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240812_1600" "Bing Wallpaper 2024 8月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240813_DugiOtokCroatia"&FORM=HPQUIZ "必应主页测验 2024 8月 13")
+[下载480](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_800x480.jpg&rf=LaDigue_800x480.jpg "特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚")
+[下载720](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_1280x720.jpg&rf=LaDigue_1280x720.jpg "特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚")
+[下载1080](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_UHD.jpg&rf=LaDigue_UHD.jpg "特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚")
+
+---
 ### 08月12日：你的声音嘹亮而清晰
 #### 非洲象，肯尼亚安博塞利国家公园（© Ruzdi Ekenheim/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_UHD.jpg&rf=LaDigue_UHD.jpg "圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚")
-
----
-### 07月29日：咆哮与探索
-#### 科贝国家公园的老虎兄弟，北阿坎德邦，印度（© Sourabh Bharti/Getty Images）
-
-![咆哮与探索](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_800x480.jpg&rf=LaDigue_800x480.jpg "咆哮与探索")
-
-今天是世界爱虎日，这一节日设立于2010年，在每年的7月29日举办庆祝活动，旨在保护老虎免受偷猎和因森林砍伐导致栖息地丧失等威胁。19世纪末，野生老虎的数量估计约为10万只。而如今，老虎的数量已不足6000只。
-
-老虎是世界上现存最大的猫科动物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%88%b1%e8%99%8e%e6%97%a5&form=hpcapt&filters=HpDate:"20240728_1600" "Bing Wallpaper 2024 7月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240729_CorbettTigers"&FORM=HPQUIZ "必应主页测验 2024 7月 29")
-[下载480](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_800x480.jpg&rf=LaDigue_800x480.jpg "科贝国家公园的老虎兄弟，北阿坎德邦，印度")
-[下载720](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_1280x720.jpg&rf=LaDigue_1280x720.jpg "科贝国家公园的老虎兄弟，北阿坎德邦，印度")
-[下载1080](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科贝国家公园的老虎兄弟，北阿坎德邦，印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_UHD.jpg&rf=LaDigue_UHD.jpg "科贝国家公园的老虎兄弟，北阿坎德邦，印度")
 
 ---
