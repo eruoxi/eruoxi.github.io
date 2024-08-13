@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月14日：今天感觉很精神
+#### 澳洲魔蜥，瓦塔卡国家公园，澳大利亚（© Yva Momatiuk and John Eastcott/Minden Pictures）
+
+![今天感觉很精神](https://cn.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_800x480.jpg&rf=LaDigue_800x480.jpg "今天感觉很精神")
+
+从神话到现代媒体，蜥蜴经常被描绘成可怕的爬行动物。事实证明，它们并不像传说中那么危险。今天是世界蜥蜴日，是了解这些冷血动物的最佳时机。蜥蜴有7000多个品种，它们能够适应从沙漠到热带雨林的各种环境。比如壁虎，这些小小的爬行动物有专门的趾垫，可以攀爬墙壁，甚至在天花板上行走。还有变色龙，因其会变色的皮肤而闻名。虽然很多人认为变色龙的目的是为了融入环境，但其实变色龙还通过改变颜色来交流和调节体温。
+
+一些蜥蜴物种，如鞭尾蜥，可以通过孤雌生殖的方式，在没有雄性的情况下繁殖，它们的后代全是雌性。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%be%b3%e6%b4%b2%e9%ad%94%e8%9c%a5&form=hpcapt&filters=HpDate:"20240813_1600" "Bing Wallpaper 2024 8月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240814_WatarrkaLizard"&FORM=HPQUIZ "必应主页测验 2024 8月 14")
+[下载480](https://cn.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_800x480.jpg&rf=LaDigue_800x480.jpg "澳洲魔蜥，瓦塔卡国家公园，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_1280x720.jpg&rf=LaDigue_1280x720.jpg "澳洲魔蜥，瓦塔卡国家公园，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "澳洲魔蜥，瓦塔卡国家公园，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_UHD.jpg&rf=LaDigue_UHD.jpg "澳洲魔蜥，瓦塔卡国家公园，澳大利亚")
+
+---
 ### 08月13日：亚得里亚海高地
 #### 特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚（© Ilija Ascic/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_1280x720.jpg&rf=LaDigue_1280x720.jpg "石林，日落点，布莱斯峡谷国家公园，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "石林，日落点，布莱斯峡谷国家公园，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_UHD.jpg&rf=LaDigue_UHD.jpg "石林，日落点，布莱斯峡谷国家公园，犹他州，美国")
-
----
-### 07月30日：中世纪的曼哈顿
-#### 圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚（© MNStudio/Shutterstock）
-
-![中世纪的曼哈顿](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_800x480.jpg&rf=LaDigue_800x480.jpg "中世纪的曼哈顿")
-
-这些中世纪塔楼高高耸立在意大利中北部锡耶纳附近的小镇圣吉米尼亚诺。中世纪时，围绕着一座供奉圣吉米亚努斯的教堂（意大利语为“圣吉米尼亚诺”），一个小镇逐渐发展起来。除了是朝圣者前往罗马的必经之地外，该镇还因当地的维奈西卡葡萄酒和附近山上种植的藏红花而繁荣起来。然而，1348年席卷欧洲的黑死病减缓了小镇的发展，小镇人口损失过半，至今仍保留着中世纪的特色。
-
-圣吉米尼亚诺成功保护了14座高低错落的塔楼，并因此而闻名于世。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e5%90%89%e7%b1%b3%e5%b0%bc%e4%ba%9a%e8%af%ba&form=hpcapt&filters=HpDate:"20240729_1600" "Bing Wallpaper 2024 7月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240730_GimignanoTuscany"&FORM=HPQUIZ "必应主页测验 2024 7月 30")
-[下载480](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_800x480.jpg&rf=LaDigue_800x480.jpg "圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_UHD.jpg&rf=LaDigue_UHD.jpg "圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚")
 
 ---
