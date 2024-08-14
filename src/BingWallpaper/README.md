@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月15日：“洞”之新世界
+#### 韩松洞，风牙者榜国家公园，越南（© Geng Xu/Getty Images）
+
+![“洞”之新世界](https://cn.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_800x480.jpg&rf=LaDigue_800x480.jpg "“洞”之新世界")
+
+1991年，一名越南伐木工人在越南的风牙者榜国家公园偶然发现了一个大东西。在丛林探险时，他发现了一个洞穴的入口，里面有着咆哮的地下河，后来被命名为韩松洞，即“山水洞”。2009年，英国洞穴研究协会率领一支探险队对该遗址进行了勘探。就在那时，他们发现了一件不可思议的事：这是世界上最大的洞穴！你要问有多大？韩松洞的主要通道长3.1英里，宽490英尺，高660英尺。它的高度足以容纳一座40层的摩天大楼！里面有一个200英尺高的方解石屏障，被称为“越南长城”，石笋高达260英尺。它甚至有自己的天气系统；由于洞穴空气和外部空气之间的温差，洞内形成了云层。此外，一条地下河流将韩松洞与附近的洞穴连接起来，暗示着还有尚未被发现的深度。鉴于其脆弱的生态系统，为保护韩松洞的原始状态制定了严格的规定。每年参观洞穴的游客数量限制在1000人以内。
+
+洞穴中有着世界上已知最高的石笋，高达80米。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%9f%a9%e6%9d%be%e6%b4%9e&form=hpcapt&filters=HpDate:"20240814_1600" "Bing Wallpaper 2024 8月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240815_HangCave"&FORM=HPQUIZ "必应主页测验 2024 8月 15")
+[下载480](https://cn.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_800x480.jpg&rf=LaDigue_800x480.jpg "韩松洞，风牙者榜国家公园，越南")
+[下载720](https://cn.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_1280x720.jpg&rf=LaDigue_1280x720.jpg "韩松洞，风牙者榜国家公园，越南")
+[下载1080](https://cn.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韩松洞，风牙者榜国家公园，越南")
+[下载UHD](https://cn.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_UHD.jpg&rf=LaDigue_UHD.jpg "韩松洞，风牙者榜国家公园，越南")
+
+---
 ### 08月14日：今天感觉很精神
 #### 澳洲魔蜥，瓦塔卡国家公园，澳大利亚（© Yva Momatiuk and John Eastcott/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡普泰湖水上市场，兰加马蒂，孟加拉")
 [下载1080](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡普泰湖水上市场，兰加马蒂，孟加拉")
 [下载UHD](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_UHD.jpg&rf=LaDigue_UHD.jpg "卡普泰湖水上市场，兰加马蒂，孟加拉")
-
----
-### 07月31日：这里有“胡图”吗？
-#### 石林，日落点，布莱斯峡谷国家公园，犹他州，美国（© Tim Fitzharris/Minden Pictures）
-
-![这里有“胡图”吗？](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_800x480.jpg&rf=LaDigue_800x480.jpg "这里有“胡图”吗？")
-
-让我们去石林旅行吧，犹他州的布莱斯峡谷国家公园就是我们的目的地。这座公园以摩门先驱埃比尼泽·布莱斯的名字命名，公园内有日落点，也就是今天图片中看到的石林。这些岩层是由霜冻风化和溪流侵蚀形成的，将石头塑造成超凡脱俗的地貌。日落点位于海拔8000至9000英尺的地方，可以一览红色、橙色和白色的石峰全景。其中最著名的是雷神之锤，这是一座石林，俯瞰着被称为“寂静之城”的公园的一部分。在日落点通往日出点的女王花园小径，你可以欣赏到更多美景和岩层，包括维多利亚女王石林。据居住在这一地区的派尤特土著居民所讲述的传说，石林是被狡猾的库伊特狐狸变成石头的罪人。无论你是徒步旅行者、摄影师还是普通游客，石林都在期待你的到来。
-
-公园的主要景点是布莱斯峡谷，尽管它的名字有“峡谷”，但实际上它并不是一个峡谷。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e8%8e%b1%e6%96%af%e5%b3%a1%e8%b0%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240730_1600" "Bing Wallpaper 2024 7月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240731_HoodoosBryce"&FORM=HPQUIZ "必应主页测验 2024 7月 31")
-[下载480](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_800x480.jpg&rf=LaDigue_800x480.jpg "石林，日落点，布莱斯峡谷国家公园，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_1280x720.jpg&rf=LaDigue_1280x720.jpg "石林，日落点，布莱斯峡谷国家公园，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "石林，日落点，布莱斯峡谷国家公园，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_UHD.jpg&rf=LaDigue_UHD.jpg "石林，日落点，布莱斯峡谷国家公园，犹他州，美国")
 
 ---
