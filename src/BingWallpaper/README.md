@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月16日：系好安全带！
+#### 长岛温泉乐园的过山车，三重县，日本（© Japanese amateur photographer/Getty Images）
+
+![系好安全带！](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_800x480.jpg&rf=LaDigue_800x480.jpg "系好安全带！")
+
+从单轨到虚拟现实体验，几个世纪以来，过山车一直在为人们带来各种感官刺激。今天是国际过山车日，这是一个完美的借口，可以潜入这些标志性景点的曲折蜿蜒之中。这些游乐设施的起源可以追溯到17世纪的俄罗斯，当时有一种名为“俄罗斯山脉”的木制滑梯，是季节性的娱乐活动设施。然而，我们所熟知的第一个过山车是19世纪初在法国巴黎建造的，它被称为“贝尔维尔俄罗斯山”，其特点是轮式手推车牢牢地固定在轨道上。快进到20世纪，游乐设施飞速发展，并且首次出现了环形过山车。
+
+在日本，喷气式过山车一词被用于指代大部分过山车，此类游乐园设施非常受当地人欢迎。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%95%bf%e5%b2%9b%e6%b8%a9%e6%b3%89%e4%b9%90%e5%9b%ad&form=hpcapt&filters=HpDate:"20240815_1600" "Bing Wallpaper 2024 8月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240816_JapanRollerCoaster"&FORM=HPQUIZ "必应主页测验 2024 8月 16")
+[下载480](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_800x480.jpg&rf=LaDigue_800x480.jpg "长岛温泉乐园的过山车，三重县，日本")
+[下载720](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_1280x720.jpg&rf=LaDigue_1280x720.jpg "长岛温泉乐园的过山车，三重县，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "长岛温泉乐园的过山车，三重县，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_UHD.jpg&rf=LaDigue_UHD.jpg "长岛温泉乐园的过山车，三重县，日本")
+
+---
 ### 08月15日：“洞”之新世界
 #### 韩松洞，风牙者榜国家公园，越南（© Geng Xu/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_1280x720.jpg&rf=LaDigue_1280x720.jpg "象鼻湾，维尔京群岛国家公园，圣约翰岛")
 [下载1080](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "象鼻湾，维尔京群岛国家公园，圣约翰岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_UHD.jpg&rf=LaDigue_UHD.jpg "象鼻湾，维尔京群岛国家公园，圣约翰岛")
-
----
-### 08月01日：物价喜人
-#### 卡普泰湖水上市场，兰加马蒂，孟加拉（© Azim Khan Ronnie/Amazing Aerial Agency）
-
-![物价喜人](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_800x480.jpg&rf=LaDigue_800x480.jpg "物价喜人")
-
-每周六，孟加拉国最大的人工湖都会变得五彩缤纷、生机勃勃。兰加马蒂区的卡普泰湖是今天画面中时令水果水上市场的所在地。然而，卡普泰湖自身的魅力更为深远。该湖建于1961年，用于水力发电，不仅淹没了土地和查克马斯国王的宫殿，还导致10万人流离失所。然而，顽强的生命力战胜了这一切，当地社区进行了调整。现在，繁荣的集市已成为人们的生计。在这里，农民们沿着河岸驾着木船与热心的买家打交道。在这里，你既可以带着满满一袋新鲜水果离开，也可以带着难忘的回忆离开，选择你喜欢的方式就好。
-
-从熙熙攘攘的气氛到令人垂涎的街头美食，每个人都能在这个市场上找到自己喜欢的东西。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%85%b0%e5%8a%a0%e9%a9%ac%e8%92%82+%e5%ad%9f%e5%8a%a0%e6%8b%89&form=hpcapt&filters=HpDate:"20240731_1600" "Bing Wallpaper 2024 8月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240801_KaptaiLake"&FORM=HPQUIZ "必应主页测验 2024 8月 1")
-[下载480](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_800x480.jpg&rf=LaDigue_800x480.jpg "卡普泰湖水上市场，兰加马蒂，孟加拉")
-[下载720](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡普泰湖水上市场，兰加马蒂，孟加拉")
-[下载1080](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡普泰湖水上市场，兰加马蒂，孟加拉")
-[下载UHD](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_UHD.jpg&rf=LaDigue_UHD.jpg "卡普泰湖水上市场，兰加马蒂，孟加拉")
 
 ---
