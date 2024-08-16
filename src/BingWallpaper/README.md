@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月17日：照亮前行之路
+#### 阿尔凡齐纳灯塔，阿尔加维，葡萄牙（© Andreas Kunz/Getty Images）
+
+![照亮前行之路](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_800x480.jpg&rf=LaDigue_800x480.jpg "照亮前行之路")
+
+今天照片中的灯塔位于葡萄牙南部海岸阿尔加维的卡沃埃罗。阿尔凡齐纳灯塔建于1919年，照耀着大海，帮助船只在该地区周围危险的水域航行。这座灯塔是著名的旅游胜地，同时也是该地区与海洋紧密联系的象征。如果你有幸住在灯塔附近，那么本周末就是拜访灯塔的最佳时机。
+
+多项研究认为，阿尔加维是世界上最适合养老的地方之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e5%b0%94%e5%8a%a0%e7%bb%b4&form=hpcapt&filters=HpDate:"20240816_1600" "Bing Wallpaper 2024 8月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240817_AlfanzinaLighthouse"&FORM=HPQUIZ "必应主页测验 2024 8月 17")
+[下载480](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔凡齐纳灯塔，阿尔加维，葡萄牙")
+[下载720](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔凡齐纳灯塔，阿尔加维，葡萄牙")
+[下载1080](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔凡齐纳灯塔，阿尔加维，葡萄牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔凡齐纳灯塔，阿尔加维，葡萄牙")
+
+---
 ### 08月16日：系好安全带！
 #### 长岛温泉乐园的过山车，三重县，日本（© Japanese amateur photographer/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_1280x720.jpg&rf=LaDigue_1280x720.jpg "天生三桥，重庆武隆岩溶国家地质公园，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "天生三桥，重庆武隆岩溶国家地质公园，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_UHD.jpg&rf=LaDigue_UHD.jpg "天生三桥，重庆武隆岩溶国家地质公园，中国")
-
----
-### 08月02日：彩虹之下的某个地方
-#### 象鼻湾，维尔京群岛国家公园，圣约翰岛（© wheatley/Getty Images）
-
-![彩虹之下的某个地方](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_800x480.jpg&rf=LaDigue_800x480.jpg "彩虹之下的某个地方")
-
-1956年，商人兼自然保护主义者劳伦斯·洛克菲勒看到了加勒比海美属维尔京群岛之一圣约翰岛的美景，并意识到必须保护它。时间快进到今天，我们正在庆祝维尔京群岛国家公园成立68周年。这座公园占地约60%的岛屿和5,650英亩的水下土地，是一个活生生的保护范例，这还要归功于洛克菲勒向美国政府捐赠了5,000多英亩的土地。即使在2017年飓风“厄玛”和“玛丽亚”造成破坏之后，公园仍然强势回归，仅2018年就接待了超过10万名游客。公园里有800多种植物，如野生罗望子和世纪树，140种鸟类，如绿颈鹑鸠和绿喉蜂鸟，以及大约50种珊瑚。在礁湾小径上，徒步旅行者可以看到古老的泰诺岩画和甘蔗种植园遗址，展示了该岛的殖民历史。从图中树干湾的水下浮潜小径到马霍湾满是海龟的水域，公园提供了各种各样的海洋冒险活动。
-
-维尔京群岛国家公园覆盖了圣约翰岛的大部分地区，公园40%的面积都在水下。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%b1%a1%e9%bc%bb%e6%b9%be+%e5%9c%a3%e7%ba%a6%e7%bf%b0%e5%b2%9b&form=hpcapt&filters=HpDate:"20240801_1600" "Bing Wallpaper 2024 8月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240802_TrunkBay"&FORM=HPQUIZ "必应主页测验 2024 8月 2")
-[下载480](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_800x480.jpg&rf=LaDigue_800x480.jpg "象鼻湾，维尔京群岛国家公园，圣约翰岛")
-[下载720](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_1280x720.jpg&rf=LaDigue_1280x720.jpg "象鼻湾，维尔京群岛国家公园，圣约翰岛")
-[下载1080](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "象鼻湾，维尔京群岛国家公园，圣约翰岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_UHD.jpg&rf=LaDigue_UHD.jpg "象鼻湾，维尔京群岛国家公园，圣约翰岛")
 
 ---
