@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月18日：一个无与伦比的码头
+#### 日落时的亨廷顿海滩码头，加利福尼亚州，美国（© Stan Moniz Photography/TANDEM Stills + Motion）
+
+![一个无与伦比的码头](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_800x480.jpg&rf=LaDigue_800x480.jpg "一个无与伦比的码头")
+
+在今天的照片中，我们看到太阳开始消失在加利福尼亚亨廷顿海滩的码头下方。亨廷顿海滩码头始建于1902年，曾因暴风雨而受损，九年后才得以重建。第二次世界大战期间，码头上安装了一个潜艇瞭望哨，为战争出力。如今，这里已成为一个热门的旅游景点，游客们可以在这里钓鱼，观看冲浪者在太平洋上乘风破浪。
+
+最初的码头是由木头建造的，延伸到太平洋1000英尺（300）米的地方，但在1910年的一场风暴中受损，码头大部分落入了海洋。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%ba%a8%e5%bb%b7%e9%a1%bf%e6%b5%b7%e6%bb%a9%e7%a0%81%e5%a4%b4&form=hpcapt&filters=HpDate:"20240817_1600" "Bing Wallpaper 2024 8月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240818_HuntingtonBeach"&FORM=HPQUIZ "必应主页测验 2024 8月 18")
+[下载480](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_800x480.jpg&rf=LaDigue_800x480.jpg "日落时的亨廷顿海滩码头，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时的亨廷顿海滩码头，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时的亨廷顿海滩码头，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_UHD.jpg&rf=LaDigue_UHD.jpg "日落时的亨廷顿海滩码头，加利福尼亚州，美国")
+
+---
 ### 08月17日：照亮前行之路
 #### 阿尔凡齐纳灯塔，阿尔加维，葡萄牙（© Andreas Kunz/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑斑羚和红嘴牛椋鸟，南非")
 [下载1080](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑斑羚和红嘴牛椋鸟，南非")
 [下载UHD](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_UHD.jpg&rf=LaDigue_UHD.jpg "黑斑羚和红嘴牛椋鸟，南非")
-
----
-### 08月03日：武隆景区的“三生三世”
-#### 天生三桥，重庆武隆岩溶国家地质公园，中国（© Pav-Pro Photography Ltd/Shutterstock）
-
-![武隆景区的“三生三世”](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_800x480.jpg&rf=LaDigue_800x480.jpg "武隆景区的“三生三世”")
-
-中国武隆喀斯特“天生三桥”是大自然历经数百年雕琢而成的地质奇观。这些石灰岩桥耸立在幽深的峡谷中，以三条龙的名字命名：天龙、青龙和黑龙。天龙桥高771英尺，桥墩上有一个迷宫般的洞穴。青龙桥高922英尺，在太阳出来的时候可以欣赏到壮丽的景色。黑龙桥是三座桥中最宽的一座，长633英尺，高732英尺。游客可以游览武隆喀斯特国家地质公园，参观芙蓉洞等景点。芙蓉洞高9337英尺，洞内有巨大的石灰岩钟乳石，这些钟乳石是悬挂在洞顶的矿物。站在这些壮观的天生桥下，你不禁会对时间和自然的巨大力量而肃然起敬。
-
-从令人叹为观止的洞穴到迷人的天坑，喀斯特地貌让我们得以一窥地球错综复杂的进程和水侵蚀的力量。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a9%e7%94%9f%e4%b8%89%e6%a1%a5+&form=hpcapt&filters=HpDate:"20240802_1600" "Bing Wallpaper 2024 8月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240803_WulongKarst"&FORM=HPQUIZ "必应主页测验 2024 8月 3")
-[下载480](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_800x480.jpg&rf=LaDigue_800x480.jpg "天生三桥，重庆武隆岩溶国家地质公园，中国")
-[下载720](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_1280x720.jpg&rf=LaDigue_1280x720.jpg "天生三桥，重庆武隆岩溶国家地质公园，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "天生三桥，重庆武隆岩溶国家地质公园，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_UHD.jpg&rf=LaDigue_UHD.jpg "天生三桥，重庆武隆岩溶国家地质公园，中国")
 
 ---
