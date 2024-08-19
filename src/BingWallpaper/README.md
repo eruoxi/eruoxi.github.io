@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月20日：鹿和羚羊嬉戏的地方
+#### 大提顿国家公园日出,怀俄明州,美国（© Kurt Budliger/TANDEM Stills + Motion）
+
+![鹿和羚羊嬉戏的地方](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_800x480.jpg&rf=LaDigue_800x480.jpg "鹿和羚羊嬉戏的地方")
+
+正如今天图片所展示的那样，怀俄明州和大提顿国家公园拥有令人惊叹的美景，这就是为什么它可以吸引人们不断地回到这里。早些年间，法国猎人将这里取名为“三个乳头”，1929年，小约翰·戴维森·洛克菲勒等生态环保人士创建了大提顿国家公园。公园里有灰熊、狼、野牛、驼鹿和白头海雕等动物，是一个几乎未受破坏的动植物生态系统。
+
+https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e6%8f%90%e9%a1%bf%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240819_1600" "Bing Wallpaper 2024 8月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240820_TetonSunrise"&FORM=HPQUIZ "必应主页测验 2024 8月 20")
+[下载480](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_800x480.jpg&rf=LaDigue_800x480.jpg "大提顿国家公园日出,怀俄明州,美国")
+[下载720](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_1280x720.jpg&rf=LaDigue_1280x720.jpg "大提顿国家公园日出,怀俄明州,美国")
+[下载1080](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大提顿国家公园日出,怀俄明州,美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_UHD.jpg&rf=LaDigue_UHD.jpg "大提顿国家公园日出,怀俄明州,美国")
+
+---
 ### 08月19日：铿锵有力的打击乐
 #### Bufadero de la Garita，大加那利岛，西班牙（© Marco Bottigelli/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_1280x720.jpg&rf=LaDigue_1280x720.jpg "莫洛基尼，毛伊岛，夏威夷，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫洛基尼，毛伊岛，夏威夷，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_UHD.jpg&rf=LaDigue_UHD.jpg "莫洛基尼，毛伊岛，夏威夷，美国")
-
----
-### 08月05日：一片紫色的海洋
-#### 薰衣草田，赫特福德郡 ，英格兰，英国（© George W Johnson/Getty Images）
-
-![一片紫色的海洋](https://cn.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_800x480.jpg&rf=LaDigue_800x480.jpg "一片紫色的海洋")
-
-当你漫步在英格兰赫特福德郡的自然风景中时，会看到美丽的薰衣草田，正如今天的图片所展示的那样。作为薄荷科的一员，薰衣草起源于地中海、印度和中东地区。这种紫色的植物在不同的文明中生长蔓延，埃及人曾用它制作木乃伊，在图坦卡蒙的墓穴中便有薰衣草的遗迹，罗马人也将其视若珍宝，因其具有治疗和清洁的特性。
-
-薰衣草是唇形科、薰衣草属半灌木或矮灌木，轮伞花序，花朵长在高出叶子的穗状花序上，有些品种的穗状花序有分枝，有些品种在花序顶端长有彩色苞片。野生品种的薰衣草花朵可能是蓝色、蓝紫色或淡紫色，极少数为黑紫色或淡黄色。花萼呈管状，花冠也是管状的，通常有五个裂片（上唇通常裂开，下唇有两个裂片）。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%96%b0%e8%a1%a3%e8%8d%89&form=hpcapt&filters=HpDate:"20240804_1600" "Bing Wallpaper 2024 8月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240805_HertfordshireLavender"&FORM=HPQUIZ "必应主页测验 2024 8月 5")
-[下载480](https://cn.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_800x480.jpg&rf=LaDigue_800x480.jpg "薰衣草田，赫特福德郡 ，英格兰，英国")
-[下载720](https://cn.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_1280x720.jpg&rf=LaDigue_1280x720.jpg "薰衣草田，赫特福德郡 ，英格兰，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "薰衣草田，赫特福德郡 ，英格兰，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_UHD.jpg&rf=LaDigue_UHD.jpg "薰衣草田，赫特福德郡 ，英格兰，英国")
 
 ---
