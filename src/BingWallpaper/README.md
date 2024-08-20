@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月21日：等待前往加拉帕戈斯群岛
+#### 纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔（© Tui De Roy/Minden Pictures）
+
+![等待前往加拉帕戈斯群岛](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_800x480.jpg&rf=LaDigue_800x480.jpg "等待前往加拉帕戈斯群岛")
+
+东太平洋的加拉帕戈斯群岛是野生动物的天堂，它们的栖息地范围从干旱地区到热带雨林不等。由于这些岛屿的地理位置相对孤立，岛上许多生物都是独一无二的，纳斯卡鲣鸟便是其中之一。今天的照片展示的就是在沃尔夫岛上生活的纳斯卡鲣鸟。这些引人注目的鸟儿走路时举止笨拙搞笑，它们的英文名“Nazca booby”也十分有趣，不过“booby”一词其实源自西班牙语“bobo”，意思是小丑。
+
+纳斯卡鲣鸟在悬崖附近的裸露地面筑巢，那里几乎没有植被，雄性纳斯卡鲣鸟会挑选并保卫自己的领土，而后进入求偶期，吸引雌性。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%b3%e6%96%af%e5%8d%a1%e9%b2%a3%e9%b8%9f&form=hpcapt&filters=HpDate:"20240820_1600" "Bing Wallpaper 2024 8月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240821_NazcaBooby"&FORM=HPQUIZ "必应主页测验 2024 8月 21")
+[下载480](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_800x480.jpg&rf=LaDigue_800x480.jpg "纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔")
+[下载720](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_1280x720.jpg&rf=LaDigue_1280x720.jpg "纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔")
+[下载1080](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_UHD.jpg&rf=LaDigue_UHD.jpg "纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔")
+
+---
 ### 08月20日：鹿和羚羊嬉戏的地方
 #### 大提顿国家公园日出,怀俄明州,美国（© Kurt Budliger/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣约瑟夫北码头内灯和外灯，密歇根州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣约瑟夫北码头内灯和外灯，密歇根州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_UHD.jpg&rf=LaDigue_UHD.jpg "圣约瑟夫北码头内灯和外灯，密歇根州，美国")
-
----
-### 08月06日：迎合所有人口味的景点
-#### 莫洛基尼，毛伊岛，夏威夷，美国（© Douglas Peebles/eStock Photo）
-
-![迎合所有人口味的景点](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_800x480.jpg&rf=LaDigue_800x480.jpg "迎合所有人口味的景点")
-
-今天我们来到了莫洛基尼火山口。它是太平洋中的一个迷人“月牙”，位于夏威夷的毛伊岛和卡霍奥拉维岛之间的阿拉拉凯基海峡中。小岛是约23万年前火山喷发后留下的遗迹形成的。关于小岛的形成，还有另一个说法。在夏威夷的神话中，火女神佩蕾爱上了一个名叫莫欧的男人，问题是莫欧爱着另一个女人。佩蕾的复仇往往很暴力：她把情敌切成了两半，对方的身体变成了莫洛基尼，脑袋变成了普奥莱，即毛伊岛上的火山渣锥。
-
-在夏威夷的传说中，莫洛基尼是一个美丽的女人，她和火女神佩蕾爱上了同一个男人。嫉妒的佩蕾将情敌切成两半，并将其变成了石头。据说，莫洛基尼的头就是马凯纳海滩边的火山渣锥：普奥莱。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8e%ab%e6%b4%9b%e5%9f%ba%e5%b0%bc%e9%99%a8%e7%9f%b3%e5%9d%91&form=hpcapt&filters=HpDate:"20240805_1600" "Bing Wallpaper 2024 8月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240806_MolokiniHawaii"&FORM=HPQUIZ "必应主页测验 2024 8月 6")
-[下载480](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_800x480.jpg&rf=LaDigue_800x480.jpg "莫洛基尼，毛伊岛，夏威夷，美国")
-[下载720](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_1280x720.jpg&rf=LaDigue_1280x720.jpg "莫洛基尼，毛伊岛，夏威夷，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫洛基尼，毛伊岛，夏威夷，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_UHD.jpg&rf=LaDigue_UHD.jpg "莫洛基尼，毛伊岛，夏威夷，美国")
 
 ---
