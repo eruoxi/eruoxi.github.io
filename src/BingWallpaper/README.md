@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月22日：晨曦之光
+#### 海洋城日出时的鸟瞰图，马里兰州，美国（© Kevin Olson/Amazing Aerial Agency）
+
+![晨曦之光](https://cn.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_800x480.jpg&rf=LaDigue_800x480.jpg "晨曦之光")
+
+欢迎来到海洋城！这是一个美丽的海滨度假胜地，为游客提供无尽的乐趣和冒险。在1875年之前，这里只是一个安静的渔村。同年，大西洋酒店开业，标志着该镇转型为一个新兴的度假胜地。时光荏苒，如今，海洋城是美国最受欢迎的度假胜地之一，为各年龄段的游客提供丰富多样的娱乐活动。该镇有一段标志性的3英里长的木板路，两旁遍布餐厅、商店和游乐园。绵延10英里的纯净沙滩非常适合晒日光浴、打沙滩排球或堆沙堡，而海水则适合畅游。海洋城拥有丰富的娱乐探险活动和深厚的历史底蕴，是一个迷人的休闲胜地，吸引着游客一次又一次前来游玩。
+
+海洋城的入口是在1933年的一场强飓风中形成的，这场飓风还摧毁了横跨辛尼普克森特湾的火车轨道。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e9%87%8c%e5%85%b0%e5%b7%9e%e6%b5%b7%e6%b4%8b%e5%9f%8e&form=hpcapt&filters=HpDate:"20240821_1600" "Bing Wallpaper 2024 8月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240822_OceanCityMD"&FORM=HPQUIZ "必应主页测验 2024 8月 22")
+[下载480](https://cn.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_800x480.jpg&rf=LaDigue_800x480.jpg "海洋城日出时的鸟瞰图，马里兰州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_1280x720.jpg&rf=LaDigue_1280x720.jpg "海洋城日出时的鸟瞰图，马里兰州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海洋城日出时的鸟瞰图，马里兰州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_UHD.jpg&rf=LaDigue_UHD.jpg "海洋城日出时的鸟瞰图，马里兰州，美国")
+
+---
 ### 08月21日：等待前往加拉帕戈斯群岛
 #### 纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔（© Tui De Roy/Minden Pictures）
 
@@ -235,22 +252,5 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_1280x720.jpg&rf=LaDigue_1280x720.jpg "横斑腹小鸮，曼谷，泰国")
 [下载1080](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "横斑腹小鸮，曼谷，泰国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_UHD.jpg&rf=LaDigue_UHD.jpg "横斑腹小鸮，曼谷，泰国")
-
----
-### 08月07日：不止是航海需要它
-#### 圣约瑟夫北码头内灯和外灯，密歇根州，美国（© Kenneth Keifer/Getty Images）
-
-![不止是航海需要它](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_800x480.jpg&rf=LaDigue_800x480.jpg "不止是航海需要它")
-
-昏暗的黄昏中，灯塔点亮了密歇根湖与圣约瑟夫河的交汇处。19世纪，密歇根湖上修建了两座码头，它们分别位于圣约瑟夫河河口的两侧，以帮助保护上游航行的船只。到了20世纪初，每个码头的尽头都修建了一座灯塔。如图所示，它们便是圣约瑟夫北码头内灯和外灯。2005年，这些码头尽头的灯塔被添加到美国国家历史遗迹名录中。
-
-花鸟灯塔位于浙江省舟山市嵊泗县，它是中国沿海数百座灯塔中最大、功能最齐全、设备最先进、历史最悠久的灯塔之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e7%ba%a6%e7%91%9f%e5%a4%ab%e5%8c%97%e7%a0%81%e5%a4%b4%e5%86%85%e7%81%af%e5%92%8c%e5%a4%96%e7%81%af&form=hpcapt&filters=HpDate:"20240806_1600" "Bing Wallpaper 2024 8月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240807_MichiganLighthouse"&FORM=HPQUIZ "必应主页测验 2024 8月 7")
-[下载480](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_800x480.jpg&rf=LaDigue_800x480.jpg "圣约瑟夫北码头内灯和外灯，密歇根州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣约瑟夫北码头内灯和外灯，密歇根州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣约瑟夫北码头内灯和外灯，密歇根州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_UHD.jpg&rf=LaDigue_UHD.jpg "圣约瑟夫北码头内灯和外灯，密歇根州，美国")
 
 ---
