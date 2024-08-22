@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月23日：通往过去的大门
+#### 帕侬蓝寺，武里南府，泰国（© Banjongseal324/Getty Images）
+
+![通往过去的大门](https://cn.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_800x480.jpg&rf=LaDigue_800x480.jpg "通往过去的大门")
+
+今天，让我们走进泰国武里南府的帕侬蓝历史公园。在这里，高棉建筑和高棉人的历史栩栩如生地展现在人们面前。该遗址建于10至13世纪，是一座供奉湿婆神的印度教寺庙。寺庙位于一座死火山的边缘，从这里可以俯瞰周围的稻田和远处高耸入云的柬埔寨扁担山脉。
+
+从1971年到1988年，泰国美术局花了17年将该建筑群恢复原状。1988年5月21日，玛哈·扎克里·诗琳通公主宣布帕侬蓝历史公园正式开放。2005年，该寺庙的资料被提交给联合国教科文组织，申请列入世界遗产名录。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%95%e4%be%ac%e8%93%9d%e5%8e%86%e5%8f%b2%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240822_1600" "Bing Wallpaper 2024 8月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240823_PrasatPhanom"&FORM=HPQUIZ "必应主页测验 2024 8月 23")
+[下载480](https://cn.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_800x480.jpg&rf=LaDigue_800x480.jpg "帕侬蓝寺，武里南府，泰国")
+[下载720](https://cn.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕侬蓝寺，武里南府，泰国")
+[下载1080](https://cn.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕侬蓝寺，武里南府，泰国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_UHD.jpg&rf=LaDigue_UHD.jpg "帕侬蓝寺，武里南府，泰国")
+
+---
 ### 08月22日：晨曦之光
 #### 海洋城日出时的鸟瞰图，马里兰州，美国（© Kevin Olson/Amazing Aerial Agency）
 
@@ -235,22 +252,5 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_1280x720.jpg&rf=LaDigue_1280x720.jpg "库斯科附近的萨克塞华曼印加遗址，秘鲁")
 [下载1080](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "库斯科附近的萨克塞华曼印加遗址，秘鲁")
 [下载UHD](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_UHD.jpg&rf=LaDigue_UHD.jpg "库斯科附近的萨克塞华曼印加遗址，秘鲁")
-
----
-### 08月08日：小猫头鹰瞪了你一眼
-#### 横斑腹小鸮，曼谷，泰国（© Tfilm/Getty Images）
-
-![小猫头鹰瞪了你一眼](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_800x480.jpg&rf=LaDigue_800x480.jpg "小猫头鹰瞪了你一眼")
-
-如果比赛对视，你觉得你能赢过这种鸟儿吗？横斑腹小鸮有着灰褐色的脸和锐利的黄色眼睛，主要在夜间活动。白天，横斑腹小鸮会休息，当其它小鸟发现它们时，会围攻它们。一旦受到骚扰，横斑腹小鸮往往会瞪着入侵者，晃动脑袋，并发出响亮的尖叫声，这种声音有时也被描述为笑声或咯咯声。
-
-在希腊神话中，雅典娜被誉为智慧、战争和艺术女神。传说中，这位女神和鸟类有着某种特殊的联系。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a8%aa%e6%96%91%e8%85%b9%e5%b0%8f%e9%b8%ae&form=hpcapt&filters=HpDate:"20240807_1600" "Bing Wallpaper 2024 8月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240808_SpottedOwlet"&FORM=HPQUIZ "必应主页测验 2024 8月 8")
-[下载480](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_800x480.jpg&rf=LaDigue_800x480.jpg "横斑腹小鸮，曼谷，泰国")
-[下载720](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_1280x720.jpg&rf=LaDigue_1280x720.jpg "横斑腹小鸮，曼谷，泰国")
-[下载1080](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "横斑腹小鸮，曼谷，泰国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_UHD.jpg&rf=LaDigue_UHD.jpg "横斑腹小鸮，曼谷，泰国")
 
 ---
