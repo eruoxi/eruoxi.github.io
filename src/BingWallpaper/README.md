@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月24日：尽享森林与水域之美
+#### 卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国（© Cavan Images/Alamy Stock Photo）
+
+![尽享森林与水域之美](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_800x480.jpg&rf=LaDigue_800x480.jpg "尽享森林与水域之美")
+
+欢迎来到卡塔丁森林和水域国家纪念碑，这里茂密的林地和原始的水道绵延不绝，一望无际。该保护区占地近87500英亩，于2016年的这一天建立。一百多年以来，该地区在缅因州的伐木业中发挥了重要作用，但在19世纪末，伐木业开始衰落。慈善家罗珊·昆比带头努力保护我们今天在这里看到的景观。她和她的基金会于2001年开始购买巴克斯特州立公园附近的土地，并于2016年将其捐赠给联邦政府，以确保后人能够保护这片土地。
+
+人类在该地区定居的历史可以追溯到1.1万年前，原住民靠这片森林及其水道维持生计以及运输物品。佩诺布斯科特印第安民族和其他瓦班纳基部落至今仍将佩诺布斯科特河视为其文化的重要标志。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e5%a1%94%e4%b8%81%e6%a3%ae%e6%9e%97%e5%92%8c%e6%b0%b4%e5%9f%9f%e5%9b%bd%e5%ae%b6%e7%ba%aa%e5%bf%b5%e7%a2%91&form=hpcapt&filters=HpDate:"20240823_1600" "Bing Wallpaper 2024 8月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240824_KatahdinWoods"&FORM=HPQUIZ "必应主页测验 2024 8月 24")
+[下载480](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_800x480.jpg&rf=LaDigue_800x480.jpg "卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_UHD.jpg&rf=LaDigue_UHD.jpg "卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国")
+
+---
 ### 08月23日：通往过去的大门
 #### 帕侬蓝寺，武里南府，泰国（© Banjongseal324/Getty Images）
 
@@ -235,22 +252,5 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_1280x720.jpg&rf=LaDigue_1280x720.jpg "约书亚树国家公园，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "约书亚树国家公园，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_UHD.jpg&rf=LaDigue_UHD.jpg "约书亚树国家公园，加利福尼亚州，美国")
-
----
-### 08月09日：弘扬土著文化
-#### 库斯科附近的萨克塞华曼印加遗址，秘鲁（© SL_Photography/Getty Images）
-
-![弘扬土著文化](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_800x480.jpg&rf=LaDigue_800x480.jpg "弘扬土著文化")
-
-今天，我们为世界各地土著居民的遗产和文化而庆祝。从萨摩亚和格陵兰到新西兰和尼泊尔，全世界90个国家中约有5000种土著文化。他们面临的主要挑战之一是语言的消失：据估计，在全世界4000种土著语言中，约有2600种面临灭绝的危险。
-
-萨克塞华曼是一座由巨大的石头雕刻而成的建筑，其精密度令人惊叹。印加人建造它时所使用的古老技术至今仍是一个不解之谜。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%90%a8%e5%85%8b%e5%a1%9e%e5%8d%8e%e6%9b%bc%e5%8d%b0%e5%8a%a0%e9%81%97%e5%9d%80&form=hpcapt&filters=HpDate:"20240808_1600" "Bing Wallpaper 2024 8月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240809_IncaRuinPeru"&FORM=HPQUIZ "必应主页测验 2024 8月 9")
-[下载480](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_800x480.jpg&rf=LaDigue_800x480.jpg "库斯科附近的萨克塞华曼印加遗址，秘鲁")
-[下载720](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_1280x720.jpg&rf=LaDigue_1280x720.jpg "库斯科附近的萨克塞华曼印加遗址，秘鲁")
-[下载1080](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "库斯科附近的萨克塞华曼印加遗址，秘鲁")
-[下载UHD](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_UHD.jpg&rf=LaDigue_UHD.jpg "库斯科附近的萨克塞华曼印加遗址，秘鲁")
 
 ---
