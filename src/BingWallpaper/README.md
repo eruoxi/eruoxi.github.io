@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月25日：守护这片乐园
+#### 急流湖的日出，冰川国家公园，蒙大拿州，美国（© Jason Savage/Tandem Stills + Motion）
+
+![守护这片乐园](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_800x480.jpg&rf=LaDigue_800x480.jpg "守护这片乐园")
+
+在美国国家公园管理局创始人日，与我们一起为美国的荒野而庆祝。今天，我们向具有创建国家公园管理局的远见和卓识的创始人致敬。伍德罗·威尔逊总统成立该组织的目的是保护野生动物、维护自然景观、保存历史文物并提供教育项目。在这一天，您可以游览美国429个国家公园中的其中一个，并参与到护林员主导的项目、志愿者活动和庆祝活动中，以便于了解更多与之相关的历史。
+
+急流湖以西的山脉高出湖面3000英尺（910米）。正在迅速消失的格林内尔冰川是为湖泊和溪流提供水源的几处冰川和雪原之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%86%b0%e5%b7%9d%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad%e6%80%a5%e6%b5%81%e6%b9%96&form=hpcapt&filters=HpDate:"20240824_1600" "Bing Wallpaper 2024 8月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240825_SwiftcurrentLake"&FORM=HPQUIZ "必应主页测验 2024 8月 25")
+[下载480](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_800x480.jpg&rf=LaDigue_800x480.jpg "急流湖的日出，冰川国家公园，蒙大拿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_1280x720.jpg&rf=LaDigue_1280x720.jpg "急流湖的日出，冰川国家公园，蒙大拿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "急流湖的日出，冰川国家公园，蒙大拿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_UHD.jpg&rf=LaDigue_UHD.jpg "急流湖的日出，冰川国家公园，蒙大拿州，美国")
+
+---
 ### 08月24日：尽享森林与水域之美
 #### 卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国（© Cavan Images/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_1280x720.jpg&rf=LaDigue_1280x720.jpg "通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省")
 [下载1080](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省")
 [下载UHD](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_UHD.jpg&rf=LaDigue_UHD.jpg "通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省")
-
----
-### 08月10日：星空下的约书亚树
-#### 约书亚树国家公园，加利福尼亚州，美国（© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion）
-
-![星空下的约书亚树](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_800x480.jpg&rf=LaDigue_800x480.jpg "星空下的约书亚树")
-
-加利福尼亚州约书亚树国家公园的历史早在1936年8月10日成为国家纪念碑之前就开始了。它位于莫哈维沙漠和科罗拉多沙漠的交汇处，数千年来一直是各种文化的家园。该地最早的居民是来自平托文化的人，他们在公元前8000年到4000年生活在这里。几个世纪后，卡惠拉人、塞拉诺人和切梅惠维人也开始在这片土地上生活。与公园同名的约书亚树生长在占地1242平方英里的土地上。尽管它们的名字是“树”，但它们并不是真正的树，而是一种多肉植物。它们原产于美国西南部和墨西哥北部，可以长到40英尺高。
-
-在新月前后的晴朗夜晚，约书亚树国家公园的天空黑暗程度按波特尔暗空分类法可被评为2至4级。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a6%e4%b9%a6%e4%ba%9a%e6%a0%91%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240809_1600" "Bing Wallpaper 2024 8月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240810_JoshuaTreeNP"&FORM=HPQUIZ "必应主页测验 2024 8月 10")
-[下载480](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_800x480.jpg&rf=LaDigue_800x480.jpg "约书亚树国家公园，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_1280x720.jpg&rf=LaDigue_1280x720.jpg "约书亚树国家公园，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "约书亚树国家公园，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_UHD.jpg&rf=LaDigue_UHD.jpg "约书亚树国家公园，加利福尼亚州，美国")
 
 ---
