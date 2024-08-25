@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月26日：田园诗般的岛屿之旅
+#### 巴尔米拉环礁国家野生动物保护区，中太平洋（© Ian Shive/Tandem Stills + Motion）
+
+![田园诗般的岛屿之旅](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_800x480.jpg&rf=LaDigue_800x480.jpg "田园诗般的岛屿之旅")
+
+欢迎来到太平洋中部的生态旅行者天堂。巴尔米拉环礁国家野生动物保护区位于夏威夷和美属萨摩亚之间，成立于2001年，旨在保护和管理巴尔米拉环礁的鱼类、野生动物、植物及其栖息地。
+
+太平洋偏远岛屿海洋国家纪念碑由巴尔米拉环礁、贝克岛、豪兰岛、贾维斯岛、约翰斯顿环礁和金曼礁组成，由乔治·w·布什总统于2009年1月6日宣布成立。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e5%b0%94%e7%b1%b3%e6%8b%89%e7%8e%af%e7%a4%81&form=hpcapt&filters=HpDate:"20240825_1600" "Bing Wallpaper 2024 8月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240826_PalmyraAtoll"&FORM=HPQUIZ "必应主页测验 2024 8月 26")
+[下载480](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_800x480.jpg&rf=LaDigue_800x480.jpg "巴尔米拉环礁国家野生动物保护区，中太平洋")
+[下载720](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴尔米拉环礁国家野生动物保护区，中太平洋")
+[下载1080](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴尔米拉环礁国家野生动物保护区，中太平洋")
+[下载UHD](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_UHD.jpg&rf=LaDigue_UHD.jpg "巴尔米拉环礁国家野生动物保护区，中太平洋")
+
+---
 ### 08月25日：守护这片乐园
 #### 急流湖的日出，冰川国家公园，蒙大拿州，美国（© Jason Savage/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_1280x720.jpg&rf=LaDigue_1280x720.jpg "非洲象，肯尼亚安博塞利国家公园")
 [下载1080](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "非洲象，肯尼亚安博塞利国家公园")
 [下载UHD](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_UHD.jpg&rf=LaDigue_UHD.jpg "非洲象，肯尼亚安博塞利国家公园")
-
----
-### 08月11日：人迹罕至的路
-#### 通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省（© EB Adventure Photography/Shutterstock）
-
-![人迹罕至的路](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_800x480.jpg&rf=LaDigue_800x480.jpg "人迹罕至的路")
-
-一起探索加拿大温哥华岛的美景吧。今天的图片中的那被古松和雪松环绕的木板路，可以通向岛上最大的淡水湖——肯尼迪湖。这个湖占地16000英亩。它位于克里阔特河和肯尼迪河的交汇处，是特拉-奥奎-阿赫特第一民族祖传土地的一部分。
-
-定居型虎鲸分为两大类，一类生活在南岛水域，另一类生活在北岛水域。人们从远处观察这些虎鲸，并给它们编号，许多虎鲸还有名字。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b8%a9%e5%93%a5%e5%8d%8e%e5%b2%9b%e8%82%af%e5%b0%bc%e8%bf%aa%e6%b9%96&form=hpcapt&filters=HpDate:"20240810_1600" "Bing Wallpaper 2024 8月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240811_TofinoVancouver"&FORM=HPQUIZ "必应主页测验 2024 8月 11")
-[下载480](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_800x480.jpg&rf=LaDigue_800x480.jpg "通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省")
-[下载720](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_1280x720.jpg&rf=LaDigue_1280x720.jpg "通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省")
-[下载1080](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省")
-[下载UHD](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_UHD.jpg&rf=LaDigue_UHD.jpg "通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省")
 
 ---
