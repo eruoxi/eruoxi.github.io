@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月27日：沼泽里的生活真美好！
+#### 黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁（© Maxime Aliaga/Minden Pictures）
+
+![沼泽里的生活真美好！](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_800x480.jpg&rf=LaDigue_800x480.jpg "沼泽里的生活真美好！")
+
+今天的图片展示了秘鲁坦博帕塔国家保护区里的黑凯门鳄，这是一种南美洲的隐秘的河中巨兽。这些凯门鳄是短吻鳄家族中最大的物种，体长可达20英尺，体重可达1000磅。它们与众不同的地方在于其深绿色的皮肤，这有助于它们融入浑浊的水底。这些食肉动物在淡水环境中繁衍生息，比如流动缓慢的河流、湖泊和被季节性洪水淹没的稀树草原。它们在这些水域中捕食鸟类、鱼类、龟类，偶尔还会捕食大型哺乳动物。黑凯门鳄在维持生态系统平衡方面发挥着重要作用。凯门鳄数量减少意味着会有更多的食人鱼攻击牛群，水豚也会泛滥成灾，对农作物造成损害。
+
+成年黑凯门鳄没有天敌，其他体型相似的鳄鱼物种也是如此，因为它们体型庞大、体重沉重、咬合力强、皮肤厚实且力量强大。不过，在极少数情况下，它们可能会被美洲虎捕食。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%bb%91%e5%87%af%e9%97%a8%e9%b3%84&form=hpcapt&filters=HpDate:"20240826_1600" "Bing Wallpaper 2024 8月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240827_YoungCaiman"&FORM=HPQUIZ "必应主页测验 2024 8月 27")
+[下载480](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_800x480.jpg&rf=LaDigue_800x480.jpg "黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁")
+[下载720](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁")
+[下载1080](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁")
+[下载UHD](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_UHD.jpg&rf=LaDigue_UHD.jpg "黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁")
+
+---
 ### 08月26日：田园诗般的岛屿之旅
 #### 巴尔米拉环礁国家野生动物保护区，中太平洋（© Ian Shive/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_1280x720.jpg&rf=LaDigue_1280x720.jpg "特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚")
 [下载1080](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_UHD.jpg&rf=LaDigue_UHD.jpg "特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚")
-
----
-### 08月12日：你的声音嘹亮而清晰
-#### 非洲象，肯尼亚安博塞利国家公园（© Ruzdi Ekenheim/Getty Images）
-
-![你的声音嘹亮而清晰](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_800x480.jpg&rf=LaDigue_800x480.jpg "你的声音嘹亮而清晰")
-
-准备好为大象庆祝吧！大象是最大的陆生动物，现存的大象有三种：非洲丛林象、非洲森林象和亚洲象。8月12日是世界大象日，旨在呼吁人们关注这些身处困境的庞然大物，象牙贸易和栖息地丧失让它们的生存环境面临巨大挑战。另外，栖息地的丧失也让大象与人类的接触更加密切，这可能会给大象和人类都带来严重影响。
-
-大象属于象科，是长鼻目中仅存的一个科。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%a4%a7%e8%b1%a1%e6%97%a5&form=hpcapt&filters=HpDate:"20240811_1600" "Bing Wallpaper 2024 8月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240812_ElephantsAmboseli"&FORM=HPQUIZ "必应主页测验 2024 8月 12")
-[下载480](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_800x480.jpg&rf=LaDigue_800x480.jpg "非洲象，肯尼亚安博塞利国家公园")
-[下载720](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_1280x720.jpg&rf=LaDigue_1280x720.jpg "非洲象，肯尼亚安博塞利国家公园")
-[下载1080](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "非洲象，肯尼亚安博塞利国家公园")
-[下载UHD](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_UHD.jpg&rf=LaDigue_UHD.jpg "非洲象，肯尼亚安博塞利国家公园")
 
 ---
