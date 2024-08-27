@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月28日：比赛开始！
+#### 蒙马特和圣心大教堂，巴黎，法国（© Tuul & Bruno Morandi/Getty Images）
+
+![比赛开始！](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_800x480.jpg&rf=LaDigue_800x480.jpg "比赛开始！")
+
+今天，夏季残奥会在巴黎开幕。来自世界各地的4000多名运动员将齐聚法国首都，参加22个运动项目、549个不同赛事的角逐。作为首次举办夏季残奥会的城市，巴黎为开幕式准备了特别的节目。来自184个国家的代表团将沿着著名的香榭丽舍大街游行至协和广场，而不是进入体育场。首届正式残奥会于1960年在罗马举行。23个国家参加了比赛，角逐包括轮椅篮球和残疾人田径在内的8个项目。
+
+圣心大教堂位于蒙马特高地，是巴黎第二大旅游景点，仅次于埃菲尔铁塔。
+
+[Bing搜索](https://cn.bing.com/search?q=2024%e5%b9%b4%e5%a4%8f%e5%ad%a3%e6%ae%8b%e5%a5%a5%e4%bc%9a&form=hpcapt&filters=HpDate:"20240827_1600" "Bing Wallpaper 2024 8月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240828_ParalympicsParis"&FORM=HPQUIZ "必应主页测验 2024 8月 28")
+[下载480](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_800x480.jpg&rf=LaDigue_800x480.jpg "蒙马特和圣心大教堂，巴黎，法国")
+[下载720](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒙马特和圣心大教堂，巴黎，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙马特和圣心大教堂，巴黎，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_UHD.jpg&rf=LaDigue_UHD.jpg "蒙马特和圣心大教堂，巴黎，法国")
+
+---
 ### 08月27日：沼泽里的生活真美好！
 #### 黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁（© Maxime Aliaga/Minden Pictures）
 
@@ -235,22 +252,5 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_1280x720.jpg&rf=LaDigue_1280x720.jpg "澳洲魔蜥，瓦塔卡国家公园，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "澳洲魔蜥，瓦塔卡国家公园，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_UHD.jpg&rf=LaDigue_UHD.jpg "澳洲魔蜥，瓦塔卡国家公园，澳大利亚")
-
----
-### 08月13日：亚得里亚海高地
-#### 特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚（© Ilija Ascic/Shutterstock）
-
-![亚得里亚海高地](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_800x480.jpg&rf=LaDigue_800x480.jpg "亚得里亚海高地")
-
-欢迎来到克罗地亚杜吉奥托克岛南部的天堂之地——特拉斯契卡自然公园。特拉斯契卡湾位于克罗地亚亚得里亚海岸，被13个岛屿和6个小岛环绕。今天这张照片展示了海湾悬崖，这里形成了一个绵延6英里的迷人海湾，内有壮观悬崖、小岛和宁静水湾。当地人称这些悬崖为“stene”，海拔高达528英尺。其他特色景观还包括亚得里亚海最安全、最广阔的天然港口（拥有25个僻静的海滩），以及以治疗功效闻名的米尔盐湖。因此，当你有兴致游览岛屿时，就来特拉斯契卡吧，在这里，陆地和海洋将无休止地玩着捉迷藏的游戏。
-
-特拉斯契卡海湾的东北侧是光秃秃的，但西南岸却覆盖着茂密的松树、橄榄树和无花果树林。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%89%b9%e6%8b%89%e6%96%af%e5%a5%91%e5%8d%a1%e8%87%aa%e7%84%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240812_1600" "Bing Wallpaper 2024 8月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240813_DugiOtokCroatia"&FORM=HPQUIZ "必应主页测验 2024 8月 13")
-[下载480](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_800x480.jpg&rf=LaDigue_800x480.jpg "特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚")
-[下载720](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_1280x720.jpg&rf=LaDigue_1280x720.jpg "特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚")
-[下载1080](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_UHD.jpg&rf=LaDigue_UHD.jpg "特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚")
 
 ---
