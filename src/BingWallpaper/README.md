@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月29日：加泰罗尼亚式的悬念
+#### 富利特堡-德拉罗卡，加泰罗尼亚，西班牙（© Eloi_Omella/Getty Images）
+
+![加泰罗尼亚式的悬念](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_800x480.jpg&rf=LaDigue_800x480.jpg "加泰罗尼亚式的悬念")
+
+坐落在玄武岩悬崖边上的小镇，眺望着脚下奔流不息的河流。今天的照片展示的是西班牙东北部加泰罗尼亚地区的富利特堡-德拉罗卡。这个小镇并不适合胆小的人：从160英尺高的悬崖上向下俯瞰，托罗内尔河和弗鲁维亚河在悬崖底部汇合。许多建筑都是由小镇所在的玄武岩建造而成，似乎就在悬崖边上岌岌可危。图为位于峭壁尽头的13世纪圣萨尔瓦多教堂。
+
+小镇所在的玄武岩峭壁高50多米（160英尺），长近一公里。它由两股熔岩流叠加而成。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99+%e5%af%8c%e5%88%a9%e7%89%b9%e5%a0%a1-%e5%be%b7%e6%8b%89%e7%bd%97%e5%8d%a1&form=hpcapt&filters=HpDate:"20240828_1600" "Bing Wallpaper 2024 8月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240829_CastellfollitSpain"&FORM=HPQUIZ "必应主页测验 2024 8月 29")
+[下载480](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_800x480.jpg&rf=LaDigue_800x480.jpg "富利特堡-德拉罗卡，加泰罗尼亚，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_1280x720.jpg&rf=LaDigue_1280x720.jpg "富利特堡-德拉罗卡，加泰罗尼亚，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "富利特堡-德拉罗卡，加泰罗尼亚，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_UHD.jpg&rf=LaDigue_UHD.jpg "富利特堡-德拉罗卡，加泰罗尼亚，西班牙")
+
+---
 ### 08月28日：比赛开始！
 #### 蒙马特和圣心大教堂，巴黎，法国（© Tuul & Bruno Morandi/Getty Images）
 
@@ -235,22 +252,5 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_1280x720.jpg&rf=LaDigue_1280x720.jpg "韩松洞，风牙者榜国家公园，越南")
 [下载1080](https://cn.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韩松洞，风牙者榜国家公园，越南")
 [下载UHD](https://cn.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_UHD.jpg&rf=LaDigue_UHD.jpg "韩松洞，风牙者榜国家公园，越南")
-
----
-### 08月14日：今天感觉很精神
-#### 澳洲魔蜥，瓦塔卡国家公园，澳大利亚（© Yva Momatiuk and John Eastcott/Minden Pictures）
-
-![今天感觉很精神](https://cn.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_800x480.jpg&rf=LaDigue_800x480.jpg "今天感觉很精神")
-
-从神话到现代媒体，蜥蜴经常被描绘成可怕的爬行动物。事实证明，它们并不像传说中那么危险。今天是世界蜥蜴日，是了解这些冷血动物的最佳时机。蜥蜴有7000多个品种，它们能够适应从沙漠到热带雨林的各种环境。比如壁虎，这些小小的爬行动物有专门的趾垫，可以攀爬墙壁，甚至在天花板上行走。还有变色龙，因其会变色的皮肤而闻名。虽然很多人认为变色龙的目的是为了融入环境，但其实变色龙还通过改变颜色来交流和调节体温。
-
-一些蜥蜴物种，如鞭尾蜥，可以通过孤雌生殖的方式，在没有雄性的情况下繁殖，它们的后代全是雌性。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%be%b3%e6%b4%b2%e9%ad%94%e8%9c%a5&form=hpcapt&filters=HpDate:"20240813_1600" "Bing Wallpaper 2024 8月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240814_WatarrkaLizard"&FORM=HPQUIZ "必应主页测验 2024 8月 14")
-[下载480](https://cn.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_800x480.jpg&rf=LaDigue_800x480.jpg "澳洲魔蜥，瓦塔卡国家公园，澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_1280x720.jpg&rf=LaDigue_1280x720.jpg "澳洲魔蜥，瓦塔卡国家公园，澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "澳洲魔蜥，瓦塔卡国家公园，澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_UHD.jpg&rf=LaDigue_UHD.jpg "澳洲魔蜥，瓦塔卡国家公园，澳大利亚")
 
 ---
