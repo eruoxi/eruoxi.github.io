@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月30日：对大块头温柔点
+#### 鸟头湾的鲸鲨，西巴布亚，印度尼西亚（© Andy Lerner/Tandem Stills + Motion）
+
+![对大块头温柔点](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_800x480.jpg&rf=LaDigue_800x480.jpg "对大块头温柔点")
+
+每年的8月30日，海洋爱好者都会聚集在一起，提高人们对鲸鲨的关注，并倡导保护鲸鲨。这些温和的庞然大物已经存在了2.4亿多年，但第一个鲸鲨标本是19世纪20年代在南非海岸发现的。作为世界上最大的鱼类，鲸鲨可以长到40英尺，其中一条达到了创纪录的61.7英尺。鲸鲨生活在世界各地的热带海洋中，这种滤食性鱼类张开大嘴在水中滑行，捕食浮游生物和小鱼，它们星罗棋布的皮肤上每一个图案都像人类的指纹一样独一无二。可悲的是，由于过度捕捞、栖息地丧失和气候变化，国际自然保护联盟将鲸鲨列为濒危物种。逆境中也有希望，比如印度尼西亚的森达瓦西湾，这里是鲸鲨的绿洲。在这个海湾，渔民们慷慨地向鲸鲨投喂饵料鱼，以求好运，体现了人类与海洋生物之间独特的联系。
+
+鲸鲨和绿海龟一起出现在2015-2017年最新版的马尔代夫1000拉菲亚纸币上。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%b2%b8%e9%b2%a8&form=hpcapt&filters=HpDate:"20240829_1600" "Bing Wallpaper 2024 8月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240830_WhaleSharkDay"&FORM=HPQUIZ "必应主页测验 2024 8月 30")
+[下载480](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_800x480.jpg&rf=LaDigue_800x480.jpg "鸟头湾的鲸鲨，西巴布亚，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_1280x720.jpg&rf=LaDigue_1280x720.jpg "鸟头湾的鲸鲨，西巴布亚，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟头湾的鲸鲨，西巴布亚，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_UHD.jpg&rf=LaDigue_UHD.jpg "鸟头湾的鲸鲨，西巴布亚，印度尼西亚")
+
+---
 ### 08月29日：加泰罗尼亚式的悬念
 #### 富利特堡-德拉罗卡，加泰罗尼亚，西班牙（© Eloi_Omella/Getty Images）
 
@@ -235,22 +252,5 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_1280x720.jpg&rf=LaDigue_1280x720.jpg "长岛温泉乐园的过山车，三重县，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "长岛温泉乐园的过山车，三重县，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_UHD.jpg&rf=LaDigue_UHD.jpg "长岛温泉乐园的过山车，三重县，日本")
-
----
-### 08月15日：“洞”之新世界
-#### 韩松洞，风牙者榜国家公园，越南（© Geng Xu/Getty Images）
-
-![“洞”之新世界](https://cn.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_800x480.jpg&rf=LaDigue_800x480.jpg "“洞”之新世界")
-
-1991年，一名越南伐木工人在越南的风牙者榜国家公园偶然发现了一个大东西。在丛林探险时，他发现了一个洞穴的入口，里面有着咆哮的地下河，后来被命名为韩松洞，即“山水洞”。2009年，英国洞穴研究协会率领一支探险队对该遗址进行了勘探。就在那时，他们发现了一件不可思议的事：这是世界上最大的洞穴！你要问有多大？韩松洞的主要通道长3.1英里，宽490英尺，高660英尺。它的高度足以容纳一座40层的摩天大楼！里面有一个200英尺高的方解石屏障，被称为“越南长城”，石笋高达260英尺。它甚至有自己的天气系统；由于洞穴空气和外部空气之间的温差，洞内形成了云层。此外，一条地下河流将韩松洞与附近的洞穴连接起来，暗示着还有尚未被发现的深度。鉴于其脆弱的生态系统，为保护韩松洞的原始状态制定了严格的规定。每年参观洞穴的游客数量限制在1000人以内。
-
-洞穴中有着世界上已知最高的石笋，高达80米。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%9f%a9%e6%9d%be%e6%b4%9e&form=hpcapt&filters=HpDate:"20240814_1600" "Bing Wallpaper 2024 8月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240815_HangCave"&FORM=HPQUIZ "必应主页测验 2024 8月 15")
-[下载480](https://cn.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_800x480.jpg&rf=LaDigue_800x480.jpg "韩松洞，风牙者榜国家公园，越南")
-[下载720](https://cn.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_1280x720.jpg&rf=LaDigue_1280x720.jpg "韩松洞，风牙者榜国家公园，越南")
-[下载1080](https://cn.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韩松洞，风牙者榜国家公园，越南")
-[下载UHD](https://cn.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_UHD.jpg&rf=LaDigue_UHD.jpg "韩松洞，风牙者榜国家公园，越南")
 
 ---
