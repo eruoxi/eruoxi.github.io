@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月31日：沙丘日和沙漠烟霞
+#### 撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚（© Airpano/Amazing Aerial Agency）
+
+![沙丘日和沙漠烟霞](https://cn.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_800x480.jpg&rf=LaDigue_800x480.jpg "沙丘日和沙漠烟霞")
+
+从地中海沿岸到广袤的撒哈拉沙漠，北非阿尔及利亚的地貌千姿百态。今天，我们将探索阿杰尔塔西里高原周围的地区。这一联合国教科文组织世界遗产以其岩层和洞穴艺术而闻名。这里有1.5万多处古代雕刻，有些可以追溯到1.2万年前，描绘了日常生活、狩猎和神秘生物的场景。领略完这片沙漠风光后，就该进城了。
+
+在贾奈特，4.1%的人口受过高等教育，另有19.8%的人口完成了中等教育。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%b4%be%e5%a5%88%e7%89%b9&form=hpcapt&filters=HpDate:"20240830_1600" "Bing Wallpaper 2024 8月 31")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240831_DjanetAlgeria"&FORM=HPQUIZ "必应主页测验 2024 8月 31")
+[下载480](https://cn.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_800x480.jpg&rf=LaDigue_800x480.jpg "撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚")
+[下载720](https://cn.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_1280x720.jpg&rf=LaDigue_1280x720.jpg "撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_UHD.jpg&rf=LaDigue_UHD.jpg "撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚")
+
+---
 ### 08月30日：对大块头温柔点
 #### 鸟头湾的鲸鲨，西巴布亚，印度尼西亚（© Andy Lerner/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔凡齐纳灯塔，阿尔加维，葡萄牙")
 [下载1080](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔凡齐纳灯塔，阿尔加维，葡萄牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔凡齐纳灯塔，阿尔加维，葡萄牙")
-
----
-### 08月16日：系好安全带！
-#### 长岛温泉乐园的过山车，三重县，日本（© Japanese amateur photographer/Getty Images）
-
-![系好安全带！](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_800x480.jpg&rf=LaDigue_800x480.jpg "系好安全带！")
-
-从单轨到虚拟现实体验，几个世纪以来，过山车一直在为人们带来各种感官刺激。今天是国际过山车日，这是一个完美的借口，可以潜入这些标志性景点的曲折蜿蜒之中。这些游乐设施的起源可以追溯到17世纪的俄罗斯，当时有一种名为“俄罗斯山脉”的木制滑梯，是季节性的娱乐活动设施。然而，我们所熟知的第一个过山车是19世纪初在法国巴黎建造的，它被称为“贝尔维尔俄罗斯山”，其特点是轮式手推车牢牢地固定在轨道上。快进到20世纪，游乐设施飞速发展，并且首次出现了环形过山车。
-
-在日本，喷气式过山车一词被用于指代大部分过山车，此类游乐园设施非常受当地人欢迎。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%95%bf%e5%b2%9b%e6%b8%a9%e6%b3%89%e4%b9%90%e5%9b%ad&form=hpcapt&filters=HpDate:"20240815_1600" "Bing Wallpaper 2024 8月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240816_JapanRollerCoaster"&FORM=HPQUIZ "必应主页测验 2024 8月 16")
-[下载480](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_800x480.jpg&rf=LaDigue_800x480.jpg "长岛温泉乐园的过山车，三重县，日本")
-[下载720](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_1280x720.jpg&rf=LaDigue_1280x720.jpg "长岛温泉乐园的过山车，三重县，日本")
-[下载1080](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "长岛温泉乐园的过山车，三重县，日本")
-[下载UHD](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_UHD.jpg&rf=LaDigue_UHD.jpg "长岛温泉乐园的过山车，三重县，日本")
 
 ---
