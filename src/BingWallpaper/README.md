@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月01日：小船轻轻划过泰晤士河
+#### 泰晤士河，伦敦，英国（© Puthipong Worasaran/Getty Images）
+
+![小船轻轻划过泰晤士河](https://cn.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_800x480.jpg&rf=LaDigue_800x480.jpg "小船轻轻划过泰晤士河")
+
+欢迎来到英国伦敦的泰晤士河节。每年，它都会将社区、艺术家和自然爱好者聚集在一起，向河流致敬，为期一个月。2024年的重点活动包括一年一度的帆船赛舟会、大河赛和清洁泰晤士河挑战赛。
+
+潮道是英国泰晤士河的一部分，受潮汐影响，这段水域位于特丁顿船闸的下游。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%b0%e6%99%a4%e5%a3%ab%e6%b2%b3&form=hpcapt&filters=HpDate:"20240831_1600" "Bing Wallpaper 2024 9月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240901_ThamesLondon"&FORM=HPQUIZ "必应主页测验 2024 9月 1")
+[下载480](https://cn.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_800x480.jpg&rf=LaDigue_800x480.jpg "泰晤士河，伦敦，英国")
+[下载720](https://cn.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_1280x720.jpg&rf=LaDigue_1280x720.jpg "泰晤士河，伦敦，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰晤士河，伦敦，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_UHD.jpg&rf=LaDigue_UHD.jpg "泰晤士河，伦敦，英国")
+
+---
 ### 08月31日：沙丘日和沙漠烟霞
 #### 撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚（© Airpano/Amazing Aerial Agency）
 
@@ -235,22 +252,5 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时的亨廷顿海滩码头，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时的亨廷顿海滩码头，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_UHD.jpg&rf=LaDigue_UHD.jpg "日落时的亨廷顿海滩码头，加利福尼亚州，美国")
-
----
-### 08月17日：照亮前行之路
-#### 阿尔凡齐纳灯塔，阿尔加维，葡萄牙（© Andreas Kunz/Getty Images）
-
-![照亮前行之路](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_800x480.jpg&rf=LaDigue_800x480.jpg "照亮前行之路")
-
-今天照片中的灯塔位于葡萄牙南部海岸阿尔加维的卡沃埃罗。阿尔凡齐纳灯塔建于1919年，照耀着大海，帮助船只在该地区周围危险的水域航行。这座灯塔是著名的旅游胜地，同时也是该地区与海洋紧密联系的象征。如果你有幸住在灯塔附近，那么本周末就是拜访灯塔的最佳时机。
-
-多项研究认为，阿尔加维是世界上最适合养老的地方之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e5%b0%94%e5%8a%a0%e7%bb%b4&form=hpcapt&filters=HpDate:"20240816_1600" "Bing Wallpaper 2024 8月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240817_AlfanzinaLighthouse"&FORM=HPQUIZ "必应主页测验 2024 8月 17")
-[下载480](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔凡齐纳灯塔，阿尔加维，葡萄牙")
-[下载720](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔凡齐纳灯塔，阿尔加维，葡萄牙")
-[下载1080](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔凡齐纳灯塔，阿尔加维，葡萄牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔凡齐纳灯塔，阿尔加维，葡萄牙")
 
 ---
