@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月02日：红绿金刚鹦鹉之家
+#### 红绿金刚鹦鹉，南马托格罗索州，巴西（© Ellen Goff/Danita Delimont）
+
+![红绿金刚鹦鹉之家](https://cn.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_800x480.jpg&rf=LaDigue_800x480.jpg "红绿金刚鹦鹉之家")
+
+欢迎来到金刚鹦鹉洞的金刚鹦鹉舞会！它位于巴西南马托格罗索州的中心地带，是一个巨大的天坑，为红绿金刚鹦鹉上演生动的舞蹈提供了舞台。在这个庇护所里，它们鲜艳的红绿色羽毛（翼展可达近3英尺）在广阔的巴西蓝天和高耸的红砂岩墙的映衬下显得格外耀眼。这片翠绿的天坑纵深近400英尺，是这些华美的鸟儿的庇护所，红绿金刚鹦鹉在其中展翅翱翔，恍如童话故事中的热带风光。
+
+就长度而言，该物种仅次于金刚鹦鹉中体型最大的紫蓝金刚鹦鹉。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a2%e7%bb%bf%e9%87%91%e5%88%9a%e9%b9%a6%e9%b9%89&form=hpcapt&filters=HpDate:"20240901_1600" "Bing Wallpaper 2024 9月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240902_BuracodasAraras"&FORM=HPQUIZ "必应主页测验 2024 9月 2")
+[下载480](https://cn.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_800x480.jpg&rf=LaDigue_800x480.jpg "红绿金刚鹦鹉，南马托格罗索州，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_1280x720.jpg&rf=LaDigue_1280x720.jpg "红绿金刚鹦鹉，南马托格罗索州，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红绿金刚鹦鹉，南马托格罗索州，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_UHD.jpg&rf=LaDigue_UHD.jpg "红绿金刚鹦鹉，南马托格罗索州，巴西")
+
+---
 ### 09月01日：小船轻轻划过泰晤士河
 #### 泰晤士河，伦敦，英国（© Puthipong Worasaran/Getty Images）
 
@@ -235,22 +252,5 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_1280x720.jpg&rf=LaDigue_1280x720.jpg "Bufadero de la Garita，大加那利岛，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Bufadero de la Garita，大加那利岛，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_UHD.jpg&rf=LaDigue_UHD.jpg "Bufadero de la Garita，大加那利岛，西班牙")
-
----
-### 08月18日：一个无与伦比的码头
-#### 日落时的亨廷顿海滩码头，加利福尼亚州，美国（© Stan Moniz Photography/TANDEM Stills + Motion）
-
-![一个无与伦比的码头](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_800x480.jpg&rf=LaDigue_800x480.jpg "一个无与伦比的码头")
-
-在今天的照片中，我们看到太阳开始消失在加利福尼亚亨廷顿海滩的码头下方。亨廷顿海滩码头始建于1902年，曾因暴风雨而受损，九年后才得以重建。第二次世界大战期间，码头上安装了一个潜艇瞭望哨，为战争出力。如今，这里已成为一个热门的旅游景点，游客们可以在这里钓鱼，观看冲浪者在太平洋上乘风破浪。
-
-最初的码头是由木头建造的，延伸到太平洋1000英尺（300）米的地方，但在1910年的一场风暴中受损，码头大部分落入了海洋。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%ba%a8%e5%bb%b7%e9%a1%bf%e6%b5%b7%e6%bb%a9%e7%a0%81%e5%a4%b4&form=hpcapt&filters=HpDate:"20240817_1600" "Bing Wallpaper 2024 8月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240818_HuntingtonBeach"&FORM=HPQUIZ "必应主页测验 2024 8月 18")
-[下载480](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_800x480.jpg&rf=LaDigue_800x480.jpg "日落时的亨廷顿海滩码头，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时的亨廷顿海滩码头，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时的亨廷顿海滩码头，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_UHD.jpg&rf=LaDigue_UHD.jpg "日落时的亨廷顿海滩码头，加利福尼亚州，美国")
 
 ---
