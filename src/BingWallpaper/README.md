@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月03日：原始之美，人人共享
+#### 迷人的水晶湖，高山湖泊，华盛顿州，美国（© Mitch Pittman/Tandem Stills + Motion）
+
+![原始之美，人人共享](https://cn.bing.com/th?id=OHR.AlpineLakes_ZH-CN4537389724_800x480.jpg&rf=LaDigue_800x480.jpg "原始之美，人人共享")
+
+有时候，逃离尘嚣也是一个不错的选择。多亏了环保主义者霍华德·扎尼泽，美国人才可以在该国众多的荒野之一中实现这一愿望。尽管创建国家森林公园等保护工作始于19世纪末，但到1960年代，原始的荒野面积已减少到仅占全国土地面积的2.5%。为了扭转这一趋势，扎尼泽起草了许多保护性条款，它们后来成为《荒野法》的大部分内容。该法案于1964年9月3日由林登·约翰逊总统签署成为法律，如今保护着超1.09亿英亩的土地——占美国土地的5%。
+
+1964年《荒野法》经过多次讨论和起草，最终在第88届国会期间颁布。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8d%92%e9%87%8e%e6%b3%95&form=hpcapt&filters=HpDate:"20240902_1600" "Bing Wallpaper 2024 9月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240903_AlpineLakes"&FORM=HPQUIZ "必应主页测验 2024 9月 3")
+[下载480](https://cn.bing.com/th?id=OHR.AlpineLakes_ZH-CN4537389724_800x480.jpg&rf=LaDigue_800x480.jpg "迷人的水晶湖，高山湖泊，华盛顿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AlpineLakes_ZH-CN4537389724_1280x720.jpg&rf=LaDigue_1280x720.jpg "迷人的水晶湖，高山湖泊，华盛顿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AlpineLakes_ZH-CN4537389724_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "迷人的水晶湖，高山湖泊，华盛顿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AlpineLakes_ZH-CN4537389724_UHD.jpg&rf=LaDigue_UHD.jpg "迷人的水晶湖，高山湖泊，华盛顿州，美国")
+
+---
 ### 09月02日：红绿金刚鹦鹉之家
 #### 红绿金刚鹦鹉，南马托格罗索州，巴西（© Ellen Goff/Danita Delimont）
 
@@ -235,22 +252,5 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_1280x720.jpg&rf=LaDigue_1280x720.jpg "大提顿国家公园日出,怀俄明州,美国")
 [下载1080](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大提顿国家公园日出,怀俄明州,美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_UHD.jpg&rf=LaDigue_UHD.jpg "大提顿国家公园日出,怀俄明州,美国")
-
----
-### 08月19日：铿锵有力的打击乐
-#### Bufadero de la Garita，大加那利岛，西班牙（© Marco Bottigelli/Getty Images）
-
-![铿锵有力的打击乐](https://cn.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_800x480.jpg&rf=LaDigue_800x480.jpg "铿锵有力的打击乐")
-
-西班牙有一个令人惊叹的景点，名为Bufadero de la Garita，您听说过吗？它位于西班牙的大加那利岛，离非洲西北部的大西洋海岸不远。这是一个不容错过的自然奇观，位于该岛风景如画的东海岸，是个迷人的“海上喷水孔”，海水以强劲的力量涌入岩石中又喷涌出来，创造出令人印象深刻的奇观，就像我们今天在图片中看到的那样。
-
-在大加那利岛的东边，有一个名为Bufadero de la Garita的地质构造，海水经常会从岩石中喷涌而出。岩石上有两个大洞，汹涌的波涛不断涌入洞中，将其填满而后又被排空。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e5%8a%a0%e9%82%a3%e5%88%a9%e5%b2%9b&form=hpcapt&filters=HpDate:"20240818_1600" "Bing Wallpaper 2024 8月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240819_RegataSanGines"&FORM=HPQUIZ "必应主页测验 2024 8月 19")
-[下载480](https://cn.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_800x480.jpg&rf=LaDigue_800x480.jpg "Bufadero de la Garita，大加那利岛，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_1280x720.jpg&rf=LaDigue_1280x720.jpg "Bufadero de la Garita，大加那利岛，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Bufadero de la Garita，大加那利岛，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_UHD.jpg&rf=LaDigue_UHD.jpg "Bufadero de la Garita，大加那利岛，西班牙")
 
 ---
