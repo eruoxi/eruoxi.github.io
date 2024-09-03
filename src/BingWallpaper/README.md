@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月04日：物以类聚，人以群分
+#### 乌雕鸮，巴基斯坦（© zahoor salmi/Getty Images）
+
+![物以类聚，人以群分](https://cn.bing.com/th?id=OHR.DuskyOwls_ZH-CN4729762831_800x480.jpg&rf=LaDigue_800x480.jpg "物以类聚，人以群分")
+
+随着日光逐渐暗淡，乌雕鸮——今天画面中的沉默猎手，从巢穴中钻了出来。这些主要在夜间活动的猛禽是在巴基斯坦被拍摄到的，在南亚和东南亚的森林以及灌木丛中也能找到它们的身影。一对令人印象深刻的15–17英寸的翼展、锐利的黄色眼睛和出色的听力，能帮助它们在昏暗的光线中精确地捕捉小型哺乳动物和鸟类。这些长了羽毛的食肉动物身高可达两英尺，在白天阴天的时候，也能看到它们捕猎的身影。它们通常栖息在被其它鸟类遗弃的巢穴里或自然裂缝中。乌雕鸮在十二月和一月繁殖，通常在高大的树木或崖壁的安全地带抚养幼鸟。无数自然爱好者和观鸟者被它们冷峻的眼神和优雅的身姿所吸引。
+
+在巴基斯坦，生物学家记录了这种猫头鹰在地面筑巢的首个案例。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b9%8c%e9%9b%95%e9%b8%ae&form=hpcapt&filters=HpDate:"20240903_1600" "Bing Wallpaper 2024 9月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240904_DuskyOwls"&FORM=HPQUIZ "必应主页测验 2024 9月 4")
+[下载480](https://cn.bing.com/th?id=OHR.DuskyOwls_ZH-CN4729762831_800x480.jpg&rf=LaDigue_800x480.jpg "乌雕鸮，巴基斯坦")
+[下载720](https://cn.bing.com/th?id=OHR.DuskyOwls_ZH-CN4729762831_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌雕鸮，巴基斯坦")
+[下载1080](https://cn.bing.com/th?id=OHR.DuskyOwls_ZH-CN4729762831_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌雕鸮，巴基斯坦")
+[下载UHD](https://cn.bing.com/th?id=OHR.DuskyOwls_ZH-CN4729762831_UHD.jpg&rf=LaDigue_UHD.jpg "乌雕鸮，巴基斯坦")
+
+---
 ### 09月03日：原始之美，人人共享
 #### 迷人的水晶湖，高山湖泊，华盛顿州，美国（© Mitch Pittman/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_1280x720.jpg&rf=LaDigue_1280x720.jpg "纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_UHD.jpg&rf=LaDigue_UHD.jpg "纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔")
-
----
-### 08月20日：鹿和羚羊嬉戏的地方
-#### 大提顿国家公园日出,怀俄明州,美国（© Kurt Budliger/TANDEM Stills + Motion）
-
-![鹿和羚羊嬉戏的地方](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_800x480.jpg&rf=LaDigue_800x480.jpg "鹿和羚羊嬉戏的地方")
-
-正如今天图片所展示的那样，怀俄明州和大提顿国家公园拥有令人惊叹的美景，这就是为什么它可以吸引人们不断地回到这里。早些年间，法国猎人将这里取名为“三个乳头”，1929年，小约翰·戴维森·洛克菲勒等生态环保人士创建了大提顿国家公园。公园里有灰熊、狼、野牛、驼鹿和白头海雕等动物，是一个几乎未受破坏的动植物生态系统。
-
-https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e6%8f%90%e9%a1%bf%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240819_1600" "Bing Wallpaper 2024 8月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240820_TetonSunrise"&FORM=HPQUIZ "必应主页测验 2024 8月 20")
-[下载480](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_800x480.jpg&rf=LaDigue_800x480.jpg "大提顿国家公园日出,怀俄明州,美国")
-[下载720](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_1280x720.jpg&rf=LaDigue_1280x720.jpg "大提顿国家公园日出,怀俄明州,美国")
-[下载1080](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大提顿国家公园日出,怀俄明州,美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_UHD.jpg&rf=LaDigue_UHD.jpg "大提顿国家公园日出,怀俄明州,美国")
 
 ---
