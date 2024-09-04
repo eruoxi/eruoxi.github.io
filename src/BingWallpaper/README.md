@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月05日：2024年多伦多国际电影节
+#### 多伦多城市天际线,加拿大（© Roberto Machado Noa/Getty Images）
+
+![2024年多伦多国际电影节](https://cn.bing.com/th?id=OHR.TIFF2024_ZH-CN4896695918_800x480.jpg&rf=LaDigue_800x480.jpg "2024年多伦多国际电影节")
+
+电影爱好者们，集合！第49届多伦多国际电影节（TIFF）将在加拿大多伦多盛大开幕，今天的图片就展示了这座城市的面貌。自1976年创办以来，多伦多国际电影节已成为世界上公众参与度最高的电影节之一。从经验丰富的导演到冉冉升起的新星，再到热衷于电影的观众，电影节吸引了各式各样的参与者。多年来，该电影节已经首映了多部广受好评的电影，包括《造梦之家》、《黑天鹅》等。
+
+多伦多国际电影节是一个推广新电影的平台，通常被称为美国和欧洲独立制片的测试活动，为市场营销和新闻宣传提供了良好的机会。
+
+[Bing搜索](https://cn.bing.com/search?q=2024%e5%b9%b4%e5%a4%9a%e4%bc%a6%e5%a4%9a%e5%9b%bd%e9%99%85%e7%94%b5%e5%bd%b1%e8%8a%82&form=hpcapt&filters=HpDate:"20240904_1600" "Bing Wallpaper 2024 9月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240905_TIFF2024"&FORM=HPQUIZ "必应主页测验 2024 9月 5")
+[下载480](https://cn.bing.com/th?id=OHR.TIFF2024_ZH-CN4896695918_800x480.jpg&rf=LaDigue_800x480.jpg "多伦多城市天际线,加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.TIFF2024_ZH-CN4896695918_1280x720.jpg&rf=LaDigue_1280x720.jpg "多伦多城市天际线,加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.TIFF2024_ZH-CN4896695918_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多伦多城市天际线,加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.TIFF2024_ZH-CN4896695918_UHD.jpg&rf=LaDigue_UHD.jpg "多伦多城市天际线,加拿大")
+
+---
 ### 09月04日：物以类聚，人以群分
 #### 乌雕鸮，巴基斯坦（© zahoor salmi/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_1280x720.jpg&rf=LaDigue_1280x720.jpg "海洋城日出时的鸟瞰图，马里兰州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海洋城日出时的鸟瞰图，马里兰州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_UHD.jpg&rf=LaDigue_UHD.jpg "海洋城日出时的鸟瞰图，马里兰州，美国")
-
----
-### 08月21日：等待前往加拉帕戈斯群岛
-#### 纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔（© Tui De Roy/Minden Pictures）
-
-![等待前往加拉帕戈斯群岛](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_800x480.jpg&rf=LaDigue_800x480.jpg "等待前往加拉帕戈斯群岛")
-
-东太平洋的加拉帕戈斯群岛是野生动物的天堂，它们的栖息地范围从干旱地区到热带雨林不等。由于这些岛屿的地理位置相对孤立，岛上许多生物都是独一无二的，纳斯卡鲣鸟便是其中之一。今天的照片展示的就是在沃尔夫岛上生活的纳斯卡鲣鸟。这些引人注目的鸟儿走路时举止笨拙搞笑，它们的英文名“Nazca booby”也十分有趣，不过“booby”一词其实源自西班牙语“bobo”，意思是小丑。
-
-纳斯卡鲣鸟在悬崖附近的裸露地面筑巢，那里几乎没有植被，雄性纳斯卡鲣鸟会挑选并保卫自己的领土，而后进入求偶期，吸引雌性。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%b3%e6%96%af%e5%8d%a1%e9%b2%a3%e9%b8%9f&form=hpcapt&filters=HpDate:"20240820_1600" "Bing Wallpaper 2024 8月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240821_NazcaBooby"&FORM=HPQUIZ "必应主页测验 2024 8月 21")
-[下载480](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_800x480.jpg&rf=LaDigue_800x480.jpg "纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔")
-[下载720](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_1280x720.jpg&rf=LaDigue_1280x720.jpg "纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔")
-[下载1080](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔")
-[下载UHD](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_UHD.jpg&rf=LaDigue_UHD.jpg "纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔")
 
 ---
