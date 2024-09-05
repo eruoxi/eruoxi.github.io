@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月06日：你可曾见过此等景色
+#### 古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰（© Dawid K Photography/Shutterstock）
+
+![你可曾见过此等景色](https://cn.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_800x480.jpg&rf=LaDigue_800x480.jpg "你可曾见过此等景色")
+
+你可曾想过在故事书中漫步？欢迎来到北爱尔兰安特里姆郡的格莱纳里夫森林公园。该公园占地近3,000英亩，不仅拥有林地、瀑布和各种奇观，还有多条步道，每条步道都有自己独特的景观视角。其中，最受欢迎的是瀑布步道，这条3英里长的步道穿过一个国家自然保护区，沿途有瀑布景观。格莱纳里夫森林公园有丰富多样的野生动物，包括红松鼠、松貂和獾。观鸟者会被欧柳莺、棕柳莺和翠鸟所吸引。这里的植物也同样令人印象深刻，古老的山毛榉（如图所示）、橡树、桦树和花楸树等树木形成了郁郁葱葱的树冠。因此，无论您选择何时来访，格莱纳里夫一定会让您感觉 “重获新生”，焕发活力。
+
+尽管在许多地方，山毛榉一般只能活250年。但在经过修剪管理后，山毛榉的寿命可以达到350年。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a0%bc%e8%8e%b1%e7%ba%b3%e9%87%8c%e5%a4%ab%e6%a3%ae%e6%9e%97%e5%85%ac%e5%9b%ad+&form=hpcapt&filters=HpDate:"20240905_1600" "Bing Wallpaper 2024 9月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240906_GlenariffPark"&FORM=HPQUIZ "必应主页测验 2024 9月 6")
+[下载480](https://cn.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_800x480.jpg&rf=LaDigue_800x480.jpg "古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰")
+[下载720](https://cn.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_1280x720.jpg&rf=LaDigue_1280x720.jpg "古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰")
+[下载1080](https://cn.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_UHD.jpg&rf=LaDigue_UHD.jpg "古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰")
+
+---
 ### 09月05日：2024年多伦多国际电影节
 #### 多伦多城市天际线,加拿大（© Roberto Machado Noa/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕侬蓝寺，武里南府，泰国")
 [下载1080](https://cn.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕侬蓝寺，武里南府，泰国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_UHD.jpg&rf=LaDigue_UHD.jpg "帕侬蓝寺，武里南府，泰国")
-
----
-### 08月22日：晨曦之光
-#### 海洋城日出时的鸟瞰图，马里兰州，美国（© Kevin Olson/Amazing Aerial Agency）
-
-![晨曦之光](https://cn.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_800x480.jpg&rf=LaDigue_800x480.jpg "晨曦之光")
-
-欢迎来到海洋城！这是一个美丽的海滨度假胜地，为游客提供无尽的乐趣和冒险。在1875年之前，这里只是一个安静的渔村。同年，大西洋酒店开业，标志着该镇转型为一个新兴的度假胜地。时光荏苒，如今，海洋城是美国最受欢迎的度假胜地之一，为各年龄段的游客提供丰富多样的娱乐活动。该镇有一段标志性的3英里长的木板路，两旁遍布餐厅、商店和游乐园。绵延10英里的纯净沙滩非常适合晒日光浴、打沙滩排球或堆沙堡，而海水则适合畅游。海洋城拥有丰富的娱乐探险活动和深厚的历史底蕴，是一个迷人的休闲胜地，吸引着游客一次又一次前来游玩。
-
-海洋城的入口是在1933年的一场强飓风中形成的，这场飓风还摧毁了横跨辛尼普克森特湾的火车轨道。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e9%87%8c%e5%85%b0%e5%b7%9e%e6%b5%b7%e6%b4%8b%e5%9f%8e&form=hpcapt&filters=HpDate:"20240821_1600" "Bing Wallpaper 2024 8月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240822_OceanCityMD"&FORM=HPQUIZ "必应主页测验 2024 8月 22")
-[下载480](https://cn.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_800x480.jpg&rf=LaDigue_800x480.jpg "海洋城日出时的鸟瞰图，马里兰州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_1280x720.jpg&rf=LaDigue_1280x720.jpg "海洋城日出时的鸟瞰图，马里兰州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海洋城日出时的鸟瞰图，马里兰州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_UHD.jpg&rf=LaDigue_UHD.jpg "海洋城日出时的鸟瞰图，马里兰州，美国")
 
 ---
