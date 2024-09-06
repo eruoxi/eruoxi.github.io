@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月07日：嗡嗡作响
+#### 朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国（© yhelfman/Getty Images）
+
+![嗡嗡作响](https://cn.bing.com/th?id=OHR.SantaCruzHummer_ZH-CN5448262039_800x480.jpg&rf=LaDigue_800x480.jpg "嗡嗡作响")
+
+每年九月的第一个星期六，鸟类爱好者和自然爱好者都会聚在一起庆祝全国蜂鸟日。这一天是专门用来欣赏这些敏捷的小鸟以及关注它们在我们的生态系统中作为传粉者的作用。蜂鸟以其惊人的速度而闻名：它们扇动翅膀的速度可达每秒80次，使得它们能够在原地悬停，甚至向后飞。艾米莉·狄金森恰如其分地描述了它们的快速运动：“一条逐渐消失的路 / 一只瞬息而过的轮”。蜂鸟的新陈代谢旺盛，需要不停地进食。因此，它们整天都在花间飞来飞去，汲取花蜜，捕捉昆虫。有趣的是，这些鸟儿能记住它们造访过的每一朵花，以及每朵花需要多长时间才能重新充满花蜜。
+
+蜂鸟的腿很小，既不能跳也不能走，不过它们在栖息时可以侧身移动。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%9c%b1%e7%ba%a2%e8%9c%82%e9%b8%9f&form=hpcapt&filters=HpDate:"20240906_1600" "Bing Wallpaper 2024 9月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240907_SantaCruzHummer"&FORM=HPQUIZ "必应主页测验 2024 9月 7")
+[下载480](https://cn.bing.com/th?id=OHR.SantaCruzHummer_ZH-CN5448262039_800x480.jpg&rf=LaDigue_800x480.jpg "朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SantaCruzHummer_ZH-CN5448262039_1280x720.jpg&rf=LaDigue_1280x720.jpg "朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SantaCruzHummer_ZH-CN5448262039_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SantaCruzHummer_ZH-CN5448262039_UHD.jpg&rf=LaDigue_UHD.jpg "朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国")
+
+---
 ### 09月06日：你可曾见过此等景色
 #### 古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰（© Dawid K Photography/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_UHD.jpg&rf=LaDigue_UHD.jpg "卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国")
-
----
-### 08月23日：通往过去的大门
-#### 帕侬蓝寺，武里南府，泰国（© Banjongseal324/Getty Images）
-
-![通往过去的大门](https://cn.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_800x480.jpg&rf=LaDigue_800x480.jpg "通往过去的大门")
-
-今天，让我们走进泰国武里南府的帕侬蓝历史公园。在这里，高棉建筑和高棉人的历史栩栩如生地展现在人们面前。该遗址建于10至13世纪，是一座供奉湿婆神的印度教寺庙。寺庙位于一座死火山的边缘，从这里可以俯瞰周围的稻田和远处高耸入云的柬埔寨扁担山脉。
-
-从1971年到1988年，泰国美术局花了17年将该建筑群恢复原状。1988年5月21日，玛哈·扎克里·诗琳通公主宣布帕侬蓝历史公园正式开放。2005年，该寺庙的资料被提交给联合国教科文组织，申请列入世界遗产名录。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%95%e4%be%ac%e8%93%9d%e5%8e%86%e5%8f%b2%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240822_1600" "Bing Wallpaper 2024 8月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240823_PrasatPhanom"&FORM=HPQUIZ "必应主页测验 2024 8月 23")
-[下载480](https://cn.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_800x480.jpg&rf=LaDigue_800x480.jpg "帕侬蓝寺，武里南府，泰国")
-[下载720](https://cn.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕侬蓝寺，武里南府，泰国")
-[下载1080](https://cn.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕侬蓝寺，武里南府，泰国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_UHD.jpg&rf=LaDigue_UHD.jpg "帕侬蓝寺，武里南府，泰国")
 
 ---
