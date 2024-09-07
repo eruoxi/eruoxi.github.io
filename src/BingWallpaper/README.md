@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月08日：一座千年历史的修道院
+#### 加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国（© Cyril Gosselin/Getty Images）
+
+![一座千年历史的修道院](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_800x480.jpg&rf=LaDigue_800x480.jpg "一座千年历史的修道院")
+
+想要来一次永恒之旅？圣马丁杜卡尼古修道院向你敞开大门！坐落在东比利牛斯省卡尼古山丘的西麓，这座11世纪的罗马式修道院是一座隐藏的宝藏，正等待着你去探索。修道院坐落在海拔1055米处，位于里多尔塔溪峡谷的边缘，且靠近卡斯特尔村，有着令人叹为观止的景色。从村庄攀登到修道院是一段美好的徒步路程，高差约为250米。
+
+20世纪，加泰罗尼亚人对修道院遗址进行了重建和修复。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e9%a9%ac%e4%b8%81%e6%9d%9c%e5%8d%a1%e5%b0%bc%e5%8f%a4%e4%bf%ae%e9%81%93%e9%99%a2&form=hpcapt&filters=HpDate:"20240907_1600" "Bing Wallpaper 2024 9月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240908_Canigou"&FORM=HPQUIZ "必应主页测验 2024 9月 8")
+[下载480](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_800x480.jpg&rf=LaDigue_800x480.jpg "加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国")
+[下载720](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_1280x720.jpg&rf=LaDigue_1280x720.jpg "加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_UHD.jpg&rf=LaDigue_UHD.jpg "加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国")
+
+---
 ### 09月07日：嗡嗡作响
 #### 朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国（© yhelfman/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_1280x720.jpg&rf=LaDigue_1280x720.jpg "急流湖的日出，冰川国家公园，蒙大拿州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "急流湖的日出，冰川国家公园，蒙大拿州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_UHD.jpg&rf=LaDigue_UHD.jpg "急流湖的日出，冰川国家公园，蒙大拿州，美国")
-
----
-### 08月24日：尽享森林与水域之美
-#### 卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国（© Cavan Images/Alamy Stock Photo）
-
-![尽享森林与水域之美](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_800x480.jpg&rf=LaDigue_800x480.jpg "尽享森林与水域之美")
-
-欢迎来到卡塔丁森林和水域国家纪念碑，这里茂密的林地和原始的水道绵延不绝，一望无际。该保护区占地近87500英亩，于2016年的这一天建立。一百多年以来，该地区在缅因州的伐木业中发挥了重要作用，但在19世纪末，伐木业开始衰落。慈善家罗珊·昆比带头努力保护我们今天在这里看到的景观。她和她的基金会于2001年开始购买巴克斯特州立公园附近的土地，并于2016年将其捐赠给联邦政府，以确保后人能够保护这片土地。
-
-人类在该地区定居的历史可以追溯到1.1万年前，原住民靠这片森林及其水道维持生计以及运输物品。佩诺布斯科特印第安民族和其他瓦班纳基部落至今仍将佩诺布斯科特河视为其文化的重要标志。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e5%a1%94%e4%b8%81%e6%a3%ae%e6%9e%97%e5%92%8c%e6%b0%b4%e5%9f%9f%e5%9b%bd%e5%ae%b6%e7%ba%aa%e5%bf%b5%e7%a2%91&form=hpcapt&filters=HpDate:"20240823_1600" "Bing Wallpaper 2024 8月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240824_KatahdinWoods"&FORM=HPQUIZ "必应主页测验 2024 8月 24")
-[下载480](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_800x480.jpg&rf=LaDigue_800x480.jpg "卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_UHD.jpg&rf=LaDigue_UHD.jpg "卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国")
 
 ---
