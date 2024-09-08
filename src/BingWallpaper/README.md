@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月09日：“大水”中的彩虹波
+#### 阿根廷和巴西边境的伊瓜苏瀑布（© AirPano LLC/Amazing Aerial Agency）
+
+![“大水”中的彩虹波](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_800x480.jpg&rf=LaDigue_800x480.jpg "“大水”中的彩虹波")
+
+想亲眼目睹让尼亚加拉瀑布都望尘莫及的壮观瀑布吗？让我们走进世界上最大的瀑布群——伊瓜苏瀑布。“伊瓜苏”这个名字来源于瓜拉尼语或图皮语，意思是“大水”。这些瀑布群由伊瓜苏河形成，位于阿根廷米西奥内斯省和巴西巴拉那州的交界处。它们拥有独特的阶梯状结构，是由三层玄武岩形成的两级阶梯式瀑布，非常引人注目。
+
+伊瓜苏瀑布的排列方式像一个反转的字母 “J”。阿根廷和巴西的边界穿过伊瓜苏瀑布最险要的“魔鬼咽喉”。瀑布右岸是巴西领土，占伊瓜苏河流域95%以上的面积，但这些瀑布的水流量仅占约20%，左侧的水流量是阿根廷的，占瀑布的近80%。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bc%8a%e7%93%9c%e8%8b%8f%e7%80%91%e5%b8%83&form=hpcapt&filters=HpDate:"20240908_1600" "Bing Wallpaper 2024 9月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240909_IguazuRainbow"&FORM=HPQUIZ "必应主页测验 2024 9月 9")
+[下载480](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_800x480.jpg&rf=LaDigue_800x480.jpg "阿根廷和巴西边境的伊瓜苏瀑布")
+[下载720](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿根廷和巴西边境的伊瓜苏瀑布")
+[下载1080](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿根廷和巴西边境的伊瓜苏瀑布")
+[下载UHD](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_UHD.jpg&rf=LaDigue_UHD.jpg "阿根廷和巴西边境的伊瓜苏瀑布")
+
+---
 ### 09月08日：一座千年历史的修道院
 #### 加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国（© Cyril Gosselin/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴尔米拉环礁国家野生动物保护区，中太平洋")
 [下载1080](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴尔米拉环礁国家野生动物保护区，中太平洋")
 [下载UHD](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_UHD.jpg&rf=LaDigue_UHD.jpg "巴尔米拉环礁国家野生动物保护区，中太平洋")
-
----
-### 08月25日：守护这片乐园
-#### 急流湖的日出，冰川国家公园，蒙大拿州，美国（© Jason Savage/Tandem Stills + Motion）
-
-![守护这片乐园](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_800x480.jpg&rf=LaDigue_800x480.jpg "守护这片乐园")
-
-在美国国家公园管理局创始人日，与我们一起为美国的荒野而庆祝。今天，我们向具有创建国家公园管理局的远见和卓识的创始人致敬。伍德罗·威尔逊总统成立该组织的目的是保护野生动物、维护自然景观、保存历史文物并提供教育项目。在这一天，您可以游览美国429个国家公园中的其中一个，并参与到护林员主导的项目、志愿者活动和庆祝活动中，以便于了解更多与之相关的历史。
-
-急流湖以西的山脉高出湖面3000英尺（910米）。正在迅速消失的格林内尔冰川是为湖泊和溪流提供水源的几处冰川和雪原之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%86%b0%e5%b7%9d%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad%e6%80%a5%e6%b5%81%e6%b9%96&form=hpcapt&filters=HpDate:"20240824_1600" "Bing Wallpaper 2024 8月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240825_SwiftcurrentLake"&FORM=HPQUIZ "必应主页测验 2024 8月 25")
-[下载480](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_800x480.jpg&rf=LaDigue_800x480.jpg "急流湖的日出，冰川国家公园，蒙大拿州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_1280x720.jpg&rf=LaDigue_1280x720.jpg "急流湖的日出，冰川国家公园，蒙大拿州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "急流湖的日出，冰川国家公园，蒙大拿州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_UHD.jpg&rf=LaDigue_UHD.jpg "急流湖的日出，冰川国家公园，蒙大拿州，美国")
 
 ---
