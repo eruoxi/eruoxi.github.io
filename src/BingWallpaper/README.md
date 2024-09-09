@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月10日：从天际线到水面
+#### 瓦斯科·达·伽马大桥，里斯本，葡萄牙（© Achim Thomae/Getty Images）
+
+![从天际线到水面](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_800x480.jpg&rf=LaDigue_800x480.jpg "从天际线到水面")
+
+今天的图片展示的是葡萄牙的瓦斯科·达·伽马大桥，宛如一条流畅的线条，穿过里斯本的天际线。从近处看，它是一座带高架桥的斜拉桥，横跨里斯本万国公园的塔霍河。瓦斯科·达伽马大桥是欧洲第二长的桥，也是欧盟最长的桥，于1995年2月开工建设，旨在缓解里斯本四月二十五号大桥出现的交通拥堵情况，使葡萄牙南北之间的交通更加顺畅。该桥具有抗震性，可在地震中吸收晃动。由于桥面没有固定在桥塔上，因此可以纵向和横向移动。大桥于1998年3月29日落成通车，恰逢98世博会举行，这是为纪念瓦斯科·达·伽马发现从欧洲到印度的历史性海路500周年而举办的世界博览会。
+
+它是欧洲第二长的桥，仅次于克里米亚桥，也是欧盟最长的桥。建造这座大桥的目的是为了缓解葡萄牙四月二十五号大桥的交通拥堵状况，使该国南北地区之间的交通不再需要通过首都里斯本。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%93%a6%e6%96%af%e7%a7%91%e8%be%be%e4%bc%bd%e9%a9%ac%e5%a4%a7%e6%a1%a5&form=hpcapt&filters=HpDate:"20240909_1600" "Bing Wallpaper 2024 9月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240910_BridgeLisbon"&FORM=HPQUIZ "必应主页测验 2024 9月 10")
+[下载480](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_800x480.jpg&rf=LaDigue_800x480.jpg "瓦斯科·达·伽马大桥，里斯本，葡萄牙")
+[下载720](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓦斯科·达·伽马大桥，里斯本，葡萄牙")
+[下载1080](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦斯科·达·伽马大桥，里斯本，葡萄牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_UHD.jpg&rf=LaDigue_UHD.jpg "瓦斯科·达·伽马大桥，里斯本，葡萄牙")
+
+---
 ### 09月09日：“大水”中的彩虹波
 #### 阿根廷和巴西边境的伊瓜苏瀑布（© AirPano LLC/Amazing Aerial Agency）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁")
 [下载1080](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁")
 [下载UHD](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_UHD.jpg&rf=LaDigue_UHD.jpg "黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁")
-
----
-### 08月26日：田园诗般的岛屿之旅
-#### 巴尔米拉环礁国家野生动物保护区，中太平洋（© Ian Shive/Tandem Stills + Motion）
-
-![田园诗般的岛屿之旅](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_800x480.jpg&rf=LaDigue_800x480.jpg "田园诗般的岛屿之旅")
-
-欢迎来到太平洋中部的生态旅行者天堂。巴尔米拉环礁国家野生动物保护区位于夏威夷和美属萨摩亚之间，成立于2001年，旨在保护和管理巴尔米拉环礁的鱼类、野生动物、植物及其栖息地。
-
-太平洋偏远岛屿海洋国家纪念碑由巴尔米拉环礁、贝克岛、豪兰岛、贾维斯岛、约翰斯顿环礁和金曼礁组成，由乔治·w·布什总统于2009年1月6日宣布成立。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e5%b0%94%e7%b1%b3%e6%8b%89%e7%8e%af%e7%a4%81&form=hpcapt&filters=HpDate:"20240825_1600" "Bing Wallpaper 2024 8月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240826_PalmyraAtoll"&FORM=HPQUIZ "必应主页测验 2024 8月 26")
-[下载480](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_800x480.jpg&rf=LaDigue_800x480.jpg "巴尔米拉环礁国家野生动物保护区，中太平洋")
-[下载720](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴尔米拉环礁国家野生动物保护区，中太平洋")
-[下载1080](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴尔米拉环礁国家野生动物保护区，中太平洋")
-[下载UHD](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_UHD.jpg&rf=LaDigue_UHD.jpg "巴尔米拉环礁国家野生动物保护区，中太平洋")
 
 ---
