@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月11日：石头编织的童话
+#### 埃尔茨城堡，德国（© Allard Schager/Alamy）
+
+![石头编织的童话](https://cn.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_800x480.jpg&rf=LaDigue_800x480.jpg "石头编织的童话")
+
+埃尔茨城堡位于艾菲尔地区的一个风景如画的山谷中，是德国最重要和保存最完好的城堡之一。自12世纪以来，埃尔茨城堡一直由埃尔茨家族拥有。这座城堡融合了不同的建筑风格，其中哥特式的骑士客厅和巴洛克式的盔甲工匠房尤为引人注目。特别值得一提的是藏宝室，里面收藏着德国最珍贵的中世纪艺术品。在这里，您可以看到价值连城的盔甲、艺术化设计的武器以及各种金银制品。
+
+城堡中的吕贝纳赫和罗登多夫家族厢房向公众开放，而肯佩尼希家族则继续使用城堡中的三分之一。公众参观是季节性的：从四月到十一月。展品包括收藏金银器和瓷器的宝库，以及收藏武器和盔甲的军械库。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9f%83%e5%b0%94%e8%8c%a8%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20240910_1600" "Bing Wallpaper 2024 9月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240911_EltzCastle"&FORM=HPQUIZ "必应主页测验 2024 9月 11")
+[下载480](https://cn.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_800x480.jpg&rf=LaDigue_800x480.jpg "埃尔茨城堡，德国")
+[下载720](https://cn.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃尔茨城堡，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃尔茨城堡，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_UHD.jpg&rf=LaDigue_UHD.jpg "埃尔茨城堡，德国")
+
+---
 ### 09月10日：从天际线到水面
 #### 瓦斯科·达·伽马大桥，里斯本，葡萄牙（© Achim Thomae/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒙马特和圣心大教堂，巴黎，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙马特和圣心大教堂，巴黎，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_UHD.jpg&rf=LaDigue_UHD.jpg "蒙马特和圣心大教堂，巴黎，法国")
-
----
-### 08月27日：沼泽里的生活真美好！
-#### 黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁（© Maxime Aliaga/Minden Pictures）
-
-![沼泽里的生活真美好！](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_800x480.jpg&rf=LaDigue_800x480.jpg "沼泽里的生活真美好！")
-
-今天的图片展示了秘鲁坦博帕塔国家保护区里的黑凯门鳄，这是一种南美洲的隐秘的河中巨兽。这些凯门鳄是短吻鳄家族中最大的物种，体长可达20英尺，体重可达1000磅。它们与众不同的地方在于其深绿色的皮肤，这有助于它们融入浑浊的水底。这些食肉动物在淡水环境中繁衍生息，比如流动缓慢的河流、湖泊和被季节性洪水淹没的稀树草原。它们在这些水域中捕食鸟类、鱼类、龟类，偶尔还会捕食大型哺乳动物。黑凯门鳄在维持生态系统平衡方面发挥着重要作用。凯门鳄数量减少意味着会有更多的食人鱼攻击牛群，水豚也会泛滥成灾，对农作物造成损害。
-
-成年黑凯门鳄没有天敌，其他体型相似的鳄鱼物种也是如此，因为它们体型庞大、体重沉重、咬合力强、皮肤厚实且力量强大。不过，在极少数情况下，它们可能会被美洲虎捕食。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%bb%91%e5%87%af%e9%97%a8%e9%b3%84&form=hpcapt&filters=HpDate:"20240826_1600" "Bing Wallpaper 2024 8月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240827_YoungCaiman"&FORM=HPQUIZ "必应主页测验 2024 8月 27")
-[下载480](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_800x480.jpg&rf=LaDigue_800x480.jpg "黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁")
-[下载720](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁")
-[下载1080](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁")
-[下载UHD](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_UHD.jpg&rf=LaDigue_UHD.jpg "黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁")
 
 ---
