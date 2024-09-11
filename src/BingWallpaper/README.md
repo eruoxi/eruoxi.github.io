@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月12日：度过美好的一天
+#### 留尼汪岛附近的海豚群，印度洋，法国海外省（© Joost van Uffelen/Shutterstock）
+
+![度过美好的一天](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_800x480.jpg&rf=LaDigue_800x480.jpg "度过美好的一天")
+
+带上你的脚蹼去潜水吧！今天是世界海豚日。这一天，全世界的人们都在庆祝海豚日，旨在提高人们对海豚的认识，促进对这些水生哺乳动物的保护。海豚非常聪明，在世界各地的海洋、河流和河口都能发现它们的身影。尽管海豚能够在各种环境和水温下生存，但它们仍受到人类活动的威胁，比如狩猎、污染和捕鱼。国际海洋保护组织海洋守护者协会于2022年设立了“世界海豚日”。
+
+最著名的杂交案例是鲸豚，一种伪虎鲸和宽吻海豚的杂交后代，鲸豚是可繁殖的混血儿。目前有两只鲸豚生活在夏威夷的海洋生物公园，第一只鲸豚是1985年由一只雄性伪虎鲸和一只雌性宽吻海豚所生。此外，人类也曾在野外观察到过鲸豚。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b5%b7%e8%b1%9a%e6%97%a5&form=hpcapt&filters=HpDate:"20240911_1600" "Bing Wallpaper 2024 9月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240912_DolphinReunion"&FORM=HPQUIZ "必应主页测验 2024 9月 12")
+[下载480](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_800x480.jpg&rf=LaDigue_800x480.jpg "留尼汪岛附近的海豚群，印度洋，法国海外省")
+[下载720](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_1280x720.jpg&rf=LaDigue_1280x720.jpg "留尼汪岛附近的海豚群，印度洋，法国海外省")
+[下载1080](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "留尼汪岛附近的海豚群，印度洋，法国海外省")
+[下载UHD](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_UHD.jpg&rf=LaDigue_UHD.jpg "留尼汪岛附近的海豚群，印度洋，法国海外省")
+
+---
 ### 09月11日：石头编织的童话
 #### 埃尔茨城堡，德国（© Allard Schager/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_1280x720.jpg&rf=LaDigue_1280x720.jpg "富利特堡-德拉罗卡，加泰罗尼亚，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "富利特堡-德拉罗卡，加泰罗尼亚，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_UHD.jpg&rf=LaDigue_UHD.jpg "富利特堡-德拉罗卡，加泰罗尼亚，西班牙")
-
----
-### 08月28日：比赛开始！
-#### 蒙马特和圣心大教堂，巴黎，法国（© Tuul & Bruno Morandi/Getty Images）
-
-![比赛开始！](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_800x480.jpg&rf=LaDigue_800x480.jpg "比赛开始！")
-
-今天，夏季残奥会在巴黎开幕。来自世界各地的4000多名运动员将齐聚法国首都，参加22个运动项目、549个不同赛事的角逐。作为首次举办夏季残奥会的城市，巴黎为开幕式准备了特别的节目。来自184个国家的代表团将沿着著名的香榭丽舍大街游行至协和广场，而不是进入体育场。首届正式残奥会于1960年在罗马举行。23个国家参加了比赛，角逐包括轮椅篮球和残疾人田径在内的8个项目。
-
-圣心大教堂位于蒙马特高地，是巴黎第二大旅游景点，仅次于埃菲尔铁塔。
-
-[Bing搜索](https://cn.bing.com/search?q=2024%e5%b9%b4%e5%a4%8f%e5%ad%a3%e6%ae%8b%e5%a5%a5%e4%bc%9a&form=hpcapt&filters=HpDate:"20240827_1600" "Bing Wallpaper 2024 8月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240828_ParalympicsParis"&FORM=HPQUIZ "必应主页测验 2024 8月 28")
-[下载480](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_800x480.jpg&rf=LaDigue_800x480.jpg "蒙马特和圣心大教堂，巴黎，法国")
-[下载720](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒙马特和圣心大教堂，巴黎，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙马特和圣心大教堂，巴黎，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_UHD.jpg&rf=LaDigue_UHD.jpg "蒙马特和圣心大教堂，巴黎，法国")
 
 ---
