@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月13日：自然与人类的天堂
+#### 雷耶斯角国家海岸灯塔，加利福尼亚州，美国（© RMB Images/Photography by Robert Bowman/Getty Images）
+
+![自然与人类的天堂](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_800x480.jpg&rf=LaDigue_800x480.jpg "自然与人类的天堂")
+
+欢迎来到雷耶斯角国家海岸，这里是天空与大地交汇的地方。这个令人惊叹的71,028英亩的海滨天堂位于马林县的雷耶斯角半岛上，是加利福尼亚海岸线上的一颗璀璨明珠，拥有令人惊叹的美景和种类繁多的野生动物。雷耶斯角遍布风景优美的小径，蜿蜒穿过茂密的森林和崎岖的悬崖，为游客提供了许多乐趣。
+
+雷耶斯角灯塔每年一月中旬和三月中旬都会吸引观鲸者前来寻找向南迁徙和向北迁徙的灰鲸。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%9b%b7%e8%80%b6%e6%96%af%e5%9b%bd%e5%ae%b6%e6%b5%b7%e5%b2%b8&form=hpcapt&filters=HpDate:"20240912_1600" "Bing Wallpaper 2024 9月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240913_PointReyes"&FORM=HPQUIZ "必应主页测验 2024 9月 13")
+[下载480](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_800x480.jpg&rf=LaDigue_800x480.jpg "雷耶斯角国家海岸灯塔，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_1280x720.jpg&rf=LaDigue_1280x720.jpg "雷耶斯角国家海岸灯塔，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷耶斯角国家海岸灯塔，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_UHD.jpg&rf=LaDigue_UHD.jpg "雷耶斯角国家海岸灯塔，加利福尼亚州，美国")
+
+---
 ### 09月12日：度过美好的一天
 #### 留尼汪岛附近的海豚群，印度洋，法国海外省（© Joost van Uffelen/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_1280x720.jpg&rf=LaDigue_1280x720.jpg "鸟头湾的鲸鲨，西巴布亚，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟头湾的鲸鲨，西巴布亚，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_UHD.jpg&rf=LaDigue_UHD.jpg "鸟头湾的鲸鲨，西巴布亚，印度尼西亚")
-
----
-### 08月29日：加泰罗尼亚式的悬念
-#### 富利特堡-德拉罗卡，加泰罗尼亚，西班牙（© Eloi_Omella/Getty Images）
-
-![加泰罗尼亚式的悬念](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_800x480.jpg&rf=LaDigue_800x480.jpg "加泰罗尼亚式的悬念")
-
-坐落在玄武岩悬崖边上的小镇，眺望着脚下奔流不息的河流。今天的照片展示的是西班牙东北部加泰罗尼亚地区的富利特堡-德拉罗卡。这个小镇并不适合胆小的人：从160英尺高的悬崖上向下俯瞰，托罗内尔河和弗鲁维亚河在悬崖底部汇合。许多建筑都是由小镇所在的玄武岩建造而成，似乎就在悬崖边上岌岌可危。图为位于峭壁尽头的13世纪圣萨尔瓦多教堂。
-
-小镇所在的玄武岩峭壁高50多米（160英尺），长近一公里。它由两股熔岩流叠加而成。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99+%e5%af%8c%e5%88%a9%e7%89%b9%e5%a0%a1-%e5%be%b7%e6%8b%89%e7%bd%97%e5%8d%a1&form=hpcapt&filters=HpDate:"20240828_1600" "Bing Wallpaper 2024 8月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240829_CastellfollitSpain"&FORM=HPQUIZ "必应主页测验 2024 8月 29")
-[下载480](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_800x480.jpg&rf=LaDigue_800x480.jpg "富利特堡-德拉罗卡，加泰罗尼亚，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_1280x720.jpg&rf=LaDigue_1280x720.jpg "富利特堡-德拉罗卡，加泰罗尼亚，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "富利特堡-德拉罗卡，加泰罗尼亚，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_UHD.jpg&rf=LaDigue_UHD.jpg "富利特堡-德拉罗卡，加泰罗尼亚，西班牙")
 
 ---
