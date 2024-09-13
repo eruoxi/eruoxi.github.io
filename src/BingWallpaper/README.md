@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月14日：古老又神秘
+#### 阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利（© Piriya Photography/Getty Images）
+
+![古老又神秘](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_800x480.jpg&rf=LaDigue_800x480.jpg "古老又神秘")
+
+欢迎来到拉帕努伊岛，该岛也被称为智利的复活节岛，是世界上最偏远、最迷人的天堂之一。这座令人惊叹的岛屿以其标志性的摩艾石像而闻名，是一座拥有壮丽景观和丰富文化遗产的宝库。专家们对波利尼西亚人到来的时间众说纷纭，但许多研究人员认为应该是在8世纪左右。作为世界遗产的复活节岛占地超过17,000英亩，包括附近的四个小岛。在岛上，你可以欣赏到今天的图片所展示的迷人日出，探索矗立着宏伟雕像的火山口和郁郁葱葱的草地。
+
+20世纪90年代，在考古学家克劳迪奥·克里斯蒂诺和帕特里夏·巴尔加斯领导的多学科团队的努力下，阿胡汤加里基得到了实质性的修复。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e8%83%a1%e6%b1%a4%e5%8a%a0%e9%87%8c%e5%9f%ba&form=hpcapt&filters=HpDate:"20240913_1600" "Bing Wallpaper 2024 9月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240914_RapaNuiSunrise"&FORM=HPQUIZ "必应主页测验 2024 9月 14")
+[下载480](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_800x480.jpg&rf=LaDigue_800x480.jpg "阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利")
+[下载720](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利")
+[下载1080](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利")
+[下载UHD](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_UHD.jpg&rf=LaDigue_UHD.jpg "阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利")
+
+---
 ### 09月13日：自然与人类的天堂
 #### 雷耶斯角国家海岸灯塔，加利福尼亚州，美国（© RMB Images/Photography by Robert Bowman/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_1280x720.jpg&rf=LaDigue_1280x720.jpg "撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_UHD.jpg&rf=LaDigue_UHD.jpg "撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚")
-
----
-### 08月30日：对大块头温柔点
-#### 鸟头湾的鲸鲨，西巴布亚，印度尼西亚（© Andy Lerner/Tandem Stills + Motion）
-
-![对大块头温柔点](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_800x480.jpg&rf=LaDigue_800x480.jpg "对大块头温柔点")
-
-每年的8月30日，海洋爱好者都会聚集在一起，提高人们对鲸鲨的关注，并倡导保护鲸鲨。这些温和的庞然大物已经存在了2.4亿多年，但第一个鲸鲨标本是19世纪20年代在南非海岸发现的。作为世界上最大的鱼类，鲸鲨可以长到40英尺，其中一条达到了创纪录的61.7英尺。鲸鲨生活在世界各地的热带海洋中，这种滤食性鱼类张开大嘴在水中滑行，捕食浮游生物和小鱼，它们星罗棋布的皮肤上每一个图案都像人类的指纹一样独一无二。可悲的是，由于过度捕捞、栖息地丧失和气候变化，国际自然保护联盟将鲸鲨列为濒危物种。逆境中也有希望，比如印度尼西亚的森达瓦西湾，这里是鲸鲨的绿洲。在这个海湾，渔民们慷慨地向鲸鲨投喂饵料鱼，以求好运，体现了人类与海洋生物之间独特的联系。
-
-鲸鲨和绿海龟一起出现在2015-2017年最新版的马尔代夫1000拉菲亚纸币上。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%b2%b8%e9%b2%a8&form=hpcapt&filters=HpDate:"20240829_1600" "Bing Wallpaper 2024 8月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240830_WhaleSharkDay"&FORM=HPQUIZ "必应主页测验 2024 8月 30")
-[下载480](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_800x480.jpg&rf=LaDigue_800x480.jpg "鸟头湾的鲸鲨，西巴布亚，印度尼西亚")
-[下载720](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_1280x720.jpg&rf=LaDigue_1280x720.jpg "鸟头湾的鲸鲨，西巴布亚，印度尼西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟头湾的鲸鲨，西巴布亚，印度尼西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_UHD.jpg&rf=LaDigue_UHD.jpg "鸟头湾的鲸鲨，西巴布亚，印度尼西亚")
 
 ---
