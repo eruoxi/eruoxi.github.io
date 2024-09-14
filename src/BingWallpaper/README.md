@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月15日：香料红和水晶蓝
+#### 阿科马尼奥海滩，卡拉布里亚，意大利（© Alessio de Cicco/Getty Images）
+
+![香料红和水晶蓝](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_800x480.jpg&rf=LaDigue_800x480.jpg "香料红和水晶蓝")
+
+提到卡拉布里亚，就不得不说说这里迷人的香料——辣椒。在卡拉布里亚地区，辣椒是一种人见人爱的香料，你可以在很多典型的食物中发现它们，例如斯皮林加的香肠（辣味猪肉香肠），阿曼泰亚的鱼酱（用沙丁鱼酱和辣椒制成的酱料），还有一些食品也会用到它，例如带有厄洛斯香料味道的利口酒和盐。在这里，你可以尝试从最甜到最辣的各种类型的美食，参加厨师烹饪、关于辣椒的医学会议、展览、诗歌、塔兰泰拉舞等活动。此外，这里还有一个关于辣椒的最佳论文奖。
+
+与欧洲的其他海滨旅游胜地相比，这里的海岸线在崎岖的悬崖和海滩之间交替，很少被商业开发破坏。除此之外，卡拉布里亚周围的海水清澈，旅游住宿水平也很高。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e6%8b%89%e5%b8%83%e9%87%8c%e4%ba%9a&form=hpcapt&filters=HpDate:"20240914_1600" "Bing Wallpaper 2024 9月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240915_CalabriaPeperoncino"&FORM=HPQUIZ "必应主页测验 2024 9月 15")
+[下载480](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_800x480.jpg&rf=LaDigue_800x480.jpg "阿科马尼奥海滩，卡拉布里亚，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿科马尼奥海滩，卡拉布里亚，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿科马尼奥海滩，卡拉布里亚，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_UHD.jpg&rf=LaDigue_UHD.jpg "阿科马尼奥海滩，卡拉布里亚，意大利")
+
+---
 ### 09月14日：古老又神秘
 #### 阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利（© Piriya Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_1280x720.jpg&rf=LaDigue_1280x720.jpg "泰晤士河，伦敦，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰晤士河，伦敦，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_UHD.jpg&rf=LaDigue_UHD.jpg "泰晤士河，伦敦，英国")
-
----
-### 08月31日：沙丘日和沙漠烟霞
-#### 撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚（© Airpano/Amazing Aerial Agency）
-
-![沙丘日和沙漠烟霞](https://cn.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_800x480.jpg&rf=LaDigue_800x480.jpg "沙丘日和沙漠烟霞")
-
-从地中海沿岸到广袤的撒哈拉沙漠，北非阿尔及利亚的地貌千姿百态。今天，我们将探索阿杰尔塔西里高原周围的地区。这一联合国教科文组织世界遗产以其岩层和洞穴艺术而闻名。这里有1.5万多处古代雕刻，有些可以追溯到1.2万年前，描绘了日常生活、狩猎和神秘生物的场景。领略完这片沙漠风光后，就该进城了。
-
-在贾奈特，4.1%的人口受过高等教育，另有19.8%的人口完成了中等教育。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%b4%be%e5%a5%88%e7%89%b9&form=hpcapt&filters=HpDate:"20240830_1600" "Bing Wallpaper 2024 8月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240831_DjanetAlgeria"&FORM=HPQUIZ "必应主页测验 2024 8月 31")
-[下载480](https://cn.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_800x480.jpg&rf=LaDigue_800x480.jpg "撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚")
-[下载720](https://cn.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_1280x720.jpg&rf=LaDigue_1280x720.jpg "撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_UHD.jpg&rf=LaDigue_UHD.jpg "撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚")
 
 ---
