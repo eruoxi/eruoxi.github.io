@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月16日：蹦蹦跳跳，快乐到老
+#### 日出时的小袋鼠，阿德莱德河，北领地，澳大利亚（© Jeremy Woodhouse/Getty Images）
+
+![蹦蹦跳跳，快乐到老](https://cn.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_800x480.jpg&rf=LaDigue_800x480.jpg "蹦蹦跳跳，快乐到老")
+
+今天的照片中，在黎明曙光的照耀下，两只小袋鼠警惕地站在澳大利亚阿德莱德河附近的田野中。这些有袋动物是袋鼠的体型较小的“堂表亲”，原产于澳大利亚和新几内亚。小袋鼠大约有30个不同的种类，包括灌丛小袋鼠、岩小袋鼠、兔小袋鼠、钉尾小袋鼠和沼泽小袋鼠。这些敏捷又好动的哺乳动物是食草动物，以草、树叶和水果为食。小袋鼠的身高在12至41英寸之间，强壮的后肢使它们拥有惊人的跳跃能力以及防御掠食者的能力。在交配季节，雄性小袋鼠会参加“拳击比赛”，来展示自己的优势，从而吸引雌性小袋鼠的注意。作为群居动物，小袋鼠组成的小群体被称为“小袋鼠帮”，这为成员们提供了安全保障，彼此还能互相梳理毛发。森林是小袋鼠的游乐场，当它们轻松地在自己的地盘上穿行时，森林里回荡着它们跳跃的声音。
+
+小袋鼠广泛分布于澳大利亚各地，尤其是那些更偏远、树木更茂密或是更崎岖的地区，比较少分布在半干旱的大平原地区，那里适合体型更大、更瘦、脚步更敏捷的袋鼠。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b0%8f%e8%a2%8b%e9%bc%a0&form=hpcapt&filters=HpDate:"20240915_1600" "Bing Wallpaper 2024 9月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240916_SunriseWallabies"&FORM=HPQUIZ "必应主页测验 2024 9月 16")
+[下载480](https://cn.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_800x480.jpg&rf=LaDigue_800x480.jpg "日出时的小袋鼠，阿德莱德河，北领地，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的小袋鼠，阿德莱德河，北领地，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的小袋鼠，阿德莱德河，北领地，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的小袋鼠，阿德莱德河，北领地，澳大利亚")
+
+---
 ### 09月15日：香料红和水晶蓝
 #### 阿科马尼奥海滩，卡拉布里亚，意大利（© Alessio de Cicco/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_1280x720.jpg&rf=LaDigue_1280x720.jpg "红绿金刚鹦鹉，南马托格罗索州，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红绿金刚鹦鹉，南马托格罗索州，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_UHD.jpg&rf=LaDigue_UHD.jpg "红绿金刚鹦鹉，南马托格罗索州，巴西")
-
----
-### 09月01日：小船轻轻划过泰晤士河
-#### 泰晤士河，伦敦，英国（© Puthipong Worasaran/Getty Images）
-
-![小船轻轻划过泰晤士河](https://cn.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_800x480.jpg&rf=LaDigue_800x480.jpg "小船轻轻划过泰晤士河")
-
-欢迎来到英国伦敦的泰晤士河节。每年，它都会将社区、艺术家和自然爱好者聚集在一起，向河流致敬，为期一个月。2024年的重点活动包括一年一度的帆船赛舟会、大河赛和清洁泰晤士河挑战赛。
-
-潮道是英国泰晤士河的一部分，受潮汐影响，这段水域位于特丁顿船闸的下游。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b3%b0%e6%99%a4%e5%a3%ab%e6%b2%b3&form=hpcapt&filters=HpDate:"20240831_1600" "Bing Wallpaper 2024 9月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240901_ThamesLondon"&FORM=HPQUIZ "必应主页测验 2024 9月 1")
-[下载480](https://cn.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_800x480.jpg&rf=LaDigue_800x480.jpg "泰晤士河，伦敦，英国")
-[下载720](https://cn.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_1280x720.jpg&rf=LaDigue_1280x720.jpg "泰晤士河，伦敦，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰晤士河，伦敦，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_UHD.jpg&rf=LaDigue_UHD.jpg "泰晤士河，伦敦，英国")
 
 ---
