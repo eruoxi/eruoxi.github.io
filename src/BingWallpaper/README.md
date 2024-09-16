@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月17日：明月千里寄相思
+#### 月圆之夜的豫园，上海，中国（© zyxeos30/Gettyimages）
+
+![明月千里寄相思](https://cn.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_800x480.jpg&rf=LaDigue_800x480.jpg "明月千里寄相思")
+
+中秋节是流行于中国的众多民族中的传统文化节日。从古至今，人们都有中秋之夜饮宴、赏月、吃月饼、看花灯、赏桂花、饮桂花酒等民俗。中秋节最大的特征是人们将内心美好的愿望寄托于明月。此外，中秋节时正当农业丰收的季节，月饼和瓜果既是古代的祭神媒介，也是如今人们庆祝丰收美好心情的具体象征。
+
+豫园内的湖心亭茶楼被誉为“海上第一茶楼”，是上海历史最为悠久、最具盛名的茶楼，也是上海现存古建筑景观之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e7%a7%8b%e8%8a%82&form=hpcapt&filters=HpDate:"20240916_1600" "Bing Wallpaper 2024 9月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240917_MidAutumnFestival2024"&FORM=HPQUIZ "必应主页测验 2024 9月 17")
+[下载480](https://cn.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_800x480.jpg&rf=LaDigue_800x480.jpg "月圆之夜的豫园，上海，中国")
+[下载720](https://cn.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_1280x720.jpg&rf=LaDigue_1280x720.jpg "月圆之夜的豫园，上海，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "月圆之夜的豫园，上海，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_UHD.jpg&rf=LaDigue_UHD.jpg "月圆之夜的豫园，上海，中国")
+
+---
 ### 09月16日：蹦蹦跳跳，快乐到老
 #### 日出时的小袋鼠，阿德莱德河，北领地，澳大利亚（© Jeremy Woodhouse/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AlpineLakes_ZH-CN4537389724_1280x720.jpg&rf=LaDigue_1280x720.jpg "迷人的水晶湖，高山湖泊，华盛顿州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AlpineLakes_ZH-CN4537389724_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "迷人的水晶湖，高山湖泊，华盛顿州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlpineLakes_ZH-CN4537389724_UHD.jpg&rf=LaDigue_UHD.jpg "迷人的水晶湖，高山湖泊，华盛顿州，美国")
-
----
-### 09月02日：红绿金刚鹦鹉之家
-#### 红绿金刚鹦鹉，南马托格罗索州，巴西（© Ellen Goff/Danita Delimont）
-
-![红绿金刚鹦鹉之家](https://cn.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_800x480.jpg&rf=LaDigue_800x480.jpg "红绿金刚鹦鹉之家")
-
-欢迎来到金刚鹦鹉洞的金刚鹦鹉舞会！它位于巴西南马托格罗索州的中心地带，是一个巨大的天坑，为红绿金刚鹦鹉上演生动的舞蹈提供了舞台。在这个庇护所里，它们鲜艳的红绿色羽毛（翼展可达近3英尺）在广阔的巴西蓝天和高耸的红砂岩墙的映衬下显得格外耀眼。这片翠绿的天坑纵深近400英尺，是这些华美的鸟儿的庇护所，红绿金刚鹦鹉在其中展翅翱翔，恍如童话故事中的热带风光。
-
-就长度而言，该物种仅次于金刚鹦鹉中体型最大的紫蓝金刚鹦鹉。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a2%e7%bb%bf%e9%87%91%e5%88%9a%e9%b9%a6%e9%b9%89&form=hpcapt&filters=HpDate:"20240901_1600" "Bing Wallpaper 2024 9月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240902_BuracodasAraras"&FORM=HPQUIZ "必应主页测验 2024 9月 2")
-[下载480](https://cn.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_800x480.jpg&rf=LaDigue_800x480.jpg "红绿金刚鹦鹉，南马托格罗索州，巴西")
-[下载720](https://cn.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_1280x720.jpg&rf=LaDigue_1280x720.jpg "红绿金刚鹦鹉，南马托格罗索州，巴西")
-[下载1080](https://cn.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红绿金刚鹦鹉，南马托格罗索州，巴西")
-[下载UHD](https://cn.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_UHD.jpg&rf=LaDigue_UHD.jpg "红绿金刚鹦鹉，南马托格罗索州，巴西")
 
 ---
