@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月19日：埃尔博河上空的银河
+#### 埃尔博河上空的银河，阿尔伯塔省，加拿大（© Alan Dyer/Getty Images）
+
+![埃尔博河上空的银河](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_800x480.jpg&rf=LaDigue_800x480.jpg "埃尔博河上空的银河")
+
+在阿尔伯塔省风景如画的南部，埃尔博河发源自加拿大落基山脉中的埃尔博湖。这条120公里长的河流蜿蜒地穿过山谷，然后在海拔1040米的卡尔加里与弓河汇合。沿河而行可以看到埃尔博瀑布，这是一个由一系列的叠水瀑布组成的自然奇观。冬季，这里会变成一个冰雪仙境，夏季则是奔腾的水流，非常适合漂流、皮划艇、钓鱼、远足和其他休闲活动。
+
+加拿大近一半的牛肉都产自阿尔伯塔省。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e5%b0%94%e4%bc%af%e5%a1%94%e7%9c%81&form=hpcapt&filters=HpDate:"20240918_1600" "Bing Wallpaper 2024 9月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240919_ElbowRiver"&FORM=HPQUIZ "必应主页测验 2024 9月 19")
+[下载480](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_800x480.jpg&rf=LaDigue_800x480.jpg "埃尔博河上空的银河，阿尔伯塔省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃尔博河上空的银河，阿尔伯塔省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃尔博河上空的银河，阿尔伯塔省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_UHD.jpg&rf=LaDigue_UHD.jpg "埃尔博河上空的银河，阿尔伯塔省，加拿大")
+
+---
 ### 09月18日：云中之城
 #### 郡上八幡城，岐阜县，日本（© ta2funk ito/500px/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TIFF2024_ZH-CN4896695918_1280x720.jpg&rf=LaDigue_1280x720.jpg "多伦多城市天际线,加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.TIFF2024_ZH-CN4896695918_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多伦多城市天际线,加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.TIFF2024_ZH-CN4896695918_UHD.jpg&rf=LaDigue_UHD.jpg "多伦多城市天际线,加拿大")
-
----
-### 09月04日：物以类聚，人以群分
-#### 乌雕鸮，巴基斯坦（© zahoor salmi/Getty Images）
-
-![物以类聚，人以群分](https://cn.bing.com/th?id=OHR.DuskyOwls_ZH-CN4729762831_800x480.jpg&rf=LaDigue_800x480.jpg "物以类聚，人以群分")
-
-随着日光逐渐暗淡，乌雕鸮——今天画面中的沉默猎手，从巢穴中钻了出来。这些主要在夜间活动的猛禽是在巴基斯坦被拍摄到的，在南亚和东南亚的森林以及灌木丛中也能找到它们的身影。一对令人印象深刻的15–17英寸的翼展、锐利的黄色眼睛和出色的听力，能帮助它们在昏暗的光线中精确地捕捉小型哺乳动物和鸟类。这些长了羽毛的食肉动物身高可达两英尺，在白天阴天的时候，也能看到它们捕猎的身影。它们通常栖息在被其它鸟类遗弃的巢穴里或自然裂缝中。乌雕鸮在十二月和一月繁殖，通常在高大的树木或崖壁的安全地带抚养幼鸟。无数自然爱好者和观鸟者被它们冷峻的眼神和优雅的身姿所吸引。
-
-在巴基斯坦，生物学家记录了这种猫头鹰在地面筑巢的首个案例。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b9%8c%e9%9b%95%e9%b8%ae&form=hpcapt&filters=HpDate:"20240903_1600" "Bing Wallpaper 2024 9月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240904_DuskyOwls"&FORM=HPQUIZ "必应主页测验 2024 9月 4")
-[下载480](https://cn.bing.com/th?id=OHR.DuskyOwls_ZH-CN4729762831_800x480.jpg&rf=LaDigue_800x480.jpg "乌雕鸮，巴基斯坦")
-[下载720](https://cn.bing.com/th?id=OHR.DuskyOwls_ZH-CN4729762831_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌雕鸮，巴基斯坦")
-[下载1080](https://cn.bing.com/th?id=OHR.DuskyOwls_ZH-CN4729762831_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌雕鸮，巴基斯坦")
-[下载UHD](https://cn.bing.com/th?id=OHR.DuskyOwls_ZH-CN4729762831_UHD.jpg&rf=LaDigue_UHD.jpg "乌雕鸮，巴基斯坦")
 
 ---
