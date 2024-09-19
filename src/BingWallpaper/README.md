@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月20日：海盗的最终归宿
+#### 奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国（© Chansak Joe/Getty Images）
+
+![海盗的最终归宿](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_800x480.jpg&rf=LaDigue_800x480.jpg "海盗的最终归宿")
+
+欢迎来到北卡罗来纳州外滩的奥克拉科克岛。这是一个历史与自然交织的地方。这座只有乘坐渡轮或小型飞机才能到达的僻静小岛，拥有16英里长的人迹罕至的海滩和丰富的故事。从今天的图片中可以看到，奥克拉科克灯塔是一个引人注目的地标，它于2023年迎来了200周年纪念日，并成为了北卡罗来纳州最古老的、持续运行的灯塔。这座灯塔的灯光亮度与8000支蜡烛的亮度相当，在离岸14英里处都能看到。
+
+1977年，这座灯塔以“奥克拉科克灯塔”之名被列入《美国国家历史遗迹名录》。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a5%a5%e5%85%8b%e6%8b%89%e7%a7%91%e5%85%8b%e7%81%af%e5%a1%94&form=hpcapt&filters=HpDate:"20240919_1600" "Bing Wallpaper 2024 9月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240920_OcracokeLight"&FORM=HPQUIZ "必应主页测验 2024 9月 20")
+[下载480](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_800x480.jpg&rf=LaDigue_800x480.jpg "奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_UHD.jpg&rf=LaDigue_UHD.jpg "奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国")
+
+---
 ### 09月19日：埃尔博河上空的银河
 #### 埃尔博河上空的银河，阿尔伯塔省，加拿大（© Alan Dyer/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_1280x720.jpg&rf=LaDigue_1280x720.jpg "古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰")
 [下载1080](https://cn.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_UHD.jpg&rf=LaDigue_UHD.jpg "古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰")
-
----
-### 09月05日：2024年多伦多国际电影节
-#### 多伦多城市天际线,加拿大（© Roberto Machado Noa/Getty Images）
-
-![2024年多伦多国际电影节](https://cn.bing.com/th?id=OHR.TIFF2024_ZH-CN4896695918_800x480.jpg&rf=LaDigue_800x480.jpg "2024年多伦多国际电影节")
-
-电影爱好者们，集合！第49届多伦多国际电影节（TIFF）将在加拿大多伦多盛大开幕，今天的图片就展示了这座城市的面貌。自1976年创办以来，多伦多国际电影节已成为世界上公众参与度最高的电影节之一。从经验丰富的导演到冉冉升起的新星，再到热衷于电影的观众，电影节吸引了各式各样的参与者。多年来，该电影节已经首映了多部广受好评的电影，包括《造梦之家》、《黑天鹅》等。
-
-多伦多国际电影节是一个推广新电影的平台，通常被称为美国和欧洲独立制片的测试活动，为市场营销和新闻宣传提供了良好的机会。
-
-[Bing搜索](https://cn.bing.com/search?q=2024%e5%b9%b4%e5%a4%9a%e4%bc%a6%e5%a4%9a%e5%9b%bd%e9%99%85%e7%94%b5%e5%bd%b1%e8%8a%82&form=hpcapt&filters=HpDate:"20240904_1600" "Bing Wallpaper 2024 9月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240905_TIFF2024"&FORM=HPQUIZ "必应主页测验 2024 9月 5")
-[下载480](https://cn.bing.com/th?id=OHR.TIFF2024_ZH-CN4896695918_800x480.jpg&rf=LaDigue_800x480.jpg "多伦多城市天际线,加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.TIFF2024_ZH-CN4896695918_1280x720.jpg&rf=LaDigue_1280x720.jpg "多伦多城市天际线,加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.TIFF2024_ZH-CN4896695918_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多伦多城市天际线,加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.TIFF2024_ZH-CN4896695918_UHD.jpg&rf=LaDigue_UHD.jpg "多伦多城市天际线,加拿大")
 
 ---
