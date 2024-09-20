@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月21日：为慕尼黑啤酒节干杯！
+#### Oktoberfest in Munich at sunset（© AllesSuper21/iStock/Getty Images）
+
+![为慕尼黑啤酒节干杯！](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_800x480.jpg&rf=LaDigue_800x480.jpg "为慕尼黑啤酒节干杯！")
+
+慕尼黑啤酒节是世界上最大的节日之一，吸引了600多万游客。除了身着传统巴伐利亚服装的服务员端上一大杯泡沫丰富的啤酒之外，每个人都能在这里找到自己喜欢的东西。在这里，您可以享受欢快的音乐、惊险刺激的游乐设施以及令人垂涎欲滴的椒盐卷饼和香肠等当地美食。啤酒节在全球其他地方也有庆祝活动，包括美国的辛辛那提和丹佛等几个城市，每个城市都为节日增添了自己的地方特色。因此，无论您是喜欢啤酒还是喜欢热闹的派对，慕尼黑啤酒节都会让你体验到巴伐利亚的风情。
+
+目前，啤酒节上有14个大帐篷和20个小帐篷。这些帐篷是木制的非永久性建筑，专为啤酒节建造，仅在啤酒节期间使用。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%85%95%e5%b0%bc%e9%bb%91%e5%95%a4%e9%85%92%e8%8a%82&form=hpcapt&filters=HpDate:"20240920_1600" "Bing Wallpaper 2024 9月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240921_MunichBeerfest"&FORM=HPQUIZ "必应主页测验 2024 9月 21")
+[下载480](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_800x480.jpg&rf=LaDigue_800x480.jpg "Oktoberfest in Munich at sunset")
+[下载720](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_1280x720.jpg&rf=LaDigue_1280x720.jpg "Oktoberfest in Munich at sunset")
+[下载1080](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Oktoberfest in Munich at sunset")
+[下载UHD](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_UHD.jpg&rf=LaDigue_UHD.jpg "Oktoberfest in Munich at sunset")
+
+---
 ### 09月20日：海盗的最终归宿
 #### 奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国（© Chansak Joe/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SantaCruzHummer_ZH-CN5448262039_1280x720.jpg&rf=LaDigue_1280x720.jpg "朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SantaCruzHummer_ZH-CN5448262039_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SantaCruzHummer_ZH-CN5448262039_UHD.jpg&rf=LaDigue_UHD.jpg "朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国")
-
----
-### 09月06日：你可曾见过此等景色
-#### 古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰（© Dawid K Photography/Shutterstock）
-
-![你可曾见过此等景色](https://cn.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_800x480.jpg&rf=LaDigue_800x480.jpg "你可曾见过此等景色")
-
-你可曾想过在故事书中漫步？欢迎来到北爱尔兰安特里姆郡的格莱纳里夫森林公园。该公园占地近3,000英亩，不仅拥有林地、瀑布和各种奇观，还有多条步道，每条步道都有自己独特的景观视角。其中，最受欢迎的是瀑布步道，这条3英里长的步道穿过一个国家自然保护区，沿途有瀑布景观。格莱纳里夫森林公园有丰富多样的野生动物，包括红松鼠、松貂和獾。观鸟者会被欧柳莺、棕柳莺和翠鸟所吸引。这里的植物也同样令人印象深刻，古老的山毛榉（如图所示）、橡树、桦树和花楸树等树木形成了郁郁葱葱的树冠。因此，无论您选择何时来访，格莱纳里夫一定会让您感觉 “重获新生”，焕发活力。
-
-尽管在许多地方，山毛榉一般只能活250年。但在经过修剪管理后，山毛榉的寿命可以达到350年。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a0%bc%e8%8e%b1%e7%ba%b3%e9%87%8c%e5%a4%ab%e6%a3%ae%e6%9e%97%e5%85%ac%e5%9b%ad+&form=hpcapt&filters=HpDate:"20240905_1600" "Bing Wallpaper 2024 9月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240906_GlenariffPark"&FORM=HPQUIZ "必应主页测验 2024 9月 6")
-[下载480](https://cn.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_800x480.jpg&rf=LaDigue_800x480.jpg "古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰")
-[下载720](https://cn.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_1280x720.jpg&rf=LaDigue_1280x720.jpg "古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰")
-[下载1080](https://cn.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_UHD.jpg&rf=LaDigue_UHD.jpg "古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰")
 
 ---
