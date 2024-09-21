@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月22日：陷入沉思
+#### 巴特米尔湖，湖区国家公园，英格兰，英国（© Alan Novelli/Alamy Stock Photo）
+
+![陷入沉思](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_800x480.jpg&rf=LaDigue_800x480.jpg "陷入沉思")
+
+秋天正式登场了。在北半球，九月分点标志着从繁茂的夏季向温润的秋季过渡，而在南半球，它则预示着春天的开始。“Equinox”一词源于拉丁语，意为 “相等的夜晚”。在这一时刻，地轴与太阳垂直，这意味着太阳从正东升起，从正西落下，这是难得的全球平衡的时刻。这种平衡的出现是因为地轴既没有向太阳倾斜，也没有远离太阳。
+
+秋分是常用来确定回归年长度的一个时间点。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b9%9d%e6%9c%88%e5%88%86%e7%82%b9&form=hpcapt&filters=HpDate:"20240921_1600" "Bing Wallpaper 2024 9月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240922_AutumnCumbria"&FORM=HPQUIZ "必应主页测验 2024 9月 22")
+[下载480](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_800x480.jpg&rf=LaDigue_800x480.jpg "巴特米尔湖，湖区国家公园，英格兰，英国")
+[下载720](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴特米尔湖，湖区国家公园，英格兰，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴特米尔湖，湖区国家公园，英格兰，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_UHD.jpg&rf=LaDigue_UHD.jpg "巴特米尔湖，湖区国家公园，英格兰，英国")
+
+---
 ### 09月21日：为慕尼黑啤酒节干杯！
 #### Oktoberfest in Munich at sunset（© AllesSuper21/iStock/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_1280x720.jpg&rf=LaDigue_1280x720.jpg "加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_UHD.jpg&rf=LaDigue_UHD.jpg "加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国")
-
----
-### 09月07日：嗡嗡作响
-#### 朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国（© yhelfman/Getty Images）
-
-![嗡嗡作响](https://cn.bing.com/th?id=OHR.SantaCruzHummer_ZH-CN5448262039_800x480.jpg&rf=LaDigue_800x480.jpg "嗡嗡作响")
-
-每年九月的第一个星期六，鸟类爱好者和自然爱好者都会聚在一起庆祝全国蜂鸟日。这一天是专门用来欣赏这些敏捷的小鸟以及关注它们在我们的生态系统中作为传粉者的作用。蜂鸟以其惊人的速度而闻名：它们扇动翅膀的速度可达每秒80次，使得它们能够在原地悬停，甚至向后飞。艾米莉·狄金森恰如其分地描述了它们的快速运动：“一条逐渐消失的路 / 一只瞬息而过的轮”。蜂鸟的新陈代谢旺盛，需要不停地进食。因此，它们整天都在花间飞来飞去，汲取花蜜，捕捉昆虫。有趣的是，这些鸟儿能记住它们造访过的每一朵花，以及每朵花需要多长时间才能重新充满花蜜。
-
-蜂鸟的腿很小，既不能跳也不能走，不过它们在栖息时可以侧身移动。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9c%b1%e7%ba%a2%e8%9c%82%e9%b8%9f&form=hpcapt&filters=HpDate:"20240906_1600" "Bing Wallpaper 2024 9月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240907_SantaCruzHummer"&FORM=HPQUIZ "必应主页测验 2024 9月 7")
-[下载480](https://cn.bing.com/th?id=OHR.SantaCruzHummer_ZH-CN5448262039_800x480.jpg&rf=LaDigue_800x480.jpg "朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.SantaCruzHummer_ZH-CN5448262039_1280x720.jpg&rf=LaDigue_1280x720.jpg "朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SantaCruzHummer_ZH-CN5448262039_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SantaCruzHummer_ZH-CN5448262039_UHD.jpg&rf=LaDigue_UHD.jpg "朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国")
 
 ---
