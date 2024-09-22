@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月23日：令人惊叹的海獭
+#### 海獭，威廉王子湾,阿拉斯加州,美国（© Gerald Corsi/Getty Images）
+
+![令人惊叹的海獭](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_800x480.jpg&rf=LaDigue_800x480.jpg "令人惊叹的海獭")
+
+本周是“海獭宣传周”，这项活动旨在引起人们对这些毛茸茸的水生哺乳动物的关注。今天图片中的海獭是在阿拉斯加威廉王子湾拍摄的。
+
+海獭是鼬鼠家族中最大的成员，却是北美最小的海洋哺乳动物。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e7%8d%ad&form=hpcapt&filters=HpDate:"20240922_1600" "Bing Wallpaper 2024 9月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240923_IcebergOtter"&FORM=HPQUIZ "必应主页测验 2024 9月 23")
+[下载480](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_800x480.jpg&rf=LaDigue_800x480.jpg "海獭，威廉王子湾,阿拉斯加州,美国")
+[下载720](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_1280x720.jpg&rf=LaDigue_1280x720.jpg "海獭，威廉王子湾,阿拉斯加州,美国")
+[下载1080](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海獭，威廉王子湾,阿拉斯加州,美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_UHD.jpg&rf=LaDigue_UHD.jpg "海獭，威廉王子湾,阿拉斯加州,美国")
+
+---
 ### 09月22日：陷入沉思
 #### 巴特米尔湖，湖区国家公园，英格兰，英国（© Alan Novelli/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿根廷和巴西边境的伊瓜苏瀑布")
 [下载1080](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿根廷和巴西边境的伊瓜苏瀑布")
 [下载UHD](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_UHD.jpg&rf=LaDigue_UHD.jpg "阿根廷和巴西边境的伊瓜苏瀑布")
-
----
-### 09月08日：一座千年历史的修道院
-#### 加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国（© Cyril Gosselin/Getty Images）
-
-![一座千年历史的修道院](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_800x480.jpg&rf=LaDigue_800x480.jpg "一座千年历史的修道院")
-
-想要来一次永恒之旅？圣马丁杜卡尼古修道院向你敞开大门！坐落在东比利牛斯省卡尼古山丘的西麓，这座11世纪的罗马式修道院是一座隐藏的宝藏，正等待着你去探索。修道院坐落在海拔1055米处，位于里多尔塔溪峡谷的边缘，且靠近卡斯特尔村，有着令人叹为观止的景色。从村庄攀登到修道院是一段美好的徒步路程，高差约为250米。
-
-20世纪，加泰罗尼亚人对修道院遗址进行了重建和修复。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e9%a9%ac%e4%b8%81%e6%9d%9c%e5%8d%a1%e5%b0%bc%e5%8f%a4%e4%bf%ae%e9%81%93%e9%99%a2&form=hpcapt&filters=HpDate:"20240907_1600" "Bing Wallpaper 2024 9月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240908_Canigou"&FORM=HPQUIZ "必应主页测验 2024 9月 8")
-[下载480](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_800x480.jpg&rf=LaDigue_800x480.jpg "加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国")
-[下载720](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_1280x720.jpg&rf=LaDigue_1280x720.jpg "加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_UHD.jpg&rf=LaDigue_UHD.jpg "加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国")
 
 ---
