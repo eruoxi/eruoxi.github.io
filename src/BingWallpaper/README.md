@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月24日：你会相信这种观点吗？
+#### 斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛（© Nopasorn Kowathanakul/Getty Images）
+
+![你会相信这种观点吗？](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_800x480.jpg&rf=LaDigue_800x480.jpg "你会相信这种观点吗？")
+
+在冰岛的斯卡夫塔山，秋天不仅仅是一个季节，更是一种体验。从冰川到瀑布，再到北极光，瓦特纳冰川国家公园中的这片区域展示了大自然的原始之美。斯卡夫山曾经是一个繁荣的农场，现在是一个保护区，它是几千年来火山火焰和冰川水激烈交织形成的。作为欧洲第二大冰盖瓦特纳冰川的一个分支，斯卡夫塔山冰川像一条冰冻的河流一样延伸开来，吸引着游客在导游的带领下徒步旅行。公园内的斯瓦蒂瀑布的水源则来自冰川融水。瀑布周围环绕着深色的熔岩柱，从远处看就像一颗心脏，冰岛国家大剧院和雷克雅未克的哈尔格林姆斯教堂的设计灵感就来源于此。斯卡夫塔山的徒步路径既有简单的步行道，又有具有挑战性的攀登路线，每个人都能在这里找到适合自己的路。虽然这个季节的日照时间可能较短，但也有好的地方。当夜幕降临时，极光经常出现，将天空变成绿色和粉色的混合漩涡。
+
+在标志性的黑色玄武岩的映衬下，斯卡夫塔山那如诗如画的瀑布美景令人惊叹，让人流连忘返。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e5%8d%a1%e5%a4%ab%e5%a1%94%e5%b1%b1+%e5%86%b0%e5%b2%9b&form=hpcapt&filters=HpDate:"20240923_1600" "Bing Wallpaper 2024 9月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240924_SkaftafellWaterfall"&FORM=HPQUIZ "必应主页测验 2024 9月 24")
+[下载480](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_800x480.jpg&rf=LaDigue_800x480.jpg "斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛")
+[下载720](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛")
+[下载1080](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_UHD.jpg&rf=LaDigue_UHD.jpg "斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛")
+
+---
 ### 09月23日：令人惊叹的海獭
 #### 海獭，威廉王子湾,阿拉斯加州,美国（© Gerald Corsi/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓦斯科·达·伽马大桥，里斯本，葡萄牙")
 [下载1080](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦斯科·达·伽马大桥，里斯本，葡萄牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_UHD.jpg&rf=LaDigue_UHD.jpg "瓦斯科·达·伽马大桥，里斯本，葡萄牙")
-
----
-### 09月09日：“大水”中的彩虹波
-#### 阿根廷和巴西边境的伊瓜苏瀑布（© AirPano LLC/Amazing Aerial Agency）
-
-![“大水”中的彩虹波](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_800x480.jpg&rf=LaDigue_800x480.jpg "“大水”中的彩虹波")
-
-想亲眼目睹让尼亚加拉瀑布都望尘莫及的壮观瀑布吗？让我们走进世界上最大的瀑布群——伊瓜苏瀑布。“伊瓜苏”这个名字来源于瓜拉尼语或图皮语，意思是“大水”。这些瀑布群由伊瓜苏河形成，位于阿根廷米西奥内斯省和巴西巴拉那州的交界处。它们拥有独特的阶梯状结构，是由三层玄武岩形成的两级阶梯式瀑布，非常引人注目。
-
-伊瓜苏瀑布的排列方式像一个反转的字母 “J”。阿根廷和巴西的边界穿过伊瓜苏瀑布最险要的“魔鬼咽喉”。瀑布右岸是巴西领土，占伊瓜苏河流域95%以上的面积，但这些瀑布的水流量仅占约20%，左侧的水流量是阿根廷的，占瀑布的近80%。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bc%8a%e7%93%9c%e8%8b%8f%e7%80%91%e5%b8%83&form=hpcapt&filters=HpDate:"20240908_1600" "Bing Wallpaper 2024 9月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240909_IguazuRainbow"&FORM=HPQUIZ "必应主页测验 2024 9月 9")
-[下载480](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_800x480.jpg&rf=LaDigue_800x480.jpg "阿根廷和巴西边境的伊瓜苏瀑布")
-[下载720](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿根廷和巴西边境的伊瓜苏瀑布")
-[下载1080](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿根廷和巴西边境的伊瓜苏瀑布")
-[下载UHD](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_UHD.jpg&rf=LaDigue_UHD.jpg "阿根廷和巴西边境的伊瓜苏瀑布")
 
 ---
