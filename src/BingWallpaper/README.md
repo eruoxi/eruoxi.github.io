@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月25日：古代巨人的王国
+#### 巨型红杉，红杉国家公园，加利福尼亚州，美国（© Galyna Andrushko/Shutterstock）
+
+![古代巨人的王国](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_800x480.jpg&rf=LaDigue_800x480.jpg "古代巨人的王国")
+
+1890年的今天，红杉国家公园在内华达山脉南部成立，旨在保护美国的自然奇观之一。红杉国家公园以占地面积超过629平方英里的巨型红杉树命名，是黑熊、骡鹿等野生动物以及包括莺、莺雀、鹟在内的200多种鸟类的家园。这里的巨型红杉树已经扎根2200多年，是地球上最古老的生物之一。公园里著名的谢尔曼将军树高达275英尺。它以美国内战将军威廉·特库姆塞·谢尔曼的名字命名，不仅高，而且宽度超过36英尺。游客们蜂拥而至，捕捉这些古老巨树的瞬间，它们红褐色的纤维状树皮和宽阔的树枝唤起了一种鲜活的历史感。
+
+这个公园有三个不同的气候带。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e5%9b%bd%e7%ba%a2%e6%9d%89%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240924_1600" "Bing Wallpaper 2024 9月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240925_GiantSequoias"&FORM=HPQUIZ "必应主页测验 2024 9月 25")
+[下载480](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_800x480.jpg&rf=LaDigue_800x480.jpg "巨型红杉，红杉国家公园，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_1280x720.jpg&rf=LaDigue_1280x720.jpg "巨型红杉，红杉国家公园，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巨型红杉，红杉国家公园，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_UHD.jpg&rf=LaDigue_UHD.jpg "巨型红杉，红杉国家公园，加利福尼亚州，美国")
+
+---
 ### 09月24日：你会相信这种观点吗？
 #### 斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛（© Nopasorn Kowathanakul/Getty Images）
 
@@ -51,9 +68,9 @@
 
 ---
 ### 09月21日：为慕尼黑啤酒节干杯！
-#### Oktoberfest in Munich at sunset（© AllesSuper21/iStock/Getty Images）
+#### 日落时分，从高处俯瞰慕尼黑啤酒节（© AllesSuper21/iStock/Getty Images）
 
-![为慕尼黑啤酒节干杯！](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_800x480.jpg&rf=LaDigue_800x480.jpg "为慕尼黑啤酒节干杯！")
+![为慕尼黑啤酒节干杯！](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN2688087718_800x480.jpg&rf=LaDigue_800x480.jpg "为慕尼黑啤酒节干杯！")
 
 慕尼黑啤酒节是世界上最大的节日之一，吸引了600多万游客。除了身着传统巴伐利亚服装的服务员端上一大杯泡沫丰富的啤酒之外，每个人都能在这里找到自己喜欢的东西。在这里，您可以享受欢快的音乐、惊险刺激的游乐设施以及令人垂涎欲滴的椒盐卷饼和香肠等当地美食。啤酒节在全球其他地方也有庆祝活动，包括美国的辛辛那提和丹佛等几个城市，每个城市都为节日增添了自己的地方特色。因此，无论您是喜欢啤酒还是喜欢热闹的派对，慕尼黑啤酒节都会让你体验到巴伐利亚的风情。
 
@@ -61,10 +78,10 @@
 
 [Bing搜索](https://cn.bing.com/search?q=%e6%85%95%e5%b0%bc%e9%bb%91%e5%95%a4%e9%85%92%e8%8a%82&form=hpcapt&filters=HpDate:"20240920_1600" "Bing Wallpaper 2024 9月 21")
 [必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240921_MunichBeerfest"&FORM=HPQUIZ "必应主页测验 2024 9月 21")
-[下载480](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_800x480.jpg&rf=LaDigue_800x480.jpg "Oktoberfest in Munich at sunset")
-[下载720](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_1280x720.jpg&rf=LaDigue_1280x720.jpg "Oktoberfest in Munich at sunset")
-[下载1080](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Oktoberfest in Munich at sunset")
-[下载UHD](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_UHD.jpg&rf=LaDigue_UHD.jpg "Oktoberfest in Munich at sunset")
+[下载480](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN2688087718_800x480.jpg&rf=LaDigue_800x480.jpg "日落时分，从高处俯瞰慕尼黑啤酒节")
+[下载720](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN2688087718_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时分，从高处俯瞰慕尼黑啤酒节")
+[下载1080](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN2688087718_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时分，从高处俯瞰慕尼黑啤酒节")
+[下载UHD](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN2688087718_UHD.jpg&rf=LaDigue_UHD.jpg "日落时分，从高处俯瞰慕尼黑啤酒节")
 
 ---
 ### 09月20日：海盗的最终归宿
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃尔茨城堡，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃尔茨城堡，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_UHD.jpg&rf=LaDigue_UHD.jpg "埃尔茨城堡，德国")
-
----
-### 09月10日：从天际线到水面
-#### 瓦斯科·达·伽马大桥，里斯本，葡萄牙（© Achim Thomae/Getty Images）
-
-![从天际线到水面](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_800x480.jpg&rf=LaDigue_800x480.jpg "从天际线到水面")
-
-今天的图片展示的是葡萄牙的瓦斯科·达·伽马大桥，宛如一条流畅的线条，穿过里斯本的天际线。从近处看，它是一座带高架桥的斜拉桥，横跨里斯本万国公园的塔霍河。瓦斯科·达伽马大桥是欧洲第二长的桥，也是欧盟最长的桥，于1995年2月开工建设，旨在缓解里斯本四月二十五号大桥出现的交通拥堵情况，使葡萄牙南北之间的交通更加顺畅。该桥具有抗震性，可在地震中吸收晃动。由于桥面没有固定在桥塔上，因此可以纵向和横向移动。大桥于1998年3月29日落成通车，恰逢98世博会举行，这是为纪念瓦斯科·达·伽马发现从欧洲到印度的历史性海路500周年而举办的世界博览会。
-
-它是欧洲第二长的桥，仅次于克里米亚桥，也是欧盟最长的桥。建造这座大桥的目的是为了缓解葡萄牙四月二十五号大桥的交通拥堵状况，使该国南北地区之间的交通不再需要通过首都里斯本。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%93%a6%e6%96%af%e7%a7%91%e8%be%be%e4%bc%bd%e9%a9%ac%e5%a4%a7%e6%a1%a5&form=hpcapt&filters=HpDate:"20240909_1600" "Bing Wallpaper 2024 9月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240910_BridgeLisbon"&FORM=HPQUIZ "必应主页测验 2024 9月 10")
-[下载480](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_800x480.jpg&rf=LaDigue_800x480.jpg "瓦斯科·达·伽马大桥，里斯本，葡萄牙")
-[下载720](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓦斯科·达·伽马大桥，里斯本，葡萄牙")
-[下载1080](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦斯科·达·伽马大桥，里斯本，葡萄牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_UHD.jpg&rf=LaDigue_UHD.jpg "瓦斯科·达·伽马大桥，里斯本，葡萄牙")
 
 ---
