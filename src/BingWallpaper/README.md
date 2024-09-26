@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月27日：在漂浮的城市之上
+#### 大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利（© Bachir Moukarzel/Amazing Aerial Agency）
+
+![在漂浮的城市之上](https://cn.bing.com/th?id=OHR.VeniceAerial_ZH-CN4070720525_800x480.jpg&rf=LaDigue_800x480.jpg "在漂浮的城市之上")
+
+威尼斯的安康圣母教堂历史悠久，是巴洛克建筑风格的典范。这座教堂建于1631年至1687年，是为了纪念1630年威尼斯从一场毁灭性瘟疫中解脱出来。教堂建在大运河的入口处，其圆顶在威尼斯的天际线上占据着主导地位，正如今天的图片所示。意大利建筑师巴尔达萨雷·隆盖纳在26岁时就构思了这座建筑，它成为了隆盖纳毕生的事业，并在他去世后完工。教堂外部的涡卷状装饰和雕像与宽敞的八角形内部形成鲜明对比，内部装饰着文艺复兴时期艺术家提香和丁托列托的作品。每年11月，威尼斯都会在圣母节期间纪念这座教堂的重要意义，这是一场文化庆祝活动，内容包括节日游行和献蜡烛等，以感谢圣母将人类从瘟疫中解救出来。
+
+丁托列托于1561年创作的作品《迦纳的婚礼》陈列在大圣器室中，这幅画中还包含了他的自画像。教堂中最有代表性的艺术家是提香，不仅圣马可与圣徒科斯马斯、达米安、塞巴斯蒂安和罗克的坐像，也就是圣器室的祭坛画是他画的；大卫和歌利亚、亚伯拉罕和以撒、该隐和亚伯的天顶画、位于大圣器收藏室的教会八位医生和福音传道者的通天画，以及中殿的《圣灵降临节》也是他画的。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%ae%89%e5%ba%b7%e5%9c%a3%e6%af%8d%e6%95%99%e5%a0%82&form=hpcapt&filters=HpDate:"20240926_1600" "Bing Wallpaper 2024 9月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240927_VeniceAerial"&FORM=HPQUIZ "必应主页测验 2024 9月 27")
+[下载480](https://cn.bing.com/th?id=OHR.VeniceAerial_ZH-CN4070720525_800x480.jpg&rf=LaDigue_800x480.jpg "大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.VeniceAerial_ZH-CN4070720525_1280x720.jpg&rf=LaDigue_1280x720.jpg "大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.VeniceAerial_ZH-CN4070720525_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.VeniceAerial_ZH-CN4070720525_UHD.jpg&rf=LaDigue_UHD.jpg "大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利")
+
+---
 ### 09月26日：呼叫所有巨嘴鸟的粉丝
 #### 蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加（© Oscar Dominguez/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_1280x720.jpg&rf=LaDigue_1280x720.jpg "雷耶斯角国家海岸灯塔，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷耶斯角国家海岸灯塔，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_UHD.jpg&rf=LaDigue_UHD.jpg "雷耶斯角国家海岸灯塔，加利福尼亚州，美国")
-
----
-### 09月12日：度过美好的一天
-#### 留尼汪岛附近的海豚群，印度洋，法国海外省（© Joost van Uffelen/Shutterstock）
-
-![度过美好的一天](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_800x480.jpg&rf=LaDigue_800x480.jpg "度过美好的一天")
-
-带上你的脚蹼去潜水吧！今天是世界海豚日。这一天，全世界的人们都在庆祝海豚日，旨在提高人们对海豚的认识，促进对这些水生哺乳动物的保护。海豚非常聪明，在世界各地的海洋、河流和河口都能发现它们的身影。尽管海豚能够在各种环境和水温下生存，但它们仍受到人类活动的威胁，比如狩猎、污染和捕鱼。国际海洋保护组织海洋守护者协会于2022年设立了“世界海豚日”。
-
-最著名的杂交案例是鲸豚，一种伪虎鲸和宽吻海豚的杂交后代，鲸豚是可繁殖的混血儿。目前有两只鲸豚生活在夏威夷的海洋生物公园，第一只鲸豚是1985年由一只雄性伪虎鲸和一只雌性宽吻海豚所生。此外，人类也曾在野外观察到过鲸豚。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b5%b7%e8%b1%9a%e6%97%a5&form=hpcapt&filters=HpDate:"20240911_1600" "Bing Wallpaper 2024 9月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240912_DolphinReunion"&FORM=HPQUIZ "必应主页测验 2024 9月 12")
-[下载480](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_800x480.jpg&rf=LaDigue_800x480.jpg "留尼汪岛附近的海豚群，印度洋，法国海外省")
-[下载720](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_1280x720.jpg&rf=LaDigue_1280x720.jpg "留尼汪岛附近的海豚群，印度洋，法国海外省")
-[下载1080](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "留尼汪岛附近的海豚群，印度洋，法国海外省")
-[下载UHD](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_UHD.jpg&rf=LaDigue_UHD.jpg "留尼汪岛附近的海豚群，印度洋，法国海外省")
 
 ---
