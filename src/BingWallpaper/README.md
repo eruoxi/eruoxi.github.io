@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月28日：海湾群岛的光芒
+#### 日出时的海滩，海湾岛国家海岸，佛罗里达，美国（© Tim Fitzharris/Minden Pictures）
+
+![海湾群岛的光芒](https://cn.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_800x480.jpg&rf=LaDigue_800x480.jpg "海湾群岛的光芒")
+
+每年9月的第四个星期六是美国国家公共土地日，今天的主题是保护公共土地，无论是国家公园，还是城市绿地，都囊括其中。在这一天，许多联邦土地免收门票，那些参与清理或修复历史建筑等保护活动的人可以获得免费的入场券，用于今后游览这些地方。自1994年设立以来，这一节日已经有了长足的发展。首次庆祝活动由三个国家机构发起，吸引了700名志愿者。到2010年，志愿者人数已增至17万人，分布在大大小小2000多个地点。
+
+海湾岛国家海岸于1971年1月8日获得批准，由国家公园管理局管理。1978年11月10日，管理局划定了这片荒野地区。圣罗莎岛曾在1939年至1946年期间作为美国国家纪念碑受到保护。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e6%b9%be%e5%b2%9b%e5%9b%bd%e5%ae%b6%e6%b5%b7%e5%b2%b8&form=hpcapt&filters=HpDate:"20240927_1600" "Bing Wallpaper 2024 9月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240928_FloridaSeashore"&FORM=HPQUIZ "必应主页测验 2024 9月 28")
+[下载480](https://cn.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_800x480.jpg&rf=LaDigue_800x480.jpg "日出时的海滩，海湾岛国家海岸，佛罗里达，美国")
+[下载720](https://cn.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的海滩，海湾岛国家海岸，佛罗里达，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的海滩，海湾岛国家海岸，佛罗里达，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的海滩，海湾岛国家海岸，佛罗里达，美国")
+
+---
 ### 09月27日：在漂浮的城市之上
 #### 大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利（© Bachir Moukarzel/Amazing Aerial Agency）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利")
 [下载1080](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利")
 [下载UHD](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_UHD.jpg&rf=LaDigue_UHD.jpg "阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利")
-
----
-### 09月13日：自然与人类的天堂
-#### 雷耶斯角国家海岸灯塔，加利福尼亚州，美国（© RMB Images/Photography by Robert Bowman/Getty Images）
-
-![自然与人类的天堂](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_800x480.jpg&rf=LaDigue_800x480.jpg "自然与人类的天堂")
-
-欢迎来到雷耶斯角国家海岸，这里是天空与大地交汇的地方。这个令人惊叹的71,028英亩的海滨天堂位于马林县的雷耶斯角半岛上，是加利福尼亚海岸线上的一颗璀璨明珠，拥有令人惊叹的美景和种类繁多的野生动物。雷耶斯角遍布风景优美的小径，蜿蜒穿过茂密的森林和崎岖的悬崖，为游客提供了许多乐趣。
-
-雷耶斯角灯塔每年一月中旬和三月中旬都会吸引观鲸者前来寻找向南迁徙和向北迁徙的灰鲸。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%9b%b7%e8%80%b6%e6%96%af%e5%9b%bd%e5%ae%b6%e6%b5%b7%e5%b2%b8&form=hpcapt&filters=HpDate:"20240912_1600" "Bing Wallpaper 2024 9月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240913_PointReyes"&FORM=HPQUIZ "必应主页测验 2024 9月 13")
-[下载480](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_800x480.jpg&rf=LaDigue_800x480.jpg "雷耶斯角国家海岸灯塔，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_1280x720.jpg&rf=LaDigue_1280x720.jpg "雷耶斯角国家海岸灯塔，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷耶斯角国家海岸灯塔，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_UHD.jpg&rf=LaDigue_UHD.jpg "雷耶斯角国家海岸灯塔，加利福尼亚州，美国")
 
 ---
