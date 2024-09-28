@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月29日：连接康涅狄格州
+#### 横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国（© pabradyphoto/Getty Images）
+
+![连接康涅狄格州](https://cn.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_800x480.jpg&rf=LaDigue_800x480.jpg "连接康涅狄格州")
+
+廊桥的顶棚和壁板，可以保护里面的木质结构，使其免受风雨的侵蚀，从而大大提高它的耐用性，图中的西康沃尔廊桥就是一个很好的例子。美国的许多廊桥建于19世纪，但很少有廊桥能幸存至今，那些幸存下来的往往是因为其历史和视觉价值，才得以保留。
+
+这座廊桥曾在电影《娃娃谷》开头的场景中出现过，该片是1967年上映的美国剧情片，改编自1966年杰奎琳·苏珊出版的同名小说。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e5%ba%b7%e6%b2%83%e5%b0%94%e5%bb%8a%e6%a1%a5&form=hpcapt&filters=HpDate:"20240928_1600" "Bing Wallpaper 2024 9月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240929_ConnecticutBridge"&FORM=HPQUIZ "必应主页测验 2024 9月 29")
+[下载480](https://cn.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_800x480.jpg&rf=LaDigue_800x480.jpg "横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_1280x720.jpg&rf=LaDigue_1280x720.jpg "横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_UHD.jpg&rf=LaDigue_UHD.jpg "横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国")
+
+---
 ### 09月28日：海湾群岛的光芒
 #### 日出时的海滩，海湾岛国家海岸，佛罗里达，美国（© Tim Fitzharris/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿科马尼奥海滩，卡拉布里亚，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿科马尼奥海滩，卡拉布里亚，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_UHD.jpg&rf=LaDigue_UHD.jpg "阿科马尼奥海滩，卡拉布里亚，意大利")
-
----
-### 09月14日：古老又神秘
-#### 阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利（© Piriya Photography/Getty Images）
-
-![古老又神秘](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_800x480.jpg&rf=LaDigue_800x480.jpg "古老又神秘")
-
-欢迎来到拉帕努伊岛，该岛也被称为智利的复活节岛，是世界上最偏远、最迷人的天堂之一。这座令人惊叹的岛屿以其标志性的摩艾石像而闻名，是一座拥有壮丽景观和丰富文化遗产的宝库。专家们对波利尼西亚人到来的时间众说纷纭，但许多研究人员认为应该是在8世纪左右。作为世界遗产的复活节岛占地超过17,000英亩，包括附近的四个小岛。在岛上，你可以欣赏到今天的图片所展示的迷人日出，探索矗立着宏伟雕像的火山口和郁郁葱葱的草地。
-
-20世纪90年代，在考古学家克劳迪奥·克里斯蒂诺和帕特里夏·巴尔加斯领导的多学科团队的努力下，阿胡汤加里基得到了实质性的修复。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e8%83%a1%e6%b1%a4%e5%8a%a0%e9%87%8c%e5%9f%ba&form=hpcapt&filters=HpDate:"20240913_1600" "Bing Wallpaper 2024 9月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240914_RapaNuiSunrise"&FORM=HPQUIZ "必应主页测验 2024 9月 14")
-[下载480](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_800x480.jpg&rf=LaDigue_800x480.jpg "阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利")
-[下载720](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利")
-[下载1080](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利")
-[下载UHD](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_UHD.jpg&rf=LaDigue_UHD.jpg "阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利")
 
 ---
