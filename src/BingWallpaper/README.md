@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月30日：随浮冰漂流
+#### 斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威（© AWL Images/DanitaDelimont）
+
+![随浮冰漂流](https://cn.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_800x480.jpg&rf=LaDigue_800x480.jpg "随浮冰漂流")
+
+在午夜的阳光下，做什么事最爽？如果你是图片中的这只海象，那么答案可能是与你的同伴一起尽情畅泳，大口吃蛤蜊和贻贝，然后在海滩或浮冰上来个日光浴。欢迎来到斯瓦尔巴群岛，这是北冰洋中的一个群岛，在挪威和北极之间。这张照片拍摄于斯匹次卑尔根岛附近的海域，斯匹次卑尔根岛是该群岛九个岛屿中最大的一个，这些水生哺乳动物常年居住在这里，通常以雄性或雌性海象群的形式出现。雄性海象身长可达12英尺，体重超2600磅，在交配季节，它们会利用自己的体型相互争斗，争夺对雌性海象群的统治权，雌性海象群被称为胜者的“后宫”。
+
+海象是一种鳍足类哺乳动物，和海豹以及海狮有着亲缘关系。它们最显著的特征是有着长长的獠牙，獠牙周围长着一层硬毛。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e8%b1%a1&form=hpcapt&filters=HpDate:"20240929_1600" "Bing Wallpaper 2024 9月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240930_WalrusNorway"&FORM=HPQUIZ "必应主页测验 2024 9月 30")
+[下载480](https://cn.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_800x480.jpg&rf=LaDigue_800x480.jpg "斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_UHD.jpg&rf=LaDigue_UHD.jpg "斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威")
+
+---
 ### 09月29日：连接康涅狄格州
 #### 横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国（© pabradyphoto/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的小袋鼠，阿德莱德河，北领地，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的小袋鼠，阿德莱德河，北领地，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的小袋鼠，阿德莱德河，北领地，澳大利亚")
-
----
-### 09月15日：香料红和水晶蓝
-#### 阿科马尼奥海滩，卡拉布里亚，意大利（© Alessio de Cicco/Getty Images）
-
-![香料红和水晶蓝](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_800x480.jpg&rf=LaDigue_800x480.jpg "香料红和水晶蓝")
-
-提到卡拉布里亚，就不得不说说这里迷人的香料——辣椒。在卡拉布里亚地区，辣椒是一种人见人爱的香料，你可以在很多典型的食物中发现它们，例如斯皮林加的香肠（辣味猪肉香肠），阿曼泰亚的鱼酱（用沙丁鱼酱和辣椒制成的酱料），还有一些食品也会用到它，例如带有厄洛斯香料味道的利口酒和盐。在这里，你可以尝试从最甜到最辣的各种类型的美食，参加厨师烹饪、关于辣椒的医学会议、展览、诗歌、塔兰泰拉舞等活动。此外，这里还有一个关于辣椒的最佳论文奖。
-
-与欧洲的其他海滨旅游胜地相比，这里的海岸线在崎岖的悬崖和海滩之间交替，很少被商业开发破坏。除此之外，卡拉布里亚周围的海水清澈，旅游住宿水平也很高。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e6%8b%89%e5%b8%83%e9%87%8c%e4%ba%9a&form=hpcapt&filters=HpDate:"20240914_1600" "Bing Wallpaper 2024 9月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240915_CalabriaPeperoncino"&FORM=HPQUIZ "必应主页测验 2024 9月 15")
-[下载480](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_800x480.jpg&rf=LaDigue_800x480.jpg "阿科马尼奥海滩，卡拉布里亚，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿科马尼奥海滩，卡拉布里亚，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿科马尼奥海滩，卡拉布里亚，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_UHD.jpg&rf=LaDigue_UHD.jpg "阿科马尼奥海滩，卡拉布里亚，意大利")
 
 ---
