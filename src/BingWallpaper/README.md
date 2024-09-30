@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月01日：绝美的秋日风景
+#### 禾木村的风景，新疆，中国（© snvv18870020330/Shutterstock）
+
+![绝美的秋日风景](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_800x480.jpg&rf=LaDigue_800x480.jpg "绝美的秋日风景")
+
+禾木村是中国仅存的三个图瓦人村落之一，因其优美宁静的自然风光，它曾被誉为 “摄影天堂”和“神的私家领地”。这里最为有名的当数油画般的秋景：独具特色的图瓦木屋被梦幻的薄雾和大片金黄的桦树点缀。秋天来临时，树木换上金黄色的外衣，远远望去，垂直的白色树干和美丽的树叶组成一副如诗如画的美景，让人仿佛进入了真正的仙境。漫步在森林中，金黄的树叶、自然的声音以及清新的空气都在净化你的眼睛和心灵。
+
+禾木村是中国仅存的三个图瓦人村落之一。因其优美宁静的自然风光，禾木村曾被誉为 “摄影天堂 ”和 “神的私家领地”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%b0%e7%96%86%e7%a6%be%e6%9c%a8%e6%9d%91&form=hpcapt&filters=HpDate:"20240930_1600" "Bing Wallpaper 2024 10月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241001_NationalDay2024"&FORM=HPQUIZ "必应主页测验 2024 10月 1")
+[下载480](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_800x480.jpg&rf=LaDigue_800x480.jpg "禾木村的风景，新疆，中国")
+[下载720](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_1280x720.jpg&rf=LaDigue_1280x720.jpg "禾木村的风景，新疆，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "禾木村的风景，新疆，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_UHD.jpg&rf=LaDigue_UHD.jpg "禾木村的风景，新疆，中国")
+
+---
 ### 09月30日：随浮冰漂流
 #### 斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威（© AWL Images/DanitaDelimont）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_1280x720.jpg&rf=LaDigue_1280x720.jpg "月圆之夜的豫园，上海，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "月圆之夜的豫园，上海，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_UHD.jpg&rf=LaDigue_UHD.jpg "月圆之夜的豫园，上海，中国")
-
----
-### 09月16日：蹦蹦跳跳，快乐到老
-#### 日出时的小袋鼠，阿德莱德河，北领地，澳大利亚（© Jeremy Woodhouse/Getty Images）
-
-![蹦蹦跳跳，快乐到老](https://cn.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_800x480.jpg&rf=LaDigue_800x480.jpg "蹦蹦跳跳，快乐到老")
-
-今天的照片中，在黎明曙光的照耀下，两只小袋鼠警惕地站在澳大利亚阿德莱德河附近的田野中。这些有袋动物是袋鼠的体型较小的“堂表亲”，原产于澳大利亚和新几内亚。小袋鼠大约有30个不同的种类，包括灌丛小袋鼠、岩小袋鼠、兔小袋鼠、钉尾小袋鼠和沼泽小袋鼠。这些敏捷又好动的哺乳动物是食草动物，以草、树叶和水果为食。小袋鼠的身高在12至41英寸之间，强壮的后肢使它们拥有惊人的跳跃能力以及防御掠食者的能力。在交配季节，雄性小袋鼠会参加“拳击比赛”，来展示自己的优势，从而吸引雌性小袋鼠的注意。作为群居动物，小袋鼠组成的小群体被称为“小袋鼠帮”，这为成员们提供了安全保障，彼此还能互相梳理毛发。森林是小袋鼠的游乐场，当它们轻松地在自己的地盘上穿行时，森林里回荡着它们跳跃的声音。
-
-小袋鼠广泛分布于澳大利亚各地，尤其是那些更偏远、树木更茂密或是更崎岖的地区，比较少分布在半干旱的大平原地区，那里适合体型更大、更瘦、脚步更敏捷的袋鼠。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b0%8f%e8%a2%8b%e9%bc%a0&form=hpcapt&filters=HpDate:"20240915_1600" "Bing Wallpaper 2024 9月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240916_SunriseWallabies"&FORM=HPQUIZ "必应主页测验 2024 9月 16")
-[下载480](https://cn.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_800x480.jpg&rf=LaDigue_800x480.jpg "日出时的小袋鼠，阿德莱德河，北领地，澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的小袋鼠，阿德莱德河，北领地，澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的小袋鼠，阿德莱德河，北领地，澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的小袋鼠，阿德莱德河，北领地，澳大利亚")
 
 ---
