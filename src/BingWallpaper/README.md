@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月02日：河流的狂野舞蹈
+#### 温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国（© Design Pics/DanitaDelimont）
+
+![河流的狂野舞蹈](https://cn.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_800x480.jpg&rf=LaDigue_800x480.jpg "河流的狂野舞蹈")
+
+你是否想过美国那些野生河流是如何保持原始状态的？这要归功于《野生与风景河流法案》，它于1968年的今天被签署成为法律。这项立法还创建了国家野生与风景河流系统，旨在保护那些具有杰出的自然、文化以及休闲价值的特定河流，使其保持自由流动的状态。这个国家系统管理着40个州的209条河流，它们的总长超过12700英里，但不到美国350万英里河流的四分之一。在这个系统中，河流被分类为野生、风景或休闲河流。例如今天图片中看到的温德河就是一条野生河流，它尚处于孤立且未被开发的状态。这条85英里长的河流从菲利普·史密斯山脉流向昌达拉河的东支，蜿蜒穿过一个布满湖泊和湿地的河谷。作为北极国家野生动物保护区的一部分，这个河谷是一个繁荣的栖息地，居住着白大角羊、驼鹿、北美驯鹿、灰熊等动物。在这个充满变化的世界里，还有如此原生态的河流，真令人欣慰。
+
+温德河是一条国家野生风景河，其主干、源头和一条未命名的支流（总长230公里）于1980年被指定为“野生”河流。它们均位于北极国家野生动物保护区内。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b8%a9%e5%be%b7%e6%b2%b3&form=hpcapt&filters=HpDate:"20241001_1600" "Bing Wallpaper 2024 10月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241002_WindRiverAlaska"&FORM=HPQUIZ "必应主页测验 2024 10月 2")
+[下载480](https://cn.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_800x480.jpg&rf=LaDigue_800x480.jpg "温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_1280x720.jpg&rf=LaDigue_1280x720.jpg "温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_UHD.jpg&rf=LaDigue_UHD.jpg "温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国")
+
+---
 ### 10月01日：绝美的秋日风景
 #### 禾木村的风景，新疆，中国（© snvv18870020330/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_1280x720.jpg&rf=LaDigue_1280x720.jpg "郡上八幡城，岐阜县，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郡上八幡城，岐阜县，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_UHD.jpg&rf=LaDigue_UHD.jpg "郡上八幡城，岐阜县，日本")
-
----
-### 09月17日：明月千里寄相思
-#### 月圆之夜的豫园，上海，中国（© zyxeos30/Gettyimages）
-
-![明月千里寄相思](https://cn.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_800x480.jpg&rf=LaDigue_800x480.jpg "明月千里寄相思")
-
-中秋节是流行于中国的众多民族中的传统文化节日。从古至今，人们都有中秋之夜饮宴、赏月、吃月饼、看花灯、赏桂花、饮桂花酒等民俗。中秋节最大的特征是人们将内心美好的愿望寄托于明月。此外，中秋节时正当农业丰收的季节，月饼和瓜果既是古代的祭神媒介，也是如今人们庆祝丰收美好心情的具体象征。
-
-豫园内的湖心亭茶楼被誉为“海上第一茶楼”，是上海历史最为悠久、最具盛名的茶楼，也是上海现存古建筑景观之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e7%a7%8b%e8%8a%82&form=hpcapt&filters=HpDate:"20240916_1600" "Bing Wallpaper 2024 9月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240917_MidAutumnFestival2024"&FORM=HPQUIZ "必应主页测验 2024 9月 17")
-[下载480](https://cn.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_800x480.jpg&rf=LaDigue_800x480.jpg "月圆之夜的豫园，上海，中国")
-[下载720](https://cn.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_1280x720.jpg&rf=LaDigue_1280x720.jpg "月圆之夜的豫园，上海，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "月圆之夜的豫园，上海，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_UHD.jpg&rf=LaDigue_UHD.jpg "月圆之夜的豫园，上海，中国")
 
 ---
