@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月03日：盛大的爱情见证
+#### 阿格拉的泰姬陵，安拉阿巴德，印度（© Tanarch/Getty Images）
+
+![盛大的爱情见证](https://cn.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_800x480.jpg&rf=LaDigue_800x480.jpg "盛大的爱情见证")
+
+今天，让我们来探索世界七大奇迹之一的泰姬陵。它坐落在印度北方邦阿格拉的亚穆纳河畔，乳白色的大理石陵墓惊艳了无数人。图片中的泰姬陵是1631年莫卧儿王朝的第五位皇帝沙贾汗下令建造的，目的是纪念他深爱的妻子蒙泰姬·玛哈尔。这座陵墓是占地42英亩的建筑群的核心，该建筑群还包括一座清真寺、答辩厅以及被高墙环绕着的美丽花园。陵墓呈醒目的矩形布局，两侧是巨大的拱门和壁龛，融合了印度伊斯兰和莫卧儿建筑风格。其设计灵感来源于一些著名的建筑，例如乌兹别克斯坦撒马尔罕的古尔·埃米尔陵墓、德里的胡马雍陵以及沙贾汗的贾玛清真寺等。它的外圆顶高约145英尺，内圆顶高75英尺多，是一项令人难以置信的建筑壮举。作为穆斯林艺术的瑰宝和全球杰作，泰姬陵于1983年被联合国教科文组织列为世界遗产。
+
+1983年，泰姬陵被联合国教科文组织列为世界遗产，因其既是印度伊斯兰艺术的瑰宝，也是世界遗产中令世人赞叹的杰作之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%b0%e5%a7%ac%e9%99%b5&form=hpcapt&filters=HpDate:"20241002_1600" "Bing Wallpaper 2024 10月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241003_TajMahalReflection"&FORM=HPQUIZ "必应主页测验 2024 10月 3")
+[下载480](https://cn.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_800x480.jpg&rf=LaDigue_800x480.jpg "阿格拉的泰姬陵，安拉阿巴德，印度")
+[下载720](https://cn.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿格拉的泰姬陵，安拉阿巴德，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿格拉的泰姬陵，安拉阿巴德，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_UHD.jpg&rf=LaDigue_UHD.jpg "阿格拉的泰姬陵，安拉阿巴德，印度")
+
+---
 ### 10月02日：河流的狂野舞蹈
 #### 温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国（© Design Pics/DanitaDelimont）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃尔博河上空的银河，阿尔伯塔省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃尔博河上空的银河，阿尔伯塔省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_UHD.jpg&rf=LaDigue_UHD.jpg "埃尔博河上空的银河，阿尔伯塔省，加拿大")
-
----
-### 09月18日：云中之城
-#### 郡上八幡城，岐阜县，日本（© ta2funk ito/500px/Getty Images）
-
-![云中之城](https://cn.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_800x480.jpg&rf=LaDigue_800x480.jpg "云中之城")
-
-在日本的岐阜县，郡上八幡城雄伟地矗立在八幡山上。它始建于1599年，见证了日本几个世纪的历史，包括大家族的新衰。它在动荡的明治维新时期被拆除——这一时期标志着日本皇权的回归，又于1933年重建。今天图片中看到的城堡，是一个独特的木制重建城堡，在日本多是混凝土重建的城堡中很罕见。这个五层的建筑里设有一座博物馆，在博物馆里，人们可以一窥封建时代的日本，同时还能欣赏下方山谷的壮丽景色。除了城堡，该地还因举办郡上舞祭而闻名，这是日本最古老的舞蹈节之一，它在每年的七月中旬至九月初举行，吸引当地居民和游客在城镇中通宵跳舞，传承着超过400年的传统。
-
-2017年，该城堡被列为《续日本100名城》之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%83%a1%e4%b8%8a%e5%85%ab%e5%b9%a1%e5%9f%8e&form=hpcapt&filters=HpDate:"20240917_1600" "Bing Wallpaper 2024 9月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240918_GujoHachiman"&FORM=HPQUIZ "必应主页测验 2024 9月 18")
-[下载480](https://cn.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_800x480.jpg&rf=LaDigue_800x480.jpg "郡上八幡城，岐阜县，日本")
-[下载720](https://cn.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_1280x720.jpg&rf=LaDigue_1280x720.jpg "郡上八幡城，岐阜县，日本")
-[下载1080](https://cn.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郡上八幡城，岐阜县，日本")
-[下载UHD](https://cn.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_UHD.jpg&rf=LaDigue_UHD.jpg "郡上八幡城，岐阜县，日本")
 
 ---
