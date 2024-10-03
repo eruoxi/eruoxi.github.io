@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月04日：一轮蓝月亮
+#### 木星的冰卫星木卫二（© NASA/JPL-Caltech/SETI Institute）
+
+![一轮蓝月亮](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_800x480.jpg&rf=LaDigue_800x480.jpg "一轮蓝月亮")
+
+今天，我们要去探索宇宙。世界空间周的设立，是为了庆祝空间科学技术为改善人类生活水平所作出的贡献。除了帮助我们了解我们所生活的宇宙，太空探索在帮助科学家开发新药物、创造新能源、改进农业技术方面也发挥了重要作用。今年的世界空间周的主题是空间与气候变化，为了庆祝空间技术在了解和监测地球气候变化方面发挥的重要作用，将有83个国家会举办相关的庆祝活动。
+
+木星的卫星木卫二是太阳系第六大卫星。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%a9%ba%e9%97%b4%e5%91%a8&form=hpcapt&filters=HpDate:"20241003_1600" "Bing Wallpaper 2024 10月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241004_EuropaMoon"&FORM=HPQUIZ "必应主页测验 2024 10月 4")
+[下载480](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_800x480.jpg&rf=LaDigue_800x480.jpg "木星的冰卫星木卫二")
+[下载720](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_1280x720.jpg&rf=LaDigue_1280x720.jpg "木星的冰卫星木卫二")
+[下载1080](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "木星的冰卫星木卫二")
+[下载UHD](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_UHD.jpg&rf=LaDigue_UHD.jpg "木星的冰卫星木卫二")
+
+---
 ### 10月03日：盛大的爱情见证
 #### 阿格拉的泰姬陵，安拉阿巴德，印度（© Tanarch/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_UHD.jpg&rf=LaDigue_UHD.jpg "奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国")
-
----
-### 09月19日：埃尔博河上空的银河
-#### 埃尔博河上空的银河，阿尔伯塔省，加拿大（© Alan Dyer/Getty Images）
-
-![埃尔博河上空的银河](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_800x480.jpg&rf=LaDigue_800x480.jpg "埃尔博河上空的银河")
-
-在阿尔伯塔省风景如画的南部，埃尔博河发源自加拿大落基山脉中的埃尔博湖。这条120公里长的河流蜿蜒地穿过山谷，然后在海拔1040米的卡尔加里与弓河汇合。沿河而行可以看到埃尔博瀑布，这是一个由一系列的叠水瀑布组成的自然奇观。冬季，这里会变成一个冰雪仙境，夏季则是奔腾的水流，非常适合漂流、皮划艇、钓鱼、远足和其他休闲活动。
-
-加拿大近一半的牛肉都产自阿尔伯塔省。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e5%b0%94%e4%bc%af%e5%a1%94%e7%9c%81&form=hpcapt&filters=HpDate:"20240918_1600" "Bing Wallpaper 2024 9月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240919_ElbowRiver"&FORM=HPQUIZ "必应主页测验 2024 9月 19")
-[下载480](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_800x480.jpg&rf=LaDigue_800x480.jpg "埃尔博河上空的银河，阿尔伯塔省，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃尔博河上空的银河，阿尔伯塔省，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃尔博河上空的银河，阿尔伯塔省，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_UHD.jpg&rf=LaDigue_UHD.jpg "埃尔博河上空的银河，阿尔伯塔省，加拿大")
 
 ---
