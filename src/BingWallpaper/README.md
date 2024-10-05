@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月06日：一抹金色
+#### 郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国（© Stephen Matera/TANDEM Stills + Motion）
+
+![一抹金色](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_800x480.jpg&rf=LaDigue_800x480.jpg "一抹金色")
+
+在犹他州郊狼峡谷天然拱门的衬托下，生机盎然的金色白杨树与埃斯卡兰特峡谷地区色彩斑斓的岩层相映成趣。郊狼峡谷是著名的背包旅行目的地，这里有高耸的垂直峡谷壁、狭窄的缝隙峡谷、穹顶、拱门和天然桥梁。峡谷的上游位于大阶梯埃斯卡兰特国家纪念区内，而今天的图片展示的是峡谷下游的格兰峡谷休闲区。这个休闲区成立于1972年。由美国国家公园管理局管理，是一个兼顾休闲和保护的保护区。与主要侧重于自然保护的国家公园不同，格兰峡谷休闲区会提供各种设施，包括四个公共露营地、两个小型机场和几家游艇租赁服务公司，因此成为了游客的热门目的地。
+
+再往下游走，峡谷内有一座郊狼天然桥，这是在一块大砂岩鳍上雕刻出来的一个小洞。再往下游是悬崖拱门，它是峡谷北壁上的一个壶柄式拱门。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%83%8a%e7%8b%bc%e5%b3%a1%e8%b0%b7&form=hpcapt&filters=HpDate:"20241005_1600" "Bing Wallpaper 2024 10月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241006_CoyoteGulch"&FORM=HPQUIZ "必应主页测验 2024 10月 6")
+[下载480](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_800x480.jpg&rf=LaDigue_800x480.jpg "郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_1280x720.jpg&rf=LaDigue_1280x720.jpg "郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_UHD.jpg&rf=LaDigue_UHD.jpg "郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国")
+
+---
 ### 10月05日：跟着老师走！
 #### 东察沃国家公园的非洲象，肯尼亚（© Neil Bowman/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴特米尔湖，湖区国家公园，英格兰，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴特米尔湖，湖区国家公园，英格兰，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_UHD.jpg&rf=LaDigue_UHD.jpg "巴特米尔湖，湖区国家公园，英格兰，英国")
-
----
-### 09月21日：为慕尼黑啤酒节干杯！
-#### 日落时分，从高处俯瞰慕尼黑啤酒节（© AllesSuper21/iStock/Getty Images）
-
-![为慕尼黑啤酒节干杯！](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN2688087718_800x480.jpg&rf=LaDigue_800x480.jpg "为慕尼黑啤酒节干杯！")
-
-慕尼黑啤酒节是世界上最大的节日之一，吸引了600多万游客。除了身着传统巴伐利亚服装的服务员端上一大杯泡沫丰富的啤酒之外，每个人都能在这里找到自己喜欢的东西。在这里，您可以享受欢快的音乐、惊险刺激的游乐设施以及令人垂涎欲滴的椒盐卷饼和香肠等当地美食。啤酒节在全球其他地方也有庆祝活动，包括美国的辛辛那提和丹佛等几个城市，每个城市都为节日增添了自己的地方特色。因此，无论您是喜欢啤酒还是喜欢热闹的派对，慕尼黑啤酒节都会让你体验到巴伐利亚的风情。
-
-目前，啤酒节上有14个大帐篷和20个小帐篷。这些帐篷是木制的非永久性建筑，专为啤酒节建造，仅在啤酒节期间使用。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%85%95%e5%b0%bc%e9%bb%91%e5%95%a4%e9%85%92%e8%8a%82&form=hpcapt&filters=HpDate:"20240920_1600" "Bing Wallpaper 2024 9月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240921_MunichBeerfest"&FORM=HPQUIZ "必应主页测验 2024 9月 21")
-[下载480](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN2688087718_800x480.jpg&rf=LaDigue_800x480.jpg "日落时分，从高处俯瞰慕尼黑啤酒节")
-[下载720](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN2688087718_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时分，从高处俯瞰慕尼黑啤酒节")
-[下载1080](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN2688087718_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时分，从高处俯瞰慕尼黑啤酒节")
-[下载UHD](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN2688087718_UHD.jpg&rf=LaDigue_UHD.jpg "日落时分，从高处俯瞰慕尼黑啤酒节")
 
 ---
