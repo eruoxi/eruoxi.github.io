@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月07日：梦想成真的地方
+#### 法属波利尼西亚波拉波拉岛的鸟瞰图（© GLF Media/Shutterstock）
+
+![梦想成真的地方](https://cn.bing.com/th?id=OHR.BoraPapeete_ZH-CN1991283465_800x480.jpg&rf=LaDigue_800x480.jpg "梦想成真的地方")
+
+想象一下，碧蓝的海水与洁白的沙滩交相辉映，苍翠的群山拥抱着蔚蓝的天空。欢迎来到法属波利尼西亚的明珠波拉波拉岛。从塔希提法阿国际机场乘坐50分钟的飞机即可到达，这里是一片天堂，大自然是这里的主宰者。
+
+在古代，这座岛屿被称作“Pora pora mai te pora”，在当地大溪地语中意为“由众神创造”。通常简称为“Pora Pora”，意思是“第一个出生的”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%a2%e6%8b%89%e6%b3%a2%e6%8b%89%e5%b2%9b&form=hpcapt&filters=HpDate:"20241006_1600" "Bing Wallpaper 2024 10月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241007_BoraPapeete"&FORM=HPQUIZ "必应主页测验 2024 10月 7")
+[下载480](https://cn.bing.com/th?id=OHR.BoraPapeete_ZH-CN1991283465_800x480.jpg&rf=LaDigue_800x480.jpg "法属波利尼西亚波拉波拉岛的鸟瞰图")
+[下载720](https://cn.bing.com/th?id=OHR.BoraPapeete_ZH-CN1991283465_1280x720.jpg&rf=LaDigue_1280x720.jpg "法属波利尼西亚波拉波拉岛的鸟瞰图")
+[下载1080](https://cn.bing.com/th?id=OHR.BoraPapeete_ZH-CN1991283465_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "法属波利尼西亚波拉波拉岛的鸟瞰图")
+[下载UHD](https://cn.bing.com/th?id=OHR.BoraPapeete_ZH-CN1991283465_UHD.jpg&rf=LaDigue_UHD.jpg "法属波利尼西亚波拉波拉岛的鸟瞰图")
+
+---
 ### 10月06日：一抹金色
 #### 郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国（© Stephen Matera/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_1280x720.jpg&rf=LaDigue_1280x720.jpg "海獭，威廉王子湾,阿拉斯加州,美国")
 [下载1080](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海獭，威廉王子湾,阿拉斯加州,美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_UHD.jpg&rf=LaDigue_UHD.jpg "海獭，威廉王子湾,阿拉斯加州,美国")
-
----
-### 09月22日：陷入沉思
-#### 巴特米尔湖，湖区国家公园，英格兰，英国（© Alan Novelli/Alamy Stock Photo）
-
-![陷入沉思](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_800x480.jpg&rf=LaDigue_800x480.jpg "陷入沉思")
-
-秋天正式登场了。在北半球，九月分点标志着从繁茂的夏季向温润的秋季过渡，而在南半球，它则预示着春天的开始。“Equinox”一词源于拉丁语，意为 “相等的夜晚”。在这一时刻，地轴与太阳垂直，这意味着太阳从正东升起，从正西落下，这是难得的全球平衡的时刻。这种平衡的出现是因为地轴既没有向太阳倾斜，也没有远离太阳。
-
-秋分是常用来确定回归年长度的一个时间点。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b9%9d%e6%9c%88%e5%88%86%e7%82%b9&form=hpcapt&filters=HpDate:"20240921_1600" "Bing Wallpaper 2024 9月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240922_AutumnCumbria"&FORM=HPQUIZ "必应主页测验 2024 9月 22")
-[下载480](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_800x480.jpg&rf=LaDigue_800x480.jpg "巴特米尔湖，湖区国家公园，英格兰，英国")
-[下载720](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴特米尔湖，湖区国家公园，英格兰，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴特米尔湖，湖区国家公园，英格兰，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_UHD.jpg&rf=LaDigue_UHD.jpg "巴特米尔湖，湖区国家公园，英格兰，英国")
 
 ---
