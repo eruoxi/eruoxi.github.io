@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月08日：托斯卡纳的石头小镇
+#### 索拉诺，托斯卡纳，意大利（© Luigi Vaccarella/eStock Photo）
+
+![托斯卡纳的石头小镇](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_800x480.jpg&rf=LaDigue_800x480.jpg "托斯卡纳的石头小镇")
+
+索拉诺位于意大利托斯卡纳南部的格罗塞托省，是一个坐落在悬崖峭壁上的中世纪村庄。漫步在古老的鹅卵石街道上，你可以游览奥尔西尼堡垒，这座堡垒可追溯到11世纪，如今已成为一座博物馆。游客在堡垒内每走一步，都能感受到几个世纪以来关于防御入侵与权力更迭的故事。在波吉奥·圣·罗科和波吉奥·克罗切山附近有这样一个墓地，它是个大型的古代墓葬遗址，其中拥有保存完好的伊特鲁里亚人的墓葬，暗示着该地区悠久的历史。公元前8世纪至公元前3世纪，伊特鲁里亚文明曾居住在这一地区，并在现在的托斯卡纳和翁布里亚繁衍生息。索拉诺隐蔽的山谷是维洞的所在地，这是一个错综复杂的通道网络，可能是用来抵御入侵者和野兽的防御系统。在这里，厨师们精心制作当地特色菜，保持着世代相传的烹饪传统。到索拉诺旅游，一定要去葡萄酒商店喝上一杯备受推崇的莫雷利诺·迪·斯坎萨诺葡萄酒。
+
+索拉诺村的特点是由迷宫般的小巷、庭院、拱门、方石门、外部楼梯、凉廊和在凝灰岩上开凿的地窖组成，过去葡萄采摘的各个阶段都是在这里进行的。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e7%b4%a2%e6%8b%89%e8%af%ba%e5%b8%82&form=hpcapt&filters=HpDate:"20241007_1600" "Bing Wallpaper 2024 10月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241008_SoranoItaly"&FORM=HPQUIZ "必应主页测验 2024 10月 8")
+[下载480](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_800x480.jpg&rf=LaDigue_800x480.jpg "索拉诺，托斯卡纳，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_1280x720.jpg&rf=LaDigue_1280x720.jpg "索拉诺，托斯卡纳，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "索拉诺，托斯卡纳，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_UHD.jpg&rf=LaDigue_UHD.jpg "索拉诺，托斯卡纳，意大利")
+
+---
 ### 10月07日：梦想成真的地方
 #### 法属波利尼西亚波拉波拉岛的鸟瞰图（© GLF Media/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛")
 [下载1080](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_UHD.jpg&rf=LaDigue_UHD.jpg "斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛")
-
----
-### 09月23日：令人惊叹的海獭
-#### 海獭，威廉王子湾,阿拉斯加州,美国（© Gerald Corsi/Getty Images）
-
-![令人惊叹的海獭](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_800x480.jpg&rf=LaDigue_800x480.jpg "令人惊叹的海獭")
-
-本周是“海獭宣传周”，这项活动旨在引起人们对这些毛茸茸的水生哺乳动物的关注。今天图片中的海獭是在阿拉斯加威廉王子湾拍摄的。
-
-海獭是鼬鼠家族中最大的成员，却是北美最小的海洋哺乳动物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e7%8d%ad&form=hpcapt&filters=HpDate:"20240922_1600" "Bing Wallpaper 2024 9月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240923_IcebergOtter"&FORM=HPQUIZ "必应主页测验 2024 9月 23")
-[下载480](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_800x480.jpg&rf=LaDigue_800x480.jpg "海獭，威廉王子湾,阿拉斯加州,美国")
-[下载720](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_1280x720.jpg&rf=LaDigue_1280x720.jpg "海獭，威廉王子湾,阿拉斯加州,美国")
-[下载1080](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海獭，威廉王子湾,阿拉斯加州,美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_UHD.jpg&rf=LaDigue_UHD.jpg "海獭，威廉王子湾,阿拉斯加州,美国")
 
 ---
