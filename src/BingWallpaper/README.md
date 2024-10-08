@@ -1,19 +1,36 @@
 ## Bing Wallpaper(最近15天)
-### 10月08日：托斯卡纳的石头小镇
-#### 索拉诺，托斯卡纳，意大利（© Luigi Vaccarella/eStock Photo）
+### 10月09日：色彩斑斓的秋天
+#### 马布尔附近的白杨树，科罗拉多州，美国（© Jason Hatfield/TANDEM Stills + Motion）
 
-![托斯卡纳的石头小镇](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_800x480.jpg&rf=LaDigue_800x480.jpg "托斯卡纳的石头小镇")
+![色彩斑斓的秋天](https://cn.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_800x480.jpg&rf=LaDigue_800x480.jpg "色彩斑斓的秋天")
 
-索拉诺位于意大利托斯卡纳南部的格罗塞托省，是一个坐落在悬崖峭壁上的中世纪村庄。漫步在古老的鹅卵石街道上，你可以游览奥尔西尼堡垒，这座堡垒可追溯到11世纪，如今已成为一座博物馆。游客在堡垒内每走一步，都能感受到几个世纪以来关于防御入侵与权力更迭的故事。在波吉奥·圣·罗科和波吉奥·克罗切山附近有这样一个墓地，它是个大型的古代墓葬遗址，其中拥有保存完好的伊特鲁里亚人的墓葬，暗示着该地区悠久的历史。公元前8世纪至公元前3世纪，伊特鲁里亚文明曾居住在这一地区，并在现在的托斯卡纳和翁布里亚繁衍生息。索拉诺隐蔽的山谷是维洞的所在地，这是一个错综复杂的通道网络，可能是用来抵御入侵者和野兽的防御系统。在这里，厨师们精心制作当地特色菜，保持着世代相传的烹饪传统。到索拉诺旅游，一定要去葡萄酒商店喝上一杯备受推崇的莫雷利诺·迪·斯坎萨诺葡萄酒。
+纤细的白色树干直插云霄，即使是微风拂过，树叶也会摇曳生姿——白杨树是美国荒野的象征。它们广泛分布在美国西部各州，尤其是犹他州和科罗拉多州。这些树是北美分布最广的本土物种。正如今天这张在科罗拉多州马布尔附近拍摄的照片一样，白杨树林的秋景令人叹为观止，白杨树叶在秋天会变成明亮的金黄色，点亮整个景观。白杨树不仅美丽，而且在生物学上也令人着迷。它们以大型群落的形式生长，起源于单一的根系，是地球上最大的生物之一。树群中的每棵树都具有相同的遗传特征。当白杨树被砍伐或受损时，根系会继续存活，从而使新的枝条萌发并生长，这有助于形成一个弹性的网络，可以在野火等恶劣的条件下生存。这种物种能迅速在附近被烧毁的地区生根发芽，即使野火燎原也能再生。白杨树不仅仅是赏心悦目的风景，它们更象征着坚韧不屈的精神。
 
-索拉诺村的特点是由迷宫般的小巷、庭院、拱门、方石门、外部楼梯、凉廊和在凝灰岩上开凿的地窖组成，过去葡萄采摘的各个阶段都是在这里进行的。
+胡杨也是杨树属的一员，它耐旱耐水，生命力顽强，是自然界中稀有的树种之一。
 
-[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e7%b4%a2%e6%8b%89%e8%af%ba%e5%b8%82&form=hpcapt&filters=HpDate:"20241007_1600" "Bing Wallpaper 2024 10月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241008_SoranoItaly"&FORM=HPQUIZ "必应主页测验 2024 10月 8")
-[下载480](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_800x480.jpg&rf=LaDigue_800x480.jpg "索拉诺，托斯卡纳，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_1280x720.jpg&rf=LaDigue_1280x720.jpg "索拉诺，托斯卡纳，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "索拉诺，托斯卡纳，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_UHD.jpg&rf=LaDigue_UHD.jpg "索拉诺，托斯卡纳，意大利")
+[Bing搜索](https://cn.bing.com/search?q=%e7%99%bd%e6%9d%a8%e6%a0%91&form=hpcapt&filters=HpDate:"20241008_1600" "Bing Wallpaper 2024 10月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241009_AspensColorado"&FORM=HPQUIZ "必应主页测验 2024 10月 9")
+[下载480](https://cn.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_800x480.jpg&rf=LaDigue_800x480.jpg "马布尔附近的白杨树，科罗拉多州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_1280x720.jpg&rf=LaDigue_1280x720.jpg "马布尔附近的白杨树，科罗拉多州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马布尔附近的白杨树，科罗拉多州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_UHD.jpg&rf=LaDigue_UHD.jpg "马布尔附近的白杨树，科罗拉多州，美国")
+
+---
+### 10月08日：海洋中的八爪鱼
+#### 莫托提两鳍蛸，蓝碧海峡，印度尼西亚（© Howard Chew/Alamy Stock Photo）
+
+![海洋中的八爪鱼](https://cn.bing.com/th?id=OHR.MototiOctopus_ZH-CN5778894536_800x480.jpg&rf=LaDigue_800x480.jpg "海洋中的八爪鱼")
+
+今天，我们为一种拥有三颗心脏、能够随心所欲地改变颜色的生物而庆祝，这种生物就是章鱼！章鱼是头足类动物，是像乌贼和墨鱼一样长有触手的海洋动物。图中的莫托提两鳍蛸就是章鱼的众多种类中的一种。莫托提两鳍蛸于1999年在南太平洋的拉帕岛附近被发现，因其“假眼”，也就是位于眼睛和手臂之间明亮的蓝色和黄色圆环而闻名。莫托提两鳍蛸主要分布在印度洋-太平洋地区，包括印度尼西亚、澳大利亚和日本冲绳等地。它们是伪装大师，通常呈暗橙色奶油棕色，但受到惊吓时，可以迅速转变为醒目的深红色，身体和手臂上有白色条纹。这些头足类动物也被称为毒蛸，有剧毒。但你不必担心会遇到它们，因为它们通常很害羞，独居，经常躲藏在裂缝、贝壳或瓶子、罐子等人造物体中。
+
+2016年，奥基诺斯探险者号在海底1.4万英尺（2.6英里）的深度拍摄到了一只“幽灵”章鱼。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%ab%a0%e9%b1%bc%e6%97%a5&form=hpcapt&filters=HpDate:"20241007_1600" "Bing Wallpaper 2024 10月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241008_MototiOctopus"&FORM=HPQUIZ "必应主页测验 2024 10月 8")
+[下载480](https://cn.bing.com/th?id=OHR.MototiOctopus_ZH-CN5778894536_800x480.jpg&rf=LaDigue_800x480.jpg "莫托提两鳍蛸，蓝碧海峡，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.MototiOctopus_ZH-CN5778894536_1280x720.jpg&rf=LaDigue_1280x720.jpg "莫托提两鳍蛸，蓝碧海峡，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.MototiOctopus_ZH-CN5778894536_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫托提两鳍蛸，蓝碧海峡，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.MototiOctopus_ZH-CN5778894536_UHD.jpg&rf=LaDigue_UHD.jpg "莫托提两鳍蛸，蓝碧海峡，印度尼西亚")
 
 ---
 ### 10月07日：梦想成真的地方
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_1280x720.jpg&rf=LaDigue_1280x720.jpg "巨型红杉，红杉国家公园，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巨型红杉，红杉国家公园，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_UHD.jpg&rf=LaDigue_UHD.jpg "巨型红杉，红杉国家公园，加利福尼亚州，美国")
-
----
-### 09月24日：你会相信这种观点吗？
-#### 斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛（© Nopasorn Kowathanakul/Getty Images）
-
-![你会相信这种观点吗？](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_800x480.jpg&rf=LaDigue_800x480.jpg "你会相信这种观点吗？")
-
-在冰岛的斯卡夫塔山，秋天不仅仅是一个季节，更是一种体验。从冰川到瀑布，再到北极光，瓦特纳冰川国家公园中的这片区域展示了大自然的原始之美。斯卡夫山曾经是一个繁荣的农场，现在是一个保护区，它是几千年来火山火焰和冰川水激烈交织形成的。作为欧洲第二大冰盖瓦特纳冰川的一个分支，斯卡夫塔山冰川像一条冰冻的河流一样延伸开来，吸引着游客在导游的带领下徒步旅行。公园内的斯瓦蒂瀑布的水源则来自冰川融水。瀑布周围环绕着深色的熔岩柱，从远处看就像一颗心脏，冰岛国家大剧院和雷克雅未克的哈尔格林姆斯教堂的设计灵感就来源于此。斯卡夫塔山的徒步路径既有简单的步行道，又有具有挑战性的攀登路线，每个人都能在这里找到适合自己的路。虽然这个季节的日照时间可能较短，但也有好的地方。当夜幕降临时，极光经常出现，将天空变成绿色和粉色的混合漩涡。
-
-在标志性的黑色玄武岩的映衬下，斯卡夫塔山那如诗如画的瀑布美景令人惊叹，让人流连忘返。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e5%8d%a1%e5%a4%ab%e5%a1%94%e5%b1%b1+%e5%86%b0%e5%b2%9b&form=hpcapt&filters=HpDate:"20240923_1600" "Bing Wallpaper 2024 9月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240924_SkaftafellWaterfall"&FORM=HPQUIZ "必应主页测验 2024 9月 24")
-[下载480](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_800x480.jpg&rf=LaDigue_800x480.jpg "斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛")
-[下载720](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛")
-[下载1080](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_UHD.jpg&rf=LaDigue_UHD.jpg "斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛")
 
 ---
