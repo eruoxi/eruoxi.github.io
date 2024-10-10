@@ -1,4 +1,38 @@
 ## Bing Wallpaper(最近15天)
+### 10月11日：云海奇观
+#### 黄山云海，安徽省，中国（© yangyang1991/Getty Images）
+
+![云海奇观](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_800x480.jpg&rf=LaDigue_800x480.jpg "云海奇观")
+
+今天是重阳节，登高赏秋、感恩敬老是重阳节的两大主题，重阳节在历史发展演变中融合了多种民俗，承载着丰富的文化内涵。
+
+黄山一年365天只有51天可以看到云海。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%87%8d%e9%98%b3%e8%8a%82&form=hpcapt&filters=HpDate:"20241010_1600" "Bing Wallpaper 2024 10月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241011_Chongyang2024"&FORM=HPQUIZ "必应主页测验 2024 10月 11")
+[下载480](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_800x480.jpg&rf=LaDigue_800x480.jpg "黄山云海，安徽省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄山云海，安徽省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄山云海，安徽省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_UHD.jpg&rf=LaDigue_UHD.jpg "黄山云海，安徽省，中国")
+
+---
+### 10月10日：托斯卡纳的石头小镇
+#### 索拉诺，托斯卡纳，意大利（© Luigi Vaccarella/eStock Photo）
+
+![托斯卡纳的石头小镇](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_800x480.jpg&rf=LaDigue_800x480.jpg "托斯卡纳的石头小镇")
+
+索拉诺位于意大利托斯卡纳南部的格罗塞托省，是一个坐落在悬崖峭壁上的中世纪村庄。漫步在古老的鹅卵石街道上，你可以游览奥尔西尼堡垒，这座堡垒可追溯到11世纪，如今已成为一座博物馆。游客在堡垒内每走一步，都能感受到几个世纪以来关于防御入侵与权力更迭的故事。在波吉奥·圣·罗科和波吉奥·克罗切山附近有这样一个墓地，它是个大型的古代墓葬遗址，其中拥有保存完好的伊特鲁里亚人的墓葬，暗示着该地区悠久的历史。公元前8世纪至公元前3世纪，伊特鲁里亚文明曾居住在这一地区，并在现在的托斯卡纳和翁布里亚繁衍生息。索拉诺隐蔽的山谷是维洞的所在地，这是一个错综复杂的通道网络，可能是用来抵御入侵者和野兽的防御系统。在这里，厨师们精心制作当地特色菜，保持着世代相传的烹饪传统。到索拉诺旅游，一定要去葡萄酒商店喝上一杯备受推崇的莫雷利诺·迪·斯坎萨诺葡萄酒。
+
+索拉诺村的特点是由迷宫般的小巷、庭院、拱门、方石门、外部楼梯、凉廊和在凝灰岩上开凿的地窖组成，过去葡萄采摘的各个阶段都是在这里进行的。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e7%b4%a2%e6%8b%89%e8%af%ba%e5%b8%82&form=hpcapt&filters=HpDate:"20241009_1600" "Bing Wallpaper 2024 10月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241010_SoranoItaly"&FORM=HPQUIZ "必应主页测验 2024 10月 10")
+[下载480](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_800x480.jpg&rf=LaDigue_800x480.jpg "索拉诺，托斯卡纳，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_1280x720.jpg&rf=LaDigue_1280x720.jpg "索拉诺，托斯卡纳，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "索拉诺，托斯卡纳，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_UHD.jpg&rf=LaDigue_UHD.jpg "索拉诺，托斯卡纳，意大利")
+
+---
 ### 10月09日：色彩斑斓的秋天
 #### 马布尔附近的白杨树，科罗拉多州，美国（© Jason Hatfield/TANDEM Stills + Motion）
 
@@ -218,39 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.VeniceAerial_ZH-CN4070720525_1280x720.jpg&rf=LaDigue_1280x720.jpg "大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.VeniceAerial_ZH-CN4070720525_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.VeniceAerial_ZH-CN4070720525_UHD.jpg&rf=LaDigue_UHD.jpg "大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利")
-
----
-### 09月26日：呼叫所有巨嘴鸟的粉丝
-#### 蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加（© Oscar Dominguez/Tandem Stills + Motion）
-
-![呼叫所有巨嘴鸟的粉丝](https://cn.bing.com/th?id=OHR.LittleToucanet_ZH-CN2910262009_800x480.jpg&rf=LaDigue_800x480.jpg "呼叫所有巨嘴鸟的粉丝")
-
-洛斯戈查尔斯国家公园坐落在哥斯达黎加的高原地区，这里有万花筒般繁茂的栖息地，其中包括蓝斑巨嘴鸟的家园。蓝斑巨嘴鸟身长11-15英寸，不是候鸟，可以用灵巧的脚趾在树枝上穿梭，用独特的喙熟练地觅食水果、昆虫和小蜥蜴。
-
-蓝斑巨嘴鸟的叫声主要是一种响亮、悠远、干涩的咕哝声和呱呱声，往往持续数分钟之久。飞行时，它的翅膀会发出呼啸声。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%93%9d%e6%96%91%e5%b7%a8%e5%98%b4%e9%b8%9f&form=hpcapt&filters=HpDate:"20240925_1600" "Bing Wallpaper 2024 9月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240926_LittleToucanet"&FORM=HPQUIZ "必应主页测验 2024 9月 26")
-[下载480](https://cn.bing.com/th?id=OHR.LittleToucanet_ZH-CN2910262009_800x480.jpg&rf=LaDigue_800x480.jpg "蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加")
-[下载720](https://cn.bing.com/th?id=OHR.LittleToucanet_ZH-CN2910262009_1280x720.jpg&rf=LaDigue_1280x720.jpg "蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加")
-[下载1080](https://cn.bing.com/th?id=OHR.LittleToucanet_ZH-CN2910262009_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加")
-[下载UHD](https://cn.bing.com/th?id=OHR.LittleToucanet_ZH-CN2910262009_UHD.jpg&rf=LaDigue_UHD.jpg "蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加")
-
----
-### 09月25日：古代巨人的王国
-#### 巨型红杉，红杉国家公园，加利福尼亚州，美国（© Galyna Andrushko/Shutterstock）
-
-![古代巨人的王国](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_800x480.jpg&rf=LaDigue_800x480.jpg "古代巨人的王国")
-
-1890年的今天，红杉国家公园在内华达山脉南部成立，旨在保护美国的自然奇观之一。红杉国家公园以占地面积超过629平方英里的巨型红杉树命名，是黑熊、骡鹿等野生动物以及包括莺、莺雀、鹟在内的200多种鸟类的家园。这里的巨型红杉树已经扎根2200多年，是地球上最古老的生物之一。公园里著名的谢尔曼将军树高达275英尺。它以美国内战将军威廉·特库姆塞·谢尔曼的名字命名，不仅高，而且宽度超过36英尺。游客们蜂拥而至，捕捉这些古老巨树的瞬间，它们红褐色的纤维状树皮和宽阔的树枝唤起了一种鲜活的历史感。
-
-这个公园有三个不同的气候带。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e5%9b%bd%e7%ba%a2%e6%9d%89%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20240924_1600" "Bing Wallpaper 2024 9月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240925_GiantSequoias"&FORM=HPQUIZ "必应主页测验 2024 9月 25")
-[下载480](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_800x480.jpg&rf=LaDigue_800x480.jpg "巨型红杉，红杉国家公园，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_1280x720.jpg&rf=LaDigue_1280x720.jpg "巨型红杉，红杉国家公园，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巨型红杉，红杉国家公园，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_UHD.jpg&rf=LaDigue_UHD.jpg "巨型红杉，红杉国家公园，加利福尼亚州，美国")
 
 ---
