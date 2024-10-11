@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月12日：飞越各大洲
+#### 林鸳鸯，魁北克省，加拿大（© Maxime Riendeau/Getty Images）
+
+![飞越各大洲](https://cn.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_800x480.jpg&rf=LaDigue_800x480.jpg "飞越各大洲")
+
+在“世界候鸟日”为我们身披羽毛的朋友欢呼吧！有些候鸟的迁徙确实令人惊叹。从阿拉斯加到新西兰，斑尾塍鹬不分昼夜地横跨太平洋，航程长达6835英里。小巧的红宝石蜂鸟体重不足一枚五分硬币，却能一路飞越墨西哥湾——以它的体型而言，这似乎是不可能完成的壮举。候鸟在全球各地迁徙，它们本能地知道何时何地迁徙，以利用季节性的丰富资源。北极燕鸥从一极到另一极的洲际旅程长达18,000多英里，在所有候鸟中首屈一指，它们的迁徙路线是根据环境线索制定的。
+
+2013年，加拿大皇家铸币厂发行了两枚纪念林鸳鸯的硬币。这两枚硬币分别是三枚硬币套装的一部分，以帮助宣传加拿大鸭无限组织并庆祝其成立75周年。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%9e%97%e9%b8%b3%e9%b8%af&form=hpcapt&filters=HpDate:"20241011_1600" "Bing Wallpaper 2024 10月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241012_QuebecDuck"&FORM=HPQUIZ "必应主页测验 2024 10月 12")
+[下载480](https://cn.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_800x480.jpg&rf=LaDigue_800x480.jpg "林鸳鸯，魁北克省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_1280x720.jpg&rf=LaDigue_1280x720.jpg "林鸳鸯，魁北克省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "林鸳鸯，魁北克省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_UHD.jpg&rf=LaDigue_UHD.jpg "林鸳鸯，魁北克省，加拿大")
+
+---
 ### 10月11日：云海奇观
 #### 黄山云海，安徽省，中国（© yangyang1991/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的海滩，海湾岛国家海岸，佛罗里达，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的海滩，海湾岛国家海岸，佛罗里达，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的海滩，海湾岛国家海岸，佛罗里达，美国")
-
----
-### 09月27日：在漂浮的城市之上
-#### 大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利（© Bachir Moukarzel/Amazing Aerial Agency）
-
-![在漂浮的城市之上](https://cn.bing.com/th?id=OHR.VeniceAerial_ZH-CN4070720525_800x480.jpg&rf=LaDigue_800x480.jpg "在漂浮的城市之上")
-
-威尼斯的安康圣母教堂历史悠久，是巴洛克建筑风格的典范。这座教堂建于1631年至1687年，是为了纪念1630年威尼斯从一场毁灭性瘟疫中解脱出来。教堂建在大运河的入口处，其圆顶在威尼斯的天际线上占据着主导地位，正如今天的图片所示。意大利建筑师巴尔达萨雷·隆盖纳在26岁时就构思了这座建筑，它成为了隆盖纳毕生的事业，并在他去世后完工。教堂外部的涡卷状装饰和雕像与宽敞的八角形内部形成鲜明对比，内部装饰着文艺复兴时期艺术家提香和丁托列托的作品。每年11月，威尼斯都会在圣母节期间纪念这座教堂的重要意义，这是一场文化庆祝活动，内容包括节日游行和献蜡烛等，以感谢圣母将人类从瘟疫中解救出来。
-
-丁托列托于1561年创作的作品《迦纳的婚礼》陈列在大圣器室中，这幅画中还包含了他的自画像。教堂中最有代表性的艺术家是提香，不仅圣马可与圣徒科斯马斯、达米安、塞巴斯蒂安和罗克的坐像，也就是圣器室的祭坛画是他画的；大卫和歌利亚、亚伯拉罕和以撒、该隐和亚伯的天顶画、位于大圣器收藏室的教会八位医生和福音传道者的通天画，以及中殿的《圣灵降临节》也是他画的。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%ae%89%e5%ba%b7%e5%9c%a3%e6%af%8d%e6%95%99%e5%a0%82&form=hpcapt&filters=HpDate:"20240926_1600" "Bing Wallpaper 2024 9月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240927_VeniceAerial"&FORM=HPQUIZ "必应主页测验 2024 9月 27")
-[下载480](https://cn.bing.com/th?id=OHR.VeniceAerial_ZH-CN4070720525_800x480.jpg&rf=LaDigue_800x480.jpg "大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.VeniceAerial_ZH-CN4070720525_1280x720.jpg&rf=LaDigue_1280x720.jpg "大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.VeniceAerial_ZH-CN4070720525_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.VeniceAerial_ZH-CN4070720525_UHD.jpg&rf=LaDigue_UHD.jpg "大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利")
 
 ---
