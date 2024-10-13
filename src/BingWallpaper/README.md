@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月14日：沙滩的秘密和日落
+#### 可可海滩上的渔船，果阿邦，印度（© Abhinav Sah/Shutterstock）
+
+![沙滩的秘密和日落](https://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_800x480.jpg&rf=LaDigue_800x480.jpg "沙滩的秘密和日落")
+
+欢迎来到海滩爱好者的梦想之地：果阿邦。这个印度邦以金色海岸而闻名，吸引着来自世界各地的游客。旅游业是当地经济的核心产业，125公里的海岸线被沙滩覆盖，沙滩上热闹非凡。今天的照片展示了可可海滩，这是一个隐藏在尼鲁尔村庄的明珠，该村庄位于果阿邦的北部地区。这里气氛宁静，却有许多有趣的娱乐项目。您可以一边晒日光浴，体验钓鱼、划船、观赏海豚和游泳等冒险活动，一边沉浸在当地的文化氛围中。独特的历史意义使这个海滩更加与众不同。它在20世纪50年代至60年代的果阿邦解放运动中发挥了重要作用。这是当地人为结束葡萄牙统治，将果阿邦与印度统一而进行斗争的地方之一。所以，可可海滩才不是一个普通的海滩，这是一个有故事的地方，历史与大海在这里交汇。
+
+这个海滩之所以取名为“可可海滩”，是因为海岸边种植了大量的椰子树，它们为海滩游客带来了热带氛围和树荫。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%9e%9c%e9%98%bf%e9%82%a6+%e5%8d%b0%e5%ba%a6&form=hpcapt&filters=HpDate:"20241013_1600" "Bing Wallpaper 2024 10月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241014_CocoBeach"&FORM=HPQUIZ "必应主页测验 2024 10月 14")
+[下载480](https://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_800x480.jpg&rf=LaDigue_800x480.jpg "可可海滩上的渔船，果阿邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_1280x720.jpg&rf=LaDigue_1280x720.jpg "可可海滩上的渔船，果阿邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "可可海滩上的渔船，果阿邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_UHD.jpg&rf=LaDigue_UHD.jpg "可可海滩上的渔船，果阿邦，印度")
+
+---
 ### 10月13日：辉煌的塞维利亚
 #### 塞维利亚王宫少女庭院，西班牙（© Danny Lehman/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_UHD.jpg&rf=LaDigue_UHD.jpg "斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威")
-
----
-### 09月29日：连接康涅狄格州
-#### 横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国（© pabradyphoto/Getty Images）
-
-![连接康涅狄格州](https://cn.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_800x480.jpg&rf=LaDigue_800x480.jpg "连接康涅狄格州")
-
-廊桥的顶棚和壁板，可以保护里面的木质结构，使其免受风雨的侵蚀，从而大大提高它的耐用性，图中的西康沃尔廊桥就是一个很好的例子。美国的许多廊桥建于19世纪，但很少有廊桥能幸存至今，那些幸存下来的往往是因为其历史和视觉价值，才得以保留。
-
-这座廊桥曾在电影《娃娃谷》开头的场景中出现过，该片是1967年上映的美国剧情片，改编自1966年杰奎琳·苏珊出版的同名小说。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e5%ba%b7%e6%b2%83%e5%b0%94%e5%bb%8a%e6%a1%a5&form=hpcapt&filters=HpDate:"20240928_1600" "Bing Wallpaper 2024 9月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240929_ConnecticutBridge"&FORM=HPQUIZ "必应主页测验 2024 9月 29")
-[下载480](https://cn.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_800x480.jpg&rf=LaDigue_800x480.jpg "横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_1280x720.jpg&rf=LaDigue_1280x720.jpg "横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_UHD.jpg&rf=LaDigue_UHD.jpg "横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国")
 
 ---
