@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月15日：生存竞赛
+#### 马拉河的角马大迁徙，肯尼亚（© Ayzenstayn/Getty Images）
+
+![生存竞赛](https://cn.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_800x480.jpg&rf=LaDigue_800x480.jpg "生存竞赛")
+
+俗话说“邻家芳草绿”，坦桑尼亚塞伦盖蒂草原上的角马对这句话的理解最为深刻。每年七月，大约200万只坚定的食草动物与斑马等动物一起，踏上前往肯尼亚马赛马拉的旅程，寻找茂盛的牧草和淡水。这场大迁徙被誉为自然界的七大奇迹之一，是一场以生存为奖赏的“狩猎奇观”，其中最戏剧性的时刻之一是渡过马拉河。成千上万头角马聚集在河岸边，它们知道水下潜伏着危险的鳄鱼，河岸边还有巡逻的狮子和豹子。但是当第一只角马冒险跳下去时，其余的角马便会跟着疯狂地冲过去，形成一片混乱的景象。有些角马成功越过河岸，而有些角马则成为食物链的一部分。随着十月的到来，雨水重新回到塞伦盖蒂草原，兽群开始返回南方的旅程，再次完成循环。
+
+角马幼崽出生后不久就能走路，几天后便可随角马群奔跑。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a7%92%e9%a9%ac%e5%a4%a7%e8%bf%81%e5%be%99&form=hpcapt&filters=HpDate:"20241014_1600" "Bing Wallpaper 2024 10月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241015_MaraMigration"&FORM=HPQUIZ "必应主页测验 2024 10月 15")
+[下载480](https://cn.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_800x480.jpg&rf=LaDigue_800x480.jpg "马拉河的角马大迁徙，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_1280x720.jpg&rf=LaDigue_1280x720.jpg "马拉河的角马大迁徙，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马拉河的角马大迁徙，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_UHD.jpg&rf=LaDigue_UHD.jpg "马拉河的角马大迁徙，肯尼亚")
+
+---
 ### 10月14日：沙滩的秘密和日落
 #### 可可海滩上的渔船，果阿邦，印度（© Abhinav Sah/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_1280x720.jpg&rf=LaDigue_1280x720.jpg "禾木村的风景，新疆，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "禾木村的风景，新疆，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_UHD.jpg&rf=LaDigue_UHD.jpg "禾木村的风景，新疆，中国")
-
----
-### 09月30日：随浮冰漂流
-#### 斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威（© AWL Images/DanitaDelimont）
-
-![随浮冰漂流](https://cn.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_800x480.jpg&rf=LaDigue_800x480.jpg "随浮冰漂流")
-
-在午夜的阳光下，做什么事最爽？如果你是图片中的这只海象，那么答案可能是与你的同伴一起尽情畅泳，大口吃蛤蜊和贻贝，然后在海滩或浮冰上来个日光浴。欢迎来到斯瓦尔巴群岛，这是北冰洋中的一个群岛，在挪威和北极之间。这张照片拍摄于斯匹次卑尔根岛附近的海域，斯匹次卑尔根岛是该群岛九个岛屿中最大的一个，这些水生哺乳动物常年居住在这里，通常以雄性或雌性海象群的形式出现。雄性海象身长可达12英尺，体重超2600磅，在交配季节，它们会利用自己的体型相互争斗，争夺对雌性海象群的统治权，雌性海象群被称为胜者的“后宫”。
-
-海象是一种鳍足类哺乳动物，和海豹以及海狮有着亲缘关系。它们最显著的特征是有着长长的獠牙，獠牙周围长着一层硬毛。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e8%b1%a1&form=hpcapt&filters=HpDate:"20240929_1600" "Bing Wallpaper 2024 9月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20240930_WalrusNorway"&FORM=HPQUIZ "必应主页测验 2024 9月 30")
-[下载480](https://cn.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_800x480.jpg&rf=LaDigue_800x480.jpg "斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威")
-[下载720](https://cn.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威")
-[下载1080](https://cn.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威")
-[下载UHD](https://cn.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_UHD.jpg&rf=LaDigue_UHD.jpg "斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威")
 
 ---
