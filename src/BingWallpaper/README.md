@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月16日：发掘过去
+#### 侏罗纪海岸的箭石和菊石化石，多塞特郡，英国（© Nature Picture Library/Alamy Stock Photo）
+
+![发掘过去](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_800x480.jpg&rf=LaDigue_800x480.jpg "发掘过去")
+
+如果您是恐龙、三叶虫或者贝壳化石的粉丝，那么美国国家化石日就是您动手探索化石的绝佳理由。人们在10月的第二个完整周的星期三庆祝美国国家化石日，这一天旨在推广化石的科学以及教育价值。那么，化石有什么了不起的呢？从高耸的霸王龙到微小的菊石，这些古代遗迹帮助科学家拼凑出地球历史的谜团。然而，掌握着这个古老图书馆的钥匙的不仅仅是美国——整个地球都散布着这样的隐秘编年史。
+
+化石可以保存整个生物体、部分生物体或生物体的痕迹（例如脚印）。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8c%96%e7%9f%b3&form=hpcapt&filters=HpDate:"20241015_1600" "Bing Wallpaper 2024 10月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241016_FossilsDorset"&FORM=HPQUIZ "必应主页测验 2024 10月 16")
+[下载480](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_800x480.jpg&rf=LaDigue_800x480.jpg "侏罗纪海岸的箭石和菊石化石，多塞特郡，英国")
+[下载720](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_1280x720.jpg&rf=LaDigue_1280x720.jpg "侏罗纪海岸的箭石和菊石化石，多塞特郡，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "侏罗纪海岸的箭石和菊石化石，多塞特郡，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_UHD.jpg&rf=LaDigue_UHD.jpg "侏罗纪海岸的箭石和菊石化石，多塞特郡，英国")
+
+---
 ### 10月15日：生存竞赛
 #### 马拉河的角马大迁徙，肯尼亚（© Ayzenstayn/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_1280x720.jpg&rf=LaDigue_1280x720.jpg "温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_UHD.jpg&rf=LaDigue_UHD.jpg "温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国")
-
----
-### 10月01日：绝美的秋日风景
-#### 禾木村的风景，新疆，中国（© snvv18870020330/Shutterstock）
-
-![绝美的秋日风景](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_800x480.jpg&rf=LaDigue_800x480.jpg "绝美的秋日风景")
-
-禾木村是中国仅存的三个图瓦人村落之一，因其优美宁静的自然风光，它曾被誉为 “摄影天堂”和“神的私家领地”。这里最为有名的当数油画般的秋景：独具特色的图瓦木屋被梦幻的薄雾和大片金黄的桦树点缀。秋天来临时，树木换上金黄色的外衣，远远望去，垂直的白色树干和美丽的树叶组成一副如诗如画的美景，让人仿佛进入了真正的仙境。漫步在森林中，金黄的树叶、自然的声音以及清新的空气都在净化你的眼睛和心灵。
-
-禾木村是中国仅存的三个图瓦人村落之一。因其优美宁静的自然风光，禾木村曾被誉为 “摄影天堂 ”和 “神的私家领地”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%b0%e7%96%86%e7%a6%be%e6%9c%a8%e6%9d%91&form=hpcapt&filters=HpDate:"20240930_1600" "Bing Wallpaper 2024 10月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241001_NationalDay2024"&FORM=HPQUIZ "必应主页测验 2024 10月 1")
-[下载480](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_800x480.jpg&rf=LaDigue_800x480.jpg "禾木村的风景，新疆，中国")
-[下载720](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_1280x720.jpg&rf=LaDigue_1280x720.jpg "禾木村的风景，新疆，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "禾木村的风景，新疆，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_UHD.jpg&rf=LaDigue_UHD.jpg "禾木村的风景，新疆，中国")
 
 ---
