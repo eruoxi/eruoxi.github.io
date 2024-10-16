@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月17日：随风摆动，进入秋天
+#### 地肤草，茨城县，日本（© DigiPub/Getty Images）
+
+![随风摆动，进入秋天](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_800x480.jpg&rf=LaDigue_800x480.jpg "随风摆动，进入秋天")
+
+如果您曾经见过照片中那像火一样的一望无际的红色田野，那您肯定见过地肤草。在春季和夏季，这种一年生草本植物开始呈现出嫩绿色，就像一个蓬松的绿球。随着季节的转换，它的颜色也在变化，会变成红色、橙色甚至粉红色。
+
+地肤草是一种常见于路边、沟岸、铁路轨道等地的杂草植物。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%b0%e8%82%a4%e8%8d%89&form=hpcapt&filters=HpDate:"20241016_1600" "Bing Wallpaper 2024 10月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241017_KochiaJapan"&FORM=HPQUIZ "必应主页测验 2024 10月 17")
+[下载480](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_800x480.jpg&rf=LaDigue_800x480.jpg "地肤草，茨城县，日本")
+[下载720](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_1280x720.jpg&rf=LaDigue_1280x720.jpg "地肤草，茨城县，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "地肤草，茨城县，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_UHD.jpg&rf=LaDigue_UHD.jpg "地肤草，茨城县，日本")
+
+---
 ### 10月16日：发掘过去
 #### 侏罗纪海岸的箭石和菊石化石，多塞特郡，英国（© Nature Picture Library/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿格拉的泰姬陵，安拉阿巴德，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿格拉的泰姬陵，安拉阿巴德，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_UHD.jpg&rf=LaDigue_UHD.jpg "阿格拉的泰姬陵，安拉阿巴德，印度")
-
----
-### 10月02日：河流的狂野舞蹈
-#### 温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国（© Design Pics/DanitaDelimont）
-
-![河流的狂野舞蹈](https://cn.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_800x480.jpg&rf=LaDigue_800x480.jpg "河流的狂野舞蹈")
-
-你是否想过美国那些野生河流是如何保持原始状态的？这要归功于《野生与风景河流法案》，它于1968年的今天被签署成为法律。这项立法还创建了国家野生与风景河流系统，旨在保护那些具有杰出的自然、文化以及休闲价值的特定河流，使其保持自由流动的状态。这个国家系统管理着40个州的209条河流，它们的总长超过12700英里，但不到美国350万英里河流的四分之一。在这个系统中，河流被分类为野生、风景或休闲河流。例如今天图片中看到的温德河就是一条野生河流，它尚处于孤立且未被开发的状态。这条85英里长的河流从菲利普·史密斯山脉流向昌达拉河的东支，蜿蜒穿过一个布满湖泊和湿地的河谷。作为北极国家野生动物保护区的一部分，这个河谷是一个繁荣的栖息地，居住着白大角羊、驼鹿、北美驯鹿、灰熊等动物。在这个充满变化的世界里，还有如此原生态的河流，真令人欣慰。
-
-温德河是一条国家野生风景河，其主干、源头和一条未命名的支流（总长230公里）于1980年被指定为“野生”河流。它们均位于北极国家野生动物保护区内。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b8%a9%e5%be%b7%e6%b2%b3&form=hpcapt&filters=HpDate:"20241001_1600" "Bing Wallpaper 2024 10月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241002_WindRiverAlaska"&FORM=HPQUIZ "必应主页测验 2024 10月 2")
-[下载480](https://cn.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_800x480.jpg&rf=LaDigue_800x480.jpg "温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_1280x720.jpg&rf=LaDigue_1280x720.jpg "温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_UHD.jpg&rf=LaDigue_UHD.jpg "温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国")
 
 ---
