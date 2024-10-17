@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月18日：邂逅秋日的林荫道
+#### 曼哈顿中央公园的秋天，纽约，美国（© mapman/Shutterstock）
+
+![邂逅秋日的林荫道](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_800x480.jpg&rf=LaDigue_800x480.jpg "邂逅秋日的林荫道")
+
+每年秋天，纽约中央公园18000棵树木中的许多树，都会染上黄色、红色和橙色的色调。秋天是中央公园出镜率最高的季节之一，它为《当哈利遇见莎莉》和《头发》等电影提供了标志性的拍摄背景。树木不仅通过温度来感知冬天的到来，还通过日出和日落时光线照射到树叶上的角度来感知。由于纽约高楼林立，光线、阴影和温度的独特相互作用往往导致公园里的秋叶比城市里的其他地方来得晚。
+
+中央公园林荫大道是拥有世界上最大的美国榆树丛的地方之一。高耸的榆树遮天蔽日，是中央公园最具标志性和辨识度的景观之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%9b%bc%e5%93%88%e9%a1%bf%e4%b8%ad%e5%a4%ae%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241017_1600" "Bing Wallpaper 2024 10月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241018_CentralParkAutumn"&FORM=HPQUIZ "必应主页测验 2024 10月 18")
+[下载480](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_800x480.jpg&rf=LaDigue_800x480.jpg "曼哈顿中央公园的秋天，纽约，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_1280x720.jpg&rf=LaDigue_1280x720.jpg "曼哈顿中央公园的秋天，纽约，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼哈顿中央公园的秋天，纽约，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_UHD.jpg&rf=LaDigue_UHD.jpg "曼哈顿中央公园的秋天，纽约，美国")
+
+---
 ### 10月17日：随风摆动，进入秋天
 #### 地肤草，茨城县，日本（© DigiPub/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_1280x720.jpg&rf=LaDigue_1280x720.jpg "木星的冰卫星木卫二")
 [下载1080](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "木星的冰卫星木卫二")
 [下载UHD](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_UHD.jpg&rf=LaDigue_UHD.jpg "木星的冰卫星木卫二")
-
----
-### 10月03日：盛大的爱情见证
-#### 阿格拉的泰姬陵，安拉阿巴德，印度（© Tanarch/Getty Images）
-
-![盛大的爱情见证](https://cn.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_800x480.jpg&rf=LaDigue_800x480.jpg "盛大的爱情见证")
-
-今天，让我们来探索世界七大奇迹之一的泰姬陵。它坐落在印度北方邦阿格拉的亚穆纳河畔，乳白色的大理石陵墓惊艳了无数人。图片中的泰姬陵是1631年莫卧儿王朝的第五位皇帝沙贾汗下令建造的，目的是纪念他深爱的妻子蒙泰姬·玛哈尔。这座陵墓是占地42英亩的建筑群的核心，该建筑群还包括一座清真寺、答辩厅以及被高墙环绕着的美丽花园。陵墓呈醒目的矩形布局，两侧是巨大的拱门和壁龛，融合了印度伊斯兰和莫卧儿建筑风格。其设计灵感来源于一些著名的建筑，例如乌兹别克斯坦撒马尔罕的古尔·埃米尔陵墓、德里的胡马雍陵以及沙贾汗的贾玛清真寺等。它的外圆顶高约145英尺，内圆顶高75英尺多，是一项令人难以置信的建筑壮举。作为穆斯林艺术的瑰宝和全球杰作，泰姬陵于1983年被联合国教科文组织列为世界遗产。
-
-1983年，泰姬陵被联合国教科文组织列为世界遗产，因其既是印度伊斯兰艺术的瑰宝，也是世界遗产中令世人赞叹的杰作之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b3%b0%e5%a7%ac%e9%99%b5&form=hpcapt&filters=HpDate:"20241002_1600" "Bing Wallpaper 2024 10月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241003_TajMahalReflection"&FORM=HPQUIZ "必应主页测验 2024 10月 3")
-[下载480](https://cn.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_800x480.jpg&rf=LaDigue_800x480.jpg "阿格拉的泰姬陵，安拉阿巴德，印度")
-[下载720](https://cn.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿格拉的泰姬陵，安拉阿巴德，印度")
-[下载1080](https://cn.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿格拉的泰姬陵，安拉阿巴德，印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_UHD.jpg&rf=LaDigue_UHD.jpg "阿格拉的泰姬陵，安拉阿巴德，印度")
 
 ---
