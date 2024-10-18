@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月19日：立足现在，发掘过去
+#### 哈索尔神庙，邓德拉神庙群，基纳，埃及（© Nick Brundle Photography/Getty Images）
+
+![立足现在，发掘过去](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_800x480.jpg&rf=LaDigue_800x480.jpg "立足现在，发掘过去")
+
+今天，在国际考古日，深入挖掘你内心的印第安纳·琼斯或劳拉·克劳馥吧！该节日始于2011年，于每年10月的第三个星期六举办庆祝活动，旨在庆祝考古学对当今社会做出的贡献。其全球性的活动包括举办展览和动手挖掘遗迹，有些活动还会持续一个月。此外，许多美国国家公园、州立公园、历史地标和当地博物馆也会举办相关活动。
+
+哈索尔神庙最引人注目的特色之一是它的天文天花板，这是古埃及天文学和艺术融合在一起的杰作。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e8%80%83%e5%8f%a4%e6%97%a5&form=hpcapt&filters=HpDate:"20241018_1600" "Bing Wallpaper 2024 10月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241019_DenderaTemple"&FORM=HPQUIZ "必应主页测验 2024 10月 19")
+[下载480](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_800x480.jpg&rf=LaDigue_800x480.jpg "哈索尔神庙，邓德拉神庙群，基纳，埃及")
+[下载720](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_1280x720.jpg&rf=LaDigue_1280x720.jpg "哈索尔神庙，邓德拉神庙群，基纳，埃及")
+[下载1080](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哈索尔神庙，邓德拉神庙群，基纳，埃及")
+[下载UHD](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_UHD.jpg&rf=LaDigue_UHD.jpg "哈索尔神庙，邓德拉神庙群，基纳，埃及")
+
+---
 ### 10月18日：邂逅秋日的林荫道
 #### 曼哈顿中央公园的秋天，纽约，美国（© mapman/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_1280x720.jpg&rf=LaDigue_1280x720.jpg "东察沃国家公园的非洲象，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "东察沃国家公园的非洲象，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_UHD.jpg&rf=LaDigue_UHD.jpg "东察沃国家公园的非洲象，肯尼亚")
-
----
-### 10月04日：一轮蓝月亮
-#### 木星的冰卫星木卫二（© NASA/JPL-Caltech/SETI Institute）
-
-![一轮蓝月亮](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_800x480.jpg&rf=LaDigue_800x480.jpg "一轮蓝月亮")
-
-今天，我们要去探索宇宙。世界空间周的设立，是为了庆祝空间科学技术为改善人类生活水平所作出的贡献。除了帮助我们了解我们所生活的宇宙，太空探索在帮助科学家开发新药物、创造新能源、改进农业技术方面也发挥了重要作用。今年的世界空间周的主题是空间与气候变化，为了庆祝空间技术在了解和监测地球气候变化方面发挥的重要作用，将有83个国家会举办相关的庆祝活动。
-
-木星的卫星木卫二是太阳系第六大卫星。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%a9%ba%e9%97%b4%e5%91%a8&form=hpcapt&filters=HpDate:"20241003_1600" "Bing Wallpaper 2024 10月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241004_EuropaMoon"&FORM=HPQUIZ "必应主页测验 2024 10月 4")
-[下载480](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_800x480.jpg&rf=LaDigue_800x480.jpg "木星的冰卫星木卫二")
-[下载720](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_1280x720.jpg&rf=LaDigue_1280x720.jpg "木星的冰卫星木卫二")
-[下载1080](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "木星的冰卫星木卫二")
-[下载UHD](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_UHD.jpg&rf=LaDigue_UHD.jpg "木星的冰卫星木卫二")
 
 ---
