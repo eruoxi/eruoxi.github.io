@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月20日：坚持住
+#### 哥斯达黎加的三趾树懒（© Harry Collins/Getty Images）
+
+![坚持住](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_800x480.jpg&rf=LaDigue_800x480.jpg "坚持住")
+
+10月20日是国际树懒日，世界上最慢的哺乳动物将成为人们关注的焦点。今天，让我们更多地了解树懒的生活，包括它们面临的威胁，如栖息地的缩小，以及如何为保护树懒出一份力。现存树懒有六种，分为两类：三趾树懒和二趾树懒。
+
+三趾树懒拥有多达九块颈椎骨，这在哺乳动物中并不多见。除了二趾树懒和海牛只有六块颈椎骨外，其他所有哺乳动物都有七块颈椎骨。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%a0%91%e6%87%92%e6%97%a5&form=hpcapt&filters=HpDate:"20241019_1600" "Bing Wallpaper 2024 10月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241020_SmilingSloth"&FORM=HPQUIZ "必应主页测验 2024 10月 20")
+[下载480](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_800x480.jpg&rf=LaDigue_800x480.jpg "哥斯达黎加的三趾树懒")
+[下载720](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_1280x720.jpg&rf=LaDigue_1280x720.jpg "哥斯达黎加的三趾树懒")
+[下载1080](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哥斯达黎加的三趾树懒")
+[下载UHD](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_UHD.jpg&rf=LaDigue_UHD.jpg "哥斯达黎加的三趾树懒")
+
+---
 ### 10月19日：立足现在，发掘过去
 #### 哈索尔神庙，邓德拉神庙群，基纳，埃及（© Nick Brundle Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_1280x720.jpg&rf=LaDigue_1280x720.jpg "郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_UHD.jpg&rf=LaDigue_UHD.jpg "郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国")
-
----
-### 10月05日：跟着老师走！
-#### 东察沃国家公园的非洲象，肯尼亚（© Neil Bowman/Minden Pictures）
-
-![跟着老师走！](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_800x480.jpg&rf=LaDigue_800x480.jpg "跟着老师走！")
-
-今天，我们为真正有影响力的人，也就是我们的老师而庆祝。让我们一起祝愿全球所有的教育工作者世界教师日快乐。每年的10月5日，我们都会认识到教师在塑造社会方面的重要作用。自1994年以来，这一天一直是纪念教师在培养青少年心智方面做出宝贵贡献的日子。它提醒我们要欣赏、评估和改进教师这个职业，同时要认识到教育工作者在指导下一代时所面临的挑战。
-
-2024年的庆祝活动将聚焦于“重视教师的声音：建立新的教育社会契约”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%95%99%e5%b8%88%e6%97%a5&form=hpcapt&filters=HpDate:"20241004_1600" "Bing Wallpaper 2024 10月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241005_ElephantTeacher"&FORM=HPQUIZ "必应主页测验 2024 10月 5")
-[下载480](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_800x480.jpg&rf=LaDigue_800x480.jpg "东察沃国家公园的非洲象，肯尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_1280x720.jpg&rf=LaDigue_1280x720.jpg "东察沃国家公园的非洲象，肯尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "东察沃国家公园的非洲象，肯尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_UHD.jpg&rf=LaDigue_UHD.jpg "东察沃国家公园的非洲象，肯尼亚")
 
 ---
