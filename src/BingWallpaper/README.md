@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月21日：在秋天里傲然挺立
+#### 乔治·史密斯州立公园的柏树，佐治亚州，美国（© Chris Moore/TANDEM Stills + Motion）
+
+![在秋天里傲然挺立](https://cn.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_800x480.jpg&rf=LaDigue_800x480.jpg "在秋天里傲然挺立")
+
+你见过坚韧、喜欢沼泽环境且总是很时髦的柏树吗？这些树可以长到100多英尺高，幼时通常呈金字塔状。在今天的图片中，我们来到了乔治·史密斯州立公园，该公园位于乔治亚州伊曼纽尔县，占地1634英亩。从今天的图片中可以看到，该公园的中心是一个占地412英亩的磨坊池塘，这里是钓鱼和划独木舟的好去处。池塘里生长着池柏和秃柏树，这两种树是美国的原生树种。公园内有长达7英里的蜿蜒小径，带领游客穿过沙地，经过鸟类保护区和龟类栖息地。这里的硬木树是啄木鸟和其他鸟类的天堂，而松软的土壤则为陆龟提供了理想的穴居地。无论在哪个季节，这座公园都能为所有人提供一个宁静的休闲场所。
+
+这座中等规模的州立公园地处偏远，吸引了众多观鸟者和自然爱好者。常驻的珍稀鸟类包括大蓝鹭和白朱鹭。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b9%94%e6%b2%bb%c2%b7%e5%8f%b2%e5%af%86%e6%96%af%e5%b7%9e%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241020_1600" "Bing Wallpaper 2024 10月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241021_AutumnCypress"&FORM=HPQUIZ "必应主页测验 2024 10月 21")
+[下载480](https://cn.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_800x480.jpg&rf=LaDigue_800x480.jpg "乔治·史密斯州立公园的柏树，佐治亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_1280x720.jpg&rf=LaDigue_1280x720.jpg "乔治·史密斯州立公园的柏树，佐治亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乔治·史密斯州立公园的柏树，佐治亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_UHD.jpg&rf=LaDigue_UHD.jpg "乔治·史密斯州立公园的柏树，佐治亚州，美国")
+
+---
 ### 10月20日：坚持住
 #### 哥斯达黎加的三趾树懒（© Harry Collins/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BoraPapeete_ZH-CN1991283465_1280x720.jpg&rf=LaDigue_1280x720.jpg "法属波利尼西亚波拉波拉岛的鸟瞰图")
 [下载1080](https://cn.bing.com/th?id=OHR.BoraPapeete_ZH-CN1991283465_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "法属波利尼西亚波拉波拉岛的鸟瞰图")
 [下载UHD](https://cn.bing.com/th?id=OHR.BoraPapeete_ZH-CN1991283465_UHD.jpg&rf=LaDigue_UHD.jpg "法属波利尼西亚波拉波拉岛的鸟瞰图")
-
----
-### 10月06日：一抹金色
-#### 郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国（© Stephen Matera/TANDEM Stills + Motion）
-
-![一抹金色](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_800x480.jpg&rf=LaDigue_800x480.jpg "一抹金色")
-
-在犹他州郊狼峡谷天然拱门的衬托下，生机盎然的金色白杨树与埃斯卡兰特峡谷地区色彩斑斓的岩层相映成趣。郊狼峡谷是著名的背包旅行目的地，这里有高耸的垂直峡谷壁、狭窄的缝隙峡谷、穹顶、拱门和天然桥梁。峡谷的上游位于大阶梯埃斯卡兰特国家纪念区内，而今天的图片展示的是峡谷下游的格兰峡谷休闲区。这个休闲区成立于1972年。由美国国家公园管理局管理，是一个兼顾休闲和保护的保护区。与主要侧重于自然保护的国家公园不同，格兰峡谷休闲区会提供各种设施，包括四个公共露营地、两个小型机场和几家游艇租赁服务公司，因此成为了游客的热门目的地。
-
-再往下游走，峡谷内有一座郊狼天然桥，这是在一块大砂岩鳍上雕刻出来的一个小洞。再往下游是悬崖拱门，它是峡谷北壁上的一个壶柄式拱门。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%83%8a%e7%8b%bc%e5%b3%a1%e8%b0%b7&form=hpcapt&filters=HpDate:"20241005_1600" "Bing Wallpaper 2024 10月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241006_CoyoteGulch"&FORM=HPQUIZ "必应主页测验 2024 10月 6")
-[下载480](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_800x480.jpg&rf=LaDigue_800x480.jpg "郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_1280x720.jpg&rf=LaDigue_1280x720.jpg "郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_UHD.jpg&rf=LaDigue_UHD.jpg "郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国")
 
 ---
