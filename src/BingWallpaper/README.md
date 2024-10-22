@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月23日：无处可去的阶梯
+#### 雪莉夫人森林和古堡遗迹，新罕布什尔州，美国（© yggdrasill/Shutterstock）
+
+![无处可去的阶梯](https://cn.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_800x480.jpg&rf=LaDigue_800x480.jpg "无处可去的阶梯")
+
+位于新罕布什尔州切斯特菲尔德的雪莉夫人森林是一个充满历史和自然美景的迷人景点。这里曾是安托瓦内特·雪莉夫人在20世纪30年代建造的奢华住宅所在地。雪莉夫人是一位20年代的华丽服装设计师，以举办奢华派对而闻名，她高调地来到镇上后，经常乘坐司机驾驶的帕卡德轿车，身披皮草，成为了当地人的谈资。随着财富的减少，她的“城堡”年久失修，遭到了破坏。1959年，雪莉夫人返回时发现自己的房产已成废墟，从此再也没有回来过。1963年的一场大火烧毁了这座房子，只留下了石头地基、标志性的阶梯和一个通向孤零零烟囱的大壁炉。
+
+雪莉夫人森林的小径与更大的旺斯塔斯蒂凯-莫纳德诺克小径相连，这条小径从康涅狄格河向东延伸到莫纳德诺克山。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%b0%e7%bd%95%e5%b8%83%e4%bb%80%e5%b0%94%e5%b7%9e&form=hpcapt&filters=HpDate:"20241022_1600" "Bing Wallpaper 2024 10月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241023_MadameSherriCastle"&FORM=HPQUIZ "必应主页测验 2024 10月 23")
+[下载480](https://cn.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_800x480.jpg&rf=LaDigue_800x480.jpg "雪莉夫人森林和古堡遗迹，新罕布什尔州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪莉夫人森林和古堡遗迹，新罕布什尔州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪莉夫人森林和古堡遗迹，新罕布什尔州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_UHD.jpg&rf=LaDigue_UHD.jpg "雪莉夫人森林和古堡遗迹，新罕布什尔州，美国")
+
+---
 ### 10月22日：可怕的外墙
 #### 祖卡里宫，罗马，意大利（© Photon-Photos/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_1280x720.jpg&rf=LaDigue_1280x720.jpg "马布尔附近的白杨树，科罗拉多州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马布尔附近的白杨树，科罗拉多州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_UHD.jpg&rf=LaDigue_UHD.jpg "马布尔附近的白杨树，科罗拉多州，美国")
-
----
-### 10月08日：海洋中的八爪鱼
-#### 莫托提两鳍蛸，蓝碧海峡，印度尼西亚（© Howard Chew/Alamy Stock Photo）
-
-![海洋中的八爪鱼](https://cn.bing.com/th?id=OHR.MototiOctopus_ZH-CN5778894536_800x480.jpg&rf=LaDigue_800x480.jpg "海洋中的八爪鱼")
-
-今天，我们为一种拥有三颗心脏、能够随心所欲地改变颜色的生物而庆祝，这种生物就是章鱼！章鱼是头足类动物，是像乌贼和墨鱼一样长有触手的海洋动物。图中的莫托提两鳍蛸就是章鱼的众多种类中的一种。莫托提两鳍蛸于1999年在南太平洋的拉帕岛附近被发现，因其“假眼”，也就是位于眼睛和手臂之间明亮的蓝色和黄色圆环而闻名。莫托提两鳍蛸主要分布在印度洋-太平洋地区，包括印度尼西亚、澳大利亚和日本冲绳等地。它们是伪装大师，通常呈暗橙色奶油棕色，但受到惊吓时，可以迅速转变为醒目的深红色，身体和手臂上有白色条纹。这些头足类动物也被称为毒蛸，有剧毒。但你不必担心会遇到它们，因为它们通常很害羞，独居，经常躲藏在裂缝、贝壳或瓶子、罐子等人造物体中。
-
-2016年，奥基诺斯探险者号在海底1.4万英尺（2.6英里）的深度拍摄到了一只“幽灵”章鱼。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%ab%a0%e9%b1%bc%e6%97%a5&form=hpcapt&filters=HpDate:"20241007_1600" "Bing Wallpaper 2024 10月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241008_MototiOctopus"&FORM=HPQUIZ "必应主页测验 2024 10月 8")
-[下载480](https://cn.bing.com/th?id=OHR.MototiOctopus_ZH-CN5778894536_800x480.jpg&rf=LaDigue_800x480.jpg "莫托提两鳍蛸，蓝碧海峡，印度尼西亚")
-[下载720](https://cn.bing.com/th?id=OHR.MototiOctopus_ZH-CN5778894536_1280x720.jpg&rf=LaDigue_1280x720.jpg "莫托提两鳍蛸，蓝碧海峡，印度尼西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.MototiOctopus_ZH-CN5778894536_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫托提两鳍蛸，蓝碧海峡，印度尼西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.MototiOctopus_ZH-CN5778894536_UHD.jpg&rf=LaDigue_UHD.jpg "莫托提两鳍蛸，蓝碧海峡，印度尼西亚")
 
 ---
