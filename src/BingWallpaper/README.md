@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月24日：“淘金热”后的鬼城
+#### 博迪州立历史公园，莫诺县，加利福尼亚州，美国（© Julien McRoberts/Tetra Images, LLC/Alamy Stock Photo）
+
+![“淘金热”后的鬼城](https://cn.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_800x480.jpg&rf=LaDigue_800x480.jpg "“淘金热”后的鬼城")
+
+在加利福尼亚州博迪鬼魅般的寂静中，时间仿佛都静止了。这个曾经繁荣一时的淘金小镇始建于1860年。博迪以W.S.博迪的名字命名，他是一位发现了黄金的探矿者，但在目睹小镇崛起之前不幸死于一场暴风雪。当地发现大量金矿后，居民增加到近1万人，酒吧、舞厅和酿酒厂鳞次栉比。但随着金矿枯竭，小镇的财富也随之消失。矿场关闭，人口减少，到1915年，这个地方被遗弃了。现在，博迪的街道已经空无一人，木质建筑也已破败不堪。
+
+今天，博迪被保存在一种“凝固的破败”状态中。该镇只有一小部分幸存下来，约有110座建筑屹立不倒，其中就包括了一座已停止运营的金矿。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%9a%e8%bf%aa%e5%b7%9e%e7%ab%8b%e5%8e%86%e5%8f%b2%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241023_1600" "Bing Wallpaper 2024 10月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241024_BodieCalifornia"&FORM=HPQUIZ "必应主页测验 2024 10月 24")
+[下载480](https://cn.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_800x480.jpg&rf=LaDigue_800x480.jpg "博迪州立历史公园，莫诺县，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_1280x720.jpg&rf=LaDigue_1280x720.jpg "博迪州立历史公园，莫诺县，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博迪州立历史公园，莫诺县，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_UHD.jpg&rf=LaDigue_UHD.jpg "博迪州立历史公园，莫诺县，加利福尼亚州，美国")
+
+---
 ### 10月23日：无处可去的阶梯
 #### 雪莉夫人森林和古堡遗迹，新罕布什尔州，美国（© yggdrasill/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_1280x720.jpg&rf=LaDigue_1280x720.jpg "索拉诺，托斯卡纳，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "索拉诺，托斯卡纳，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_UHD.jpg&rf=LaDigue_UHD.jpg "索拉诺，托斯卡纳，意大利")
-
----
-### 10月09日：色彩斑斓的秋天
-#### 马布尔附近的白杨树，科罗拉多州，美国（© Jason Hatfield/TANDEM Stills + Motion）
-
-![色彩斑斓的秋天](https://cn.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_800x480.jpg&rf=LaDigue_800x480.jpg "色彩斑斓的秋天")
-
-纤细的白色树干直插云霄，即使是微风拂过，树叶也会摇曳生姿——白杨树是美国荒野的象征。它们广泛分布在美国西部各州，尤其是犹他州和科罗拉多州。这些树是北美分布最广的本土物种。正如今天这张在科罗拉多州马布尔附近拍摄的照片一样，白杨树林的秋景令人叹为观止，白杨树叶在秋天会变成明亮的金黄色，点亮整个景观。白杨树不仅美丽，而且在生物学上也令人着迷。它们以大型群落的形式生长，起源于单一的根系，是地球上最大的生物之一。树群中的每棵树都具有相同的遗传特征。当白杨树被砍伐或受损时，根系会继续存活，从而使新的枝条萌发并生长，这有助于形成一个弹性的网络，可以在野火等恶劣的条件下生存。这种物种能迅速在附近被烧毁的地区生根发芽，即使野火燎原也能再生。白杨树不仅仅是赏心悦目的风景，它们更象征着坚韧不屈的精神。
-
-胡杨也是杨树属的一员，它耐旱耐水，生命力顽强，是自然界中稀有的树种之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%99%bd%e6%9d%a8%e6%a0%91&form=hpcapt&filters=HpDate:"20241008_1600" "Bing Wallpaper 2024 10月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241009_AspensColorado"&FORM=HPQUIZ "必应主页测验 2024 10月 9")
-[下载480](https://cn.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_800x480.jpg&rf=LaDigue_800x480.jpg "马布尔附近的白杨树，科罗拉多州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_1280x720.jpg&rf=LaDigue_1280x720.jpg "马布尔附近的白杨树，科罗拉多州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马布尔附近的白杨树，科罗拉多州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_UHD.jpg&rf=LaDigue_UHD.jpg "马布尔附近的白杨树，科罗拉多州，美国")
 
 ---
