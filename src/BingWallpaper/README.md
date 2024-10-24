@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月25日：恐怖的高度
+#### 沙莫尼的勃朗峰，法国（© Simon Schöpf/Getty Images）
+
+![恐怖的高度](https://cn.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_800x480.jpg&rf=LaDigue_800x480.jpg "恐怖的高度")
+
+想象自己站在阿尔卑斯山的最高峰，那里空气清新，景色令人叹为观止。勃朗峰巍峨的存在，在文学史上留下了不可磨灭的印记，其中最著名的当属玛丽·雪莱的《弗兰肯斯坦》。每年十月的最后一个星期五是“弗兰肯斯坦星期五”，以纪念玛丽·雪莱的文学天赋和在她想象中诞生的迷人生物。《弗兰肯斯坦》是在一次鬼故事挑战赛中构思出来的。1816年，18岁的玛丽·雪莱与珀西·比希·雪莱、约翰·波利多里和拜伦勋爵一起，在瑞士度过了一个风雨交加的夏天。在那里，她写了《维克多·弗兰肯斯坦与怪物》的故事。小说中的一个关键场景发生在勃朗峰附近的冰川上，维克多在那里与他创造的怪物面对面。险峻的地形让这一场景具有超现实的美感，同时完美捕捉到敬畏和恐怖的双重感觉。
+
+1946年，勃朗峰隧道的钻探项目启动。这条隧道将法国的夏慕尼和意大利的库马约尔连接起来，成为两国之间主要的跨山运输线路之一。1965年，全长11,611米的隧道通车。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e5%ad%a6%e6%80%aa%e4%ba%ba%e5%b0%8f%e8%af%b4&form=hpcapt&filters=HpDate:"20241024_1600" "Bing Wallpaper 2024 10月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241025_MontBlancMassif"&FORM=HPQUIZ "必应主页测验 2024 10月 25")
+[下载480](https://cn.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_800x480.jpg&rf=LaDigue_800x480.jpg "沙莫尼的勃朗峰，法国")
+[下载720](https://cn.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_1280x720.jpg&rf=LaDigue_1280x720.jpg "沙莫尼的勃朗峰，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙莫尼的勃朗峰，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_UHD.jpg&rf=LaDigue_UHD.jpg "沙莫尼的勃朗峰，法国")
+
+---
 ### 10月24日：“淘金热”后的鬼城
 #### 博迪州立历史公园，莫诺县，加利福尼亚州，美国（© Julien McRoberts/Tetra Images, LLC/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄山云海，安徽省，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄山云海，安徽省，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_UHD.jpg&rf=LaDigue_UHD.jpg "黄山云海，安徽省，中国")
-
----
-### 10月10日：托斯卡纳的石头小镇
-#### 索拉诺，托斯卡纳，意大利（© Luigi Vaccarella/eStock Photo）
-
-![托斯卡纳的石头小镇](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_800x480.jpg&rf=LaDigue_800x480.jpg "托斯卡纳的石头小镇")
-
-索拉诺位于意大利托斯卡纳南部的格罗塞托省，是一个坐落在悬崖峭壁上的中世纪村庄。漫步在古老的鹅卵石街道上，你可以游览奥尔西尼堡垒，这座堡垒可追溯到11世纪，如今已成为一座博物馆。游客在堡垒内每走一步，都能感受到几个世纪以来关于防御入侵与权力更迭的故事。在波吉奥·圣·罗科和波吉奥·克罗切山附近有这样一个墓地，它是个大型的古代墓葬遗址，其中拥有保存完好的伊特鲁里亚人的墓葬，暗示着该地区悠久的历史。公元前8世纪至公元前3世纪，伊特鲁里亚文明曾居住在这一地区，并在现在的托斯卡纳和翁布里亚繁衍生息。索拉诺隐蔽的山谷是维洞的所在地，这是一个错综复杂的通道网络，可能是用来抵御入侵者和野兽的防御系统。在这里，厨师们精心制作当地特色菜，保持着世代相传的烹饪传统。到索拉诺旅游，一定要去葡萄酒商店喝上一杯备受推崇的莫雷利诺·迪·斯坎萨诺葡萄酒。
-
-索拉诺村的特点是由迷宫般的小巷、庭院、拱门、方石门、外部楼梯、凉廊和在凝灰岩上开凿的地窖组成，过去葡萄采摘的各个阶段都是在这里进行的。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e7%b4%a2%e6%8b%89%e8%af%ba%e5%b8%82&form=hpcapt&filters=HpDate:"20241009_1600" "Bing Wallpaper 2024 10月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241010_SoranoItaly"&FORM=HPQUIZ "必应主页测验 2024 10月 10")
-[下载480](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_800x480.jpg&rf=LaDigue_800x480.jpg "索拉诺，托斯卡纳，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_1280x720.jpg&rf=LaDigue_1280x720.jpg "索拉诺，托斯卡纳，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "索拉诺，托斯卡纳，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_UHD.jpg&rf=LaDigue_UHD.jpg "索拉诺，托斯卡纳，意大利")
 
 ---
