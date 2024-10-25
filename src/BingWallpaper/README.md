@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月26日：海边的神秘树林
+#### 幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国（© mauritius images GmbH/Alamy Stock Photo）
+
+![海边的神秘树林](https://cn.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_800x480.jpg&rf=LaDigue_800x480.jpg "海边的神秘树林")
+
+在德国的梅克伦堡-西波美拉尼亚沿海地区坐落着“幽灵森林”，也就是今天图片中的森林。这片令人毛骨悚然的森林占地约445英亩，其中有多节的山毛榉、鹅耳枥、白蜡树和橡树，它们扭曲着向天空伸展。来自波罗的海的咸味海风和潮湿的气候造就了树木扭曲的形状，使这片森林有了“闹鬼”的名声。游客们会体验到与超自然现象的接触，比如枯叶的嘎吱声、远处挥手打招呼的友好精灵，或者从树后窥探的淘气鬼。精心布置的灯光可以投射出幽灵般的阴影，以及沿路摆放的雕塑和装饰品，这些都是增强森林全年鬼魅气息的元素。要想了解更多信息，可以报名参加讲故事环节，演员们会穿上幽灵服装，让当地传说和民间故事生动起来。摄影师和自然爱好者都会从映刻在天空中的怪异剪影汲取灵感，这些剪影被无数照片永恒地记录下来。
+
+村庄西边的宁哈根森林紧靠着高高的海崖，海崖大约有12米高。这片混交林面积约180公顷，被当地人称为幽灵森林。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%ae%81%e5%93%88%e6%a0%b9&form=hpcapt&filters=HpDate:"20241025_1600" "Bing Wallpaper 2024 10月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241026_GhostForest"&FORM=HPQUIZ "必应主页测验 2024 10月 26")
+[下载480](https://cn.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_800x480.jpg&rf=LaDigue_800x480.jpg "幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国")
+[下载720](https://cn.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_1280x720.jpg&rf=LaDigue_1280x720.jpg "幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_UHD.jpg&rf=LaDigue_UHD.jpg "幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国")
+
+---
 ### 10月25日：恐怖的高度
 #### 沙莫尼的勃朗峰，法国（© Simon Schöpf/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_1280x720.jpg&rf=LaDigue_1280x720.jpg "林鸳鸯，魁北克省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "林鸳鸯，魁北克省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_UHD.jpg&rf=LaDigue_UHD.jpg "林鸳鸯，魁北克省，加拿大")
-
----
-### 10月11日：云海奇观
-#### 黄山云海，安徽省，中国（© yangyang1991/Getty Images）
-
-![云海奇观](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_800x480.jpg&rf=LaDigue_800x480.jpg "云海奇观")
-
-今天是重阳节，登高赏秋、感恩敬老是重阳节的两大主题，重阳节在历史发展演变中融合了多种民俗，承载着丰富的文化内涵。
-
-黄山一年365天只有51天可以看到云海。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%87%8d%e9%98%b3%e8%8a%82&form=hpcapt&filters=HpDate:"20241010_1600" "Bing Wallpaper 2024 10月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241011_Chongyang2024"&FORM=HPQUIZ "必应主页测验 2024 10月 11")
-[下载480](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_800x480.jpg&rf=LaDigue_800x480.jpg "黄山云海，安徽省，中国")
-[下载720](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄山云海，安徽省，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄山云海，安徽省，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_UHD.jpg&rf=LaDigue_UHD.jpg "黄山云海，安徽省，中国")
 
 ---
