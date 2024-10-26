@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月27日：寒风中的温情
+#### 北极熊与幼崽，丘吉尔，曼尼托巴，加拿大（© Design Pics/plainpicture）
+
+![寒风中的温情](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_800x480.jpg&rf=LaDigue_800x480.jpg "寒风中的温情")
+
+“北极熊周”是为了纪念自然界最伟大的猎手之一——北极威猛的掠食者北极熊。北极熊周由北极熊国际组织设立，旨在强调这些哺乳动物因气候变化而面临的挑战，尤其是北极海冰的快速消融。这一活动恰逢北极熊在加拿大丘吉尔“世界北极熊之都”聚集。如今天的图片所示，在这里，北极熊等待哈得逊湾结冰，这样它们就可以开始捕猎当前的主要食物来源——海豹。
+
+北极熊通常独来独往，但在陆地上也可能成群结队地出现。在繁殖季节，公熊守护母熊，抵御对手，保护它们免受侵害。冬季，母熊会在产仔洞穴中分娩幼崽。幼熊与母亲在一起生活的时间长达两年半。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%9e%81%e7%86%8a&form=hpcapt&filters=HpDate:"20241026_1600" "Bing Wallpaper 2024 10月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241027_PolarBearHug"&FORM=HPQUIZ "必应主页测验 2024 10月 27")
+[下载480](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_800x480.jpg&rf=LaDigue_800x480.jpg "北极熊与幼崽，丘吉尔，曼尼托巴，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极熊与幼崽，丘吉尔，曼尼托巴，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊与幼崽，丘吉尔，曼尼托巴，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊与幼崽，丘吉尔，曼尼托巴，加拿大")
+
+---
 ### 10月26日：海边的神秘树林
 #### 幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国（© mauritius images GmbH/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AlcazarSeville_ZH-CN5581795099_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞维利亚王宫少女庭院，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.AlcazarSeville_ZH-CN5581795099_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞维利亚王宫少女庭院，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlcazarSeville_ZH-CN5581795099_UHD.jpg&rf=LaDigue_UHD.jpg "塞维利亚王宫少女庭院，西班牙")
-
----
-### 10月12日：飞越各大洲
-#### 林鸳鸯，魁北克省，加拿大（© Maxime Riendeau/Getty Images）
-
-![飞越各大洲](https://cn.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_800x480.jpg&rf=LaDigue_800x480.jpg "飞越各大洲")
-
-在“世界候鸟日”为我们身披羽毛的朋友欢呼吧！有些候鸟的迁徙确实令人惊叹。从阿拉斯加到新西兰，斑尾塍鹬不分昼夜地横跨太平洋，航程长达6835英里。小巧的红宝石蜂鸟体重不足一枚五分硬币，却能一路飞越墨西哥湾——以它的体型而言，这似乎是不可能完成的壮举。候鸟在全球各地迁徙，它们本能地知道何时何地迁徙，以利用季节性的丰富资源。北极燕鸥从一极到另一极的洲际旅程长达18,000多英里，在所有候鸟中首屈一指，它们的迁徙路线是根据环境线索制定的。
-
-2013年，加拿大皇家铸币厂发行了两枚纪念林鸳鸯的硬币。这两枚硬币分别是三枚硬币套装的一部分，以帮助宣传加拿大鸭无限组织并庆祝其成立75周年。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9e%97%e9%b8%b3%e9%b8%af&form=hpcapt&filters=HpDate:"20241011_1600" "Bing Wallpaper 2024 10月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241012_QuebecDuck"&FORM=HPQUIZ "必应主页测验 2024 10月 12")
-[下载480](https://cn.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_800x480.jpg&rf=LaDigue_800x480.jpg "林鸳鸯，魁北克省，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_1280x720.jpg&rf=LaDigue_1280x720.jpg "林鸳鸯，魁北克省，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "林鸳鸯，魁北克省，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_UHD.jpg&rf=LaDigue_UHD.jpg "林鸳鸯，魁北克省，加拿大")
 
 ---
