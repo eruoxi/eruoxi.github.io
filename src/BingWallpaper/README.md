@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月28日：雕刻时间到了
+#### 南瓜田，维多利亚，不列颠哥伦比亚省，加拿大（© Shaun Cunningham/Alamy Stock Photo）
+
+![雕刻时间到了](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_800x480.jpg&rf=LaDigue_800x480.jpg "雕刻时间到了")
+
+随着秋天的琥珀色覆盖大地，万圣节的寒意也在靠近，雕刻南瓜灯这一历史悠久的传统开始活跃起来。这种手工艺最初来自爱尔兰和苏格兰，移民者将它带到了美国，人们最开始用萝卜和土豆做灯，但是后面发现南瓜容量更大，也更容易雕刻，便将萝卜和土豆替换成了南瓜。人们将南瓜掏空，把蜡烛放进去点亮，将南瓜灯变成了闪烁的抵御邪灵的小灯。
+
+在大多数民间传说中，雕刻南瓜是为了在万圣节前夕（即万圣节）吓跑邪灵，因为据说那时死者会在人间游荡。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%97%e7%93%9c&form=hpcapt&filters=HpDate:"20241027_1600" "Bing Wallpaper 2024 10月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241028_PumpkinMist"&FORM=HPQUIZ "必应主页测验 2024 10月 28")
+[下载480](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_800x480.jpg&rf=LaDigue_800x480.jpg "南瓜田，维多利亚，不列颠哥伦比亚省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_1280x720.jpg&rf=LaDigue_1280x720.jpg "南瓜田，维多利亚，不列颠哥伦比亚省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南瓜田，维多利亚，不列颠哥伦比亚省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_UHD.jpg&rf=LaDigue_UHD.jpg "南瓜田，维多利亚，不列颠哥伦比亚省，加拿大")
+
+---
 ### 10月27日：寒风中的温情
 #### 北极熊与幼崽，丘吉尔，曼尼托巴，加拿大（© Design Pics/plainpicture）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_1280x720.jpg&rf=LaDigue_1280x720.jpg "可可海滩上的渔船，果阿邦，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "可可海滩上的渔船，果阿邦，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_UHD.jpg&rf=LaDigue_UHD.jpg "可可海滩上的渔船，果阿邦，印度")
-
----
-### 10月13日：辉煌的塞维利亚
-#### 塞维利亚王宫少女庭院，西班牙（© Danny Lehman/Getty Images）
-
-![辉煌的塞维利亚](https://cn.bing.com/th?id=OHR.AlcazarSeville_ZH-CN5581795099_800x480.jpg&rf=LaDigue_800x480.jpg "辉煌的塞维利亚")
-
-今天，我们将走进历史悠久的西班牙伊斯兰帝国的中心。塞维利亚皇家阿尔卡萨城堡位于安达卢西亚南部地区，矗立在10世纪的城堡遗址上，在随后的200年间不断扩建。当基督教军队在1248年占领这座城市时，阿尔卡萨尔几乎完全按照穆德哈尔风格重建，这种风格从伊斯兰建筑的复杂装饰图案汲取了灵感。阿尔卡扎尔宫内有几个庭院，庭院两边都有雕刻精美的圆柱。其中之一就是今天要介绍的少女庭院。
-
-这个地方名叫“少女庭院”，其名称源于一个古老的传说，据说摩尔人当年要求伊比利亚半岛的基督教小国每年向其进贡100名少女。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a1%9e%e7%bb%b4%e5%88%a9%e4%ba%9a%e7%8e%8b%e5%ae%ab&form=hpcapt&filters=HpDate:"20241012_1600" "Bing Wallpaper 2024 10月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241013_AlcazarSeville"&FORM=HPQUIZ "必应主页测验 2024 10月 13")
-[下载480](https://cn.bing.com/th?id=OHR.AlcazarSeville_ZH-CN5581795099_800x480.jpg&rf=LaDigue_800x480.jpg "塞维利亚王宫少女庭院，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.AlcazarSeville_ZH-CN5581795099_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞维利亚王宫少女庭院，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.AlcazarSeville_ZH-CN5581795099_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞维利亚王宫少女庭院，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.AlcazarSeville_ZH-CN5581795099_UHD.jpg&rf=LaDigue_UHD.jpg "塞维利亚王宫少女庭院，西班牙")
 
 ---
