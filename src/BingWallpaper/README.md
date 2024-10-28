@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月29日：猫头鹰的叫声在萦绕
+#### 大雕鸮（© Mark Newman/Getty Images）
+
+![猫头鹰的叫声在萦绕](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_800x480.jpg&rf=LaDigue_800x480.jpg "猫头鹰的叫声在萦绕")
+
+万圣节即将来临，让我们来认识一下这个节日的标志之一：大雕鸮。凭借着敏锐的视力、怪异的叫声和寂静无声的飞行，这种猫头鹰历来令人又敬又畏。在民间传说和神话中，猫头鹰被视为智慧的象征和死亡的预兆。在萨温节（这是凯尔特人万圣节的前身），猫头鹰被认为是灵魂正在游荡的亲属。
+
+大雕鸮是阿尔伯塔省的省鸟。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e9%9b%95%e9%b8%ae&form=hpcapt&filters=HpDate:"20241028_1600" "Bing Wallpaper 2024 10月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241029_GreatOwl"&FORM=HPQUIZ "必应主页测验 2024 10月 29")
+[下载480](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_800x480.jpg&rf=LaDigue_800x480.jpg "大雕鸮")
+[下载720](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_1280x720.jpg&rf=LaDigue_1280x720.jpg "大雕鸮")
+[下载1080](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大雕鸮")
+[下载UHD](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_UHD.jpg&rf=LaDigue_UHD.jpg "大雕鸮")
+
+---
 ### 10月28日：雕刻时间到了
 #### 南瓜田，维多利亚，不列颠哥伦比亚省，加拿大（© Shaun Cunningham/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_1280x720.jpg&rf=LaDigue_1280x720.jpg "马拉河的角马大迁徙，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马拉河的角马大迁徙，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_UHD.jpg&rf=LaDigue_UHD.jpg "马拉河的角马大迁徙，肯尼亚")
-
----
-### 10月14日：沙滩的秘密和日落
-#### 可可海滩上的渔船，果阿邦，印度（© Abhinav Sah/Shutterstock）
-
-![沙滩的秘密和日落](https://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_800x480.jpg&rf=LaDigue_800x480.jpg "沙滩的秘密和日落")
-
-欢迎来到海滩爱好者的梦想之地：果阿邦。这个印度邦以金色海岸而闻名，吸引着来自世界各地的游客。旅游业是当地经济的核心产业，125公里的海岸线被沙滩覆盖，沙滩上热闹非凡。今天的照片展示了可可海滩，这是一个隐藏在尼鲁尔村庄的明珠，该村庄位于果阿邦的北部地区。这里气氛宁静，却有许多有趣的娱乐项目。您可以一边晒日光浴，体验钓鱼、划船、观赏海豚和游泳等冒险活动，一边沉浸在当地的文化氛围中。独特的历史意义使这个海滩更加与众不同。它在20世纪50年代至60年代的果阿邦解放运动中发挥了重要作用。这是当地人为结束葡萄牙统治，将果阿邦与印度统一而进行斗争的地方之一。所以，可可海滩才不是一个普通的海滩，这是一个有故事的地方，历史与大海在这里交汇。
-
-这个海滩之所以取名为“可可海滩”，是因为海岸边种植了大量的椰子树，它们为海滩游客带来了热带氛围和树荫。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9e%9c%e9%98%bf%e9%82%a6+%e5%8d%b0%e5%ba%a6&form=hpcapt&filters=HpDate:"20241013_1600" "Bing Wallpaper 2024 10月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241014_CocoBeach"&FORM=HPQUIZ "必应主页测验 2024 10月 14")
-[下载480](https://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_800x480.jpg&rf=LaDigue_800x480.jpg "可可海滩上的渔船，果阿邦，印度")
-[下载720](https://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_1280x720.jpg&rf=LaDigue_1280x720.jpg "可可海滩上的渔船，果阿邦，印度")
-[下载1080](https://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "可可海滩上的渔船，果阿邦，印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_UHD.jpg&rf=LaDigue_UHD.jpg "可可海滩上的渔船，果阿邦，印度")
 
 ---
