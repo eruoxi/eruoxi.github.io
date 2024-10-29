@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月30日：令人毛骨悚然的历史
+#### 从苏格兰教堂墓地眺望爱丁堡城堡，英国（© Chris Dorney/Alamy Stock Photo）
+
+![令人毛骨悚然的历史](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_800x480.jpg&rf=LaDigue_800x480.jpg "令人毛骨悚然的历史")
+
+如果您在寻找一个既有历史感又有大量鬼魂传说的万圣节目的地，爱丁堡城堡就是不二之选。它位于一座死火山的高处，自11世纪以来，这些屹立的城墙见证了战争、皇室诞生、王公贵族的处决以及诸多的戏剧性事件。但真正让它与众不同的是它有着苏格兰闹鬼最凶的地方之一的名声。城堡有着1000多年的历史，难怪有人报告说见过鬼魂。
+
+自2009年起，这座城堡作为爱丁堡世界遗产保护区的一部分，出现在克莱兹代尔银行发行的10英镑纸币上。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8b%8f%e6%a0%bc%e5%85%b0%e7%88%b1%e4%b8%81%e5%a0%a1%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20241029_1600" "Bing Wallpaper 2024 10月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241030_HauntedEdinburgh"&FORM=HPQUIZ "必应主页测验 2024 10月 30")
+[下载480](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_800x480.jpg&rf=LaDigue_800x480.jpg "从苏格兰教堂墓地眺望爱丁堡城堡，英国")
+[下载720](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_1280x720.jpg&rf=LaDigue_1280x720.jpg "从苏格兰教堂墓地眺望爱丁堡城堡，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从苏格兰教堂墓地眺望爱丁堡城堡，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_UHD.jpg&rf=LaDigue_UHD.jpg "从苏格兰教堂墓地眺望爱丁堡城堡，英国")
+
+---
 ### 10月29日：猫头鹰的叫声在萦绕
 #### 大雕鸮（© Mark Newman/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_1280x720.jpg&rf=LaDigue_1280x720.jpg "侏罗纪海岸的箭石和菊石化石，多塞特郡，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "侏罗纪海岸的箭石和菊石化石，多塞特郡，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_UHD.jpg&rf=LaDigue_UHD.jpg "侏罗纪海岸的箭石和菊石化石，多塞特郡，英国")
-
----
-### 10月15日：生存竞赛
-#### 马拉河的角马大迁徙，肯尼亚（© Ayzenstayn/Getty Images）
-
-![生存竞赛](https://cn.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_800x480.jpg&rf=LaDigue_800x480.jpg "生存竞赛")
-
-俗话说“邻家芳草绿”，坦桑尼亚塞伦盖蒂草原上的角马对这句话的理解最为深刻。每年七月，大约200万只坚定的食草动物与斑马等动物一起，踏上前往肯尼亚马赛马拉的旅程，寻找茂盛的牧草和淡水。这场大迁徙被誉为自然界的七大奇迹之一，是一场以生存为奖赏的“狩猎奇观”，其中最戏剧性的时刻之一是渡过马拉河。成千上万头角马聚集在河岸边，它们知道水下潜伏着危险的鳄鱼，河岸边还有巡逻的狮子和豹子。但是当第一只角马冒险跳下去时，其余的角马便会跟着疯狂地冲过去，形成一片混乱的景象。有些角马成功越过河岸，而有些角马则成为食物链的一部分。随着十月的到来，雨水重新回到塞伦盖蒂草原，兽群开始返回南方的旅程，再次完成循环。
-
-角马幼崽出生后不久就能走路，几天后便可随角马群奔跑。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a7%92%e9%a9%ac%e5%a4%a7%e8%bf%81%e5%be%99&form=hpcapt&filters=HpDate:"20241014_1600" "Bing Wallpaper 2024 10月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241015_MaraMigration"&FORM=HPQUIZ "必应主页测验 2024 10月 15")
-[下载480](https://cn.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_800x480.jpg&rf=LaDigue_800x480.jpg "马拉河的角马大迁徙，肯尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_1280x720.jpg&rf=LaDigue_1280x720.jpg "马拉河的角马大迁徙，肯尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马拉河的角马大迁徙，肯尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_UHD.jpg&rf=LaDigue_UHD.jpg "马拉河的角马大迁徙，肯尼亚")
 
 ---
