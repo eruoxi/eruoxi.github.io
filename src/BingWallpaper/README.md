@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月31日：万圣节时冷冰冰的凝视
+#### 巴黎圣母院的奇美拉，法国（© scaliger/Getty Images）
+
+![万圣节时冷冰冰的凝视](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_800x480.jpg&rf=LaDigue_800x480.jpg "万圣节时冷冰冰的凝视")
+
+你有被恐怖的事物吓着的时候吗？如果有这样的经历，那说明你有着适度的娱乐感和恐惧感。一年中，没有什么日子比万圣节更适合沉迷于各种恐怖事物中了。我们今天所知的万圣节其实是由多个古老的文化和宗教传统演变而来，其中包括凯尔特人的萨温节，罗马人的“费拉里雅”，以及中世纪基督教的活动。今天，乔装打扮后的人们穿梭于大街小巷，就像祖先们披着兽皮来占卜未来或颂扬圣人和英烈一样。
+
+从维克多·谢阁兰开始，一些研究中国艺术的西方学者便使用“奇美拉”一词泛指有翼的狮子类或混合物种的四足动物，如辟邪、天禄，甚至麒麟。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%87%e5%9c%a3%e8%8a%82&form=hpcapt&filters=HpDate:"20241030_1600" "Bing Wallpaper 2024 10月 31")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241031_GargoyleParis"&FORM=HPQUIZ "必应主页测验 2024 10月 31")
+[下载480](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_800x480.jpg&rf=LaDigue_800x480.jpg "巴黎圣母院的奇美拉，法国")
+[下载720](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴黎圣母院的奇美拉，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴黎圣母院的奇美拉，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_UHD.jpg&rf=LaDigue_UHD.jpg "巴黎圣母院的奇美拉，法国")
+
+---
 ### 10月30日：令人毛骨悚然的历史
 #### 从苏格兰教堂墓地眺望爱丁堡城堡，英国（© Chris Dorney/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_1280x720.jpg&rf=LaDigue_1280x720.jpg "地肤草，茨城县，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "地肤草，茨城县，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_UHD.jpg&rf=LaDigue_UHD.jpg "地肤草，茨城县，日本")
-
----
-### 10月16日：发掘过去
-#### 侏罗纪海岸的箭石和菊石化石，多塞特郡，英国（© Nature Picture Library/Alamy Stock Photo）
-
-![发掘过去](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_800x480.jpg&rf=LaDigue_800x480.jpg "发掘过去")
-
-如果您是恐龙、三叶虫或者贝壳化石的粉丝，那么美国国家化石日就是您动手探索化石的绝佳理由。人们在10月的第二个完整周的星期三庆祝美国国家化石日，这一天旨在推广化石的科学以及教育价值。那么，化石有什么了不起的呢？从高耸的霸王龙到微小的菊石，这些古代遗迹帮助科学家拼凑出地球历史的谜团。然而，掌握着这个古老图书馆的钥匙的不仅仅是美国——整个地球都散布着这样的隐秘编年史。
-
-化石可以保存整个生物体、部分生物体或生物体的痕迹（例如脚印）。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8c%96%e7%9f%b3&form=hpcapt&filters=HpDate:"20241015_1600" "Bing Wallpaper 2024 10月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241016_FossilsDorset"&FORM=HPQUIZ "必应主页测验 2024 10月 16")
-[下载480](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_800x480.jpg&rf=LaDigue_800x480.jpg "侏罗纪海岸的箭石和菊石化石，多塞特郡，英国")
-[下载720](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_1280x720.jpg&rf=LaDigue_1280x720.jpg "侏罗纪海岸的箭石和菊石化石，多塞特郡，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "侏罗纪海岸的箭石和菊石化石，多塞特郡，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_UHD.jpg&rf=LaDigue_UHD.jpg "侏罗纪海岸的箭石和菊石化石，多塞特郡，英国")
 
 ---
