@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月01日：引以为豪的传统
+#### 秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国（© Sabine Gerold/Amazing Aerial Agency）
+
+![引以为豪的传统](https://cn.bing.com/th?id=OHR.VineyardsBlackForestFall_ZH-CN6767078591_800x480.jpg&rf=LaDigue_800x480.jpg "引以为豪的传统")
+
+巴登葡萄酒之路是一条风景如画的路线，它沿着黑森林绵延500多公里，穿过德国最美丽的葡萄种植区。在今天的图片中，我们来到了隶属于巴登-巴登的迷人的葡萄酒村瓦恩哈尔特。该地区的亮点之一是纳格尔斯福斯特酒庄。这个酒庄自1588年开始运营，以生产雷司令葡萄酒而闻名，其葡萄酒以品质卓越而著称。
+
+黑森林的主要产业是旅游业。据黑森林旅游局估计，在2009年，旅游业直接提供的全职工作岗位约有14万个，游客过夜次数约为3480万次。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%be%b7%e5%9b%bd%e9%bb%91%e6%a3%ae%e6%9e%97&form=hpcapt&filters=HpDate:"20241031_1600" "Bing Wallpaper 2024 11月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241101_VineyardsBlackForestFall"&FORM=HPQUIZ "必应主页测验 2024 11月 1")
+[下载480](https://cn.bing.com/th?id=OHR.VineyardsBlackForestFall_ZH-CN6767078591_800x480.jpg&rf=LaDigue_800x480.jpg "秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国")
+[下载720](https://cn.bing.com/th?id=OHR.VineyardsBlackForestFall_ZH-CN6767078591_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.VineyardsBlackForestFall_ZH-CN6767078591_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.VineyardsBlackForestFall_ZH-CN6767078591_UHD.jpg&rf=LaDigue_UHD.jpg "秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国")
+
+---
 ### 10月31日：万圣节时冷冰冰的凝视
 #### 巴黎圣母院的奇美拉，法国（© scaliger/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_1280x720.jpg&rf=LaDigue_1280x720.jpg "曼哈顿中央公园的秋天，纽约，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼哈顿中央公园的秋天，纽约，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_UHD.jpg&rf=LaDigue_UHD.jpg "曼哈顿中央公园的秋天，纽约，美国")
-
----
-### 10月17日：随风摆动，进入秋天
-#### 地肤草，茨城县，日本（© DigiPub/Getty Images）
-
-![随风摆动，进入秋天](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_800x480.jpg&rf=LaDigue_800x480.jpg "随风摆动，进入秋天")
-
-如果您曾经见过照片中那像火一样的一望无际的红色田野，那您肯定见过地肤草。在春季和夏季，这种一年生草本植物开始呈现出嫩绿色，就像一个蓬松的绿球。随着季节的转换，它的颜色也在变化，会变成红色、橙色甚至粉红色。
-
-地肤草是一种常见于路边、沟岸、铁路轨道等地的杂草植物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%b0%e8%82%a4%e8%8d%89&form=hpcapt&filters=HpDate:"20241016_1600" "Bing Wallpaper 2024 10月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241017_KochiaJapan"&FORM=HPQUIZ "必应主页测验 2024 10月 17")
-[下载480](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_800x480.jpg&rf=LaDigue_800x480.jpg "地肤草，茨城县，日本")
-[下载720](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_1280x720.jpg&rf=LaDigue_1280x720.jpg "地肤草，茨城县，日本")
-[下载1080](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "地肤草，茨城县，日本")
-[下载UHD](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_UHD.jpg&rf=LaDigue_UHD.jpg "地肤草，茨城县，日本")
 
 ---
