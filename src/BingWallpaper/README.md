@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月02日：从濒临灭绝到成为国家的象征
+#### 黄石国家公园的美洲野牛，怀俄明州，美国（© Ian Shive/TANDEM Stills + Motion）
+
+![从濒临灭绝到成为国家的象征](https://cn.bing.com/th?id=OHR.BisonYellowstone_ZH-CN7320887379_800x480.jpg&rf=LaDigue_800x480.jpg "从濒临灭绝到成为国家的象征")
+
+很久很久以前，在北美一望无际的草原上，生活着一种强壮威武的动物，名叫美洲野牛。这些动物是许多美洲原住民部落生活的重要组成部分，可以为他们提供食物、衣服和工具。19世纪末，由于过度捕猎和疾病，它们的数量急剧下降，从多达6000万头下降到不足1000头。于是，一群环保主义者、农场主和美国原住民加入了拯救野牛的行列。现在，有50多万头野牛重新在大自然中漫步，许多都在黄石国家公园这样的保护区内生活。今天，在每年11月第一个星期六的美国国家野牛日，我们向这些高贵的动物致敬：它们是美国精神和人们为拯救它们所做出的不懈努力的见证。
+
+野牛在这些洼地里滚来滚去，身上覆盖着灰尘或泥土。它们在草原上打滚具有重要的生态工程效应，并能提高草原上动植物的多样性。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e5%9b%bd%e9%87%8e%e7%89%9b%e6%97%a5&form=hpcapt&filters=HpDate:"20241101_1600" "Bing Wallpaper 2024 11月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241102_BisonYellowstone"&FORM=HPQUIZ "必应主页测验 2024 11月 2")
+[下载480](https://cn.bing.com/th?id=OHR.BisonYellowstone_ZH-CN7320887379_800x480.jpg&rf=LaDigue_800x480.jpg "黄石国家公园的美洲野牛，怀俄明州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BisonYellowstone_ZH-CN7320887379_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄石国家公园的美洲野牛，怀俄明州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BisonYellowstone_ZH-CN7320887379_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄石国家公园的美洲野牛，怀俄明州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BisonYellowstone_ZH-CN7320887379_UHD.jpg&rf=LaDigue_UHD.jpg "黄石国家公园的美洲野牛，怀俄明州，美国")
+
+---
 ### 11月01日：引以为豪的传统
 #### 秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国（© Sabine Gerold/Amazing Aerial Agency）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_1280x720.jpg&rf=LaDigue_1280x720.jpg "哈索尔神庙，邓德拉神庙群，基纳，埃及")
 [下载1080](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哈索尔神庙，邓德拉神庙群，基纳，埃及")
 [下载UHD](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_UHD.jpg&rf=LaDigue_UHD.jpg "哈索尔神庙，邓德拉神庙群，基纳，埃及")
-
----
-### 10月18日：邂逅秋日的林荫道
-#### 曼哈顿中央公园的秋天，纽约，美国（© mapman/Shutterstock）
-
-![邂逅秋日的林荫道](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_800x480.jpg&rf=LaDigue_800x480.jpg "邂逅秋日的林荫道")
-
-每年秋天，纽约中央公园18000棵树木中的许多树，都会染上黄色、红色和橙色的色调。秋天是中央公园出镜率最高的季节之一，它为《当哈利遇见莎莉》和《头发》等电影提供了标志性的拍摄背景。树木不仅通过温度来感知冬天的到来，还通过日出和日落时光线照射到树叶上的角度来感知。由于纽约高楼林立，光线、阴影和温度的独特相互作用往往导致公园里的秋叶比城市里的其他地方来得晚。
-
-中央公园林荫大道是拥有世界上最大的美国榆树丛的地方之一。高耸的榆树遮天蔽日，是中央公园最具标志性和辨识度的景观之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9b%bc%e5%93%88%e9%a1%bf%e4%b8%ad%e5%a4%ae%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241017_1600" "Bing Wallpaper 2024 10月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241018_CentralParkAutumn"&FORM=HPQUIZ "必应主页测验 2024 10月 18")
-[下载480](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_800x480.jpg&rf=LaDigue_800x480.jpg "曼哈顿中央公园的秋天，纽约，美国")
-[下载720](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_1280x720.jpg&rf=LaDigue_1280x720.jpg "曼哈顿中央公园的秋天，纽约，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼哈顿中央公园的秋天，纽约，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_UHD.jpg&rf=LaDigue_UHD.jpg "曼哈顿中央公园的秋天，纽约，美国")
 
 ---
