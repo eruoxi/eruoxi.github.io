@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月03日：自然与可持续发展的结合
+#### 巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥（© Claudio Contreras/Minden Pictures）
+
+![自然与可持续发展的结合](https://cn.bing.com/th?id=OHR.YucatanBiosphere_ZH-CN7442392453_800x480.jpg&rf=LaDigue_800x480.jpg "自然与可持续发展的结合")
+
+今天是生物圈保护区国际日。生物圈保护区听起来像是一个复杂的科学术语，但从本质上讲，它们就是自然界的宝地：在这里，生物多样性非常丰富，地球上的各种生命蓬勃地生长。这些地区得到联合国教科文组织的认可，保持着生态系统的健康，保护着濒危物种，并通过森林、湿地和其他重要的栖息地调节气候。在136个国家里，有759个生物圈保护区。从印度孙德尔本斯郁郁葱葱的绿色植物到澳大利亚广袤无垠的大沙生物圈保护区，每个保护区都是独一无二的。
+
+里奥拉加托斯自然保护区拥有丰富的地貌和生态系统，如红树林、小型河口、中等半常绿林、低矮落叶林、海岸沙丘植被、海岸潟湖、沼泽和以草地和芦苇丛为代表的稀树草原，这些都是沼泽地鸟类和海鸟的主要筑巢地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%87%8c%e5%a5%a5%e6%8b%89%e5%8a%a0%e6%89%98%e6%96%af%e8%87%aa%e7%84%b6%e4%bf%9d%e6%8a%a4%e5%8c%ba&form=hpcapt&filters=HpDate:"20241102_1600" "Bing Wallpaper 2024 11月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241103_YucatanBiosphere"&FORM=HPQUIZ "必应主页测验 2024 11月 3")
+[下载480](https://cn.bing.com/th?id=OHR.YucatanBiosphere_ZH-CN7442392453_800x480.jpg&rf=LaDigue_800x480.jpg "巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥")
+[下载720](https://cn.bing.com/th?id=OHR.YucatanBiosphere_ZH-CN7442392453_1280x720.jpg&rf=LaDigue_1280x720.jpg "巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥")
+[下载1080](https://cn.bing.com/th?id=OHR.YucatanBiosphere_ZH-CN7442392453_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥")
+[下载UHD](https://cn.bing.com/th?id=OHR.YucatanBiosphere_ZH-CN7442392453_UHD.jpg&rf=LaDigue_UHD.jpg "巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥")
+
+---
 ### 11月02日：从濒临灭绝到成为国家的象征
 #### 黄石国家公园的美洲野牛，怀俄明州，美国（© Ian Shive/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_1280x720.jpg&rf=LaDigue_1280x720.jpg "哥斯达黎加的三趾树懒")
 [下载1080](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哥斯达黎加的三趾树懒")
 [下载UHD](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_UHD.jpg&rf=LaDigue_UHD.jpg "哥斯达黎加的三趾树懒")
-
----
-### 10月19日：立足现在，发掘过去
-#### 哈索尔神庙，邓德拉神庙群，基纳，埃及（© Nick Brundle Photography/Getty Images）
-
-![立足现在，发掘过去](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_800x480.jpg&rf=LaDigue_800x480.jpg "立足现在，发掘过去")
-
-今天，在国际考古日，深入挖掘你内心的印第安纳·琼斯或劳拉·克劳馥吧！该节日始于2011年，于每年10月的第三个星期六举办庆祝活动，旨在庆祝考古学对当今社会做出的贡献。其全球性的活动包括举办展览和动手挖掘遗迹，有些活动还会持续一个月。此外，许多美国国家公园、州立公园、历史地标和当地博物馆也会举办相关活动。
-
-哈索尔神庙最引人注目的特色之一是它的天文天花板，这是古埃及天文学和艺术融合在一起的杰作。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e8%80%83%e5%8f%a4%e6%97%a5&form=hpcapt&filters=HpDate:"20241018_1600" "Bing Wallpaper 2024 10月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241019_DenderaTemple"&FORM=HPQUIZ "必应主页测验 2024 10月 19")
-[下载480](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_800x480.jpg&rf=LaDigue_800x480.jpg "哈索尔神庙，邓德拉神庙群，基纳，埃及")
-[下载720](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_1280x720.jpg&rf=LaDigue_1280x720.jpg "哈索尔神庙，邓德拉神庙群，基纳，埃及")
-[下载1080](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哈索尔神庙，邓德拉神庙群，基纳，埃及")
-[下载UHD](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_UHD.jpg&rf=LaDigue_UHD.jpg "哈索尔神庙，邓德拉神庙群，基纳，埃及")
 
 ---
