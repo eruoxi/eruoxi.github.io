@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月05日：异世界之美
+#### 马拉赫塞斯国家公园，马拉尼昂州,巴西（© thanosquest/Shutterstock）
+
+![异世界之美](https://cn.bing.com/th?id=OHR.LencoisMaranhao_ZH-CN8194406488_800x480.jpg&rf=LaDigue_800x480.jpg "异世界之美")
+
+让我们一起来领略马拉赫塞斯国家公园令人惊叹的美景吧！该公园位于巴西马拉尼昂州东北部，是一个占地面积超过15万公顷的保护区。作为沿海海洋和塞拉多生物群落的一部分，该公园旨在保护该地区的动植物和自然美景，是真正的生态宝藏。在这里，我们可以看到在强风和定期降雨的作用下形成的红树林、沙洲和沙丘等独特的生态系统。
+
+马拉赫塞斯国家公园看起来就像一个典型的沙漠。事实上，这里并不是沙漠。该地区位于亚马逊盆地之外，每年年初都会有固定的雨季。雨水会造成一种奇特的现象：淡水聚集在沙丘之间的山谷中，在沙漠中形成蓝色和绿色的泻湖。在7月至9月期间，泻湖水量盈满，为最佳观赏期。令人惊奇的是，这里还是各种鱼类的家园。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e6%8b%89%e8%b5%ab%e5%a1%9e%e6%96%af%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241104_1600" "Bing Wallpaper 2024 11月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241105_LencoisMaranhao"&FORM=HPQUIZ "必应主页测验 2024 11月 5")
+[下载480](https://cn.bing.com/th?id=OHR.LencoisMaranhao_ZH-CN8194406488_800x480.jpg&rf=LaDigue_800x480.jpg "马拉赫塞斯国家公园，马拉尼昂州,巴西")
+[下载720](https://cn.bing.com/th?id=OHR.LencoisMaranhao_ZH-CN8194406488_1280x720.jpg&rf=LaDigue_1280x720.jpg "马拉赫塞斯国家公园，马拉尼昂州,巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.LencoisMaranhao_ZH-CN8194406488_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马拉赫塞斯国家公园，马拉尼昂州,巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.LencoisMaranhao_ZH-CN8194406488_UHD.jpg&rf=LaDigue_UHD.jpg "马拉赫塞斯国家公园，马拉尼昂州,巴西")
+
+---
 ### 11月04日：胜过千言万语
 #### 坎布里亚湖区，格拉斯米尔，英格兰（© Thomas Molyneux/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_1280x720.jpg&rf=LaDigue_1280x720.jpg "祖卡里宫，罗马，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "祖卡里宫，罗马，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_UHD.jpg&rf=LaDigue_UHD.jpg "祖卡里宫，罗马，意大利")
-
----
-### 10月21日：在秋天里傲然挺立
-#### 乔治·史密斯州立公园的柏树，佐治亚州，美国（© Chris Moore/TANDEM Stills + Motion）
-
-![在秋天里傲然挺立](https://cn.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_800x480.jpg&rf=LaDigue_800x480.jpg "在秋天里傲然挺立")
-
-你见过坚韧、喜欢沼泽环境且总是很时髦的柏树吗？这些树可以长到100多英尺高，幼时通常呈金字塔状。在今天的图片中，我们来到了乔治·史密斯州立公园，该公园位于乔治亚州伊曼纽尔县，占地1634英亩。从今天的图片中可以看到，该公园的中心是一个占地412英亩的磨坊池塘，这里是钓鱼和划独木舟的好去处。池塘里生长着池柏和秃柏树，这两种树是美国的原生树种。公园内有长达7英里的蜿蜒小径，带领游客穿过沙地，经过鸟类保护区和龟类栖息地。这里的硬木树是啄木鸟和其他鸟类的天堂，而松软的土壤则为陆龟提供了理想的穴居地。无论在哪个季节，这座公园都能为所有人提供一个宁静的休闲场所。
-
-这座中等规模的州立公园地处偏远，吸引了众多观鸟者和自然爱好者。常驻的珍稀鸟类包括大蓝鹭和白朱鹭。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b9%94%e6%b2%bb%c2%b7%e5%8f%b2%e5%af%86%e6%96%af%e5%b7%9e%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241020_1600" "Bing Wallpaper 2024 10月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241021_AutumnCypress"&FORM=HPQUIZ "必应主页测验 2024 10月 21")
-[下载480](https://cn.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_800x480.jpg&rf=LaDigue_800x480.jpg "乔治·史密斯州立公园的柏树，佐治亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_1280x720.jpg&rf=LaDigue_1280x720.jpg "乔治·史密斯州立公园的柏树，佐治亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乔治·史密斯州立公园的柏树，佐治亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_UHD.jpg&rf=LaDigue_UHD.jpg "乔治·史密斯州立公园的柏树，佐治亚州，美国")
 
 ---
