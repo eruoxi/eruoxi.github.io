@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月06日：日落的阴影
+#### 奥林匹克国家公园石狮海滩，华盛顿州，美国（© T.M. Schultze/TANDEM Stills + Motion）
+
+![日落的阴影](https://cn.bing.com/th?id=OHR.ShiShiBeach_ZH-CN8685799566_800x480.jpg&rf=LaDigue_800x480.jpg "日落的阴影")
+
+奥林匹克国家公园始建于1938年，是一处未受污染的荒野胜地。该公园位于华盛顿州奥林匹克半岛，占地近1,440平方英里。从冰川覆盖的高山到温带雨林，这里的生态系统如迷宫般错综复杂，既是野生动物的家园，也是探险家和历史爱好者的度假胜地。公园内的石狮海滩宁静美丽，太平洋的浪花拍打着海蚀柱和沙岸，正如今天的图片所示。这个国家公园被认定为国际生物圈保护区，拥有600英里长的小径，徒步旅行者可以沿着海岸线徒步跋涉，在“拱门点”观赏海滩的海拱门。游客可以近距离观赏奥林匹斯山，这里有红胸䴓、冬鹪鹩和斑点猫头鹰等300多种鸟类。观赏完美景后，游客还可以在新月湖中畅游一番。阿拉瓦角以北的沿海荒野地区，包括那里的海滩，2000多年来一直是太平洋西北海岸马卡部落的家园，游客可以在附近的马卡保留地了解其文化。
+
+奥林匹克国家公园于1981年被联合国教科文组织指定为世界遗产。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a5%a5%e6%9e%97%e5%8c%b9%e5%85%8b%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241105_1600" "Bing Wallpaper 2024 11月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241106_ShiShiBeach"&FORM=HPQUIZ "必应主页测验 2024 11月 6")
+[下载480](https://cn.bing.com/th?id=OHR.ShiShiBeach_ZH-CN8685799566_800x480.jpg&rf=LaDigue_800x480.jpg "奥林匹克国家公园石狮海滩，华盛顿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ShiShiBeach_ZH-CN8685799566_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥林匹克国家公园石狮海滩，华盛顿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ShiShiBeach_ZH-CN8685799566_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥林匹克国家公园石狮海滩，华盛顿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ShiShiBeach_ZH-CN8685799566_UHD.jpg&rf=LaDigue_UHD.jpg "奥林匹克国家公园石狮海滩，华盛顿州，美国")
+
+---
 ### 11月05日：异世界之美
 #### 马拉赫塞斯国家公园，马拉尼昂州,巴西（© thanosquest/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪莉夫人森林和古堡遗迹，新罕布什尔州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪莉夫人森林和古堡遗迹，新罕布什尔州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_UHD.jpg&rf=LaDigue_UHD.jpg "雪莉夫人森林和古堡遗迹，新罕布什尔州，美国")
-
----
-### 10月22日：可怕的外墙
-#### 祖卡里宫，罗马，意大利（© Photon-Photos/Getty Images）
-
-![可怕的外墙](https://cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_800x480.jpg&rf=LaDigue_800x480.jpg "可怕的外墙")
-
-在罗马西班牙阶梯的顶端，从宏伟的天主教堂下面左转，沿着一条不起眼的小街走下去，有一个惊喜在等着你：一座怪兽之屋。欢迎来到祖卡里宫！这是一座16世纪的宫殿，在它的外墙上，神话似乎栩栩如生，怪诞的面孔吞没了宫殿的门窗。建造这座宫殿的费德里科·祖卡里对怪兽非常精通，他在佛罗伦萨大教堂绘制的《最后的审判》和但丁《地狱篇》的插图满是神话人物。怪兽门最初通向宫殿的花园，因为祖卡里喜欢通过这种方式让客人体验从恐怖入口到美丽花园之间的强烈对比。如今，这扇门通向赫尔奇阿娜图书馆，这是一家专门研究意大利艺术史（从中世纪到现代）的图书馆，自1912年以来一直占据着花园的原址。如果你想在罗马寻找更多的怪嘴，离祖卡里宫不远处就是古罗马面具——“真理之口”，据说它会咬掉任何说谎者的手。
-
-宫殿最初的设计分为三个部分：位于圣三一广场的工作室、面向西斯蒂纳大街的住宅以及从格雷戈里亚纳大街进入的花园。与外观的简洁形成鲜明对比的是，宫殿的内部却蕴含着杰出的艺术。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%bd%97%e9%a9%ac&form=hpcapt&filters=HpDate:"20241021_1600" "Bing Wallpaper 2024 10月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241022_MonsterDoor"&FORM=HPQUIZ "必应主页测验 2024 10月 22")
-[下载480](https://cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_800x480.jpg&rf=LaDigue_800x480.jpg "祖卡里宫，罗马，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_1280x720.jpg&rf=LaDigue_1280x720.jpg "祖卡里宫，罗马，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "祖卡里宫，罗马，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_UHD.jpg&rf=LaDigue_UHD.jpg "祖卡里宫，罗马，意大利")
 
 ---
