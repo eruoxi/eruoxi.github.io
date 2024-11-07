@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月08日：来自冰与火之国
+#### 冰岛冰川河流鸟瞰图（© rybarmarekk/Shutterstock）
+
+![来自冰与火之国](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_800x480.jpg&rf=LaDigue_800x480.jpg "来自冰与火之国")
+
+“冰与火之国”冰岛的冰川河流在数千年的时间里塑造了冰岛的地貌。今天图片中的河流就是由瓦特纳、朗格和霍夫斯等巨大冰川的融水形成的。瓦特纳冰川是冰岛第一大冰川，覆盖面积超3000平方英里，约占冰岛国土面积10%。冰川融化后，冰川水携带着细小的沉积物，形成了乳白色的辫状河流系统，与火山地形的泥土色调形成鲜明对比。每年春夏季节，河流都会因季节性融水而激增，不断塑造和重塑这片土地。从空中俯瞰，可以看到它们错综复杂的图案，就像一幅幅复杂的艺术品，在地形上交织着向北大西洋延伸。冰岛的水不仅仅是一道美丽的风景，它在可再生能源方面也发挥着重要作用。水流为水电站提供动力，巩固了冰岛作为可持续能源领导者的地位。
+
+冰川溪流通常也被称为 “冰川流 ”或“冰川融水溪流”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%86%b0%e5%b2%9b%e5%86%b0%e5%b7%9d%e6%b2%b3%e6%b5%81&form=hpcapt&filters=HpDate:"20241107_1600" "Bing Wallpaper 2024 11月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241108_GlacialRivers"&FORM=HPQUIZ "必应主页测验 2024 11月 8")
+[下载480](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_800x480.jpg&rf=LaDigue_800x480.jpg "冰岛冰川河流鸟瞰图")
+[下载720](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_1280x720.jpg&rf=LaDigue_1280x720.jpg "冰岛冰川河流鸟瞰图")
+[下载1080](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冰岛冰川河流鸟瞰图")
+[下载UHD](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_UHD.jpg&rf=LaDigue_UHD.jpg "冰岛冰川河流鸟瞰图")
+
+---
 ### 11月07日：初冬之美
 #### 金色的松树，坝上草原，中国（© MelindaChan/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_1280x720.jpg&rf=LaDigue_1280x720.jpg "沙莫尼的勃朗峰，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙莫尼的勃朗峰，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_UHD.jpg&rf=LaDigue_UHD.jpg "沙莫尼的勃朗峰，法国")
-
----
-### 10月24日：“淘金热”后的鬼城
-#### 博迪州立历史公园，莫诺县，加利福尼亚州，美国（© Julien McRoberts/Tetra Images, LLC/Alamy Stock Photo）
-
-![“淘金热”后的鬼城](https://cn.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_800x480.jpg&rf=LaDigue_800x480.jpg "“淘金热”后的鬼城")
-
-在加利福尼亚州博迪鬼魅般的寂静中，时间仿佛都静止了。这个曾经繁荣一时的淘金小镇始建于1860年。博迪以W.S.博迪的名字命名，他是一位发现了黄金的探矿者，但在目睹小镇崛起之前不幸死于一场暴风雪。当地发现大量金矿后，居民增加到近1万人，酒吧、舞厅和酿酒厂鳞次栉比。但随着金矿枯竭，小镇的财富也随之消失。矿场关闭，人口减少，到1915年，这个地方被遗弃了。现在，博迪的街道已经空无一人，木质建筑也已破败不堪。
-
-今天，博迪被保存在一种“凝固的破败”状态中。该镇只有一小部分幸存下来，约有110座建筑屹立不倒，其中就包括了一座已停止运营的金矿。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%9a%e8%bf%aa%e5%b7%9e%e7%ab%8b%e5%8e%86%e5%8f%b2%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241023_1600" "Bing Wallpaper 2024 10月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241024_BodieCalifornia"&FORM=HPQUIZ "必应主页测验 2024 10月 24")
-[下载480](https://cn.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_800x480.jpg&rf=LaDigue_800x480.jpg "博迪州立历史公园，莫诺县，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_1280x720.jpg&rf=LaDigue_1280x720.jpg "博迪州立历史公园，莫诺县，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博迪州立历史公园，莫诺县，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_UHD.jpg&rf=LaDigue_UHD.jpg "博迪州立历史公园，莫诺县，加利福尼亚州，美国")
 
 ---
