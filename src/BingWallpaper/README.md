@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月09日：红尘中的宇宙美景
+#### 银河，阿伊特本哈杜杜，摩洛哥（© Cavan Images/Getty Images）
+
+![红尘中的宇宙美景](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_800x480.jpg&rf=LaDigue_800x480.jpg "红尘中的宇宙美景")
+
+准备好迎接摩洛哥的星空之夜吧！在这里观星真的很神奇，广阔的天空和极少的光污染让每个夜晚都变得璀璨夺目。你看到的每一颗星星都是银河系的一部分，银河系得名于它在最黑暗的天空中呈现出的乳白色光带。在今天的图片中，你可以看到这种宇宙之美在阿伊特本哈杜杜的上空闪耀，这是摩洛哥瓦尔扎扎特省一个历史悠久的筑有防御工事的村庄。该遗址最早建于11世纪，它是古代连接撒哈拉沙漠和马拉喀什贸易路线上的重要一站。村庄坐落在乌尼拉河边的山坡上，是一个由保护墙、塔楼和大门包围起来的建筑群。这里的粘土建筑由夯土、土坯和木材建成，展现了传统的手工艺。这一联合国教科文组织世界遗产因其原汁原味的历史风貌而闻名，还因为致力于保护传统建筑技术和避免使用现代混凝土而得到认可。
+
+阿伊特本哈杜杜在现代得到了明显的修复，部分原因是它被用作好莱坞的拍摄地，并于1987年被列入联合国教科文组织的世界遗产名录。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e4%bc%8a%e7%89%b9%e6%9c%ac%e5%93%88%e6%9d%9c%e6%9d%9c&form=hpcapt&filters=HpDate:"20241108_1600" "Bing Wallpaper 2024 11月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241109_MoroccoMilkyWay"&FORM=HPQUIZ "必应主页测验 2024 11月 9")
+[下载480](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_800x480.jpg&rf=LaDigue_800x480.jpg "银河，阿伊特本哈杜杜，摩洛哥")
+[下载720](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_1280x720.jpg&rf=LaDigue_1280x720.jpg "银河，阿伊特本哈杜杜，摩洛哥")
+[下载1080](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "银河，阿伊特本哈杜杜，摩洛哥")
+[下载UHD](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_UHD.jpg&rf=LaDigue_UHD.jpg "银河，阿伊特本哈杜杜，摩洛哥")
+
+---
 ### 11月08日：来自冰与火之国
 #### 冰岛冰川河流鸟瞰图（© rybarmarekk/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_1280x720.jpg&rf=LaDigue_1280x720.jpg "幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_UHD.jpg&rf=LaDigue_UHD.jpg "幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国")
-
----
-### 10月25日：恐怖的高度
-#### 沙莫尼的勃朗峰，法国（© Simon Schöpf/Getty Images）
-
-![恐怖的高度](https://cn.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_800x480.jpg&rf=LaDigue_800x480.jpg "恐怖的高度")
-
-想象自己站在阿尔卑斯山的最高峰，那里空气清新，景色令人叹为观止。勃朗峰巍峨的存在，在文学史上留下了不可磨灭的印记，其中最著名的当属玛丽·雪莱的《弗兰肯斯坦》。每年十月的最后一个星期五是“弗兰肯斯坦星期五”，以纪念玛丽·雪莱的文学天赋和在她想象中诞生的迷人生物。《弗兰肯斯坦》是在一次鬼故事挑战赛中构思出来的。1816年，18岁的玛丽·雪莱与珀西·比希·雪莱、约翰·波利多里和拜伦勋爵一起，在瑞士度过了一个风雨交加的夏天。在那里，她写了《维克多·弗兰肯斯坦与怪物》的故事。小说中的一个关键场景发生在勃朗峰附近的冰川上，维克多在那里与他创造的怪物面对面。险峻的地形让这一场景具有超现实的美感，同时完美捕捉到敬畏和恐怖的双重感觉。
-
-1946年，勃朗峰隧道的钻探项目启动。这条隧道将法国的夏慕尼和意大利的库马约尔连接起来，成为两国之间主要的跨山运输线路之一。1965年，全长11,611米的隧道通车。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e5%ad%a6%e6%80%aa%e4%ba%ba%e5%b0%8f%e8%af%b4&form=hpcapt&filters=HpDate:"20241024_1600" "Bing Wallpaper 2024 10月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241025_MontBlancMassif"&FORM=HPQUIZ "必应主页测验 2024 10月 25")
-[下载480](https://cn.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_800x480.jpg&rf=LaDigue_800x480.jpg "沙莫尼的勃朗峰，法国")
-[下载720](https://cn.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_1280x720.jpg&rf=LaDigue_1280x720.jpg "沙莫尼的勃朗峰，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙莫尼的勃朗峰，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_UHD.jpg&rf=LaDigue_UHD.jpg "沙莫尼的勃朗峰，法国")
 
 ---
