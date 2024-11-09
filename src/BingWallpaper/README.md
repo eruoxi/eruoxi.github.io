@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月10日：飞行中的火烈鸟
+#### 加勒比火烈鸟，尤卡坦半岛，墨西哥（© Claudio Contreras/NPL/Minden Pictures）
+
+![飞行中的火烈鸟](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_800x480.jpg&rf=LaDigue_800x480.jpg "飞行中的火烈鸟")
+
+你见过一群火烈鸟飞上天空吗？如果你见过，它们很有可能就是加勒比火烈鸟，也叫美洲火烈鸟，就像今天图片中在墨西哥尤卡坦半岛看到的那样。火烈鸟成群出没时被称为“火烈鸟群”，但它们也可以被称为“站群”或“群落”。加勒比火烈鸟是美洲最大的火烈鸟物种，也是唯一原产于北美的物种。这些充满活力的鸟类通常栖息在咸淡水和海水地区，如沼泽、河口和海岸线一带。由于其通体粉红色，它们经常被误认作粉红琵鹭。不过，长长的脖子和弯曲的喙将它们与大蓝鹭和木鹳等涉水鸟类区分开来。
+
+火烈鸟是一种古老的鸟类。它们的化石记录可以追溯到中新世，也就是大约1000万年前。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e5%8b%92%e6%af%94%e7%81%ab%e7%83%88%e9%b8%9f&form=hpcapt&filters=HpDate:"20241109_1600" "Bing Wallpaper 2024 11月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241110_YucatanFlamingos"&FORM=HPQUIZ "必应主页测验 2024 11月 10")
+[下载480](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_800x480.jpg&rf=LaDigue_800x480.jpg "加勒比火烈鸟，尤卡坦半岛，墨西哥")
+[下载720](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_1280x720.jpg&rf=LaDigue_1280x720.jpg "加勒比火烈鸟，尤卡坦半岛，墨西哥")
+[下载1080](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加勒比火烈鸟，尤卡坦半岛，墨西哥")
+[下载UHD](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_UHD.jpg&rf=LaDigue_UHD.jpg "加勒比火烈鸟，尤卡坦半岛，墨西哥")
+
+---
 ### 11月09日：红尘中的宇宙美景
 #### 银河，阿伊特本哈杜杜，摩洛哥（© Cavan Images/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极熊与幼崽，丘吉尔，曼尼托巴，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊与幼崽，丘吉尔，曼尼托巴，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊与幼崽，丘吉尔，曼尼托巴，加拿大")
-
----
-### 10月26日：海边的神秘树林
-#### 幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国（© mauritius images GmbH/Alamy Stock Photo）
-
-![海边的神秘树林](https://cn.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_800x480.jpg&rf=LaDigue_800x480.jpg "海边的神秘树林")
-
-在德国的梅克伦堡-西波美拉尼亚沿海地区坐落着“幽灵森林”，也就是今天图片中的森林。这片令人毛骨悚然的森林占地约445英亩，其中有多节的山毛榉、鹅耳枥、白蜡树和橡树，它们扭曲着向天空伸展。来自波罗的海的咸味海风和潮湿的气候造就了树木扭曲的形状，使这片森林有了“闹鬼”的名声。游客们会体验到与超自然现象的接触，比如枯叶的嘎吱声、远处挥手打招呼的友好精灵，或者从树后窥探的淘气鬼。精心布置的灯光可以投射出幽灵般的阴影，以及沿路摆放的雕塑和装饰品，这些都是增强森林全年鬼魅气息的元素。要想了解更多信息，可以报名参加讲故事环节，演员们会穿上幽灵服装，让当地传说和民间故事生动起来。摄影师和自然爱好者都会从映刻在天空中的怪异剪影汲取灵感，这些剪影被无数照片永恒地记录下来。
-
-村庄西边的宁哈根森林紧靠着高高的海崖，海崖大约有12米高。这片混交林面积约180公顷，被当地人称为幽灵森林。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%ae%81%e5%93%88%e6%a0%b9&form=hpcapt&filters=HpDate:"20241025_1600" "Bing Wallpaper 2024 10月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241026_GhostForest"&FORM=HPQUIZ "必应主页测验 2024 10月 26")
-[下载480](https://cn.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_800x480.jpg&rf=LaDigue_800x480.jpg "幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国")
-[下载720](https://cn.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_1280x720.jpg&rf=LaDigue_1280x720.jpg "幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_UHD.jpg&rf=LaDigue_UHD.jpg "幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国")
 
 ---
