@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月11日：旷野里的第一片雪花
+#### 班夫国家公园的日落，阿尔伯塔省，加拿大（© fywPhoto 云卷云舒/Getty Images）
+
+![旷野里的第一片雪花](https://cn.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_800x480.jpg&rf=LaDigue_800x480.jpg "旷野里的第一片雪花")
+
+今天的这张照片展示的是加拿大阿尔伯塔省的冬季仙境，对于那些寻求清新之美的游客来说，班夫国家公园是一个理想的去处。该公园建于1885年，在硫磺山附近的温泉被发现后，它成为了加拿大的第一个国家公园。随着时间的推移，班夫的边界不断扩大，它成为了加拿大落基山脉公园群世界自然遗产的一部分。这个国家公园占地超6600平方公里，在冬季会变成白雪皑皑的游乐场，吸引着游客们纷纷前来滑雪、穿着雪鞋在雪地徒步、玩冰壶、被动物拉着在冰面上滑行以及观赏野生动物。总之，这里为游客们提供了丰富的探索活动。尽管天气寒冷，但是公园里却生机勃勃！这里是各种野生动物的家园，包括麋鹿、灰熊、山羊和狼。扭叶松和恩氏云杉也在严酷的天气下顽强生长。为确保这种生态平衡可以维持下去，班夫国家公园的动植物群受到了人类的密切监测。
+
+班夫国家公园属于亚寒带气候，有三个生态区，包括山地、亚高山和高山。低海拔地区的森林以扭叶松为主，在林木线以下的高海拔地区的森林以恩氏云杉为主，林木线以上主要是岩石和冰雪。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8f%ad%e5%a4%ab%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241110_1600" "Bing Wallpaper 2024 11月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241111_Banff24"&FORM=HPQUIZ "必应主页测验 2024 11月 11")
+[下载480](https://cn.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_800x480.jpg&rf=LaDigue_800x480.jpg "班夫国家公园的日落，阿尔伯塔省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_1280x720.jpg&rf=LaDigue_1280x720.jpg "班夫国家公园的日落，阿尔伯塔省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "班夫国家公园的日落，阿尔伯塔省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_UHD.jpg&rf=LaDigue_UHD.jpg "班夫国家公园的日落，阿尔伯塔省，加拿大")
+
+---
 ### 11月10日：飞行中的火烈鸟
 #### 加勒比火烈鸟，尤卡坦半岛，墨西哥（© Claudio Contreras/NPL/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_1280x720.jpg&rf=LaDigue_1280x720.jpg "南瓜田，维多利亚，不列颠哥伦比亚省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南瓜田，维多利亚，不列颠哥伦比亚省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_UHD.jpg&rf=LaDigue_UHD.jpg "南瓜田，维多利亚，不列颠哥伦比亚省，加拿大")
-
----
-### 10月27日：寒风中的温情
-#### 北极熊与幼崽，丘吉尔，曼尼托巴，加拿大（© Design Pics/plainpicture）
-
-![寒风中的温情](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_800x480.jpg&rf=LaDigue_800x480.jpg "寒风中的温情")
-
-“北极熊周”是为了纪念自然界最伟大的猎手之一——北极威猛的掠食者北极熊。北极熊周由北极熊国际组织设立，旨在强调这些哺乳动物因气候变化而面临的挑战，尤其是北极海冰的快速消融。这一活动恰逢北极熊在加拿大丘吉尔“世界北极熊之都”聚集。如今天的图片所示，在这里，北极熊等待哈得逊湾结冰，这样它们就可以开始捕猎当前的主要食物来源——海豹。
-
-北极熊通常独来独往，但在陆地上也可能成群结队地出现。在繁殖季节，公熊守护母熊，抵御对手，保护它们免受侵害。冬季，母熊会在产仔洞穴中分娩幼崽。幼熊与母亲在一起生活的时间长达两年半。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%9e%81%e7%86%8a&form=hpcapt&filters=HpDate:"20241026_1600" "Bing Wallpaper 2024 10月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241027_PolarBearHug"&FORM=HPQUIZ "必应主页测验 2024 10月 27")
-[下载480](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_800x480.jpg&rf=LaDigue_800x480.jpg "北极熊与幼崽，丘吉尔，曼尼托巴，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极熊与幼崽，丘吉尔，曼尼托巴，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊与幼崽，丘吉尔，曼尼托巴，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊与幼崽，丘吉尔，曼尼托巴，加拿大")
 
 ---
