@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月12日：拱门之下
+#### 透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国（© Jeff Foott/Minden Pictures）
+
+![拱门之下](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_800x480.jpg&rf=LaDigue_800x480.jpg "拱门之下")
+
+头顶一片蓝，脚踩一片红，在这里，目之所及处尽是红色。欢迎来到犹他州拱门国家公园！这片超凡景观的故事开始于6500万年前，当时这里是一片干涸的海床。随着时间的推移，地质力量扭曲和挤压着这片土地，将砂岩扭曲成隆起和凸起状态。再后来，风和水雕刻出了拱门，尖峰，鳍状岩和平衡石，也就是现在矗立在这片区域的这些岩石。公园里有2000多座天然石拱，是地球上此类地质结构最集中的地方。在今天的照片中，我们可以看到其中两座石拱：透过海湾拱门看到双拱门，双拱门中较大的那座拱门跨度为144英尺，高112英尺，是公园内最高、第二长的拱门。
+
+拱门国家公园规定禁止攀爬园区内的平衡石或者是任何有名、无名的开口大于3英尺（0.9米）的拱门岩石。在公园的其他地方攀岩是允许的，但仍须遵守相关规定。此外，公园内还禁止走绳运动和低空跳伞。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8a%b9%e4%bb%96%e5%b7%9e%e6%8b%b1%e9%97%a8%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241111_1600" "Bing Wallpaper 2024 11月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241112_CoveArch"&FORM=HPQUIZ "必应主页测验 2024 11月 12")
+[下载480](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_800x480.jpg&rf=LaDigue_800x480.jpg "透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_1280x720.jpg&rf=LaDigue_1280x720.jpg "透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_UHD.jpg&rf=LaDigue_UHD.jpg "透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国")
+
+---
 ### 11月11日：旷野里的第一片雪花
 #### 班夫国家公园的日落，阿尔伯塔省，加拿大（© fywPhoto 云卷云舒/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_1280x720.jpg&rf=LaDigue_1280x720.jpg "大雕鸮")
 [下载1080](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大雕鸮")
 [下载UHD](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_UHD.jpg&rf=LaDigue_UHD.jpg "大雕鸮")
-
----
-### 10月28日：雕刻时间到了
-#### 南瓜田，维多利亚，不列颠哥伦比亚省，加拿大（© Shaun Cunningham/Alamy Stock Photo）
-
-![雕刻时间到了](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_800x480.jpg&rf=LaDigue_800x480.jpg "雕刻时间到了")
-
-随着秋天的琥珀色覆盖大地，万圣节的寒意也在靠近，雕刻南瓜灯这一历史悠久的传统开始活跃起来。这种手工艺最初来自爱尔兰和苏格兰，移民者将它带到了美国，人们最开始用萝卜和土豆做灯，但是后面发现南瓜容量更大，也更容易雕刻，便将萝卜和土豆替换成了南瓜。人们将南瓜掏空，把蜡烛放进去点亮，将南瓜灯变成了闪烁的抵御邪灵的小灯。
-
-在大多数民间传说中，雕刻南瓜是为了在万圣节前夕（即万圣节）吓跑邪灵，因为据说那时死者会在人间游荡。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%97%e7%93%9c&form=hpcapt&filters=HpDate:"20241027_1600" "Bing Wallpaper 2024 10月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241028_PumpkinMist"&FORM=HPQUIZ "必应主页测验 2024 10月 28")
-[下载480](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_800x480.jpg&rf=LaDigue_800x480.jpg "南瓜田，维多利亚，不列颠哥伦比亚省，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_1280x720.jpg&rf=LaDigue_1280x720.jpg "南瓜田，维多利亚，不列颠哥伦比亚省，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南瓜田，维多利亚，不列颠哥伦比亚省，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_UHD.jpg&rf=LaDigue_UHD.jpg "南瓜田，维多利亚，不列颠哥伦比亚省，加拿大")
 
 ---
