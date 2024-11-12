@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月13日：海中的“狮子王”
+#### 巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥（© Claudio Contreras/Minden Pictures）
+
+![海中的“狮子王”](https://cn.bing.com/th?id=OHR.KelpForest_ZH-CN2357269491_800x480.jpg&rf=LaDigue_800x480.jpg "海中的“狮子王”")
+
+从哥斯达黎加到阿拉斯加，漫步在这些城市的任何一座码头上，你都可能听到海狮嬉闹的叫声在空气中回荡。加州海狮（如图所示）经常在北美西海岸的岩石海岸边上晒太阳。这些海洋哺乳动物属于鳍足动物，经常被误认为是海豹。有一个简单的方法可以区分这两种动物：看它们的耳朵，海狮有明显的耳朵皮瓣，而海豹没有。
+
+加州海狮主要在近海沿岸地区觅食。它们捕食各种猎物，如鱿鱼、凤尾鱼、鲭鱼、石斑鱼和沙丁鱼，这些鱼类都活跃于上升流区域。除此之外，加州海狮还可能从商业渔具，垂钓鱼线以及水坝和河流里的过鱼设施中捕食鱼类。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e7%8b%ae&form=hpcapt&filters=HpDate:"20241112_1600" "Bing Wallpaper 2024 11月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241113_KelpForest"&FORM=HPQUIZ "必应主页测验 2024 11月 13")
+[下载480](https://cn.bing.com/th?id=OHR.KelpForest_ZH-CN2357269491_800x480.jpg&rf=LaDigue_800x480.jpg "巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥")
+[下载720](https://cn.bing.com/th?id=OHR.KelpForest_ZH-CN2357269491_1280x720.jpg&rf=LaDigue_1280x720.jpg "巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥")
+[下载1080](https://cn.bing.com/th?id=OHR.KelpForest_ZH-CN2357269491_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥")
+[下载UHD](https://cn.bing.com/th?id=OHR.KelpForest_ZH-CN2357269491_UHD.jpg&rf=LaDigue_UHD.jpg "巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥")
+
+---
 ### 11月12日：拱门之下
 #### 透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国（© Jeff Foott/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_1280x720.jpg&rf=LaDigue_1280x720.jpg "从苏格兰教堂墓地眺望爱丁堡城堡，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从苏格兰教堂墓地眺望爱丁堡城堡，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_UHD.jpg&rf=LaDigue_UHD.jpg "从苏格兰教堂墓地眺望爱丁堡城堡，英国")
-
----
-### 10月29日：猫头鹰的叫声在萦绕
-#### 大雕鸮（© Mark Newman/Getty Images）
-
-![猫头鹰的叫声在萦绕](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_800x480.jpg&rf=LaDigue_800x480.jpg "猫头鹰的叫声在萦绕")
-
-万圣节即将来临，让我们来认识一下这个节日的标志之一：大雕鸮。凭借着敏锐的视力、怪异的叫声和寂静无声的飞行，这种猫头鹰历来令人又敬又畏。在民间传说和神话中，猫头鹰被视为智慧的象征和死亡的预兆。在萨温节（这是凯尔特人万圣节的前身），猫头鹰被认为是灵魂正在游荡的亲属。
-
-大雕鸮是阿尔伯塔省的省鸟。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e9%9b%95%e9%b8%ae&form=hpcapt&filters=HpDate:"20241028_1600" "Bing Wallpaper 2024 10月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241029_GreatOwl"&FORM=HPQUIZ "必应主页测验 2024 10月 29")
-[下载480](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_800x480.jpg&rf=LaDigue_800x480.jpg "大雕鸮")
-[下载720](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_1280x720.jpg&rf=LaDigue_1280x720.jpg "大雕鸮")
-[下载1080](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大雕鸮")
-[下载UHD](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_UHD.jpg&rf=LaDigue_UHD.jpg "大雕鸮")
 
 ---
