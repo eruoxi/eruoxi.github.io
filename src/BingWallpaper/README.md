@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月14日：悬崖边的故事
+#### 马纳罗拉，五渔村国家公园，利古里亚，意大利（© John_Silver/Shutterstock）
+
+![悬崖边的故事](https://cn.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_800x480.jpg&rf=LaDigue_800x480.jpg "悬崖边的故事")
+
+蜡笔画一样的房子层叠而下，延伸至地中海，马纳罗拉因此美景而出名，如同今天的照片一样，这里看起来就像童话故事中的场景。镶嵌在意大利利古里亚海岸崎岖悬崖上，马纳罗拉是组成五渔村国家公园的五个村庄之一，被联合国教科文组织列为世界遗产。而马纳罗拉（Manarola）这个名字可能是从拉丁语“Magna rota”演变而来的，在当地方言中变成了“Magna roea”，意思是“大轮子”，以此向该村历史悠久的水车致敬。马纳罗拉的历史可以追溯到1338年，它被认为是五渔村最古老的村庄，其历史根植于渔业和酿酒业。夏克特拉是这一地区独有的餐后甜酒，在意大利诗人的诗篇中，这种酒早已成为不朽的名酒。沿着这里的“爱之路”漫步，您可以感受到这个地区独有的浪漫和魅力，这条风景优美的滨海小径连接着马纳罗拉和五渔村的另一个村庄里奥马焦雷。在马纳罗拉，时间会变得慢下来，那是海边的魔法开始发挥作用了。
+
+马纳罗拉的主要产业历来是渔业和酿酒业，当地的葡萄酒“夏克特拉”尤为有名，古罗马文献中也曾提到了该地区生产的高品质葡萄酒。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e7%ba%b3%e7%bd%97%e6%8b%89&form=hpcapt&filters=HpDate:"20241113_1600" "Bing Wallpaper 2024 11月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241114_ManarolaItaly"&FORM=HPQUIZ "必应主页测验 2024 11月 14")
+[下载480](https://cn.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_800x480.jpg&rf=LaDigue_800x480.jpg "马纳罗拉，五渔村国家公园，利古里亚，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_1280x720.jpg&rf=LaDigue_1280x720.jpg "马纳罗拉，五渔村国家公园，利古里亚，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马纳罗拉，五渔村国家公园，利古里亚，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_UHD.jpg&rf=LaDigue_UHD.jpg "马纳罗拉，五渔村国家公园，利古里亚，意大利")
+
+---
 ### 11月13日：海中的“狮子王”
 #### 巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥（© Claudio Contreras/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴黎圣母院的奇美拉，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴黎圣母院的奇美拉，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_UHD.jpg&rf=LaDigue_UHD.jpg "巴黎圣母院的奇美拉，法国")
-
----
-### 10月30日：令人毛骨悚然的历史
-#### 从苏格兰教堂墓地眺望爱丁堡城堡，英国（© Chris Dorney/Alamy Stock Photo）
-
-![令人毛骨悚然的历史](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_800x480.jpg&rf=LaDigue_800x480.jpg "令人毛骨悚然的历史")
-
-如果您在寻找一个既有历史感又有大量鬼魂传说的万圣节目的地，爱丁堡城堡就是不二之选。它位于一座死火山的高处，自11世纪以来，这些屹立的城墙见证了战争、皇室诞生、王公贵族的处决以及诸多的戏剧性事件。但真正让它与众不同的是它有着苏格兰闹鬼最凶的地方之一的名声。城堡有着1000多年的历史，难怪有人报告说见过鬼魂。
-
-自2009年起，这座城堡作为爱丁堡世界遗产保护区的一部分，出现在克莱兹代尔银行发行的10英镑纸币上。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8b%8f%e6%a0%bc%e5%85%b0%e7%88%b1%e4%b8%81%e5%a0%a1%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20241029_1600" "Bing Wallpaper 2024 10月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241030_HauntedEdinburgh"&FORM=HPQUIZ "必应主页测验 2024 10月 30")
-[下载480](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_800x480.jpg&rf=LaDigue_800x480.jpg "从苏格兰教堂墓地眺望爱丁堡城堡，英国")
-[下载720](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_1280x720.jpg&rf=LaDigue_1280x720.jpg "从苏格兰教堂墓地眺望爱丁堡城堡，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从苏格兰教堂墓地眺望爱丁堡城堡，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_UHD.jpg&rf=LaDigue_UHD.jpg "从苏格兰教堂墓地眺望爱丁堡城堡，英国")
 
 ---
