@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月15日：愿望随灯起飞
+#### 义蓬灯节 ，清迈，泰国（© tampatra/Getty Images）
+
+![愿望随灯起飞](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_800x480.jpg&rf=LaDigue_800x480.jpg "愿望随灯起飞")
+
+在今天的夜幕降临时，泰国第二大城市清迈将在数以千计的流光溢彩的灯笼中迎来义蓬灯节。这个庆祝活动在兰纳农历（该历法可追溯到中世纪泰国北部的兰纳王国）第二个月的满月时举行，象征着消除负面情绪和迎接新的开始。节日的高潮是在夜空中放飞名为“ khom loi”或“khom loy”的天灯，也就是能在空中漂浮的纸灯笼。届时，天际弥漫着温暖的金色光海，形成一道美丽的风景线。当地人和游客聚集在寺庙和宫殿周围，向天空许愿，希望来年好运连连。
+
+在知名旅行网站“猫途鹰”评选出的“全球25大最佳旅行目的地”榜单中，清迈是泰国入选的两个旅游目的地之一，位列第24位。此外，清迈也是新偶像组合CGM48成立的地方。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%b0%e5%9b%bd%e6%b8%85%e8%bf%88&form=hpcapt&filters=HpDate:"20241114_1600" "Bing Wallpaper 2024 11月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241115_YiPengLanterns"&FORM=HPQUIZ "必应主页测验 2024 11月 15")
+[下载480](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_800x480.jpg&rf=LaDigue_800x480.jpg "义蓬灯节 ，清迈，泰国")
+[下载720](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_1280x720.jpg&rf=LaDigue_1280x720.jpg "义蓬灯节 ，清迈，泰国")
+[下载1080](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "义蓬灯节 ，清迈，泰国")
+[下载UHD](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_UHD.jpg&rf=LaDigue_UHD.jpg "义蓬灯节 ，清迈，泰国")
+
+---
 ### 11月14日：悬崖边的故事
 #### 马纳罗拉，五渔村国家公园，利古里亚，意大利（© John_Silver/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.VineyardsBlackForestFall_ZH-CN6767078591_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.VineyardsBlackForestFall_ZH-CN6767078591_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.VineyardsBlackForestFall_ZH-CN6767078591_UHD.jpg&rf=LaDigue_UHD.jpg "秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国")
-
----
-### 10月31日：万圣节时冷冰冰的凝视
-#### 巴黎圣母院的奇美拉，法国（© scaliger/Getty Images）
-
-![万圣节时冷冰冰的凝视](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_800x480.jpg&rf=LaDigue_800x480.jpg "万圣节时冷冰冰的凝视")
-
-你有被恐怖的事物吓着的时候吗？如果有这样的经历，那说明你有着适度的娱乐感和恐惧感。一年中，没有什么日子比万圣节更适合沉迷于各种恐怖事物中了。我们今天所知的万圣节其实是由多个古老的文化和宗教传统演变而来，其中包括凯尔特人的萨温节，罗马人的“费拉里雅”，以及中世纪基督教的活动。今天，乔装打扮后的人们穿梭于大街小巷，就像祖先们披着兽皮来占卜未来或颂扬圣人和英烈一样。
-
-从维克多·谢阁兰开始，一些研究中国艺术的西方学者便使用“奇美拉”一词泛指有翼的狮子类或混合物种的四足动物，如辟邪、天禄，甚至麒麟。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%87%e5%9c%a3%e8%8a%82&form=hpcapt&filters=HpDate:"20241030_1600" "Bing Wallpaper 2024 10月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241031_GargoyleParis"&FORM=HPQUIZ "必应主页测验 2024 10月 31")
-[下载480](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_800x480.jpg&rf=LaDigue_800x480.jpg "巴黎圣母院的奇美拉，法国")
-[下载720](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴黎圣母院的奇美拉，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴黎圣母院的奇美拉，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_UHD.jpg&rf=LaDigue_UHD.jpg "巴黎圣母院的奇美拉，法国")
 
 ---
