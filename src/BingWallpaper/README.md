@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月16日：泥土、大海和天空
+#### 瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰（© Ron ter Burg/Minden Pictures）
+
+![泥土、大海和天空](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_800x480.jpg&rf=LaDigue_800x480.jpg "泥土、大海和天空")
+
+如果你曾经想过在水上漫步，或者在接近水面的地方行走，瓦登海就是你的理想之地。沿着荷兰、德国和丹麦的海岸绵延300多英里，这个联合国教科文组织认定的世界遗产拥有独特的滩涂和湿地景观。事实上，它是世界上最大的完整潮间带（即涨潮时在水下，退潮时露出水面的沙地和泥滩）。该地区既是突唇白鲑、褐鳟和白喙斑纹海豚等水生物种的游乐场，也是涉禽和苍鹭等鸟类的栖息地。
+
+1903年厄斯金·柴德斯的小说《沙岸之谜》和1915年埃尔丝·乌拉伊的小说《儿童疗养院中的小宝贝》都以瓦登海的德国部分为背景。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%93%a6%e7%99%bb%e6%b5%b7&form=hpcapt&filters=HpDate:"20241115_1600" "Bing Wallpaper 2024 11月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241116_FrieslandNetherlands"&FORM=HPQUIZ "必应主页测验 2024 11月 16")
+[下载480](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_800x480.jpg&rf=LaDigue_800x480.jpg "瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰")
+[下载720](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰")
+[下载1080](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_UHD.jpg&rf=LaDigue_UHD.jpg "瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰")
+
+---
 ### 11月15日：愿望随灯起飞
 #### 义蓬灯节 ，清迈，泰国（© tampatra/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BisonYellowstone_ZH-CN7320887379_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄石国家公园的美洲野牛，怀俄明州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BisonYellowstone_ZH-CN7320887379_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄石国家公园的美洲野牛，怀俄明州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BisonYellowstone_ZH-CN7320887379_UHD.jpg&rf=LaDigue_UHD.jpg "黄石国家公园的美洲野牛，怀俄明州，美国")
-
----
-### 11月01日：引以为豪的传统
-#### 秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国（© Sabine Gerold/Amazing Aerial Agency）
-
-![引以为豪的传统](https://cn.bing.com/th?id=OHR.VineyardsBlackForestFall_ZH-CN6767078591_800x480.jpg&rf=LaDigue_800x480.jpg "引以为豪的传统")
-
-巴登葡萄酒之路是一条风景如画的路线，它沿着黑森林绵延500多公里，穿过德国最美丽的葡萄种植区。在今天的图片中，我们来到了隶属于巴登-巴登的迷人的葡萄酒村瓦恩哈尔特。该地区的亮点之一是纳格尔斯福斯特酒庄。这个酒庄自1588年开始运营，以生产雷司令葡萄酒而闻名，其葡萄酒以品质卓越而著称。
-
-黑森林的主要产业是旅游业。据黑森林旅游局估计，在2009年，旅游业直接提供的全职工作岗位约有14万个，游客过夜次数约为3480万次。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%be%b7%e5%9b%bd%e9%bb%91%e6%a3%ae%e6%9e%97&form=hpcapt&filters=HpDate:"20241031_1600" "Bing Wallpaper 2024 11月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241101_VineyardsBlackForestFall"&FORM=HPQUIZ "必应主页测验 2024 11月 1")
-[下载480](https://cn.bing.com/th?id=OHR.VineyardsBlackForestFall_ZH-CN6767078591_800x480.jpg&rf=LaDigue_800x480.jpg "秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国")
-[下载720](https://cn.bing.com/th?id=OHR.VineyardsBlackForestFall_ZH-CN6767078591_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.VineyardsBlackForestFall_ZH-CN6767078591_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.VineyardsBlackForestFall_ZH-CN6767078591_UHD.jpg&rf=LaDigue_UHD.jpg "秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国")
 
 ---
