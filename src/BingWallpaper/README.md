@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月17日：苏格兰高地的马鹿
+#### 加里东林中的马鹿，阿夫力谷，苏格兰高地（© Terry Whittaker/Alamy）
+
+![苏格兰高地的马鹿](https://cn.bing.com/th?id=OHR.RedStag_ZH-CN6403546321_800x480.jpg&rf=LaDigue_800x480.jpg "苏格兰高地的马鹿")
+
+引人注目的外表、强大的气场和令人印象深刻的鹿角，这就是在苏格兰最美丽的山谷之一的阿夫力谷的古老森林中拍摄到的马鹿。这种动物分布在欧洲、亚洲和北非的部分地区，既是英国最大的陆地哺乳动物，也是加里东林的重要组成部分。从遍布欧洲的洞穴艺术到中世纪的狩猎传统，马鹿一直在人类的想象中占据着特殊的地位。在世界上的许多地方，它们的形象是大自然野性、自由精神的代名词。拥有湖泊、荒地和山脉的阿夫力谷为这些动物提供了完美的栖息地。该地区既是国家自然保护区，也是徒步旅行者、登山者和自然爱好者的天堂。这里还发现了苏格兰马鹿。这些鹿比西欧同类略小，表现出岛屿侏儒化的特征，而岛屿侏儒化正是大型动物经过许多代进化而拥有更小身体的过程。
+
+欧洲的马鹿通常在海拔较低且树木较多的地区过冬。在夏季，它们会迁徙到海拔更高的地方，以便在产犊季节获得更为充足的食物。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e9%b9%bf&form=hpcapt&filters=HpDate:"20241116_1600" "Bing Wallpaper 2024 11月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241117_RedStag"&FORM=HPQUIZ "必应主页测验 2024 11月 17")
+[下载480](https://cn.bing.com/th?id=OHR.RedStag_ZH-CN6403546321_800x480.jpg&rf=LaDigue_800x480.jpg "加里东林中的马鹿，阿夫力谷，苏格兰高地")
+[下载720](https://cn.bing.com/th?id=OHR.RedStag_ZH-CN6403546321_1280x720.jpg&rf=LaDigue_1280x720.jpg "加里东林中的马鹿，阿夫力谷，苏格兰高地")
+[下载1080](https://cn.bing.com/th?id=OHR.RedStag_ZH-CN6403546321_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加里东林中的马鹿，阿夫力谷，苏格兰高地")
+[下载UHD](https://cn.bing.com/th?id=OHR.RedStag_ZH-CN6403546321_UHD.jpg&rf=LaDigue_UHD.jpg "加里东林中的马鹿，阿夫力谷，苏格兰高地")
+
+---
 ### 11月16日：泥土、大海和天空
 #### 瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰（© Ron ter Burg/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.YucatanBiosphere_ZH-CN7442392453_1280x720.jpg&rf=LaDigue_1280x720.jpg "巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥")
 [下载1080](https://cn.bing.com/th?id=OHR.YucatanBiosphere_ZH-CN7442392453_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.YucatanBiosphere_ZH-CN7442392453_UHD.jpg&rf=LaDigue_UHD.jpg "巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥")
-
----
-### 11月02日：从濒临灭绝到成为国家的象征
-#### 黄石国家公园的美洲野牛，怀俄明州，美国（© Ian Shive/TANDEM Stills + Motion）
-
-![从濒临灭绝到成为国家的象征](https://cn.bing.com/th?id=OHR.BisonYellowstone_ZH-CN7320887379_800x480.jpg&rf=LaDigue_800x480.jpg "从濒临灭绝到成为国家的象征")
-
-很久很久以前，在北美一望无际的草原上，生活着一种强壮威武的动物，名叫美洲野牛。这些动物是许多美洲原住民部落生活的重要组成部分，可以为他们提供食物、衣服和工具。19世纪末，由于过度捕猎和疾病，它们的数量急剧下降，从多达6000万头下降到不足1000头。于是，一群环保主义者、农场主和美国原住民加入了拯救野牛的行列。现在，有50多万头野牛重新在大自然中漫步，许多都在黄石国家公园这样的保护区内生活。今天，在每年11月第一个星期六的美国国家野牛日，我们向这些高贵的动物致敬：它们是美国精神和人们为拯救它们所做出的不懈努力的见证。
-
-野牛在这些洼地里滚来滚去，身上覆盖着灰尘或泥土。它们在草原上打滚具有重要的生态工程效应，并能提高草原上动植物的多样性。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e5%9b%bd%e9%87%8e%e7%89%9b%e6%97%a5&form=hpcapt&filters=HpDate:"20241101_1600" "Bing Wallpaper 2024 11月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241102_BisonYellowstone"&FORM=HPQUIZ "必应主页测验 2024 11月 2")
-[下载480](https://cn.bing.com/th?id=OHR.BisonYellowstone_ZH-CN7320887379_800x480.jpg&rf=LaDigue_800x480.jpg "黄石国家公园的美洲野牛，怀俄明州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BisonYellowstone_ZH-CN7320887379_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄石国家公园的美洲野牛，怀俄明州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BisonYellowstone_ZH-CN7320887379_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄石国家公园的美洲野牛，怀俄明州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BisonYellowstone_ZH-CN7320887379_UHD.jpg&rf=LaDigue_UHD.jpg "黄石国家公园的美洲野牛，怀俄明州，美国")
 
 ---
