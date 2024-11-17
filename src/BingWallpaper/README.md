@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月18日：一直指引着方向
+#### 波斯考尔灯塔，南威尔士，英国（© Leighton Collins/Alamy）
+
+![一直指引着方向](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_800x480.jpg&rf=LaDigue_800x480.jpg "一直指引着方向")
+
+狂风暴雨席卷而来，海浪拍打着它坚固的基座，自1860年以来，威尔士波斯考尔的这座灯塔一直屹立不倒。这座灯塔由著名工程师詹姆斯·沃克设计，高30英尺，每当风暴袭击这片海岸时，人们经常会看到它被海浪拍打的画面。小镇的海岸线崎岖不平，暗礁密布，一直是水手们所面临的危险的挑战。波斯考尔灯塔的建造是为了帮助引导布里斯托尔海峡日益增长的海上交通。这座铸铁灯塔是英国最后一座以煤炭和天然气为动力的灯塔。虽然灯塔于1997年改用电力驱动，但仍保持着其历史魅力。
+
+“Porth”在威尔士语中是“港口”的意思，而“cawl”指的是“海甘蓝”，这种甘蓝一定生长得很茂盛，在这里都能采摘到。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%94%e5%a3%ab%e6%b3%a2%e6%96%af%e8%80%83%e5%b0%94%e7%81%af%e5%a1%94&form=hpcapt&filters=HpDate:"20241117_1600" "Bing Wallpaper 2024 11月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241118_PorthcawlLighthouse"&FORM=HPQUIZ "必应主页测验 2024 11月 18")
+[下载480](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_800x480.jpg&rf=LaDigue_800x480.jpg "波斯考尔灯塔，南威尔士，英国")
+[下载720](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_1280x720.jpg&rf=LaDigue_1280x720.jpg "波斯考尔灯塔，南威尔士，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波斯考尔灯塔，南威尔士，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_UHD.jpg&rf=LaDigue_UHD.jpg "波斯考尔灯塔，南威尔士，英国")
+
+---
 ### 11月17日：苏格兰高地的马鹿
 #### 加里东林中的马鹿，阿夫力谷，苏格兰高地（© Terry Whittaker/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CumbriaAutumn_ZH-CN7697251216_1280x720.jpg&rf=LaDigue_1280x720.jpg "坎布里亚湖区，格拉斯米尔，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.CumbriaAutumn_ZH-CN7697251216_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "坎布里亚湖区，格拉斯米尔，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.CumbriaAutumn_ZH-CN7697251216_UHD.jpg&rf=LaDigue_UHD.jpg "坎布里亚湖区，格拉斯米尔，英格兰")
-
----
-### 11月03日：自然与可持续发展的结合
-#### 巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥（© Claudio Contreras/Minden Pictures）
-
-![自然与可持续发展的结合](https://cn.bing.com/th?id=OHR.YucatanBiosphere_ZH-CN7442392453_800x480.jpg&rf=LaDigue_800x480.jpg "自然与可持续发展的结合")
-
-今天是生物圈保护区国际日。生物圈保护区听起来像是一个复杂的科学术语，但从本质上讲，它们就是自然界的宝地：在这里，生物多样性非常丰富，地球上的各种生命蓬勃地生长。这些地区得到联合国教科文组织的认可，保持着生态系统的健康，保护着濒危物种，并通过森林、湿地和其他重要的栖息地调节气候。在136个国家里，有759个生物圈保护区。从印度孙德尔本斯郁郁葱葱的绿色植物到澳大利亚广袤无垠的大沙生物圈保护区，每个保护区都是独一无二的。
-
-里奥拉加托斯自然保护区拥有丰富的地貌和生态系统，如红树林、小型河口、中等半常绿林、低矮落叶林、海岸沙丘植被、海岸潟湖、沼泽和以草地和芦苇丛为代表的稀树草原，这些都是沼泽地鸟类和海鸟的主要筑巢地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%87%8c%e5%a5%a5%e6%8b%89%e5%8a%a0%e6%89%98%e6%96%af%e8%87%aa%e7%84%b6%e4%bf%9d%e6%8a%a4%e5%8c%ba&form=hpcapt&filters=HpDate:"20241102_1600" "Bing Wallpaper 2024 11月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241103_YucatanBiosphere"&FORM=HPQUIZ "必应主页测验 2024 11月 3")
-[下载480](https://cn.bing.com/th?id=OHR.YucatanBiosphere_ZH-CN7442392453_800x480.jpg&rf=LaDigue_800x480.jpg "巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥")
-[下载720](https://cn.bing.com/th?id=OHR.YucatanBiosphere_ZH-CN7442392453_1280x720.jpg&rf=LaDigue_1280x720.jpg "巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥")
-[下载1080](https://cn.bing.com/th?id=OHR.YucatanBiosphere_ZH-CN7442392453_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥")
-[下载UHD](https://cn.bing.com/th?id=OHR.YucatanBiosphere_ZH-CN7442392453_UHD.jpg&rf=LaDigue_UHD.jpg "巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥")
 
 ---
