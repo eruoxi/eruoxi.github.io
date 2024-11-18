@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月19日：令人震撼的拱门
+#### 塔斯曼拱门，塔斯马尼亚州，澳大利亚（© Gary Bell/Minden Pictures）
+
+![令人震撼的拱门](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_800x480.jpg&rf=LaDigue_800x480.jpg "令人震撼的拱门")
+
+准备好进行一次海岸探险了吗？欢迎来到位于塔斯马尼亚州的塔斯曼国家公园！塔斯马尼亚州是澳大利亚的一个岛州，距离大陆东南海岸约150英里。塔斯曼国家公园占地面积超过41平方英里，涵盖森林半岛和塔斯曼半岛的部分地区，包含整个塔斯曼岛。该公园是几种独特的开花植物以及澳大利亚海狗和小蓝企鹅的家园。壮观的悬崖和独特的辉绿岩柱是这一地区的主要特征。今天的图片中的塔斯曼拱门就是一个典型的例子。它曾是一个巨大的海蚀洞的洞顶。海水的压力加上空气、沙子和石头，慢慢撬开了悬崖上的垂直裂缝，使大块的岩石脱落。洞穴不断扩大、加深、加长，直到最后崩塌，留下了这座高耸的天然桥梁。塔斯曼拱门以荷兰探险家阿贝尔·塔斯曼的名字命名，塔斯马尼亚州也以他的名字命名。
+
+塔斯马尼亚州在澳大利亚国内和国际上都被视为一个拥有原始野生动植物、水和空气的岛屿。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a1%94%e6%96%af%e9%a9%ac%e5%b0%bc%e4%ba%9a%e6%b4%b2&form=hpcapt&filters=HpDate:"20241118_1600" "Bing Wallpaper 2024 11月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241119_TasmansArch"&FORM=HPQUIZ "必应主页测验 2024 11月 19")
+[下载480](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_800x480.jpg&rf=LaDigue_800x480.jpg "塔斯曼拱门，塔斯马尼亚州，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_1280x720.jpg&rf=LaDigue_1280x720.jpg "塔斯曼拱门，塔斯马尼亚州，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔斯曼拱门，塔斯马尼亚州，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_UHD.jpg&rf=LaDigue_UHD.jpg "塔斯曼拱门，塔斯马尼亚州，澳大利亚")
+
+---
 ### 11月18日：一直指引着方向
 #### 波斯考尔灯塔，南威尔士，英国（© Leighton Collins/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LencoisMaranhao_ZH-CN8194406488_1280x720.jpg&rf=LaDigue_1280x720.jpg "马拉赫塞斯国家公园，马拉尼昂州,巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.LencoisMaranhao_ZH-CN8194406488_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马拉赫塞斯国家公园，马拉尼昂州,巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.LencoisMaranhao_ZH-CN8194406488_UHD.jpg&rf=LaDigue_UHD.jpg "马拉赫塞斯国家公园，马拉尼昂州,巴西")
-
----
-### 11月04日：胜过千言万语
-#### 坎布里亚湖区，格拉斯米尔，英格兰（© Thomas Molyneux/Getty Images）
-
-![胜过千言万语](https://cn.bing.com/th?id=OHR.CumbriaAutumn_ZH-CN7697251216_800x480.jpg&rf=LaDigue_800x480.jpg "胜过千言万语")
-
-这是一个诗意、历史与自然交融的地方——欢迎来到英格兰湖区小镇格拉斯米尔。这座村庄曾是著名诗人威廉·华兹华斯所挚爱的居所，他曾经形容这里为“人类发现的最美丽的地方”。在这里，游客们会看到用当地蓝绿色石材建造的老式农舍和房屋。“鸽子小屋”是华兹华斯在1799年至1808年间的简陋居所，毗邻的博物馆可以让游客深入了解这位诗人的一生。他后来的居所吕达尔山，就在不远处。村庄的中心是圣奥斯瓦尔德教堂，其历史可以追溯到13世纪。这座地标性建筑是华兹华斯的最终安息之地。教堂不远处，闻名遐迩的格拉斯米尔秘制姜饼香气扑鼻，让游客垂涎欲滴。格拉斯米尔一年一度的格拉斯米尔运动会始于1868年，是一项展示湖区传统活动的盛会，包含山地跑步、摔跤和猎犬追踪等项目。
-
-格拉斯米尔的早期历史主要与农耕、羊毛的制造以及一些矿物和岩石的开采有关。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a0%bc%e6%8b%89%e6%96%af%e7%b1%b3%e5%b0%94&form=hpcapt&filters=HpDate:"20241103_1600" "Bing Wallpaper 2024 11月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241104_CumbriaAutumn"&FORM=HPQUIZ "必应主页测验 2024 11月 4")
-[下载480](https://cn.bing.com/th?id=OHR.CumbriaAutumn_ZH-CN7697251216_800x480.jpg&rf=LaDigue_800x480.jpg "坎布里亚湖区，格拉斯米尔，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.CumbriaAutumn_ZH-CN7697251216_1280x720.jpg&rf=LaDigue_1280x720.jpg "坎布里亚湖区，格拉斯米尔，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.CumbriaAutumn_ZH-CN7697251216_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "坎布里亚湖区，格拉斯米尔，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.CumbriaAutumn_ZH-CN7697251216_UHD.jpg&rf=LaDigue_UHD.jpg "坎布里亚湖区，格拉斯米尔，英格兰")
 
 ---
