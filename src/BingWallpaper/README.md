@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月20日：加龙河上的历史通道
+#### 皮埃尔桥，波尔多，法国（© SergiyN/Getty Images）
+
+![加龙河上的历史通道](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_800x480.jpg&rf=LaDigue_800x480.jpg "加龙河上的历史通道")
+
+皮埃尔桥横跨波尔多加龙河，自1822年落成以来一直是这座城市的象征。这座历史悠久的大桥由拿破仑一世下令建造，由工程师德尚普和比洛德尔设计，是第一座连接两岸的桥梁。桥长486米，有17个雄伟的拱门和16个桥墩，是那个时代智慧的见证。它最初在落成时被命名为“路易十八桥”，但很快就被波尔多人改名为“皮埃尔桥”，意思其实就是“石桥”。
+
+这座桥共有17个拱门，而17正是拿破仑·波拿巴这个名字的字母个数。在桥的两侧，每个桥墩上都有一个白色的徽章，上面刻着代表法国路易十八名字的“双L”图案。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%a2%e5%b0%94%e5%a4%9a%e7%9a%ae%e5%9f%83%e5%b0%94%e6%a1%a5&form=hpcapt&filters=HpDate:"20241119_1600" "Bing Wallpaper 2024 11月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241120_PontBordeaux"&FORM=HPQUIZ "必应主页测验 2024 11月 20")
+[下载480](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_800x480.jpg&rf=LaDigue_800x480.jpg "皮埃尔桥，波尔多，法国")
+[下载720](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_1280x720.jpg&rf=LaDigue_1280x720.jpg "皮埃尔桥，波尔多，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "皮埃尔桥，波尔多，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_UHD.jpg&rf=LaDigue_UHD.jpg "皮埃尔桥，波尔多，法国")
+
+---
 ### 11月19日：令人震撼的拱门
 #### 塔斯曼拱门，塔斯马尼亚州，澳大利亚（© Gary Bell/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ShiShiBeach_ZH-CN8685799566_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥林匹克国家公园石狮海滩，华盛顿州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.ShiShiBeach_ZH-CN8685799566_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥林匹克国家公园石狮海滩，华盛顿州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ShiShiBeach_ZH-CN8685799566_UHD.jpg&rf=LaDigue_UHD.jpg "奥林匹克国家公园石狮海滩，华盛顿州，美国")
-
----
-### 11月05日：异世界之美
-#### 马拉赫塞斯国家公园，马拉尼昂州,巴西（© thanosquest/Shutterstock）
-
-![异世界之美](https://cn.bing.com/th?id=OHR.LencoisMaranhao_ZH-CN8194406488_800x480.jpg&rf=LaDigue_800x480.jpg "异世界之美")
-
-让我们一起来领略马拉赫塞斯国家公园令人惊叹的美景吧！该公园位于巴西马拉尼昂州东北部，是一个占地面积超过15万公顷的保护区。作为沿海海洋和塞拉多生物群落的一部分，该公园旨在保护该地区的动植物和自然美景，是真正的生态宝藏。在这里，我们可以看到在强风和定期降雨的作用下形成的红树林、沙洲和沙丘等独特的生态系统。
-
-马拉赫塞斯国家公园看起来就像一个典型的沙漠。事实上，这里并不是沙漠。该地区位于亚马逊盆地之外，每年年初都会有固定的雨季。雨水会造成一种奇特的现象：淡水聚集在沙丘之间的山谷中，在沙漠中形成蓝色和绿色的泻湖。在7月至9月期间，泻湖水量盈满，为最佳观赏期。令人惊奇的是，这里还是各种鱼类的家园。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e6%8b%89%e8%b5%ab%e5%a1%9e%e6%96%af%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241104_1600" "Bing Wallpaper 2024 11月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241105_LencoisMaranhao"&FORM=HPQUIZ "必应主页测验 2024 11月 5")
-[下载480](https://cn.bing.com/th?id=OHR.LencoisMaranhao_ZH-CN8194406488_800x480.jpg&rf=LaDigue_800x480.jpg "马拉赫塞斯国家公园，马拉尼昂州,巴西")
-[下载720](https://cn.bing.com/th?id=OHR.LencoisMaranhao_ZH-CN8194406488_1280x720.jpg&rf=LaDigue_1280x720.jpg "马拉赫塞斯国家公园，马拉尼昂州,巴西")
-[下载1080](https://cn.bing.com/th?id=OHR.LencoisMaranhao_ZH-CN8194406488_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马拉赫塞斯国家公园，马拉尼昂州,巴西")
-[下载UHD](https://cn.bing.com/th?id=OHR.LencoisMaranhao_ZH-CN8194406488_UHD.jpg&rf=LaDigue_UHD.jpg "马拉赫塞斯国家公园，马拉尼昂州,巴西")
 
 ---
