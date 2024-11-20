@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月21日：在肩头远眺
+#### 日出时的两只小狮子，南非（© Ruan Springorum/Getty Images）
+
+![在肩头远眺](https://cn.bing.com/th?id=OHR.LionCubs_ZH-CN8538754038_800x480.jpg&rf=LaDigue_800x480.jpg "在肩头远眺")
+
+想知道生活在野外的小狮子是什么样子吗？让我们一起来探索它们的生活。这里展示的是一对在南非荒野中享受日光浴的非洲幼狮。狮子通常一胎产一到四只，为了安全起见，它们被藏在一个隐蔽的洞穴里。这些小狮子一出生就双目失明，在生命的最初几周非常脆弱，完全依赖母亲。大约八周大的时候，它们就会与其他狮群见面。这不仅仅是一次偶然的互动，而是它们与群体社交中找到自己位置的重要时刻。在此期间，它们会学习如何在狮群中表现自己，这有助于它们在成长过程中塑造自己的角色。满六个月后，它们开始陪同成年狮外出狩猎，通过真实的冒险学习基本技能和狩猎技巧。狮子在两岁左右进入青春期，三四岁时进入成熟期。此时，雄狮会离开，与其他流浪雄狮结盟，而雌狮则留在同一个狮群中狩猎和繁殖。对于今天图片中的小狮子来说，它们的早期经历将为其在野外生存奠定基础。
+
+狮子大部分时间都在休息，它们每天大约有二十个小时不活动。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8b%ae%e5%ad%90&form=hpcapt&filters=HpDate:"20241120_1600" "Bing Wallpaper 2024 11月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241121_LionCubs"&FORM=HPQUIZ "必应主页测验 2024 11月 21")
+[下载480](https://cn.bing.com/th?id=OHR.LionCubs_ZH-CN8538754038_800x480.jpg&rf=LaDigue_800x480.jpg "日出时的两只小狮子，南非")
+[下载720](https://cn.bing.com/th?id=OHR.LionCubs_ZH-CN8538754038_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的两只小狮子，南非")
+[下载1080](https://cn.bing.com/th?id=OHR.LionCubs_ZH-CN8538754038_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的两只小狮子，南非")
+[下载UHD](https://cn.bing.com/th?id=OHR.LionCubs_ZH-CN8538754038_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的两只小狮子，南非")
+
+---
 ### 11月20日：加龙河上的历史通道
 #### 皮埃尔桥，波尔多，法国（© SergiyN/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_1280x720.jpg&rf=LaDigue_1280x720.jpg "金色的松树，坝上草原，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "金色的松树，坝上草原，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_UHD.jpg&rf=LaDigue_UHD.jpg "金色的松树，坝上草原，中国")
-
----
-### 11月06日：日落的阴影
-#### 奥林匹克国家公园石狮海滩，华盛顿州，美国（© T.M. Schultze/TANDEM Stills + Motion）
-
-![日落的阴影](https://cn.bing.com/th?id=OHR.ShiShiBeach_ZH-CN8685799566_800x480.jpg&rf=LaDigue_800x480.jpg "日落的阴影")
-
-奥林匹克国家公园始建于1938年，是一处未受污染的荒野胜地。该公园位于华盛顿州奥林匹克半岛，占地近1,440平方英里。从冰川覆盖的高山到温带雨林，这里的生态系统如迷宫般错综复杂，既是野生动物的家园，也是探险家和历史爱好者的度假胜地。公园内的石狮海滩宁静美丽，太平洋的浪花拍打着海蚀柱和沙岸，正如今天的图片所示。这个国家公园被认定为国际生物圈保护区，拥有600英里长的小径，徒步旅行者可以沿着海岸线徒步跋涉，在“拱门点”观赏海滩的海拱门。游客可以近距离观赏奥林匹斯山，这里有红胸䴓、冬鹪鹩和斑点猫头鹰等300多种鸟类。观赏完美景后，游客还可以在新月湖中畅游一番。阿拉瓦角以北的沿海荒野地区，包括那里的海滩，2000多年来一直是太平洋西北海岸马卡部落的家园，游客可以在附近的马卡保留地了解其文化。
-
-奥林匹克国家公园于1981年被联合国教科文组织指定为世界遗产。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a5%a5%e6%9e%97%e5%8c%b9%e5%85%8b%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241105_1600" "Bing Wallpaper 2024 11月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241106_ShiShiBeach"&FORM=HPQUIZ "必应主页测验 2024 11月 6")
-[下载480](https://cn.bing.com/th?id=OHR.ShiShiBeach_ZH-CN8685799566_800x480.jpg&rf=LaDigue_800x480.jpg "奥林匹克国家公园石狮海滩，华盛顿州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.ShiShiBeach_ZH-CN8685799566_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥林匹克国家公园石狮海滩，华盛顿州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.ShiShiBeach_ZH-CN8685799566_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥林匹克国家公园石狮海滩，华盛顿州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ShiShiBeach_ZH-CN8685799566_UHD.jpg&rf=LaDigue_UHD.jpg "奥林匹克国家公园石狮海滩，华盛顿州，美国")
 
 ---
