@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月22日：悬崖上的城堡
+#### 萨夫拉城堡，瓜达拉哈拉省，西班牙（© Eduard Gene/Getty Images）
+
+![悬崖上的城堡](https://cn.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_800x480.jpg&rf=LaDigue_800x480.jpg "悬崖上的城堡")
+
+萨夫拉城堡矗立在卡尔德雷罗斯山脉高耸的砂岩山丘上。12世纪，西班牙北部的几个基督教王国从摩尔人手中夺取了这一地区，他们在一座古老堡垒的遗址上建造了这座城堡，以保卫两个势力之间的边境地区。多年来，这座城堡经受了无数次战争的考验，包括基督教王国发动的反对西班牙穆斯林统治的军事行动，以及14世纪的卡斯蒂利亚内战。15世纪末，战争结束后，萨夫拉城堡的战略地位不再重要，开始变得破败不堪。1971年，城堡最后一任典狱长的后代唐·安东尼奥·桑兹·波罗从西班牙政府手中买下了这座城堡的遗址。随后，他花了30年时间修复城堡。如今，比起历史书，你更有可能在银幕上看到萨夫拉城堡，因为它曾被用作《权力的游戏》第六季的取景地。
+
+萨夫拉城堡及其周边地区有着悠久的居住历史。在岩洞和城堡附近发现了青铜和铁器时代的陶器碎片。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%8b%89%e8%90%a8%e5%a4%ab%e6%8b%89%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20241121_1600" "Bing Wallpaper 2024 11月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241122_ZafraCastle"&FORM=HPQUIZ "必应主页测验 2024 11月 22")
+[下载480](https://cn.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_800x480.jpg&rf=LaDigue_800x480.jpg "萨夫拉城堡，瓜达拉哈拉省，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨夫拉城堡，瓜达拉哈拉省，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨夫拉城堡，瓜达拉哈拉省，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_UHD.jpg&rf=LaDigue_UHD.jpg "萨夫拉城堡，瓜达拉哈拉省，西班牙")
+
+---
 ### 11月21日：在肩头远眺
 #### 日出时的两只小狮子，南非（© Ruan Springorum/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_1280x720.jpg&rf=LaDigue_1280x720.jpg "冰岛冰川河流鸟瞰图")
 [下载1080](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冰岛冰川河流鸟瞰图")
 [下载UHD](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_UHD.jpg&rf=LaDigue_UHD.jpg "冰岛冰川河流鸟瞰图")
-
----
-### 11月07日：初冬之美
-#### 金色的松树，坝上草原，中国（© MelindaChan/Getty Images）
-
-![初冬之美](https://cn.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_800x480.jpg&rf=LaDigue_800x480.jpg "初冬之美")
-
-今天是二十四节气之一的立冬，也是冬季的开始。今天图片中地方是位于中国坝上草原地区的松林美景。坝上草原位于内蒙古高原的东南端，大兴安岭的南麓，是内蒙古高原的重要组成部分。
-
-塞罕坝，蒙语原意为“美丽的高岭”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%86%85%e8%92%99%e5%8f%a4%e5%9d%9d%e4%b8%8a%e8%8d%89%e5%8e%9f&form=hpcapt&filters=HpDate:"20241106_1600" "Bing Wallpaper 2024 11月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241107_LiDong2024"&FORM=HPQUIZ "必应主页测验 2024 11月 7")
-[下载480](https://cn.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_800x480.jpg&rf=LaDigue_800x480.jpg "金色的松树，坝上草原，中国")
-[下载720](https://cn.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_1280x720.jpg&rf=LaDigue_1280x720.jpg "金色的松树，坝上草原，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "金色的松树，坝上草原，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_UHD.jpg&rf=LaDigue_UHD.jpg "金色的松树，坝上草原，中国")
 
 ---
