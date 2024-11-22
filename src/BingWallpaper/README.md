@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月23日：大自然的密码
+#### 多叶芦荟，袋鼠岛，澳大利亚（© Michael Melford/Alamy）
+
+![大自然的密码](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的密码")
+
+在斐波纳契日这一天，数学家和科学家们共同纪念他们的同行：列奥纳多·斐波那契。这位中世纪数学家因推广阿拉伯数字系统而闻名于世，该系统使用零、小数点和10个数字，而不是笨重的罗马数字系统。不过，最著名的还是他的数字序列：0,1,1,2,3,5,8……这个数列从第3项开始，每一项都等于前两项之和。忽略掉零，前四个数字对应今天的日期11/23。
+
+多叶芦荟在夏初开花，花朵颜色从红色到橙红色不等，偶尔也有黄色，开在粗壮、多分枝的花序顶端。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%90%e6%b3%a2%e9%82%a3%e5%a5%91%e7%ba%aa%e5%bf%b5%e6%97%a5&form=hpcapt&filters=HpDate:"20241122_1600" "Bing Wallpaper 2024 11月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241123_FibonacciAloe"&FORM=HPQUIZ "必应主页测验 2024 11月 23")
+[下载480](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_800x480.jpg&rf=LaDigue_800x480.jpg "多叶芦荟，袋鼠岛，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_1280x720.jpg&rf=LaDigue_1280x720.jpg "多叶芦荟，袋鼠岛，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多叶芦荟，袋鼠岛，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_UHD.jpg&rf=LaDigue_UHD.jpg "多叶芦荟，袋鼠岛，澳大利亚")
+
+---
 ### 11月22日：悬崖上的城堡
 #### 萨夫拉城堡，瓜达拉哈拉省，西班牙（© Eduard Gene/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_1280x720.jpg&rf=LaDigue_1280x720.jpg "银河，阿伊特本哈杜杜，摩洛哥")
 [下载1080](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "银河，阿伊特本哈杜杜，摩洛哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_UHD.jpg&rf=LaDigue_UHD.jpg "银河，阿伊特本哈杜杜，摩洛哥")
-
----
-### 11月08日：来自冰与火之国
-#### 冰岛冰川河流鸟瞰图（© rybarmarekk/Shutterstock）
-
-![来自冰与火之国](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_800x480.jpg&rf=LaDigue_800x480.jpg "来自冰与火之国")
-
-“冰与火之国”冰岛的冰川河流在数千年的时间里塑造了冰岛的地貌。今天图片中的河流就是由瓦特纳、朗格和霍夫斯等巨大冰川的融水形成的。瓦特纳冰川是冰岛第一大冰川，覆盖面积超3000平方英里，约占冰岛国土面积10%。冰川融化后，冰川水携带着细小的沉积物，形成了乳白色的辫状河流系统，与火山地形的泥土色调形成鲜明对比。每年春夏季节，河流都会因季节性融水而激增，不断塑造和重塑这片土地。从空中俯瞰，可以看到它们错综复杂的图案，就像一幅幅复杂的艺术品，在地形上交织着向北大西洋延伸。冰岛的水不仅仅是一道美丽的风景，它在可再生能源方面也发挥着重要作用。水流为水电站提供动力，巩固了冰岛作为可持续能源领导者的地位。
-
-冰川溪流通常也被称为 “冰川流 ”或“冰川融水溪流”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%86%b0%e5%b2%9b%e5%86%b0%e5%b7%9d%e6%b2%b3%e6%b5%81&form=hpcapt&filters=HpDate:"20241107_1600" "Bing Wallpaper 2024 11月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241108_GlacialRivers"&FORM=HPQUIZ "必应主页测验 2024 11月 8")
-[下载480](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_800x480.jpg&rf=LaDigue_800x480.jpg "冰岛冰川河流鸟瞰图")
-[下载720](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_1280x720.jpg&rf=LaDigue_1280x720.jpg "冰岛冰川河流鸟瞰图")
-[下载1080](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冰岛冰川河流鸟瞰图")
-[下载UHD](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_UHD.jpg&rf=LaDigue_UHD.jpg "冰岛冰川河流鸟瞰图")
 
 ---
