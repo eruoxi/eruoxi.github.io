@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月24日：潮汐与暮色
+#### 州立公园，索诺玛海岸，美国加利福尼亚州（© Rachid Dahnoun/Tandem Stills + Motion）
+
+![潮汐与暮色](https://cn.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_800x480.jpg&rf=LaDigue_800x480.jpg "潮汐与暮色")
+
+索诺玛海岸州立公园拥有风景如画的沙滩、天然拱门和幽静的海湾。该公园建于1934年，涵盖了詹纳湾和博德加湾之间17英里的北加州海岸线。野生动物爱好者可以在这里看到海豹、海狮、鲸鱼以及各种鸟类，比如鹀鸟、莺、雀、麻雀和黄鹂。历史爱好者可以探索海蚀柱形成的痕迹，这些痕迹据说是四万年前在该地区游荡的猛犸象留下的。公园内还有一些历史遗迹，比如19世纪初俄罗斯人在博德加湾建造的堡垒。公园附近的罗斯堡是由俄美公司于1812年建立的。这个定居点标志着俄罗斯殖民在北美最南端的扩张。该要塞主要作为毛皮贸易的枢纽，专注于在太平洋沿岸捕猎海獭。到19世纪30年代中期，毛皮贸易逐渐衰落，1841年，这座堡垒被卖给了美国企业家约翰·萨特。
+
+海滩漫步、日光浴、野餐、钓鱼、露营、划船、皮划艇、徒步旅行、骑马和观鸟都是索诺玛海岸州立公园的热门活动。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%b4%a2%e8%af%ba%e9%a9%ac%e6%b5%b7%e5%b2%b8%e5%b7%9e%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241123_1600" "Bing Wallpaper 2024 11月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241124_SonomaCoast"&FORM=HPQUIZ "必应主页测验 2024 11月 24")
+[下载480](https://cn.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_800x480.jpg&rf=LaDigue_800x480.jpg "州立公园，索诺玛海岸，美国加利福尼亚州")
+[下载720](https://cn.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_1280x720.jpg&rf=LaDigue_1280x720.jpg "州立公园，索诺玛海岸，美国加利福尼亚州")
+[下载1080](https://cn.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "州立公园，索诺玛海岸，美国加利福尼亚州")
+[下载UHD](https://cn.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_UHD.jpg&rf=LaDigue_UHD.jpg "州立公园，索诺玛海岸，美国加利福尼亚州")
+
+---
 ### 11月23日：大自然的密码
 #### 多叶芦荟，袋鼠岛，澳大利亚（© Michael Melford/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_1280x720.jpg&rf=LaDigue_1280x720.jpg "加勒比火烈鸟，尤卡坦半岛，墨西哥")
 [下载1080](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加勒比火烈鸟，尤卡坦半岛，墨西哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_UHD.jpg&rf=LaDigue_UHD.jpg "加勒比火烈鸟，尤卡坦半岛，墨西哥")
-
----
-### 11月09日：红尘中的宇宙美景
-#### 银河，阿伊特本哈杜杜，摩洛哥（© Cavan Images/Getty Images）
-
-![红尘中的宇宙美景](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_800x480.jpg&rf=LaDigue_800x480.jpg "红尘中的宇宙美景")
-
-准备好迎接摩洛哥的星空之夜吧！在这里观星真的很神奇，广阔的天空和极少的光污染让每个夜晚都变得璀璨夺目。你看到的每一颗星星都是银河系的一部分，银河系得名于它在最黑暗的天空中呈现出的乳白色光带。在今天的图片中，你可以看到这种宇宙之美在阿伊特本哈杜杜的上空闪耀，这是摩洛哥瓦尔扎扎特省一个历史悠久的筑有防御工事的村庄。该遗址最早建于11世纪，它是古代连接撒哈拉沙漠和马拉喀什贸易路线上的重要一站。村庄坐落在乌尼拉河边的山坡上，是一个由保护墙、塔楼和大门包围起来的建筑群。这里的粘土建筑由夯土、土坯和木材建成，展现了传统的手工艺。这一联合国教科文组织世界遗产因其原汁原味的历史风貌而闻名，还因为致力于保护传统建筑技术和避免使用现代混凝土而得到认可。
-
-阿伊特本哈杜杜在现代得到了明显的修复，部分原因是它被用作好莱坞的拍摄地，并于1987年被列入联合国教科文组织的世界遗产名录。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e4%bc%8a%e7%89%b9%e6%9c%ac%e5%93%88%e6%9d%9c%e6%9d%9c&form=hpcapt&filters=HpDate:"20241108_1600" "Bing Wallpaper 2024 11月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241109_MoroccoMilkyWay"&FORM=HPQUIZ "必应主页测验 2024 11月 9")
-[下载480](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_800x480.jpg&rf=LaDigue_800x480.jpg "银河，阿伊特本哈杜杜，摩洛哥")
-[下载720](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_1280x720.jpg&rf=LaDigue_1280x720.jpg "银河，阿伊特本哈杜杜，摩洛哥")
-[下载1080](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "银河，阿伊特本哈杜杜，摩洛哥")
-[下载UHD](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_UHD.jpg&rf=LaDigue_UHD.jpg "银河，阿伊特本哈杜杜，摩洛哥")
 
 ---
