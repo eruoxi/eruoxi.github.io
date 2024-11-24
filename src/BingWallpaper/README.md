@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月25日：野生动物的生活
+#### 马赛长颈鹿，安波塞利国家公园，肯尼亚（© Art Wolfe/DanitaDelimont.com）
+
+![野生动物的生活](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_800x480.jpg&rf=LaDigue_800x480.jpg "野生动物的生活")
+
+从今天的图片中可以看到，马赛长颈鹿漫步在肯尼亚安波塞利国家公园的广阔土地上。长颈鹿身高约5.49米或更高，是世界上最高的陆地哺乳动物。除了超过约0.45米长的卷舌之外，它们还利用惊人的身高来吃离地面近6米左右的树叶。它们的速度也比你想象的要快，能够在短距离内冲刺，时速可达37英里。长颈鹿在东非地区很常见，它们可以在草原、林地和保护区吃草。
+
+马赛长颈鹿目前是坦桑尼亚的国兽。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%82%af%e5%b0%bc%e4%ba%9a%e5%ae%89%e5%8d%9a%e5%a1%9e%e5%88%a9%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241124_1600" "Bing Wallpaper 2024 11月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241125_AmboseliGiraffes"&FORM=HPQUIZ "必应主页测验 2024 11月 25")
+[下载480](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_800x480.jpg&rf=LaDigue_800x480.jpg "马赛长颈鹿，安波塞利国家公园，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_1280x720.jpg&rf=LaDigue_1280x720.jpg "马赛长颈鹿，安波塞利国家公园，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛长颈鹿，安波塞利国家公园，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_UHD.jpg&rf=LaDigue_UHD.jpg "马赛长颈鹿，安波塞利国家公园，肯尼亚")
+
+---
 ### 11月24日：潮汐与暮色
 #### 州立公园，索诺玛海岸，美国加利福尼亚州（© Rachid Dahnoun/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_1280x720.jpg&rf=LaDigue_1280x720.jpg "班夫国家公园的日落，阿尔伯塔省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "班夫国家公园的日落，阿尔伯塔省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_UHD.jpg&rf=LaDigue_UHD.jpg "班夫国家公园的日落，阿尔伯塔省，加拿大")
-
----
-### 11月10日：飞行中的火烈鸟
-#### 加勒比火烈鸟，尤卡坦半岛，墨西哥（© Claudio Contreras/NPL/Minden Pictures）
-
-![飞行中的火烈鸟](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_800x480.jpg&rf=LaDigue_800x480.jpg "飞行中的火烈鸟")
-
-你见过一群火烈鸟飞上天空吗？如果你见过，它们很有可能就是加勒比火烈鸟，也叫美洲火烈鸟，就像今天图片中在墨西哥尤卡坦半岛看到的那样。火烈鸟成群出没时被称为“火烈鸟群”，但它们也可以被称为“站群”或“群落”。加勒比火烈鸟是美洲最大的火烈鸟物种，也是唯一原产于北美的物种。这些充满活力的鸟类通常栖息在咸淡水和海水地区，如沼泽、河口和海岸线一带。由于其通体粉红色，它们经常被误认作粉红琵鹭。不过，长长的脖子和弯曲的喙将它们与大蓝鹭和木鹳等涉水鸟类区分开来。
-
-火烈鸟是一种古老的鸟类。它们的化石记录可以追溯到中新世，也就是大约1000万年前。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e5%8b%92%e6%af%94%e7%81%ab%e7%83%88%e9%b8%9f&form=hpcapt&filters=HpDate:"20241109_1600" "Bing Wallpaper 2024 11月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241110_YucatanFlamingos"&FORM=HPQUIZ "必应主页测验 2024 11月 10")
-[下载480](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_800x480.jpg&rf=LaDigue_800x480.jpg "加勒比火烈鸟，尤卡坦半岛，墨西哥")
-[下载720](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_1280x720.jpg&rf=LaDigue_1280x720.jpg "加勒比火烈鸟，尤卡坦半岛，墨西哥")
-[下载1080](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加勒比火烈鸟，尤卡坦半岛，墨西哥")
-[下载UHD](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_UHD.jpg&rf=LaDigue_UHD.jpg "加勒比火烈鸟，尤卡坦半岛，墨西哥")
 
 ---
