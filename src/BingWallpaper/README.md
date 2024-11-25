@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月26日：有数百年历史的橄榄树
+#### 橄榄树林，伊特里亚山谷，普利亚，意大利（© Massimo Santi/Shutterstock）
+
+![有数百年历史的橄榄树](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_800x480.jpg&rf=LaDigue_800x480.jpg "有数百年历史的橄榄树")
+
+今天，我们不仅要向你献上橄榄枝，还要献上整棵橄榄树。11月26日是世界橄榄树日，让我们花些时间来欣赏一下这种奇妙的植物吧。大约在8000年前，橄榄树首次被种植在地中海东部。从那里，它们被腓尼基人传播到了希腊群岛和大陆，然后又传播到更远的地方，大约在公元前1000年到达西班牙和地中海的西部边缘。橄榄枝自古以来就是和平的象征，人们种植橄榄树以获取橄榄油、木材和果实已有千年历史。
+
+西班牙是世界上最大的橄榄油生产国，其橄榄油产量占全球总产量的一半左右。其他生产大国还有意大利、希腊、葡萄牙、突尼斯、土耳其和摩洛哥。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%a9%84%e6%a6%84%e6%a0%91%e6%97%a5&form=hpcapt&filters=HpDate:"20241125_1600" "Bing Wallpaper 2024 11月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241126_TrulliGrove"&FORM=HPQUIZ "必应主页测验 2024 11月 26")
+[下载480](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_800x480.jpg&rf=LaDigue_800x480.jpg "橄榄树林，伊特里亚山谷，普利亚，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_1280x720.jpg&rf=LaDigue_1280x720.jpg "橄榄树林，伊特里亚山谷，普利亚，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "橄榄树林，伊特里亚山谷，普利亚，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_UHD.jpg&rf=LaDigue_UHD.jpg "橄榄树林，伊特里亚山谷，普利亚，意大利")
+
+---
 ### 11月25日：野生动物的生活
 #### 马赛长颈鹿，安波塞利国家公园，肯尼亚（© Art Wolfe/DanitaDelimont.com）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_1280x720.jpg&rf=LaDigue_1280x720.jpg "透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_UHD.jpg&rf=LaDigue_UHD.jpg "透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国")
-
----
-### 11月11日：旷野里的第一片雪花
-#### 班夫国家公园的日落，阿尔伯塔省，加拿大（© fywPhoto 云卷云舒/Getty Images）
-
-![旷野里的第一片雪花](https://cn.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_800x480.jpg&rf=LaDigue_800x480.jpg "旷野里的第一片雪花")
-
-今天的这张照片展示的是加拿大阿尔伯塔省的冬季仙境，对于那些寻求清新之美的游客来说，班夫国家公园是一个理想的去处。该公园建于1885年，在硫磺山附近的温泉被发现后，它成为了加拿大的第一个国家公园。随着时间的推移，班夫的边界不断扩大，它成为了加拿大落基山脉公园群世界自然遗产的一部分。这个国家公园占地超6600平方公里，在冬季会变成白雪皑皑的游乐场，吸引着游客们纷纷前来滑雪、穿着雪鞋在雪地徒步、玩冰壶、被动物拉着在冰面上滑行以及观赏野生动物。总之，这里为游客们提供了丰富的探索活动。尽管天气寒冷，但是公园里却生机勃勃！这里是各种野生动物的家园，包括麋鹿、灰熊、山羊和狼。扭叶松和恩氏云杉也在严酷的天气下顽强生长。为确保这种生态平衡可以维持下去，班夫国家公园的动植物群受到了人类的密切监测。
-
-班夫国家公园属于亚寒带气候，有三个生态区，包括山地、亚高山和高山。低海拔地区的森林以扭叶松为主，在林木线以下的高海拔地区的森林以恩氏云杉为主，林木线以上主要是岩石和冰雪。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8f%ad%e5%a4%ab%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241110_1600" "Bing Wallpaper 2024 11月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241111_Banff24"&FORM=HPQUIZ "必应主页测验 2024 11月 11")
-[下载480](https://cn.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_800x480.jpg&rf=LaDigue_800x480.jpg "班夫国家公园的日落，阿尔伯塔省，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_1280x720.jpg&rf=LaDigue_1280x720.jpg "班夫国家公园的日落，阿尔伯塔省，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "班夫国家公园的日落，阿尔伯塔省，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_UHD.jpg&rf=LaDigue_UHD.jpg "班夫国家公园的日落，阿尔伯塔省，加拿大")
 
 ---
