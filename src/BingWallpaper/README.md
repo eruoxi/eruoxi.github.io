@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月27日：巨人的安息之地
+#### 秋天的巨人之墓，布永市，比利时（© David Briard/Getty）
+
+![巨人的安息之地](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_800x480.jpg&rf=LaDigue_800x480.jpg "巨人的安息之地")
+
+位于比利时布永市的巨人墓为前来观光的游客提供了一幅优美的全景图。这座山丘就像一位巨人躺在130英里长的瑟穆瓦河的拐弯处，其名字来源于当地的一个传说：据说一位高卢巨人特雷维索为了不被罗马士兵抓获，选择从加特岩的悬崖上跳下去。如今，这里是一个深受徒步旅行者和公路旅行者喜爱的观景点，站在这里，可以看到景色随着季节的变化呈现出显著的变化。秋天，这里的风景呈现出暖色调，就像今天图片中展示的那样，是自然爱好者和摄影师的理想之地。
+
+这个氛围超棒的地方拥有一切你想要的城堡特色：潮湿滴水的通道走廊、散发着霉味的半明半暗的牢房、猎鹰表演、粗糙的楼梯间，还有许多阴森的角落间隙待人发掘。此外，这里还有一些不同寻常的惊喜，比如正在发酵的奶酪和迷你书法博物馆。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%af%94%e5%88%a9%e6%97%b6%e5%b8%83%e6%b0%b8%e5%b8%82&form=hpcapt&filters=HpDate:"20241126_1600" "Bing Wallpaper 2024 11月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241127_SemoisRiver"&FORM=HPQUIZ "必应主页测验 2024 11月 27")
+[下载480](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_800x480.jpg&rf=LaDigue_800x480.jpg "秋天的巨人之墓，布永市，比利时")
+[下载720](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋天的巨人之墓，布永市，比利时")
+[下载1080](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋天的巨人之墓，布永市，比利时")
+[下载UHD](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_UHD.jpg&rf=LaDigue_UHD.jpg "秋天的巨人之墓，布永市，比利时")
+
+---
 ### 11月26日：有数百年历史的橄榄树
 #### 橄榄树林，伊特里亚山谷，普利亚，意大利（© Massimo Santi/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KelpForest_ZH-CN2357269491_1280x720.jpg&rf=LaDigue_1280x720.jpg "巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥")
 [下载1080](https://cn.bing.com/th?id=OHR.KelpForest_ZH-CN2357269491_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.KelpForest_ZH-CN2357269491_UHD.jpg&rf=LaDigue_UHD.jpg "巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥")
-
----
-### 11月12日：拱门之下
-#### 透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国（© Jeff Foott/Minden Pictures）
-
-![拱门之下](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_800x480.jpg&rf=LaDigue_800x480.jpg "拱门之下")
-
-头顶一片蓝，脚踩一片红，在这里，目之所及处尽是红色。欢迎来到犹他州拱门国家公园！这片超凡景观的故事开始于6500万年前，当时这里是一片干涸的海床。随着时间的推移，地质力量扭曲和挤压着这片土地，将砂岩扭曲成隆起和凸起状态。再后来，风和水雕刻出了拱门，尖峰，鳍状岩和平衡石，也就是现在矗立在这片区域的这些岩石。公园里有2000多座天然石拱，是地球上此类地质结构最集中的地方。在今天的照片中，我们可以看到其中两座石拱：透过海湾拱门看到双拱门，双拱门中较大的那座拱门跨度为144英尺，高112英尺，是公园内最高、第二长的拱门。
-
-拱门国家公园规定禁止攀爬园区内的平衡石或者是任何有名、无名的开口大于3英尺（0.9米）的拱门岩石。在公园的其他地方攀岩是允许的，但仍须遵守相关规定。此外，公园内还禁止走绳运动和低空跳伞。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8a%b9%e4%bb%96%e5%b7%9e%e6%8b%b1%e9%97%a8%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241111_1600" "Bing Wallpaper 2024 11月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241112_CoveArch"&FORM=HPQUIZ "必应主页测验 2024 11月 12")
-[下载480](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_800x480.jpg&rf=LaDigue_800x480.jpg "透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_1280x720.jpg&rf=LaDigue_1280x720.jpg "透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_UHD.jpg&rf=LaDigue_UHD.jpg "透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国")
 
 ---
