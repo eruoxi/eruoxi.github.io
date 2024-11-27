@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月28日：山峰从云层中探出头来
+#### 日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大（© Jeff Lewis/TANDEM Stills + Motion）
+
+![山峰从云层中探出头来](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_800x480.jpg&rf=LaDigue_800x480.jpg "山峰从云层中探出头来")
+
+残留的风暴云盘旋在阿西尼博因山省立公园的山峰周围，这里是加拿大落基山脉的中心地带。这座位于不列颠哥伦比亚省的公园成立于1922年，以落基山脉南部最高的山峰命名，它的海拔高达3618米。公园是阿西尼博因旅馆的所在地，这是加拿大落基山脉的第一家滑雪旅馆，建于1928年。这里没有公路通行，任何想要参观公园的人都必须徒步或乘坐直升机进入，这使得旅程本身成为一次冒险。不过所有的努力都是值得的，这个联合国教科文组织世界遗产地拥有令人惊叹的景观，从冰川和湖泊到高耸的山峰和石灰岩洞穴，总能满足游客的期待。这里有多条徒步路线可供选择，它们将带领徒步旅行者们穿过森林，越过草地，登上高山。它还是越野滑雪和“阿尔卑斯式攀登”的热门地点。如果您正在寻找一个每处景色都堪称绝美的地方，阿西尼博因山省立公园或许是您的不二之选。
+
+与组成加拿大落基山公园群的其他国家级和省级公园一样，阿西尼博因山省立公园因其自然美景和山地景观的地质及生态意义而闻名，这里有珍稀濒危物种的栖息地，山峰，冰川，湖泊，瀑布，峡谷，石灰岩洞穴和化石。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e8%a5%bf%e5%b0%bc%e5%8d%9a%e5%9b%a0%e5%b1%b1%e7%9c%81%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241127_1600" "Bing Wallpaper 2024 11月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241128_AssiniboineTS"&FORM=HPQUIZ "必应主页测验 2024 11月 28")
+[下载480](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_800x480.jpg&rf=LaDigue_800x480.jpg "日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_UHD.jpg&rf=LaDigue_UHD.jpg "日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大")
+
+---
 ### 11月27日：巨人的安息之地
 #### 秋天的巨人之墓，布永市，比利时（© David Briard/Getty）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_1280x720.jpg&rf=LaDigue_1280x720.jpg "马纳罗拉，五渔村国家公园，利古里亚，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马纳罗拉，五渔村国家公园，利古里亚，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_UHD.jpg&rf=LaDigue_UHD.jpg "马纳罗拉，五渔村国家公园，利古里亚，意大利")
-
----
-### 11月13日：海中的“狮子王”
-#### 巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥（© Claudio Contreras/Minden Pictures）
-
-![海中的“狮子王”](https://cn.bing.com/th?id=OHR.KelpForest_ZH-CN2357269491_800x480.jpg&rf=LaDigue_800x480.jpg "海中的“狮子王”")
-
-从哥斯达黎加到阿拉斯加，漫步在这些城市的任何一座码头上，你都可能听到海狮嬉闹的叫声在空气中回荡。加州海狮（如图所示）经常在北美西海岸的岩石海岸边上晒太阳。这些海洋哺乳动物属于鳍足动物，经常被误认为是海豹。有一个简单的方法可以区分这两种动物：看它们的耳朵，海狮有明显的耳朵皮瓣，而海豹没有。
-
-加州海狮主要在近海沿岸地区觅食。它们捕食各种猎物，如鱿鱼、凤尾鱼、鲭鱼、石斑鱼和沙丁鱼，这些鱼类都活跃于上升流区域。除此之外，加州海狮还可能从商业渔具，垂钓鱼线以及水坝和河流里的过鱼设施中捕食鱼类。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e7%8b%ae&form=hpcapt&filters=HpDate:"20241112_1600" "Bing Wallpaper 2024 11月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241113_KelpForest"&FORM=HPQUIZ "必应主页测验 2024 11月 13")
-[下载480](https://cn.bing.com/th?id=OHR.KelpForest_ZH-CN2357269491_800x480.jpg&rf=LaDigue_800x480.jpg "巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥")
-[下载720](https://cn.bing.com/th?id=OHR.KelpForest_ZH-CN2357269491_1280x720.jpg&rf=LaDigue_1280x720.jpg "巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥")
-[下载1080](https://cn.bing.com/th?id=OHR.KelpForest_ZH-CN2357269491_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥")
-[下载UHD](https://cn.bing.com/th?id=OHR.KelpForest_ZH-CN2357269491_UHD.jpg&rf=LaDigue_UHD.jpg "巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥")
 
 ---
