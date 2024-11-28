@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月29日：时间与潮汐之岛
+#### 圣米歇尔山，诺曼底，法国（© Captain Skyhigh/Getty Images）
+
+![时间与潮汐之岛](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_800x480.jpg&rf=LaDigue_800x480.jpg "时间与潮汐之岛")
+
+欢迎来到法国北部诺曼底的圣米歇尔山，这里是潮汐奇观和中世纪生活的缩影。这个“西方奇迹 ”的故事可以追溯到8世纪初，据说当时大天使米迦勒在异象中出现在阿夫朗什的主教面前。神谕非常明确：在这块岩石上建造一座圣殿。这位主教认真听取了天使的建议，并为目前主宰这座岛屿的修道院奠定了基础。几个世纪以来，这座联合国教科文组织认定的世界遗产的规模和声誉不断扩大，吸引着众多修道士、朝圣者以及入侵者。
+
+在极少数情况下，会出现异常高的“超级潮汐”。2015年3月21日，圣米歇尔山就经历了一次罕见的超级潮汐，潮水达到了18年一遇的最高水位，导致新建的桥完全被淹没，吸引了大量游客前来拍照留念。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%95%e5%9b%bd%e5%9c%a3%e7%b1%b3%e6%ad%87%e5%b0%94%e5%b1%b1&form=hpcapt&filters=HpDate:"20241128_1600" "Bing Wallpaper 2024 11月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241129_MtStMichel"&FORM=HPQUIZ "必应主页测验 2024 11月 29")
+[下载480](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_800x480.jpg&rf=LaDigue_800x480.jpg "圣米歇尔山，诺曼底，法国")
+[下载720](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣米歇尔山，诺曼底，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣米歇尔山，诺曼底，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_UHD.jpg&rf=LaDigue_UHD.jpg "圣米歇尔山，诺曼底，法国")
+
+---
 ### 11月28日：山峰从云层中探出头来
 #### 日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大（© Jeff Lewis/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_1280x720.jpg&rf=LaDigue_1280x720.jpg "义蓬灯节 ，清迈，泰国")
 [下载1080](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "义蓬灯节 ，清迈，泰国")
 [下载UHD](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_UHD.jpg&rf=LaDigue_UHD.jpg "义蓬灯节 ，清迈，泰国")
-
----
-### 11月14日：悬崖边的故事
-#### 马纳罗拉，五渔村国家公园，利古里亚，意大利（© John_Silver/Shutterstock）
-
-![悬崖边的故事](https://cn.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_800x480.jpg&rf=LaDigue_800x480.jpg "悬崖边的故事")
-
-蜡笔画一样的房子层叠而下，延伸至地中海，马纳罗拉因此美景而出名，如同今天的照片一样，这里看起来就像童话故事中的场景。镶嵌在意大利利古里亚海岸崎岖悬崖上，马纳罗拉是组成五渔村国家公园的五个村庄之一，被联合国教科文组织列为世界遗产。而马纳罗拉（Manarola）这个名字可能是从拉丁语“Magna rota”演变而来的，在当地方言中变成了“Magna roea”，意思是“大轮子”，以此向该村历史悠久的水车致敬。马纳罗拉的历史可以追溯到1338年，它被认为是五渔村最古老的村庄，其历史根植于渔业和酿酒业。夏克特拉是这一地区独有的餐后甜酒，在意大利诗人的诗篇中，这种酒早已成为不朽的名酒。沿着这里的“爱之路”漫步，您可以感受到这个地区独有的浪漫和魅力，这条风景优美的滨海小径连接着马纳罗拉和五渔村的另一个村庄里奥马焦雷。在马纳罗拉，时间会变得慢下来，那是海边的魔法开始发挥作用了。
-
-马纳罗拉的主要产业历来是渔业和酿酒业，当地的葡萄酒“夏克特拉”尤为有名，古罗马文献中也曾提到了该地区生产的高品质葡萄酒。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e7%ba%b3%e7%bd%97%e6%8b%89&form=hpcapt&filters=HpDate:"20241113_1600" "Bing Wallpaper 2024 11月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241114_ManarolaItaly"&FORM=HPQUIZ "必应主页测验 2024 11月 14")
-[下载480](https://cn.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_800x480.jpg&rf=LaDigue_800x480.jpg "马纳罗拉，五渔村国家公园，利古里亚，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_1280x720.jpg&rf=LaDigue_1280x720.jpg "马纳罗拉，五渔村国家公园，利古里亚，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马纳罗拉，五渔村国家公园，利古里亚，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_UHD.jpg&rf=LaDigue_UHD.jpg "马纳罗拉，五渔村国家公园，利古里亚，意大利")
 
 ---
