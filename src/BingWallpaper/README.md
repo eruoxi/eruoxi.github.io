@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月30日：探秘苏格兰的遗产
+#### 基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰（© Tom Mackie/plainpicture）
+
+![探秘苏格兰的遗产](https://cn.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_800x480.jpg&rf=LaDigue_800x480.jpg "探秘苏格兰的遗产")
+
+穿上格子裙，吹响风笛吧——今天是圣安德鲁节！苏格兰的国庆节是当地的公共假日，不过并不是每个人都会在这一天放假。圣安德鲁不仅是一名渔夫，还是希腊、巴巴多斯、罗马尼亚和乌克兰等其他几个国家的守护神。他既是耶稣的使徒之一，也是基督教的关键人物。尽管圣安德鲁从未踏足苏格兰，但他的影响在苏格兰的圣安德鲁十字旗中得以永存，据说这面旗象征着他殉难时所用的十字架。
+
+这座城堡目前因保护工程而关闭。城堡周围的安全围栏上的标志上写着，关闭的原因是砖石掉落造成的安全风险。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a5%a5%e6%b9%96&form=hpcapt&filters=HpDate:"20241129_1600" "Bing Wallpaper 2024 11月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241130_KilchurnAutumn"&FORM=HPQUIZ "必应主页测验 2024 11月 30")
+[下载480](https://cn.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_800x480.jpg&rf=LaDigue_800x480.jpg "基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰")
+[下载720](https://cn.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_1280x720.jpg&rf=LaDigue_1280x720.jpg "基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_UHD.jpg&rf=LaDigue_UHD.jpg "基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰")
+
+---
 ### 11月29日：时间与潮汐之岛
 #### 圣米歇尔山，诺曼底，法国（© Captain Skyhigh/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰")
 [下载1080](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_UHD.jpg&rf=LaDigue_UHD.jpg "瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰")
-
----
-### 11月15日：愿望随灯起飞
-#### 义蓬灯节 ，清迈，泰国（© tampatra/Getty Images）
-
-![愿望随灯起飞](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_800x480.jpg&rf=LaDigue_800x480.jpg "愿望随灯起飞")
-
-在今天的夜幕降临时，泰国第二大城市清迈将在数以千计的流光溢彩的灯笼中迎来义蓬灯节。这个庆祝活动在兰纳农历（该历法可追溯到中世纪泰国北部的兰纳王国）第二个月的满月时举行，象征着消除负面情绪和迎接新的开始。节日的高潮是在夜空中放飞名为“ khom loi”或“khom loy”的天灯，也就是能在空中漂浮的纸灯笼。届时，天际弥漫着温暖的金色光海，形成一道美丽的风景线。当地人和游客聚集在寺庙和宫殿周围，向天空许愿，希望来年好运连连。
-
-在知名旅行网站“猫途鹰”评选出的“全球25大最佳旅行目的地”榜单中，清迈是泰国入选的两个旅游目的地之一，位列第24位。此外，清迈也是新偶像组合CGM48成立的地方。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b3%b0%e5%9b%bd%e6%b8%85%e8%bf%88&form=hpcapt&filters=HpDate:"20241114_1600" "Bing Wallpaper 2024 11月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241115_YiPengLanterns"&FORM=HPQUIZ "必应主页测验 2024 11月 15")
-[下载480](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_800x480.jpg&rf=LaDigue_800x480.jpg "义蓬灯节 ，清迈，泰国")
-[下载720](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_1280x720.jpg&rf=LaDigue_1280x720.jpg "义蓬灯节 ，清迈，泰国")
-[下载1080](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "义蓬灯节 ，清迈，泰国")
-[下载UHD](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_UHD.jpg&rf=LaDigue_UHD.jpg "义蓬灯节 ，清迈，泰国")
 
 ---
