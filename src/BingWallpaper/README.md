@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月01日：保护最后一片大荒野
+#### 南极洲的冰山（© Art Wolfe/DanitaDelimont.com）
+
+![保护最后一片大荒野](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_800x480.jpg&rf=LaDigue_800x480.jpg "保护最后一片大荒野")
+
+今天是南极日，让我们将目光聚焦在世界上最引人注目的国际协定之一的《南极条约》上。该条约于1959年由12个国家签署，将整个南极大陆指定为非军事区，特别注重促进科学研究与合作。这一天彰显了全球合作精神，提醒我们肩负起保护地球上最后一片大荒野的集体责任。
+
+南极洲是地球上最寒冷、风力最大、最干燥的大陆。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%97%e6%9e%81%e6%97%a5&form=hpcapt&filters=HpDate:"20241130_1600" "Bing Wallpaper 2024 12月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241201_IcebergsAntarctica"&FORM=HPQUIZ "必应主页测验 2024 12月 1")
+[下载480](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_800x480.jpg&rf=LaDigue_800x480.jpg "南极洲的冰山")
+[下载720](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_1280x720.jpg&rf=LaDigue_1280x720.jpg "南极洲的冰山")
+[下载1080](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南极洲的冰山")
+[下载UHD](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_UHD.jpg&rf=LaDigue_UHD.jpg "南极洲的冰山")
+
+---
 ### 11月30日：探秘苏格兰的遗产
 #### 基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰（© Tom Mackie/plainpicture）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RedStag_ZH-CN6403546321_1280x720.jpg&rf=LaDigue_1280x720.jpg "加里东林中的马鹿，阿夫力谷，苏格兰高地")
 [下载1080](https://cn.bing.com/th?id=OHR.RedStag_ZH-CN6403546321_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加里东林中的马鹿，阿夫力谷，苏格兰高地")
 [下载UHD](https://cn.bing.com/th?id=OHR.RedStag_ZH-CN6403546321_UHD.jpg&rf=LaDigue_UHD.jpg "加里东林中的马鹿，阿夫力谷，苏格兰高地")
-
----
-### 11月16日：泥土、大海和天空
-#### 瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰（© Ron ter Burg/Minden Pictures）
-
-![泥土、大海和天空](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_800x480.jpg&rf=LaDigue_800x480.jpg "泥土、大海和天空")
-
-如果你曾经想过在水上漫步，或者在接近水面的地方行走，瓦登海就是你的理想之地。沿着荷兰、德国和丹麦的海岸绵延300多英里，这个联合国教科文组织认定的世界遗产拥有独特的滩涂和湿地景观。事实上，它是世界上最大的完整潮间带（即涨潮时在水下，退潮时露出水面的沙地和泥滩）。该地区既是突唇白鲑、褐鳟和白喙斑纹海豚等水生物种的游乐场，也是涉禽和苍鹭等鸟类的栖息地。
-
-1903年厄斯金·柴德斯的小说《沙岸之谜》和1915年埃尔丝·乌拉伊的小说《儿童疗养院中的小宝贝》都以瓦登海的德国部分为背景。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%93%a6%e7%99%bb%e6%b5%b7&form=hpcapt&filters=HpDate:"20241115_1600" "Bing Wallpaper 2024 11月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241116_FrieslandNetherlands"&FORM=HPQUIZ "必应主页测验 2024 11月 16")
-[下载480](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_800x480.jpg&rf=LaDigue_800x480.jpg "瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰")
-[下载720](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰")
-[下载1080](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_UHD.jpg&rf=LaDigue_UHD.jpg "瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰")
 
 ---
