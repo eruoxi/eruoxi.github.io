@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月02日：狂野的眼神
+#### 雌性驼鹿，德纳里国家公园，阿拉斯加州，美国（© Cavan Images/Alamy Stock Photo）
+
+![狂野的眼神](https://cn.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_800x480.jpg&rf=LaDigue_800x480.jpg "狂野的眼神")
+
+您体验过看到阿拉斯加驼鹿时的震撼吗？作为最大的驼鹿物种，它们的体重在700到1400磅之间，肩高可达6英尺。雄性驼鹿被称为公驼鹿，雌性被称为母驼鹿，它们的幼崽则被称为小驼鹿。真正让驼鹿与众不同的是它们令人难以置信的鹿角，而且只有雄性驼鹿才有鹿角。
+
+公驼鹿和鹿科的其他成员一样长有鹿角。鹿角的大小和生长速度由饮食和年龄决定。鹿角的大小和对称性预示着公驼鹿的健康状况，母驼鹿可能会根据鹿角的大小和对称性来选择配偶。公驼鹿用它们的鹿角来展示自己的支配地位、赶走竞争者以及与对手搏斗。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%bc%e9%b9%bf&form=hpcapt&filters=HpDate:"20241201_1600" "Bing Wallpaper 2024 12月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241202_SnowMoose"&FORM=HPQUIZ "必应主页测验 2024 12月 2")
+[下载480](https://cn.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_800x480.jpg&rf=LaDigue_800x480.jpg "雌性驼鹿，德纳里国家公园，阿拉斯加州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_1280x720.jpg&rf=LaDigue_1280x720.jpg "雌性驼鹿，德纳里国家公园，阿拉斯加州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雌性驼鹿，德纳里国家公园，阿拉斯加州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_UHD.jpg&rf=LaDigue_UHD.jpg "雌性驼鹿，德纳里国家公园，阿拉斯加州，美国")
+
+---
 ### 12月01日：保护最后一片大荒野
 #### 南极洲的冰山（© Art Wolfe/DanitaDelimont.com）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_1280x720.jpg&rf=LaDigue_1280x720.jpg "波斯考尔灯塔，南威尔士，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波斯考尔灯塔，南威尔士，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_UHD.jpg&rf=LaDigue_UHD.jpg "波斯考尔灯塔，南威尔士，英国")
-
----
-### 11月17日：苏格兰高地的马鹿
-#### 加里东林中的马鹿，阿夫力谷，苏格兰高地（© Terry Whittaker/Alamy）
-
-![苏格兰高地的马鹿](https://cn.bing.com/th?id=OHR.RedStag_ZH-CN6403546321_800x480.jpg&rf=LaDigue_800x480.jpg "苏格兰高地的马鹿")
-
-引人注目的外表、强大的气场和令人印象深刻的鹿角，这就是在苏格兰最美丽的山谷之一的阿夫力谷的古老森林中拍摄到的马鹿。这种动物分布在欧洲、亚洲和北非的部分地区，既是英国最大的陆地哺乳动物，也是加里东林的重要组成部分。从遍布欧洲的洞穴艺术到中世纪的狩猎传统，马鹿一直在人类的想象中占据着特殊的地位。在世界上的许多地方，它们的形象是大自然野性、自由精神的代名词。拥有湖泊、荒地和山脉的阿夫力谷为这些动物提供了完美的栖息地。该地区既是国家自然保护区，也是徒步旅行者、登山者和自然爱好者的天堂。这里还发现了苏格兰马鹿。这些鹿比西欧同类略小，表现出岛屿侏儒化的特征，而岛屿侏儒化正是大型动物经过许多代进化而拥有更小身体的过程。
-
-欧洲的马鹿通常在海拔较低且树木较多的地区过冬。在夏季，它们会迁徙到海拔更高的地方，以便在产犊季节获得更为充足的食物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e9%b9%bf&form=hpcapt&filters=HpDate:"20241116_1600" "Bing Wallpaper 2024 11月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241117_RedStag"&FORM=HPQUIZ "必应主页测验 2024 11月 17")
-[下载480](https://cn.bing.com/th?id=OHR.RedStag_ZH-CN6403546321_800x480.jpg&rf=LaDigue_800x480.jpg "加里东林中的马鹿，阿夫力谷，苏格兰高地")
-[下载720](https://cn.bing.com/th?id=OHR.RedStag_ZH-CN6403546321_1280x720.jpg&rf=LaDigue_1280x720.jpg "加里东林中的马鹿，阿夫力谷，苏格兰高地")
-[下载1080](https://cn.bing.com/th?id=OHR.RedStag_ZH-CN6403546321_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加里东林中的马鹿，阿夫力谷，苏格兰高地")
-[下载UHD](https://cn.bing.com/th?id=OHR.RedStag_ZH-CN6403546321_UHD.jpg&rf=LaDigue_UHD.jpg "加里东林中的马鹿，阿夫力谷，苏格兰高地")
 
 ---
