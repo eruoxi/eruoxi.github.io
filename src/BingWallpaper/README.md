@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月03日：柱式遗产
+#### Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度（© Yury Taranik/Shutterstock）
+
+![柱式遗产](https://cn.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_800x480.jpg&rf=LaDigue_800x480.jpg "柱式遗产")
+
+漫步在印度拉贾斯坦邦斋浦尔地区的街道上，你会被宏伟的宫殿和高耸的堡垒所吸引，它们塑造了该地区的景观。其中最引人注目的是琥珀堡，它坐落在距离斋浦尔主城约7英里的一座小山上。在这座堡垒华丽的城墙内有一个名为“Sattais Katcheri”的建筑，意思是“27根柱子的宫廷”，这就是今天图片中的建筑。琥珀堡建于1592年，曾是该地区统治者的居所。琥珀堡以其独特的印度神庙、拉杰普特和莫卧儿建筑风格而闻名，由淡黄色和粉红色砂岩以及白色大理石建成。这座杰作共分四层，每层都有自己的庭院。每晚的灯光音响秀将城堡的魅力展现得淋漓尽致。作为联合国教科文组织认定的世界遗产，琥珀堡可以让游客尽情探索其丰富的历史和皇家风范。
+
+安梅尔（Amer）或琥珀（Amber）的名称源于建在鹰丘山顶上的安比喀什瓦神庙。安比喀什瓦拉（Ambikashwara）是当地人对湿婆神的称呼。不过，当地民间传说认为，该堡垒的名称源自杜尔迦女神的名字“Amba”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%90%a5%e7%8f%80%e5%a0%a1&form=hpcapt&filters=HpDate:"20241202_1600" "Bing Wallpaper 2024 12月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241203_JaipurFort"&FORM=HPQUIZ "必应主页测验 2024 12月 3")
+[下载480](https://cn.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_800x480.jpg&rf=LaDigue_800x480.jpg "Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_1280x720.jpg&rf=LaDigue_1280x720.jpg "Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_UHD.jpg&rf=LaDigue_UHD.jpg "Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度")
+
+---
 ### 12月02日：狂野的眼神
 #### 雌性驼鹿，德纳里国家公园，阿拉斯加州，美国（© Cavan Images/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_1280x720.jpg&rf=LaDigue_1280x720.jpg "塔斯曼拱门，塔斯马尼亚州，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔斯曼拱门，塔斯马尼亚州，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_UHD.jpg&rf=LaDigue_UHD.jpg "塔斯曼拱门，塔斯马尼亚州，澳大利亚")
-
----
-### 11月18日：一直指引着方向
-#### 波斯考尔灯塔，南威尔士，英国（© Leighton Collins/Alamy）
-
-![一直指引着方向](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_800x480.jpg&rf=LaDigue_800x480.jpg "一直指引着方向")
-
-狂风暴雨席卷而来，海浪拍打着它坚固的基座，自1860年以来，威尔士波斯考尔的这座灯塔一直屹立不倒。这座灯塔由著名工程师詹姆斯·沃克设计，高30英尺，每当风暴袭击这片海岸时，人们经常会看到它被海浪拍打的画面。小镇的海岸线崎岖不平，暗礁密布，一直是水手们所面临的危险的挑战。波斯考尔灯塔的建造是为了帮助引导布里斯托尔海峡日益增长的海上交通。这座铸铁灯塔是英国最后一座以煤炭和天然气为动力的灯塔。虽然灯塔于1997年改用电力驱动，但仍保持着其历史魅力。
-
-“Porth”在威尔士语中是“港口”的意思，而“cawl”指的是“海甘蓝”，这种甘蓝一定生长得很茂盛，在这里都能采摘到。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%94%e5%a3%ab%e6%b3%a2%e6%96%af%e8%80%83%e5%b0%94%e7%81%af%e5%a1%94&form=hpcapt&filters=HpDate:"20241117_1600" "Bing Wallpaper 2024 11月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241118_PorthcawlLighthouse"&FORM=HPQUIZ "必应主页测验 2024 11月 18")
-[下载480](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_800x480.jpg&rf=LaDigue_800x480.jpg "波斯考尔灯塔，南威尔士，英国")
-[下载720](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_1280x720.jpg&rf=LaDigue_1280x720.jpg "波斯考尔灯塔，南威尔士，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波斯考尔灯塔，南威尔士，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_UHD.jpg&rf=LaDigue_UHD.jpg "波斯考尔灯塔，南威尔士，英国")
 
 ---
