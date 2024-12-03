@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月04日：濒临灭绝
+#### 雄性白犀，纳库鲁湖，肯尼亚（© Ingo Arndt/Minden Pictures）
+
+![濒临灭绝](https://cn.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_800x480.jpg&rf=LaDigue_800x480.jpg "濒临灭绝")
+
+今天是野生动物保护日——一个提醒我们庆祝并保护地球上惊人的生物多样性的重要日子。许多物种正面临灭绝，包括非洲森林象、克罗斯河大猩猩、中南大羚、长江江豚等。自2012年设立以来，这个特别的日子一直关注着非法野生动植物贸易和动物面临的其他威胁，同时还提醒人们需要采取更强有力的长期解决方案。
+
+白犀牛通常生活在由多达14头犀牛组成的群落中，这些群体主要由母牛组成。亚成年公犀牛通常会与成年母牛聚集在一起，大多数成年公犀牛则更倾向于独居。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%99%bd%e7%8a%80&form=hpcapt&filters=HpDate:"20241203_1600" "Bing Wallpaper 2024 12月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241204_RhinosKenya"&FORM=HPQUIZ "必应主页测验 2024 12月 4")
+[下载480](https://cn.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_800x480.jpg&rf=LaDigue_800x480.jpg "雄性白犀，纳库鲁湖，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_1280x720.jpg&rf=LaDigue_1280x720.jpg "雄性白犀，纳库鲁湖，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雄性白犀，纳库鲁湖，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_UHD.jpg&rf=LaDigue_UHD.jpg "雄性白犀，纳库鲁湖，肯尼亚")
+
+---
 ### 12月03日：柱式遗产
 #### Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度（© Yury Taranik/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_1280x720.jpg&rf=LaDigue_1280x720.jpg "皮埃尔桥，波尔多，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "皮埃尔桥，波尔多，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_UHD.jpg&rf=LaDigue_UHD.jpg "皮埃尔桥，波尔多，法国")
-
----
-### 11月19日：令人震撼的拱门
-#### 塔斯曼拱门，塔斯马尼亚州，澳大利亚（© Gary Bell/Minden Pictures）
-
-![令人震撼的拱门](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_800x480.jpg&rf=LaDigue_800x480.jpg "令人震撼的拱门")
-
-准备好进行一次海岸探险了吗？欢迎来到位于塔斯马尼亚州的塔斯曼国家公园！塔斯马尼亚州是澳大利亚的一个岛州，距离大陆东南海岸约150英里。塔斯曼国家公园占地面积超过41平方英里，涵盖森林半岛和塔斯曼半岛的部分地区，包含整个塔斯曼岛。该公园是几种独特的开花植物以及澳大利亚海狗和小蓝企鹅的家园。壮观的悬崖和独特的辉绿岩柱是这一地区的主要特征。今天的图片中的塔斯曼拱门就是一个典型的例子。它曾是一个巨大的海蚀洞的洞顶。海水的压力加上空气、沙子和石头，慢慢撬开了悬崖上的垂直裂缝，使大块的岩石脱落。洞穴不断扩大、加深、加长，直到最后崩塌，留下了这座高耸的天然桥梁。塔斯曼拱门以荷兰探险家阿贝尔·塔斯曼的名字命名，塔斯马尼亚州也以他的名字命名。
-
-塔斯马尼亚州在澳大利亚国内和国际上都被视为一个拥有原始野生动植物、水和空气的岛屿。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a1%94%e6%96%af%e9%a9%ac%e5%b0%bc%e4%ba%9a%e6%b4%b2&form=hpcapt&filters=HpDate:"20241118_1600" "Bing Wallpaper 2024 11月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241119_TasmansArch"&FORM=HPQUIZ "必应主页测验 2024 11月 19")
-[下载480](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_800x480.jpg&rf=LaDigue_800x480.jpg "塔斯曼拱门，塔斯马尼亚州，澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_1280x720.jpg&rf=LaDigue_1280x720.jpg "塔斯曼拱门，塔斯马尼亚州，澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔斯曼拱门，塔斯马尼亚州，澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_UHD.jpg&rf=LaDigue_UHD.jpg "塔斯曼拱门，塔斯马尼亚州，澳大利亚")
 
 ---
