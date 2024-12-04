@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月05日：石灰华塔的崛起
+#### 莫诺湖的石灰华地层，加利福尼亚州，美国（© Susanna Patras/TANDEM Stills + Motion）
+
+![石灰华塔的崛起](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_800x480.jpg&rf=LaDigue_800x480.jpg "石灰华塔的崛起")
+
+在时间的缓慢流逝下，凝灰岩——一种多孔石灰岩，成为大自然中最壮观的地貌之一。虽然这些塔在许多地方都能找到，但今天的图片展示的是加利福尼亚州莫诺县的莫诺湖。当富含钙质的淡水从几条小溪流入湖中，与湖中的碱性水混合后，就形成了这些结构。几个世纪以来，这种相互作用导致碳酸钙堆积，在湖面上形成了石灰华塔。为了保护这些塔，加利福尼亚州议会于1981年建立了莫诺湖图法国家自然保护区。
+
+莫诺湖位于莫诺盆地的一部分，这是一个内流盆地，没有通往海洋的出口。因此，径流中的溶解盐分会留在湖中，使湖水的pH值和盐分浓度升高。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e5%88%a9%e7%a6%8f%e5%b0%bc%e4%ba%9a%e5%b7%9e%e8%8e%ab%e8%af%ba%e6%b9%96&form=hpcapt&filters=HpDate:"20241204_1600" "Bing Wallpaper 2024 12月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241205_MonoTufa"&FORM=HPQUIZ "必应主页测验 2024 12月 5")
+[下载480](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_800x480.jpg&rf=LaDigue_800x480.jpg "莫诺湖的石灰华地层，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_1280x720.jpg&rf=LaDigue_1280x720.jpg "莫诺湖的石灰华地层，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫诺湖的石灰华地层，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_UHD.jpg&rf=LaDigue_UHD.jpg "莫诺湖的石灰华地层，加利福尼亚州，美国")
+
+---
 ### 12月04日：濒临灭绝
 #### 雄性白犀，纳库鲁湖，肯尼亚（© Ingo Arndt/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LionCubs_ZH-CN8538754038_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的两只小狮子，南非")
 [下载1080](https://cn.bing.com/th?id=OHR.LionCubs_ZH-CN8538754038_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的两只小狮子，南非")
 [下载UHD](https://cn.bing.com/th?id=OHR.LionCubs_ZH-CN8538754038_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的两只小狮子，南非")
-
----
-### 11月20日：加龙河上的历史通道
-#### 皮埃尔桥，波尔多，法国（© SergiyN/Getty Images）
-
-![加龙河上的历史通道](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_800x480.jpg&rf=LaDigue_800x480.jpg "加龙河上的历史通道")
-
-皮埃尔桥横跨波尔多加龙河，自1822年落成以来一直是这座城市的象征。这座历史悠久的大桥由拿破仑一世下令建造，由工程师德尚普和比洛德尔设计，是第一座连接两岸的桥梁。桥长486米，有17个雄伟的拱门和16个桥墩，是那个时代智慧的见证。它最初在落成时被命名为“路易十八桥”，但很快就被波尔多人改名为“皮埃尔桥”，意思其实就是“石桥”。
-
-这座桥共有17个拱门，而17正是拿破仑·波拿巴这个名字的字母个数。在桥的两侧，每个桥墩上都有一个白色的徽章，上面刻着代表法国路易十八名字的“双L”图案。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b3%a2%e5%b0%94%e5%a4%9a%e7%9a%ae%e5%9f%83%e5%b0%94%e6%a1%a5&form=hpcapt&filters=HpDate:"20241119_1600" "Bing Wallpaper 2024 11月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241120_PontBordeaux"&FORM=HPQUIZ "必应主页测验 2024 11月 20")
-[下载480](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_800x480.jpg&rf=LaDigue_800x480.jpg "皮埃尔桥，波尔多，法国")
-[下载720](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_1280x720.jpg&rf=LaDigue_1280x720.jpg "皮埃尔桥，波尔多，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "皮埃尔桥，波尔多，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_UHD.jpg&rf=LaDigue_UHD.jpg "皮埃尔桥，波尔多，法国")
 
 ---
