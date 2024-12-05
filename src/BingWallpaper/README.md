@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月06日：一路通往童话之路
+#### 鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国（© zhengshun tang/Getty Images）
+
+![一路通往童话之路](https://cn.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_800x480.jpg&rf=LaDigue_800x480.jpg "一路通往童话之路")
+
+大雪节气已至，气温显著下降、中国大部分地区已经进入了寒冷的冬季。今天带您欣赏的是中国辽宁省大连市的泊霞湾公园。冬季，尤其是大雪节气之后，北方有“千里冰封，万里雪飘”的自然景观，此时的中国北方的部分海面已经慢慢开始冰封，于泊霞湾公园附近的灯塔欣赏冰封的海面是一个既梦幻又浪漫的好地方。
+
+彩虹路全长超过3000米，是大连市最长的彩虹观光路之一，路中间的双黄线，被红黄蓝的三色线取代。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e8%bf%9e%e6%b3%8a%e9%9c%9e%e6%b9%be&form=hpcapt&filters=HpDate:"20241205_1600" "Bing Wallpaper 2024 12月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241206_GreaterSnow2024"&FORM=HPQUIZ "必应主页测验 2024 12月 6")
+[下载480](https://cn.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_800x480.jpg&rf=LaDigue_800x480.jpg "鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_1280x720.jpg&rf=LaDigue_1280x720.jpg "鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_UHD.jpg&rf=LaDigue_UHD.jpg "鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国")
+
+---
 ### 12月05日：石灰华塔的崛起
 #### 莫诺湖的石灰华地层，加利福尼亚州，美国（© Susanna Patras/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨夫拉城堡，瓜达拉哈拉省，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨夫拉城堡，瓜达拉哈拉省，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_UHD.jpg&rf=LaDigue_UHD.jpg "萨夫拉城堡，瓜达拉哈拉省，西班牙")
-
----
-### 11月21日：在肩头远眺
-#### 日出时的两只小狮子，南非（© Ruan Springorum/Getty Images）
-
-![在肩头远眺](https://cn.bing.com/th?id=OHR.LionCubs_ZH-CN8538754038_800x480.jpg&rf=LaDigue_800x480.jpg "在肩头远眺")
-
-想知道生活在野外的小狮子是什么样子吗？让我们一起来探索它们的生活。这里展示的是一对在南非荒野中享受日光浴的非洲幼狮。狮子通常一胎产一到四只，为了安全起见，它们被藏在一个隐蔽的洞穴里。这些小狮子一出生就双目失明，在生命的最初几周非常脆弱，完全依赖母亲。大约八周大的时候，它们就会与其他狮群见面。这不仅仅是一次偶然的互动，而是它们与群体社交中找到自己位置的重要时刻。在此期间，它们会学习如何在狮群中表现自己，这有助于它们在成长过程中塑造自己的角色。满六个月后，它们开始陪同成年狮外出狩猎，通过真实的冒险学习基本技能和狩猎技巧。狮子在两岁左右进入青春期，三四岁时进入成熟期。此时，雄狮会离开，与其他流浪雄狮结盟，而雌狮则留在同一个狮群中狩猎和繁殖。对于今天图片中的小狮子来说，它们的早期经历将为其在野外生存奠定基础。
-
-狮子大部分时间都在休息，它们每天大约有二十个小时不活动。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8b%ae%e5%ad%90&form=hpcapt&filters=HpDate:"20241120_1600" "Bing Wallpaper 2024 11月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241121_LionCubs"&FORM=HPQUIZ "必应主页测验 2024 11月 21")
-[下载480](https://cn.bing.com/th?id=OHR.LionCubs_ZH-CN8538754038_800x480.jpg&rf=LaDigue_800x480.jpg "日出时的两只小狮子，南非")
-[下载720](https://cn.bing.com/th?id=OHR.LionCubs_ZH-CN8538754038_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的两只小狮子，南非")
-[下载1080](https://cn.bing.com/th?id=OHR.LionCubs_ZH-CN8538754038_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的两只小狮子，南非")
-[下载UHD](https://cn.bing.com/th?id=OHR.LionCubs_ZH-CN8538754038_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的两只小狮子，南非")
 
 ---
