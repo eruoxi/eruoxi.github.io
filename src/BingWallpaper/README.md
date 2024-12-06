@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月07日：自然奇观的蓝色魅力
+#### 里约热内卢州的阿拉亚尔多卡博，巴西（© Derson Santana/Shutterstock）
+
+![自然奇观的蓝色魅力](https://cn.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_800x480.jpg&rf=LaDigue_800x480.jpg "自然奇观的蓝色魅力")
+
+让我们一起来探索位于阿拉亚尔多卡博的蓬塔尔杜阿塔拉亚的壮丽美景！这个地点位于巴西里约热内卢，以提供该地区最美丽的景点之一而闻名，在这里可以将周围的海滩和岛屿尽收眼底。想象一下，从这个得天独厚的制高点观看日落，海天一色，美不胜收。要前往著名的庞塔尔海滩，您必须走过一个拥有着250多级台阶的标志性阶梯——阶梯上的景色和海滩本身一样令人印象深刻，透明的海水和洁白的沙滩让 “巴西加勒比海 ”的绰号名副其实。
+
+自1503年葡萄牙海军抵达阿拉亚尔多卡博起，一直到19世纪，这里发生了许多沉船事故。由于这一事实（以及其他生物因素），阿拉亚尔多卡博被誉为 “潜水之都”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e6%8b%89%e4%ba%9a%e5%b0%94%e5%a4%9a%e5%8d%a1%e5%8d%9a&form=hpcapt&filters=HpDate:"20241206_1600" "Bing Wallpaper 2024 12月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241207_ArraialdoCabo"&FORM=HPQUIZ "必应主页测验 2024 12月 7")
+[下载480](https://cn.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_800x480.jpg&rf=LaDigue_800x480.jpg "里约热内卢州的阿拉亚尔多卡博，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_1280x720.jpg&rf=LaDigue_1280x720.jpg "里约热内卢州的阿拉亚尔多卡博，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "里约热内卢州的阿拉亚尔多卡博，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_UHD.jpg&rf=LaDigue_UHD.jpg "里约热内卢州的阿拉亚尔多卡博，巴西")
+
+---
 ### 12月06日：一路通往童话之路
 #### 鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国（© zhengshun tang/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_1280x720.jpg&rf=LaDigue_1280x720.jpg "多叶芦荟，袋鼠岛，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多叶芦荟，袋鼠岛，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_UHD.jpg&rf=LaDigue_UHD.jpg "多叶芦荟，袋鼠岛，澳大利亚")
-
----
-### 11月22日：悬崖上的城堡
-#### 萨夫拉城堡，瓜达拉哈拉省，西班牙（© Eduard Gene/Getty Images）
-
-![悬崖上的城堡](https://cn.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_800x480.jpg&rf=LaDigue_800x480.jpg "悬崖上的城堡")
-
-萨夫拉城堡矗立在卡尔德雷罗斯山脉高耸的砂岩山丘上。12世纪，西班牙北部的几个基督教王国从摩尔人手中夺取了这一地区，他们在一座古老堡垒的遗址上建造了这座城堡，以保卫两个势力之间的边境地区。多年来，这座城堡经受了无数次战争的考验，包括基督教王国发动的反对西班牙穆斯林统治的军事行动，以及14世纪的卡斯蒂利亚内战。15世纪末，战争结束后，萨夫拉城堡的战略地位不再重要，开始变得破败不堪。1971年，城堡最后一任典狱长的后代唐·安东尼奥·桑兹·波罗从西班牙政府手中买下了这座城堡的遗址。随后，他花了30年时间修复城堡。如今，比起历史书，你更有可能在银幕上看到萨夫拉城堡，因为它曾被用作《权力的游戏》第六季的取景地。
-
-萨夫拉城堡及其周边地区有着悠久的居住历史。在岩洞和城堡附近发现了青铜和铁器时代的陶器碎片。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%8b%89%e8%90%a8%e5%a4%ab%e6%8b%89%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20241121_1600" "Bing Wallpaper 2024 11月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241122_ZafraCastle"&FORM=HPQUIZ "必应主页测验 2024 11月 22")
-[下载480](https://cn.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_800x480.jpg&rf=LaDigue_800x480.jpg "萨夫拉城堡，瓜达拉哈拉省，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨夫拉城堡，瓜达拉哈拉省，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨夫拉城堡，瓜达拉哈拉省，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_UHD.jpg&rf=LaDigue_UHD.jpg "萨夫拉城堡，瓜达拉哈拉省，西班牙")
 
 ---
