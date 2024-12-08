@@ -1,4 +1,38 @@
 ## Bing Wallpaper(最近15天)
+### 12月09日：态度和高度
+#### 两只原驼,托雷斯德尔帕恩国家公园 , 智利（© Floris van Breugel/NPL/Minden Pictures）
+
+![态度和高度](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_800x480.jpg&rf=LaDigue_800x480.jpg "态度和高度")
+
+原驼是南美洲的本土动物，主要分布在美洲大陆中西部一带，大多栖息在秘鲁与玻利维亚交界的安第斯山脉。原驼生性机警敏捷，喜欢成群外出觅食，性格相对温顺。
+
+原驼（又称瓜纳科斯）能够在高海拔地区生活，它们的心脏相对于体型来说很大，单位体积血液内所含血红蛋白的量大约是人类血液的四倍。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8e%9f%e9%a9%bc&form=hpcapt&filters=HpDate:"20241208_1600" "Bing Wallpaper 2024 12月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241209_GuanacosChile"&FORM=HPQUIZ "必应主页测验 2024 12月 9")
+[下载480](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_800x480.jpg&rf=LaDigue_800x480.jpg "两只原驼,托雷斯德尔帕恩国家公园 , 智利")
+[下载720](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_1280x720.jpg&rf=LaDigue_1280x720.jpg "两只原驼,托雷斯德尔帕恩国家公园 , 智利")
+[下载1080](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "两只原驼,托雷斯德尔帕恩国家公园 , 智利")
+[下载UHD](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_UHD.jpg&rf=LaDigue_UHD.jpg "两只原驼,托雷斯德尔帕恩国家公园 , 智利")
+
+---
+### 12月08日：巴黎圣母院再度回归
+#### 巴黎圣母院，巴黎，法国（© Julien Fromentin/Getty Images）
+
+![巴黎圣母院再度回归](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_800x480.jpg&rf=LaDigue_800x480.jpg "巴黎圣母院再度回归")
+
+巴黎市中心矗立着这座城市最永恒的标志之一：巴黎圣母院大教堂。圣母大教堂建于12至13世纪，位于塞纳河中的西岱岛上，见证了法国几个世纪的历史，从百年战争到法国大革命，甚至更久。虽然拿破仑在1804年选择了这里作为他加冕称帝的场所，但到了19世纪初，大教堂已经年久失修。直至一部小说改变了它的命运：维克多·雨果的《巴黎圣母院的钟楼怪人》。这本书的畅销促进了大教堂的修复工程，使其重现昔日的美丽。
+
+巴黎圣母院的彩色玻璃窗，尤其是那三个玫瑰窗，是这座大教堂最著名的特色之一。大火使三个巨大的玫瑰花窗或多或少受到了一定破坏。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e9%bb%8e%e5%9c%a3%e6%af%8d%e9%99%a2&form=hpcapt&filters=HpDate:"20241207_1600" "Bing Wallpaper 2024 12月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241208_ReopeningNotreDame"&FORM=HPQUIZ "必应主页测验 2024 12月 8")
+[下载480](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_800x480.jpg&rf=LaDigue_800x480.jpg "巴黎圣母院，巴黎，法国")
+[下载720](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴黎圣母院，巴黎，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴黎圣母院，巴黎，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_UHD.jpg&rf=LaDigue_UHD.jpg "巴黎圣母院，巴黎，法国")
+
+---
 ### 12月07日：自然奇观的蓝色魅力
 #### 里约热内卢州的阿拉亚尔多卡博，巴西（© Derson Santana/Shutterstock）
 
@@ -218,39 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_1280x720.jpg&rf=LaDigue_1280x720.jpg "马赛长颈鹿，安波塞利国家公园，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛长颈鹿，安波塞利国家公园，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_UHD.jpg&rf=LaDigue_UHD.jpg "马赛长颈鹿，安波塞利国家公园，肯尼亚")
-
----
-### 11月24日：潮汐与暮色
-#### 州立公园，索诺玛海岸，美国加利福尼亚州（© Rachid Dahnoun/Tandem Stills + Motion）
-
-![潮汐与暮色](https://cn.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_800x480.jpg&rf=LaDigue_800x480.jpg "潮汐与暮色")
-
-索诺玛海岸州立公园拥有风景如画的沙滩、天然拱门和幽静的海湾。该公园建于1934年，涵盖了詹纳湾和博德加湾之间17英里的北加州海岸线。野生动物爱好者可以在这里看到海豹、海狮、鲸鱼以及各种鸟类，比如鹀鸟、莺、雀、麻雀和黄鹂。历史爱好者可以探索海蚀柱形成的痕迹，这些痕迹据说是四万年前在该地区游荡的猛犸象留下的。公园内还有一些历史遗迹，比如19世纪初俄罗斯人在博德加湾建造的堡垒。公园附近的罗斯堡是由俄美公司于1812年建立的。这个定居点标志着俄罗斯殖民在北美最南端的扩张。该要塞主要作为毛皮贸易的枢纽，专注于在太平洋沿岸捕猎海獭。到19世纪30年代中期，毛皮贸易逐渐衰落，1841年，这座堡垒被卖给了美国企业家约翰·萨特。
-
-海滩漫步、日光浴、野餐、钓鱼、露营、划船、皮划艇、徒步旅行、骑马和观鸟都是索诺玛海岸州立公园的热门活动。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%b4%a2%e8%af%ba%e9%a9%ac%e6%b5%b7%e5%b2%b8%e5%b7%9e%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241123_1600" "Bing Wallpaper 2024 11月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241124_SonomaCoast"&FORM=HPQUIZ "必应主页测验 2024 11月 24")
-[下载480](https://cn.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_800x480.jpg&rf=LaDigue_800x480.jpg "州立公园，索诺玛海岸，美国加利福尼亚州")
-[下载720](https://cn.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_1280x720.jpg&rf=LaDigue_1280x720.jpg "州立公园，索诺玛海岸，美国加利福尼亚州")
-[下载1080](https://cn.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "州立公园，索诺玛海岸，美国加利福尼亚州")
-[下载UHD](https://cn.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_UHD.jpg&rf=LaDigue_UHD.jpg "州立公园，索诺玛海岸，美国加利福尼亚州")
-
----
-### 11月23日：大自然的密码
-#### 多叶芦荟，袋鼠岛，澳大利亚（© Michael Melford/Alamy）
-
-![大自然的密码](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的密码")
-
-在斐波纳契日这一天，数学家和科学家们共同纪念他们的同行：列奥纳多·斐波那契。这位中世纪数学家因推广阿拉伯数字系统而闻名于世，该系统使用零、小数点和10个数字，而不是笨重的罗马数字系统。不过，最著名的还是他的数字序列：0,1,1,2,3,5,8……这个数列从第3项开始，每一项都等于前两项之和。忽略掉零，前四个数字对应今天的日期11/23。
-
-多叶芦荟在夏初开花，花朵颜色从红色到橙红色不等，偶尔也有黄色，开在粗壮、多分枝的花序顶端。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%90%e6%b3%a2%e9%82%a3%e5%a5%91%e7%ba%aa%e5%bf%b5%e6%97%a5&form=hpcapt&filters=HpDate:"20241122_1600" "Bing Wallpaper 2024 11月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241123_FibonacciAloe"&FORM=HPQUIZ "必应主页测验 2024 11月 23")
-[下载480](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_800x480.jpg&rf=LaDigue_800x480.jpg "多叶芦荟，袋鼠岛，澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_1280x720.jpg&rf=LaDigue_1280x720.jpg "多叶芦荟，袋鼠岛，澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多叶芦荟，袋鼠岛，澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_UHD.jpg&rf=LaDigue_UHD.jpg "多叶芦荟，袋鼠岛，澳大利亚")
 
 ---
