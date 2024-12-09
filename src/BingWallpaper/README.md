@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月10日：世界的尽头？不完全是
+#### 被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰（© Josef FitzGerald-Patrick/Getty Images）
+
+![世界的尽头？不完全是](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_800x480.jpg&rf=LaDigue_800x480.jpg "世界的尽头？不完全是")
+
+欢迎来到英格兰康沃尔的兰兹角，这里有狂风呼啸的悬崖、崎岖不平的美景和蔚为壮观的海景！从古希腊时代起，它就被称为“Belerion”（闪闪发光的土地）或是“太阳之地”，或出现在亚瑟王传奇中提到的失落之地“里昂内斯”中，兰兹角一直是一个令人神往的地方。它是英国大陆最西南的地点，最出名的是被设为慈善跑步比赛的起点或终点，路线从最西南端的兰兹角到英国北海的约翰奥格罗茨，贯穿了整个大不列颠岛。
+
+兰兹角是康沃尔的传奇之地，自古希腊时代起就一直激励着人们，当时它被称为“Belerion”，意为“闪闪发光的土地”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%ba%b7%e6%b2%83%e5%b0%94%e9%83%a1%e5%85%b0%e5%85%b9%e8%a7%92&form=hpcapt&filters=HpDate:"20241209_1600" "Bing Wallpaper 2024 12月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241210_CornwallSnow"&FORM=HPQUIZ "必应主页测验 2024 12月 10")
+[下载480](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_800x480.jpg&rf=LaDigue_800x480.jpg "被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_1280x720.jpg&rf=LaDigue_1280x720.jpg "被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_UHD.jpg&rf=LaDigue_UHD.jpg "被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰")
+
+---
 ### 12月09日：态度和高度
 #### 两只原驼,托雷斯德尔帕恩国家公园 , 智利（© Floris van Breugel/NPL/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_1280x720.jpg&rf=LaDigue_1280x720.jpg "橄榄树林，伊特里亚山谷，普利亚，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "橄榄树林，伊特里亚山谷，普利亚，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_UHD.jpg&rf=LaDigue_UHD.jpg "橄榄树林，伊特里亚山谷，普利亚，意大利")
-
----
-### 11月25日：野生动物的生活
-#### 马赛长颈鹿，安波塞利国家公园，肯尼亚（© Art Wolfe/DanitaDelimont.com）
-
-![野生动物的生活](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_800x480.jpg&rf=LaDigue_800x480.jpg "野生动物的生活")
-
-从今天的图片中可以看到，马赛长颈鹿漫步在肯尼亚安波塞利国家公园的广阔土地上。长颈鹿身高约5.49米或更高，是世界上最高的陆地哺乳动物。除了超过约0.45米长的卷舌之外，它们还利用惊人的身高来吃离地面近6米左右的树叶。它们的速度也比你想象的要快，能够在短距离内冲刺，时速可达37英里。长颈鹿在东非地区很常见，它们可以在草原、林地和保护区吃草。
-
-马赛长颈鹿目前是坦桑尼亚的国兽。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%82%af%e5%b0%bc%e4%ba%9a%e5%ae%89%e5%8d%9a%e5%a1%9e%e5%88%a9%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241124_1600" "Bing Wallpaper 2024 11月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241125_AmboseliGiraffes"&FORM=HPQUIZ "必应主页测验 2024 11月 25")
-[下载480](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_800x480.jpg&rf=LaDigue_800x480.jpg "马赛长颈鹿，安波塞利国家公园，肯尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_1280x720.jpg&rf=LaDigue_1280x720.jpg "马赛长颈鹿，安波塞利国家公园，肯尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛长颈鹿，安波塞利国家公园，肯尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_UHD.jpg&rf=LaDigue_UHD.jpg "马赛长颈鹿，安波塞利国家公园，肯尼亚")
 
 ---
