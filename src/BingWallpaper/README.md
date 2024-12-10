@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月11日：山峰的“胜利三重奏”
+#### 拉瓦雷多三峰山,意大利（© Daniel Maran/Getty Images）
+
+![山峰的“胜利三重奏”](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_800x480.jpg&rf=LaDigue_800x480.jpg "山峰的“胜利三重奏”")
+
+今天，让我们一起庆祝国际山岳日，向这个星球上高耸的“巨人们”致敬！作为“巨人”中的一员，拉瓦雷多三峰山（在今天的照片中的右侧），是意大利东北部塞斯托多洛米蒂山脉的一部分，也是阿尔卑斯山脉最著名的山群之一。这三座山峰——大峰，西峰和小峰，是联合国教科文组织认定的世界遗产地，吸引了许多探险者以及自然爱好者。第一次世界大战期间，意大利和奥匈帝国的战线穿过了这些山峰，留下了许多冲突的遗迹，如防御工事、战壕、隧道和纪念章。
+
+举世闻名的拉瓦雷多三峰山被认为是多洛米蒂山最令人瞩目的岩石景观。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%8b%89%e7%93%a6%e9%9b%b7%e5%a4%9a%e4%b8%89%e5%b3%b0%e5%b1%b1&form=hpcapt&filters=HpDate:"20241210_1600" "Bing Wallpaper 2024 12月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241211_DolomitesSky"&FORM=HPQUIZ "必应主页测验 2024 12月 11")
+[下载480](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_800x480.jpg&rf=LaDigue_800x480.jpg "拉瓦雷多三峰山,意大利")
+[下载720](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_1280x720.jpg&rf=LaDigue_1280x720.jpg "拉瓦雷多三峰山,意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拉瓦雷多三峰山,意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_UHD.jpg&rf=LaDigue_UHD.jpg "拉瓦雷多三峰山,意大利")
+
+---
 ### 12月10日：世界的尽头？不完全是
 #### 被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰（© Josef FitzGerald-Patrick/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋天的巨人之墓，布永市，比利时")
 [下载1080](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋天的巨人之墓，布永市，比利时")
 [下载UHD](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_UHD.jpg&rf=LaDigue_UHD.jpg "秋天的巨人之墓，布永市，比利时")
-
----
-### 11月26日：有数百年历史的橄榄树
-#### 橄榄树林，伊特里亚山谷，普利亚，意大利（© Massimo Santi/Shutterstock）
-
-![有数百年历史的橄榄树](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_800x480.jpg&rf=LaDigue_800x480.jpg "有数百年历史的橄榄树")
-
-今天，我们不仅要向你献上橄榄枝，还要献上整棵橄榄树。11月26日是世界橄榄树日，让我们花些时间来欣赏一下这种奇妙的植物吧。大约在8000年前，橄榄树首次被种植在地中海东部。从那里，它们被腓尼基人传播到了希腊群岛和大陆，然后又传播到更远的地方，大约在公元前1000年到达西班牙和地中海的西部边缘。橄榄枝自古以来就是和平的象征，人们种植橄榄树以获取橄榄油、木材和果实已有千年历史。
-
-西班牙是世界上最大的橄榄油生产国，其橄榄油产量占全球总产量的一半左右。其他生产大国还有意大利、希腊、葡萄牙、突尼斯、土耳其和摩洛哥。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%a9%84%e6%a6%84%e6%a0%91%e6%97%a5&form=hpcapt&filters=HpDate:"20241125_1600" "Bing Wallpaper 2024 11月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241126_TrulliGrove"&FORM=HPQUIZ "必应主页测验 2024 11月 26")
-[下载480](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_800x480.jpg&rf=LaDigue_800x480.jpg "橄榄树林，伊特里亚山谷，普利亚，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_1280x720.jpg&rf=LaDigue_1280x720.jpg "橄榄树林，伊特里亚山谷，普利亚，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "橄榄树林，伊特里亚山谷，普利亚，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_UHD.jpg&rf=LaDigue_UHD.jpg "橄榄树林，伊特里亚山谷，普利亚，意大利")
 
 ---
