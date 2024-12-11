@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月12日：为节日做好准备
+#### 一品红或圣诞花（© David Hosking/NPL/Minden Pictures）
+
+![为节日做好准备](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_800x480.jpg&rf=LaDigue_800x480.jpg "为节日做好准备")
+
+这是红色的一品红，这种植物是美国节日季节的代名词之一。它有着令人注目的星形叶子，火焰般的红色在冬季照亮了住宅和公共场所，成为欢庆圣诞节的象征。今天，国家一品红日是为了纪念美国第一任驻墨西哥大使乔尔·罗伯茨·波因塞特的贡献，他在19世纪20年代将这些鲜艳的植物引进美国。在探索格雷罗州的塔斯科地区时，波因塞特发现了一品红，被它们的美丽吸引住，于是将一品红的剪枝寄回了他在南卡罗来纳州查尔斯顿的家。
+
+在美国，大约7000万株一品红将在节日季节的六周内被出售。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%80%e5%93%81%e7%ba%a2&form=hpcapt&filters=HpDate:"20241211_1600" "Bing Wallpaper 2024 12月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241212_WildPoinsettia"&FORM=HPQUIZ "必应主页测验 2024 12月 12")
+[下载480](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_800x480.jpg&rf=LaDigue_800x480.jpg "一品红或圣诞花")
+[下载720](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_1280x720.jpg&rf=LaDigue_1280x720.jpg "一品红或圣诞花")
+[下载1080](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一品红或圣诞花")
+[下载UHD](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_UHD.jpg&rf=LaDigue_UHD.jpg "一品红或圣诞花")
+
+---
 ### 12月11日：山峰的“胜利三重奏”
 #### 拉瓦雷多三峰山,意大利（© Daniel Maran/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_UHD.jpg&rf=LaDigue_UHD.jpg "日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大")
-
----
-### 11月27日：巨人的安息之地
-#### 秋天的巨人之墓，布永市，比利时（© David Briard/Getty）
-
-![巨人的安息之地](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_800x480.jpg&rf=LaDigue_800x480.jpg "巨人的安息之地")
-
-位于比利时布永市的巨人墓为前来观光的游客提供了一幅优美的全景图。这座山丘就像一位巨人躺在130英里长的瑟穆瓦河的拐弯处，其名字来源于当地的一个传说：据说一位高卢巨人特雷维索为了不被罗马士兵抓获，选择从加特岩的悬崖上跳下去。如今，这里是一个深受徒步旅行者和公路旅行者喜爱的观景点，站在这里，可以看到景色随着季节的变化呈现出显著的变化。秋天，这里的风景呈现出暖色调，就像今天图片中展示的那样，是自然爱好者和摄影师的理想之地。
-
-这个氛围超棒的地方拥有一切你想要的城堡特色：潮湿滴水的通道走廊、散发着霉味的半明半暗的牢房、猎鹰表演、粗糙的楼梯间，还有许多阴森的角落间隙待人发掘。此外，这里还有一些不同寻常的惊喜，比如正在发酵的奶酪和迷你书法博物馆。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%af%94%e5%88%a9%e6%97%b6%e5%b8%83%e6%b0%b8%e5%b8%82&form=hpcapt&filters=HpDate:"20241126_1600" "Bing Wallpaper 2024 11月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241127_SemoisRiver"&FORM=HPQUIZ "必应主页测验 2024 11月 27")
-[下载480](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_800x480.jpg&rf=LaDigue_800x480.jpg "秋天的巨人之墓，布永市，比利时")
-[下载720](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋天的巨人之墓，布永市，比利时")
-[下载1080](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋天的巨人之墓，布永市，比利时")
-[下载UHD](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_UHD.jpg&rf=LaDigue_UHD.jpg "秋天的巨人之墓，布永市，比利时")
 
 ---
