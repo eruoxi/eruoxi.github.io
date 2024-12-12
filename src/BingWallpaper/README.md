@@ -1,8 +1,25 @@
 ## Bing Wallpaper(最近15天)
+### 12月13日：圣斯蒂芬大教堂的降临节
+#### 圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利（© Calin Stan/Shutterstock）
+
+![圣斯蒂芬大教堂的降临节](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_800x480.jpg&rf=LaDigue_800x480.jpg "圣斯蒂芬大教堂的降临节")
+
+在圣诞节来临之际，圣斯蒂芬大教堂成为了布达佩斯标志性的圣诞集市的中心。在洋溢着节日气氛的集市上，匈牙利手工艺品、节日装饰和当地美食应有尽有，充分体现了传统圣诞节的精髓。作为在圣诞节前几周举行的活动，降临节盛宴也是匈牙利节日传统的一部分，届时会邀请游客们品尝烟囱蛋糕、白菜卷和炖牛肉汤等菜肴，而空气中也会弥漫着热红酒和烤栗子的香味。对许多人来说，大教堂外墙投射的3D灯光秀是一大亮点，现代感十足的灯光秀让这座历史悠久的建筑栩栩如生。
+
+这座大教堂内有一架令人印象深刻的管风琴，它有6500多根音管，是欧洲最大的管风琴之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e8%be%be%e4%bd%a9%e6%96%af%e5%9c%a3%e6%96%af%e8%92%82%e8%8a%ac%e5%a4%a7%e6%95%99%e5%a0%82&form=hpcapt&filters=HpDate:"20241212_1600" "Bing Wallpaper 2024 12月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241213_ChristmasBudapest"&FORM=HPQUIZ "必应主页测验 2024 12月 13")
+[下载480](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利")
+[下载720](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利")
+[下载1080](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_UHD.jpg&rf=LaDigue_UHD.jpg "圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利")
+
+---
 ### 12月12日：为节日做好准备
 #### 一品红或圣诞花（© David Hosking/NPL/Minden Pictures）
 
-![为节日做好准备](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_800x480.jpg&rf=LaDigue_800x480.jpg "为节日做好准备")
+![为节日做好准备](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_800x480.jpg&rf=LaDigue_800x480.jpg "为节日做好准备")
 
 这是红色的一品红，这种植物是美国节日季节的代名词之一。它有着令人注目的星形叶子，火焰般的红色在冬季照亮了住宅和公共场所，成为欢庆圣诞节的象征。今天，国家一品红日是为了纪念美国第一任驻墨西哥大使乔尔·罗伯茨·波因塞特的贡献，他在19世纪20年代将这些鲜艳的植物引进美国。在探索格雷罗州的塔斯科地区时，波因塞特发现了一品红，被它们的美丽吸引住，于是将一品红的剪枝寄回了他在南卡罗来纳州查尔斯顿的家。
 
@@ -10,10 +27,10 @@
 
 [Bing搜索](https://cn.bing.com/search?q=%e4%b8%80%e5%93%81%e7%ba%a2&form=hpcapt&filters=HpDate:"20241211_1600" "Bing Wallpaper 2024 12月 12")
 [必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241212_WildPoinsettia"&FORM=HPQUIZ "必应主页测验 2024 12月 12")
-[下载480](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_800x480.jpg&rf=LaDigue_800x480.jpg "一品红或圣诞花")
-[下载720](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_1280x720.jpg&rf=LaDigue_1280x720.jpg "一品红或圣诞花")
-[下载1080](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一品红或圣诞花")
-[下载UHD](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_UHD.jpg&rf=LaDigue_UHD.jpg "一品红或圣诞花")
+[下载480](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_800x480.jpg&rf=LaDigue_800x480.jpg "一品红或圣诞花")
+[下载720](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_1280x720.jpg&rf=LaDigue_1280x720.jpg "一品红或圣诞花")
+[下载1080](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一品红或圣诞花")
+[下载UHD](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_UHD.jpg&rf=LaDigue_UHD.jpg "一品红或圣诞花")
 
 ---
 ### 12月11日：山峰的“胜利三重奏”
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣米歇尔山，诺曼底，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣米歇尔山，诺曼底，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_UHD.jpg&rf=LaDigue_UHD.jpg "圣米歇尔山，诺曼底，法国")
-
----
-### 11月28日：山峰从云层中探出头来
-#### 日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大（© Jeff Lewis/TANDEM Stills + Motion）
-
-![山峰从云层中探出头来](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_800x480.jpg&rf=LaDigue_800x480.jpg "山峰从云层中探出头来")
-
-残留的风暴云盘旋在阿西尼博因山省立公园的山峰周围，这里是加拿大落基山脉的中心地带。这座位于不列颠哥伦比亚省的公园成立于1922年，以落基山脉南部最高的山峰命名，它的海拔高达3618米。公园是阿西尼博因旅馆的所在地，这是加拿大落基山脉的第一家滑雪旅馆，建于1928年。这里没有公路通行，任何想要参观公园的人都必须徒步或乘坐直升机进入，这使得旅程本身成为一次冒险。不过所有的努力都是值得的，这个联合国教科文组织世界遗产地拥有令人惊叹的景观，从冰川和湖泊到高耸的山峰和石灰岩洞穴，总能满足游客的期待。这里有多条徒步路线可供选择，它们将带领徒步旅行者们穿过森林，越过草地，登上高山。它还是越野滑雪和“阿尔卑斯式攀登”的热门地点。如果您正在寻找一个每处景色都堪称绝美的地方，阿西尼博因山省立公园或许是您的不二之选。
-
-与组成加拿大落基山公园群的其他国家级和省级公园一样，阿西尼博因山省立公园因其自然美景和山地景观的地质及生态意义而闻名，这里有珍稀濒危物种的栖息地，山峰，冰川，湖泊，瀑布，峡谷，石灰岩洞穴和化石。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e8%a5%bf%e5%b0%bc%e5%8d%9a%e5%9b%a0%e5%b1%b1%e7%9c%81%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241127_1600" "Bing Wallpaper 2024 11月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241128_AssiniboineTS"&FORM=HPQUIZ "必应主页测验 2024 11月 28")
-[下载480](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_800x480.jpg&rf=LaDigue_800x480.jpg "日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_UHD.jpg&rf=LaDigue_UHD.jpg "日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大")
 
 ---
