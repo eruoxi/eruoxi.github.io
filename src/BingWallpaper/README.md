@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月14日："谁"这么说？
+#### 猛鸮，加拿大（© pchoui/Getty Images）
+
+!["谁"这么说？](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_800x480.jpg&rf=LaDigue_800x480.jpg ""谁"这么说？")
+
+125年来，北美各地的鸟类爱好者通过圣诞节鸟类统计活动将圣诞节变成了一个充满节日气氛的“羽毛盛会”。这项一年一度的活动由鸟类学家弗兰克·查普曼创立，该活动用望远镜取代猎枪，将传统的节日狩猎聚会变成了一种环保的活动。从那时起，它就成了世界上持续时间最长的公民科学项目之一。每年12月14日至1月5日，不同年龄、不同观鸟水平的志愿者都会聚集在一起，在指定的“圆圈”区域进行调查。每个圆圈的直径为15英里，参与者会统计他们在圆圈内看到或听到的每一只鸟。这个统计结果是鸟类多样性的巨大缩影，每年会从2,500多个地点收集数据。这是一项追踪鸟类种群变化的严肃工作，为致力于保护脆弱物种的科学家提供了宝贵的数据。
+
+与大多数猫头鹰不同，北方鹰鸮没有不对称的耳孔。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8c%9b%e9%b8%ae&form=hpcapt&filters=HpDate:"20241213_1600" "Bing Wallpaper 2024 12月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241214_NorthernHawkOwl"&FORM=HPQUIZ "必应主页测验 2024 12月 14")
+[下载480](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_800x480.jpg&rf=LaDigue_800x480.jpg "猛鸮，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_1280x720.jpg&rf=LaDigue_1280x720.jpg "猛鸮，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "猛鸮，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_UHD.jpg&rf=LaDigue_UHD.jpg "猛鸮，加拿大")
+
+---
 ### 12月13日：圣斯蒂芬大教堂的降临节
 #### 圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利（© Calin Stan/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_1280x720.jpg&rf=LaDigue_1280x720.jpg "基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_UHD.jpg&rf=LaDigue_UHD.jpg "基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰")
-
----
-### 11月29日：时间与潮汐之岛
-#### 圣米歇尔山，诺曼底，法国（© Captain Skyhigh/Getty Images）
-
-![时间与潮汐之岛](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_800x480.jpg&rf=LaDigue_800x480.jpg "时间与潮汐之岛")
-
-欢迎来到法国北部诺曼底的圣米歇尔山，这里是潮汐奇观和中世纪生活的缩影。这个“西方奇迹 ”的故事可以追溯到8世纪初，据说当时大天使米迦勒在异象中出现在阿夫朗什的主教面前。神谕非常明确：在这块岩石上建造一座圣殿。这位主教认真听取了天使的建议，并为目前主宰这座岛屿的修道院奠定了基础。几个世纪以来，这座联合国教科文组织认定的世界遗产的规模和声誉不断扩大，吸引着众多修道士、朝圣者以及入侵者。
-
-在极少数情况下，会出现异常高的“超级潮汐”。2015年3月21日，圣米歇尔山就经历了一次罕见的超级潮汐，潮水达到了18年一遇的最高水位，导致新建的桥完全被淹没，吸引了大量游客前来拍照留念。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b3%95%e5%9b%bd%e5%9c%a3%e7%b1%b3%e6%ad%87%e5%b0%94%e5%b1%b1&form=hpcapt&filters=HpDate:"20241128_1600" "Bing Wallpaper 2024 11月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241129_MtStMichel"&FORM=HPQUIZ "必应主页测验 2024 11月 29")
-[下载480](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_800x480.jpg&rf=LaDigue_800x480.jpg "圣米歇尔山，诺曼底，法国")
-[下载720](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣米歇尔山，诺曼底，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣米歇尔山，诺曼底，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_UHD.jpg&rf=LaDigue_UHD.jpg "圣米歇尔山，诺曼底，法国")
 
 ---
