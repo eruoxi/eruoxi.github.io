@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月16日：闪烁的街道和冰峰
+#### 萨尔茨堡，奥地利（© bluejayphoto/Getty Images）
+
+![闪烁的街道和冰峰](https://cn.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_800x480.jpg&rf=LaDigue_800x480.jpg "闪烁的街道和冰峰")
+
+今天，我们来到奥地利城市萨尔茨堡，一个永不过时的地方。这里的圣诞季有一种神奇的氛围，让人流连忘返。闪闪发光的装饰让这座城市焕发生机，空气中弥漫着炒栗子、热红酒和新鲜出炉的饼干的香气。在此期间，这里会举办萨尔茨堡圣诞集市，这是世界闻名的传统圣诞市场。在今天的照片中，可以看到霍亨萨尔茨堡城堡，那里是颇受欢迎的城堡圣诞市场，洋溢着节日的欢乐。
+
+历史悠久的萨尔茨堡圣诞集市将于2024年迎来50周年纪念日。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%90%a8%e5%b0%94%e8%8c%a8%e5%a0%a1&form=hpcapt&filters=HpDate:"20241215_1600" "Bing Wallpaper 2024 12月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241216_SalzburgSnow"&FORM=HPQUIZ "必应主页测验 2024 12月 16")
+[下载480](https://cn.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_800x480.jpg&rf=LaDigue_800x480.jpg "萨尔茨堡，奥地利")
+[下载720](https://cn.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨尔茨堡，奥地利")
+[下载1080](https://cn.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨尔茨堡，奥地利")
+[下载UHD](https://cn.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_UHD.jpg&rf=LaDigue_UHD.jpg "萨尔茨堡，奥地利")
+
+---
 ### 12月15日：泪水之湖
 #### 米苏里纳湖，多洛米蒂山脉，意大利（© Marco Bottigelli/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_1280x720.jpg&rf=LaDigue_1280x720.jpg "雌性驼鹿，德纳里国家公园，阿拉斯加州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雌性驼鹿，德纳里国家公园，阿拉斯加州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_UHD.jpg&rf=LaDigue_UHD.jpg "雌性驼鹿，德纳里国家公园，阿拉斯加州，美国")
-
----
-### 12月01日：保护最后一片大荒野
-#### 南极洲的冰山（© Art Wolfe/DanitaDelimont.com）
-
-![保护最后一片大荒野](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_800x480.jpg&rf=LaDigue_800x480.jpg "保护最后一片大荒野")
-
-今天是南极日，让我们将目光聚焦在世界上最引人注目的国际协定之一的《南极条约》上。该条约于1959年由12个国家签署，将整个南极大陆指定为非军事区，特别注重促进科学研究与合作。这一天彰显了全球合作精神，提醒我们肩负起保护地球上最后一片大荒野的集体责任。
-
-南极洲是地球上最寒冷、风力最大、最干燥的大陆。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%97%e6%9e%81%e6%97%a5&form=hpcapt&filters=HpDate:"20241130_1600" "Bing Wallpaper 2024 12月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241201_IcebergsAntarctica"&FORM=HPQUIZ "必应主页测验 2024 12月 1")
-[下载480](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_800x480.jpg&rf=LaDigue_800x480.jpg "南极洲的冰山")
-[下载720](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_1280x720.jpg&rf=LaDigue_1280x720.jpg "南极洲的冰山")
-[下载1080](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南极洲的冰山")
-[下载UHD](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_UHD.jpg&rf=LaDigue_UHD.jpg "南极洲的冰山")
 
 ---
