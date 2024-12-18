@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月19日：闪烁的小镇
+#### 锡比乌圣诞市场，罗马尼亚（© Calin Stan/Alamy Stock Photo）
+
+![闪烁的小镇](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_800x480.jpg&rf=LaDigue_800x480.jpg "闪烁的小镇")
+
+随着冬季寒潮来临，锡比乌市变成了一个令人眼花缭乱的假日仙境，这里有罗马尼亚最受欢迎的圣诞市场之一。锡比乌圣诞市场从11月底到1月初在中央广场举行。在今天的图片中，一串串闪闪发光的灯悬挂在广场上，形成了一个雨棚，使鹅卵石街道沐浴在温暖的节日光芒中。那里还有一棵灯火辉煌的圣诞树，周围是迷人的木屋，售卖各种各样的东西，不仅有手工制作的装饰品，还有当地制作的点心，比如罗马尼亚传统甜面包，芳香的热葡萄酒，还有撒上盐的热脆饼。
+
+这座小镇被称为“千眼之城”（斜坡上的阁楼窗户形似人的眼睛），是国内外游客的著名旅游目的地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%94%a1%e6%af%94%e4%b9%8c&form=hpcapt&filters=HpDate:"20241218_1600" "Bing Wallpaper 2024 12月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241219_SibiuRomania"&FORM=HPQUIZ "必应主页测验 2024 12月 19")
+[下载480](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_800x480.jpg&rf=LaDigue_800x480.jpg "锡比乌圣诞市场，罗马尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_1280x720.jpg&rf=LaDigue_1280x720.jpg "锡比乌圣诞市场，罗马尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "锡比乌圣诞市场，罗马尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_UHD.jpg&rf=LaDigue_UHD.jpg "锡比乌圣诞市场，罗马尼亚")
+
+---
 ### 12月18日：壮观的象群队伍
 #### 印度吉姆科比特国家公园的大象，印度（© ABHILASH VISWA PICASSO/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_1280x720.jpg&rf=LaDigue_1280x720.jpg "莫诺湖的石灰华地层，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫诺湖的石灰华地层，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_UHD.jpg&rf=LaDigue_UHD.jpg "莫诺湖的石灰华地层，加利福尼亚州，美国")
-
----
-### 12月04日：濒临灭绝
-#### 雄性白犀，纳库鲁湖，肯尼亚（© Ingo Arndt/Minden Pictures）
-
-![濒临灭绝](https://cn.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_800x480.jpg&rf=LaDigue_800x480.jpg "濒临灭绝")
-
-今天是野生动物保护日——一个提醒我们庆祝并保护地球上惊人的生物多样性的重要日子。许多物种正面临灭绝，包括非洲森林象、克罗斯河大猩猩、中南大羚、长江江豚等。自2012年设立以来，这个特别的日子一直关注着非法野生动植物贸易和动物面临的其他威胁，同时还提醒人们需要采取更强有力的长期解决方案。
-
-白犀牛通常生活在由多达14头犀牛组成的群落中，这些群体主要由母牛组成。亚成年公犀牛通常会与成年母牛聚集在一起，大多数成年公犀牛则更倾向于独居。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%99%bd%e7%8a%80&form=hpcapt&filters=HpDate:"20241203_1600" "Bing Wallpaper 2024 12月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241204_RhinosKenya"&FORM=HPQUIZ "必应主页测验 2024 12月 4")
-[下载480](https://cn.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_800x480.jpg&rf=LaDigue_800x480.jpg "雄性白犀，纳库鲁湖，肯尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_1280x720.jpg&rf=LaDigue_1280x720.jpg "雄性白犀，纳库鲁湖，肯尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雄性白犀，纳库鲁湖，肯尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_UHD.jpg&rf=LaDigue_UHD.jpg "雄性白犀，纳库鲁湖，肯尼亚")
 
 ---
