@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月20日：圣诞老人要来镇上了
+#### 罗瓦涅米圣诞老人村，拉普兰，芬兰（© Smelov/Shutterstock）
+
+![圣诞老人要来镇上了](https://cn.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞老人要来镇上了")
+
+圣诞老人村坐落在芬兰的罗瓦涅米，这是一个神奇的四季皆宜的旅游胜地，游客从这里可以进入到迷人的圣诞世界。这个村庄位于北极圈内，可为游客提供独一份的节日体验，比如见到圣诞老人本人或穿越北极圈线。儿童和成人都可以见到圣诞老人忠诚的驯鹿，探索一系列以圣诞节为主题的充满活力的景点，让所有年龄段的游客都能不虚此行。
+
+罗瓦涅米的徽章是由托伊沃·沃雷拉设计的，他是这样描述这个徽章的：在绿色的田野里，有块银色的帷幔，上方角落里扑腾着一簇金色火焰。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%bd%97%e7%93%a6%e6%b6%85%e7%b1%b3&form=hpcapt&filters=HpDate:"20241219_1600" "Bing Wallpaper 2024 12月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241220_SantaClausVillage"&FORM=HPQUIZ "必应主页测验 2024 12月 20")
+[下载480](https://cn.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_800x480.jpg&rf=LaDigue_800x480.jpg "罗瓦涅米圣诞老人村，拉普兰，芬兰")
+[下载720](https://cn.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗瓦涅米圣诞老人村，拉普兰，芬兰")
+[下载1080](https://cn.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗瓦涅米圣诞老人村，拉普兰，芬兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_UHD.jpg&rf=LaDigue_UHD.jpg "罗瓦涅米圣诞老人村，拉普兰，芬兰")
+
+---
 ### 12月19日：闪烁的小镇
 #### 锡比乌圣诞市场，罗马尼亚（© Calin Stan/Alamy Stock Photo）
 
@@ -70,7 +87,7 @@
 ### 12月15日：泪水之湖
 #### 米苏里纳湖，多洛米蒂山脉，意大利（© Marco Bottigelli/Getty Images）
 
-![泪水之湖](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_800x480.jpg&rf=LaDigue_800x480.jpg "泪水之湖")
+![泪水之湖](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0755993943_800x480.jpg&rf=LaDigue_800x480.jpg "泪水之湖")
 
 你可能听说过“泪池”，但你听说过“泪湖”吗？传说中，位于意大利多洛米蒂山区的米苏里纳湖（如图所示）是由巨人索拉皮斯悲伤的眼泪汇聚而成。该湖海拔超过5700英尺，是卡多雷地区最大的天然湖泊，其周长超过1.5英里。米苏里纳湖的周边地区以其有益的气候而闻名，此处清澈的湖水和周边的酒店为多达500名游客提供了一个完美的度假胜地，尤其适合呼吸道疾病患者。1956年冬奥会期间，还在米苏里纳湖的天然冰面上举办了速度滑冰比赛，歌手克劳迪奥·巴格里奥尼甚至将其写入了一首流行歌曲。凭借令人惊叹的景色、神秘的起源和四季皆宜的活动，这个湖可能是多洛米蒂山脉最迷人的景点。
 
@@ -78,16 +95,16 @@
 
 [Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e7%b1%b3%e8%8b%8f%e9%87%8c%e7%ba%b3%e6%b9%96&form=hpcapt&filters=HpDate:"20241214_1600" "Bing Wallpaper 2024 12月 15")
 [必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241215_MisurinaLake"&FORM=HPQUIZ "必应主页测验 2024 12月 15")
-[下载480](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_800x480.jpg&rf=LaDigue_800x480.jpg "米苏里纳湖，多洛米蒂山脉，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_1280x720.jpg&rf=LaDigue_1280x720.jpg "米苏里纳湖，多洛米蒂山脉，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米苏里纳湖，多洛米蒂山脉，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_UHD.jpg&rf=LaDigue_UHD.jpg "米苏里纳湖，多洛米蒂山脉，意大利")
+[下载480](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0755993943_800x480.jpg&rf=LaDigue_800x480.jpg "米苏里纳湖，多洛米蒂山脉，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0755993943_1280x720.jpg&rf=LaDigue_1280x720.jpg "米苏里纳湖，多洛米蒂山脉，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0755993943_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米苏里纳湖，多洛米蒂山脉，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0755993943_UHD.jpg&rf=LaDigue_UHD.jpg "米苏里纳湖，多洛米蒂山脉，意大利")
 
 ---
-### 12月14日："谁"这么说？
+### 12月14日：炯炯有神的凝视
 #### 猛鸮，加拿大（© pchoui/Getty Images）
 
-!["谁"这么说？](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_800x480.jpg&rf=LaDigue_800x480.jpg ""谁"这么说？")
+![炯炯有神的凝视](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN0348993719_800x480.jpg&rf=LaDigue_800x480.jpg "炯炯有神的凝视")
 
 125年来，北美各地的鸟类爱好者通过圣诞节鸟类统计活动将圣诞节变成了一个充满节日气氛的“羽毛盛会”。这项一年一度的活动由鸟类学家弗兰克·查普曼创立，该活动用望远镜取代猎枪，将传统的节日狩猎聚会变成了一种环保的活动。从那时起，它就成了世界上持续时间最长的公民科学项目之一。每年12月14日至1月5日，不同年龄、不同观鸟水平的志愿者都会聚集在一起，在指定的“圆圈”区域进行调查。每个圆圈的直径为15英里，参与者会统计他们在圆圈内看到或听到的每一只鸟。这个统计结果是鸟类多样性的巨大缩影，每年会从2,500多个地点收集数据。这是一项追踪鸟类种群变化的严肃工作，为致力于保护脆弱物种的科学家提供了宝贵的数据。
 
@@ -95,10 +112,10 @@
 
 [Bing搜索](https://cn.bing.com/search?q=%e7%8c%9b%e9%b8%ae&form=hpcapt&filters=HpDate:"20241213_1600" "Bing Wallpaper 2024 12月 14")
 [必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241214_NorthernHawkOwl"&FORM=HPQUIZ "必应主页测验 2024 12月 14")
-[下载480](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_800x480.jpg&rf=LaDigue_800x480.jpg "猛鸮，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_1280x720.jpg&rf=LaDigue_1280x720.jpg "猛鸮，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "猛鸮，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_UHD.jpg&rf=LaDigue_UHD.jpg "猛鸮，加拿大")
+[下载480](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN0348993719_800x480.jpg&rf=LaDigue_800x480.jpg "猛鸮，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN0348993719_1280x720.jpg&rf=LaDigue_1280x720.jpg "猛鸮，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN0348993719_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "猛鸮，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN0348993719_UHD.jpg&rf=LaDigue_UHD.jpg "猛鸮，加拿大")
 
 ---
 ### 12月13日：圣斯蒂芬大教堂的降临节
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_1280x720.jpg&rf=LaDigue_1280x720.jpg "鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_UHD.jpg&rf=LaDigue_UHD.jpg "鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国")
-
----
-### 12月05日：石灰华塔的崛起
-#### 莫诺湖的石灰华地层，加利福尼亚州，美国（© Susanna Patras/TANDEM Stills + Motion）
-
-![石灰华塔的崛起](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_800x480.jpg&rf=LaDigue_800x480.jpg "石灰华塔的崛起")
-
-在时间的缓慢流逝下，凝灰岩——一种多孔石灰岩，成为大自然中最壮观的地貌之一。虽然这些塔在许多地方都能找到，但今天的图片展示的是加利福尼亚州莫诺县的莫诺湖。当富含钙质的淡水从几条小溪流入湖中，与湖中的碱性水混合后，就形成了这些结构。几个世纪以来，这种相互作用导致碳酸钙堆积，在湖面上形成了石灰华塔。为了保护这些塔，加利福尼亚州议会于1981年建立了莫诺湖图法国家自然保护区。
-
-莫诺湖位于莫诺盆地的一部分，这是一个内流盆地，没有通往海洋的出口。因此，径流中的溶解盐分会留在湖中，使湖水的pH值和盐分浓度升高。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e5%88%a9%e7%a6%8f%e5%b0%bc%e4%ba%9a%e5%b7%9e%e8%8e%ab%e8%af%ba%e6%b9%96&form=hpcapt&filters=HpDate:"20241204_1600" "Bing Wallpaper 2024 12月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241205_MonoTufa"&FORM=HPQUIZ "必应主页测验 2024 12月 5")
-[下载480](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_800x480.jpg&rf=LaDigue_800x480.jpg "莫诺湖的石灰华地层，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_1280x720.jpg&rf=LaDigue_1280x720.jpg "莫诺湖的石灰华地层，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫诺湖的石灰华地层，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_UHD.jpg&rf=LaDigue_UHD.jpg "莫诺湖的石灰华地层，加利福尼亚州，美国")
 
 ---
