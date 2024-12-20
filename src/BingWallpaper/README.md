@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月21日：极致的冬日景色
+#### 满拉水库的雪景，日喀则，中国西藏自治区（© Zhang Zhenqi/VCG via Getty Images）
+
+![极致的冬日景色](https://cn.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_800x480.jpg&rf=LaDigue_800x480.jpg "极致的冬日景色")
+
+冬至既有自然的内涵，也有人文的内涵。从自然角度看，冬至是二十四节气中的一个重要节气，冬至过后，我国各地气候进入最寒冷的阶段。从文化角度看，这一天也是中华民族的传统节日，全国各地都会举行不同的文化习俗来庆祝这个节气的到来。
+
+满拉水库位于江孜县龙马乡，被称为西藏第一坝。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%86%ac%e8%87%b3&form=hpcapt&filters=HpDate:"20241220_1600" "Bing Wallpaper 2024 12月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241221_WinterSolstice2024"&FORM=HPQUIZ "必应主页测验 2024 12月 21")
+[下载480](https://cn.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_800x480.jpg&rf=LaDigue_800x480.jpg "满拉水库的雪景，日喀则，中国西藏自治区")
+[下载720](https://cn.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_1280x720.jpg&rf=LaDigue_1280x720.jpg "满拉水库的雪景，日喀则，中国西藏自治区")
+[下载1080](https://cn.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "满拉水库的雪景，日喀则，中国西藏自治区")
+[下载UHD](https://cn.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_UHD.jpg&rf=LaDigue_UHD.jpg "满拉水库的雪景，日喀则，中国西藏自治区")
+
+---
 ### 12月20日：圣诞老人要来镇上了
 #### 罗瓦涅米圣诞老人村，拉普兰，芬兰（© Smelov/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_1280x720.jpg&rf=LaDigue_1280x720.jpg "里约热内卢州的阿拉亚尔多卡博，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "里约热内卢州的阿拉亚尔多卡博，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_UHD.jpg&rf=LaDigue_UHD.jpg "里约热内卢州的阿拉亚尔多卡博，巴西")
-
----
-### 12月06日：一路通往童话之路
-#### 鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国（© zhengshun tang/Getty Images）
-
-![一路通往童话之路](https://cn.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_800x480.jpg&rf=LaDigue_800x480.jpg "一路通往童话之路")
-
-大雪节气已至，气温显著下降、中国大部分地区已经进入了寒冷的冬季。今天带您欣赏的是中国辽宁省大连市的泊霞湾公园。冬季，尤其是大雪节气之后，北方有“千里冰封，万里雪飘”的自然景观，此时的中国北方的部分海面已经慢慢开始冰封，于泊霞湾公园附近的灯塔欣赏冰封的海面是一个既梦幻又浪漫的好地方。
-
-彩虹路全长超过3000米，是大连市最长的彩虹观光路之一，路中间的双黄线，被红黄蓝的三色线取代。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e8%bf%9e%e6%b3%8a%e9%9c%9e%e6%b9%be&form=hpcapt&filters=HpDate:"20241205_1600" "Bing Wallpaper 2024 12月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241206_GreaterSnow2024"&FORM=HPQUIZ "必应主页测验 2024 12月 6")
-[下载480](https://cn.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_800x480.jpg&rf=LaDigue_800x480.jpg "鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国")
-[下载720](https://cn.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_1280x720.jpg&rf=LaDigue_1280x720.jpg "鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_UHD.jpg&rf=LaDigue_UHD.jpg "鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国")
 
 ---
