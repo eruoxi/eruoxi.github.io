@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月22日：冲浪、沙滩和圣诞老人
+#### 水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国（© SamAntonioPhotography/Getty Images）
+
+![冲浪、沙滩和圣诞老人](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_800x480.jpg&rf=LaDigue_800x480.jpg "冲浪、沙滩和圣诞老人")
+
+圣诞老人有足够的跑道可以降落，但要想光临你家的烟囱，那就只能祝你好运了。今天，我们在加利福尼亚州圣地亚哥的太平洋海滩为圣诞节做准备。虽然这里可能不会下雪，但在阳光明媚的南加州，圣诞节前仍然充满了节日气氛。在圣地亚哥的圣诞小径上，有许多美丽的圣诞树，其中一棵20英尺高的圣诞树位于装饰一新的水晶码头尽头。
+
+圣地亚哥（San Diego）的名字可以追溯到16世纪。1602年，西班牙探险家塞瓦斯蒂安·比斯凯诺将海湾和周边地区命名为 “San Diego de Alcalá”，以纪念迭戈·德·阿尔卡拉，后逐渐简化为San Diego。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e5%88%a9%e7%a6%8f%e5%b0%bc%e4%ba%9a%e5%b7%9e%e5%9c%a3%e5%9c%b0%e4%ba%9a%e5%93%a5&form=hpcapt&filters=HpDate:"20241221_1600" "Bing Wallpaper 2024 12月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241222_CrystalPier"&FORM=HPQUIZ "必应主页测验 2024 12月 22")
+[下载480](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_800x480.jpg&rf=LaDigue_800x480.jpg "水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_1280x720.jpg&rf=LaDigue_1280x720.jpg "水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_UHD.jpg&rf=LaDigue_UHD.jpg "水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国")
+
+---
 ### 12月21日：极致的冬日景色
 #### 满拉水库的雪景，日喀则，中国西藏自治区（© Zhang Zhenqi/VCG via Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴黎圣母院，巴黎，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴黎圣母院，巴黎，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_UHD.jpg&rf=LaDigue_UHD.jpg "巴黎圣母院，巴黎，法国")
-
----
-### 12月07日：自然奇观的蓝色魅力
-#### 里约热内卢州的阿拉亚尔多卡博，巴西（© Derson Santana/Shutterstock）
-
-![自然奇观的蓝色魅力](https://cn.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_800x480.jpg&rf=LaDigue_800x480.jpg "自然奇观的蓝色魅力")
-
-让我们一起来探索位于阿拉亚尔多卡博的蓬塔尔杜阿塔拉亚的壮丽美景！这个地点位于巴西里约热内卢，以提供该地区最美丽的景点之一而闻名，在这里可以将周围的海滩和岛屿尽收眼底。想象一下，从这个得天独厚的制高点观看日落，海天一色，美不胜收。要前往著名的庞塔尔海滩，您必须走过一个拥有着250多级台阶的标志性阶梯——阶梯上的景色和海滩本身一样令人印象深刻，透明的海水和洁白的沙滩让 “巴西加勒比海 ”的绰号名副其实。
-
-自1503年葡萄牙海军抵达阿拉亚尔多卡博起，一直到19世纪，这里发生了许多沉船事故。由于这一事实（以及其他生物因素），阿拉亚尔多卡博被誉为 “潜水之都”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e6%8b%89%e4%ba%9a%e5%b0%94%e5%a4%9a%e5%8d%a1%e5%8d%9a&form=hpcapt&filters=HpDate:"20241206_1600" "Bing Wallpaper 2024 12月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241207_ArraialdoCabo"&FORM=HPQUIZ "必应主页测验 2024 12月 7")
-[下载480](https://cn.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_800x480.jpg&rf=LaDigue_800x480.jpg "里约热内卢州的阿拉亚尔多卡博，巴西")
-[下载720](https://cn.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_1280x720.jpg&rf=LaDigue_1280x720.jpg "里约热内卢州的阿拉亚尔多卡博，巴西")
-[下载1080](https://cn.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "里约热内卢州的阿拉亚尔多卡博，巴西")
-[下载UHD](https://cn.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_UHD.jpg&rf=LaDigue_UHD.jpg "里约热内卢州的阿拉亚尔多卡博，巴西")
 
 ---
