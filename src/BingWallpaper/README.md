@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月24日：祝你圣诞快乐！
+#### 德国圣诞市场（© Cyril Gosselin/Getty Images）
+
+![祝你圣诞快乐！](https://cn.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_800x480.jpg&rf=LaDigue_800x480.jpg "祝你圣诞快乐！")
+
+德国的圣诞集市是一个值得珍视的节日传统，它带领游客进入一个神奇的世界，这里有闪烁的灯光、欢快的音乐和美味可口的季节性美食。这些集市的历史可以追溯至中世纪，它们在德国各地的城镇广场举办，其中最具代表性的是纽伦堡、慕尼黑和德累斯顿等城市。每个集市都会展示独特的地方手工艺品以及节日习俗。在这里，游客可以看到手工制作的装饰品，木制玩具以及舒适的冬日配饰，还有热红酒、姜饼和烤坚果等特色食品。在浓厚的圣诞气氛中，这里是边吃边逛的理想之地。
+
+全球最著名的圣诞集市之一就位于德国纽伦堡。除此之外，该地还以其历史魅力、节日气氛、传统工艺品和美食而闻名。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b9%b3%e5%ae%89%e5%a4%9c&form=hpcapt&filters=HpDate:"20241223_1600" "Bing Wallpaper 2024 12月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241224_SantaSnowglobe"&FORM=HPQUIZ "必应主页测验 2024 12月 24")
+[下载480](https://cn.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_800x480.jpg&rf=LaDigue_800x480.jpg "德国圣诞市场")
+[下载720](https://cn.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_1280x720.jpg&rf=LaDigue_1280x720.jpg "德国圣诞市场")
+[下载1080](https://cn.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "德国圣诞市场")
+[下载UHD](https://cn.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_UHD.jpg&rf=LaDigue_UHD.jpg "德国圣诞市场")
+
+---
 ### 12月23日：准备好发泄一些压力了吗？
 #### 钏路的两只丹顶鹤，北海道，日本（© Wirestock, Inc./Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_1280x720.jpg&rf=LaDigue_1280x720.jpg "被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_UHD.jpg&rf=LaDigue_UHD.jpg "被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰")
-
----
-### 12月09日：态度和高度
-#### 两只原驼,托雷斯德尔帕恩国家公园 , 智利（© Floris van Breugel/NPL/Minden Pictures）
-
-![态度和高度](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_800x480.jpg&rf=LaDigue_800x480.jpg "态度和高度")
-
-原驼是南美洲的本土动物，主要分布在美洲大陆中西部一带，大多栖息在秘鲁与玻利维亚交界的安第斯山脉。原驼生性机警敏捷，喜欢成群外出觅食，性格相对温顺。
-
-原驼（又称瓜纳科斯）能够在高海拔地区生活，它们的心脏相对于体型来说很大，单位体积血液内所含血红蛋白的量大约是人类血液的四倍。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8e%9f%e9%a9%bc&form=hpcapt&filters=HpDate:"20241208_1600" "Bing Wallpaper 2024 12月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241209_GuanacosChile"&FORM=HPQUIZ "必应主页测验 2024 12月 9")
-[下载480](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_800x480.jpg&rf=LaDigue_800x480.jpg "两只原驼,托雷斯德尔帕恩国家公园 , 智利")
-[下载720](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_1280x720.jpg&rf=LaDigue_1280x720.jpg "两只原驼,托雷斯德尔帕恩国家公园 , 智利")
-[下载1080](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "两只原驼,托雷斯德尔帕恩国家公园 , 智利")
-[下载UHD](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_UHD.jpg&rf=LaDigue_UHD.jpg "两只原驼,托雷斯德尔帕恩国家公园 , 智利")
 
 ---
