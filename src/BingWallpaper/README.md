@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月25日：传说中的风景
+#### 科瓦东加湖，阿斯图里亚斯，西班牙（© Carlos Fernandez/Getty Images）
+
+![传说中的风景](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_800x480.jpg&rf=LaDigue_800x480.jpg "传说中的风景")
+
+迷人的科瓦东加湖位于阿斯图里亚斯雄伟的欧罗巴山的中心地带，这是一个标志性的旅游胜地，在冬季尤为迷人。这些湖泊被皑皑白雪覆盖，四周环绕着雄伟的山脉，这幅自然奇观吸引着来自世界各地的游客。
+
+从科瓦东加通往湖区的这段上坡路是专业公路自行车赛中很受欢迎的爬坡路。在过去的25年里，环西班牙自行车赛曾多次经过这条路。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e7%93%a6%e4%b8%9c%e5%8a%a0%e5%8e%86%e5%8f%b2&form=hpcapt&filters=HpDate:"20241224_1600" "Bing Wallpaper 2024 12月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241225_CovadongaWinter"&FORM=HPQUIZ "必应主页测验 2024 12月 25")
+[下载480](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_800x480.jpg&rf=LaDigue_800x480.jpg "科瓦东加湖，阿斯图里亚斯，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_1280x720.jpg&rf=LaDigue_1280x720.jpg "科瓦东加湖，阿斯图里亚斯，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科瓦东加湖，阿斯图里亚斯，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_UHD.jpg&rf=LaDigue_UHD.jpg "科瓦东加湖，阿斯图里亚斯，西班牙")
+
+---
 ### 12月24日：祝你圣诞快乐！
 #### 德国圣诞市场（© Cyril Gosselin/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_1280x720.jpg&rf=LaDigue_1280x720.jpg "拉瓦雷多三峰山,意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拉瓦雷多三峰山,意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_UHD.jpg&rf=LaDigue_UHD.jpg "拉瓦雷多三峰山,意大利")
-
----
-### 12月10日：世界的尽头？不完全是
-#### 被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰（© Josef FitzGerald-Patrick/Getty Images）
-
-![世界的尽头？不完全是](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_800x480.jpg&rf=LaDigue_800x480.jpg "世界的尽头？不完全是")
-
-欢迎来到英格兰康沃尔的兰兹角，这里有狂风呼啸的悬崖、崎岖不平的美景和蔚为壮观的海景！从古希腊时代起，它就被称为“Belerion”（闪闪发光的土地）或是“太阳之地”，或出现在亚瑟王传奇中提到的失落之地“里昂内斯”中，兰兹角一直是一个令人神往的地方。它是英国大陆最西南的地点，最出名的是被设为慈善跑步比赛的起点或终点，路线从最西南端的兰兹角到英国北海的约翰奥格罗茨，贯穿了整个大不列颠岛。
-
-兰兹角是康沃尔的传奇之地，自古希腊时代起就一直激励着人们，当时它被称为“Belerion”，意为“闪闪发光的土地”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%ba%b7%e6%b2%83%e5%b0%94%e9%83%a1%e5%85%b0%e5%85%b9%e8%a7%92&form=hpcapt&filters=HpDate:"20241209_1600" "Bing Wallpaper 2024 12月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241210_CornwallSnow"&FORM=HPQUIZ "必应主页测验 2024 12月 10")
-[下载480](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_800x480.jpg&rf=LaDigue_800x480.jpg "被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_1280x720.jpg&rf=LaDigue_1280x720.jpg "被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_UHD.jpg&rf=LaDigue_UHD.jpg "被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰")
 
 ---
