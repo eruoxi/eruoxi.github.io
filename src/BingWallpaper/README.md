@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月26日：节日还在继续
+#### 莫斯霍尔港的圣诞灯饰，康沃尔，英格兰（© ianwool/Getty Images）
+
+![节日还在继续](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_800x480.jpg&rf=LaDigue_800x480.jpg "节日还在继续")
+
+当圣诞颂歌的余音仍在空中回荡时，节礼日又到了。英国、加拿大及多个英联邦国家都会庆祝这个节日。过去，富人们会在圣诞节后的这一天给仆人赠送装满礼物的礼盒，这一传统后来演变为向不幸者进行慈善捐赠的日子。如今，尽管赠予的精神仍在，但这一天已转变为购物促销和观看足球比赛的节日。
+
+2004年12月26日发生的印度洋地震及海啸被称为“节礼日海啸”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8a%82%e7%a4%bc%e6%97%a5&form=hpcapt&filters=HpDate:"20241225_1600" "Bing Wallpaper 2024 12月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241226_MouseholeXmas"&FORM=HPQUIZ "必应主页测验 2024 12月 26")
+[下载480](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_800x480.jpg&rf=LaDigue_800x480.jpg "莫斯霍尔港的圣诞灯饰，康沃尔，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_1280x720.jpg&rf=LaDigue_1280x720.jpg "莫斯霍尔港的圣诞灯饰，康沃尔，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫斯霍尔港的圣诞灯饰，康沃尔，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_UHD.jpg&rf=LaDigue_UHD.jpg "莫斯霍尔港的圣诞灯饰，康沃尔，英格兰")
+
+---
 ### 12月25日：传说中的风景
 #### 科瓦东加湖，阿斯图里亚斯，西班牙（© Carlos Fernandez/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_1280x720.jpg&rf=LaDigue_1280x720.jpg "一品红或圣诞花")
 [下载1080](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一品红或圣诞花")
 [下载UHD](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_UHD.jpg&rf=LaDigue_UHD.jpg "一品红或圣诞花")
-
----
-### 12月11日：山峰的“胜利三重奏”
-#### 拉瓦雷多三峰山,意大利（© Daniel Maran/Getty Images）
-
-![山峰的“胜利三重奏”](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_800x480.jpg&rf=LaDigue_800x480.jpg "山峰的“胜利三重奏”")
-
-今天，让我们一起庆祝国际山岳日，向这个星球上高耸的“巨人们”致敬！作为“巨人”中的一员，拉瓦雷多三峰山（在今天的照片中的右侧），是意大利东北部塞斯托多洛米蒂山脉的一部分，也是阿尔卑斯山脉最著名的山群之一。这三座山峰——大峰，西峰和小峰，是联合国教科文组织认定的世界遗产地，吸引了许多探险者以及自然爱好者。第一次世界大战期间，意大利和奥匈帝国的战线穿过了这些山峰，留下了许多冲突的遗迹，如防御工事、战壕、隧道和纪念章。
-
-举世闻名的拉瓦雷多三峰山被认为是多洛米蒂山最令人瞩目的岩石景观。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%8b%89%e7%93%a6%e9%9b%b7%e5%a4%9a%e4%b8%89%e5%b3%b0%e5%b1%b1&form=hpcapt&filters=HpDate:"20241210_1600" "Bing Wallpaper 2024 12月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241211_DolomitesSky"&FORM=HPQUIZ "必应主页测验 2024 12月 11")
-[下载480](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_800x480.jpg&rf=LaDigue_800x480.jpg "拉瓦雷多三峰山,意大利")
-[下载720](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_1280x720.jpg&rf=LaDigue_1280x720.jpg "拉瓦雷多三峰山,意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拉瓦雷多三峰山,意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_UHD.jpg&rf=LaDigue_UHD.jpg "拉瓦雷多三峰山,意大利")
 
 ---
