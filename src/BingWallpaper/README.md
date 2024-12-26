@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月27日：冰雪倒影和积雪覆盖的群峰
+#### 布莱德湖，斯洛文尼亚（© Kesu01/Getty Images）
+
+![冰雪倒影和积雪覆盖的群峰](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_800x480.jpg&rf=LaDigue_800x480.jpg "冰雪倒影和积雪覆盖的群峰")
+
+斯洛文尼亚的布莱德湖在夏季备受关注，而在冬季，这里的一切都放慢了脚步。湖水碧绿，色调柔和，湖心岛上的古朴教堂宛如从冬季童话中走出的一般，正如今日图片所示。这座长1.3英里的湖泊，被积雪覆盖的朱利安阿尔卑斯山环绕，形成于大约14,000年前的冰川与地质活动。布莱德岛上最早的定居迹象可追溯至新石器时代（公元前10,000年至公元前3,000年）。此外，考古学家在这里还发现了公元9世纪的中世纪早期墓地。如今，这里坐落着圣母升天教堂，其现有建筑形式建于17世纪末，游客们会在这里敲响“许愿钟”以祈求好运。
+
+其灵感来源于20世纪初，面包师之子拉夫尼克在奥地利和德国旅行时收集的食谱，其中就包括了一种制作香草奶油馅的配方。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e6%b4%9b%e6%96%87%e5%b0%bc%e4%ba%9a%e5%b8%83%e8%8e%b1%e5%be%b7%e6%b9%96&form=hpcapt&filters=HpDate:"20241226_1600" "Bing Wallpaper 2024 12月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241227_LakeBledSnow"&FORM=HPQUIZ "必应主页测验 2024 12月 27")
+[下载480](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_800x480.jpg&rf=LaDigue_800x480.jpg "布莱德湖，斯洛文尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_1280x720.jpg&rf=LaDigue_1280x720.jpg "布莱德湖，斯洛文尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布莱德湖，斯洛文尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_UHD.jpg&rf=LaDigue_UHD.jpg "布莱德湖，斯洛文尼亚")
+
+---
 ### 12月26日：节日还在继续
 #### 莫斯霍尔港的圣诞灯饰，康沃尔，英格兰（© ianwool/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利")
 [下载1080](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_UHD.jpg&rf=LaDigue_UHD.jpg "圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利")
-
----
-### 12月12日：为节日做好准备
-#### 一品红或圣诞花（© David Hosking/NPL/Minden Pictures）
-
-![为节日做好准备](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_800x480.jpg&rf=LaDigue_800x480.jpg "为节日做好准备")
-
-这是红色的一品红，这种植物是美国节日季节的代名词之一。它有着令人注目的星形叶子，火焰般的红色在冬季照亮了住宅和公共场所，成为欢庆圣诞节的象征。今天，国家一品红日是为了纪念美国第一任驻墨西哥大使乔尔·罗伯茨·波因塞特的贡献，他在19世纪20年代将这些鲜艳的植物引进美国。在探索格雷罗州的塔斯科地区时，波因塞特发现了一品红，被它们的美丽吸引住，于是将一品红的剪枝寄回了他在南卡罗来纳州查尔斯顿的家。
-
-在美国，大约7000万株一品红将在节日季节的六周内被出售。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%80%e5%93%81%e7%ba%a2&form=hpcapt&filters=HpDate:"20241211_1600" "Bing Wallpaper 2024 12月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241212_WildPoinsettia"&FORM=HPQUIZ "必应主页测验 2024 12月 12")
-[下载480](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_800x480.jpg&rf=LaDigue_800x480.jpg "一品红或圣诞花")
-[下载720](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_1280x720.jpg&rf=LaDigue_1280x720.jpg "一品红或圣诞花")
-[下载1080](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一品红或圣诞花")
-[下载UHD](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_UHD.jpg&rf=LaDigue_UHD.jpg "一品红或圣诞花")
 
 ---
