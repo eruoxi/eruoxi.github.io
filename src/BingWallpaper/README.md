@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月28日：保护海洋生物——绿海龟
+#### 一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚（© Damsea/Shutterstock）
+
+![保护海洋生物——绿海龟](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_800x480.jpg&rf=LaDigue_800x480.jpg "保护海洋生物——绿海龟")
+
+今日图片中展示了一只濒危的绿海龟正在太平洋西南部的新喀里多尼亚海域游泳。绿海龟在140多个国家的海岸线上均有分布，并全年在80多个国家筑巢。在中国，绿海龟大致分布于北起山东、南至北部湾海域。它们在中国江苏、浙江、福建、台湾、广东等沿海地带均有分布，尤其以南海最多。
+
+绿海龟被列为中国《国家重点保护野生动物名录》一级保护动物。截至2024年3月3日，中国的珍稀濒危物种数量稳中有升，人工繁育绿海龟幼龟数量已超过1万只。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%bb%bf%e6%b5%b7%e9%be%9f&form=hpcapt&filters=HpDate:"20241227_1600" "Bing Wallpaper 2024 12月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241228_CoralTurtle"&FORM=HPQUIZ "必应主页测验 2024 12月 28")
+[下载480](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_800x480.jpg&rf=LaDigue_800x480.jpg "一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_UHD.jpg&rf=LaDigue_UHD.jpg "一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚")
+
+---
 ### 12月27日：冰雪倒影和积雪覆盖的群峰
 #### 布莱德湖，斯洛文尼亚（© Kesu01/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN0348993719_1280x720.jpg&rf=LaDigue_1280x720.jpg "猛鸮，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN0348993719_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "猛鸮，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN0348993719_UHD.jpg&rf=LaDigue_UHD.jpg "猛鸮，加拿大")
-
----
-### 12月13日：圣斯蒂芬大教堂的降临节
-#### 圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利（© Calin Stan/Shutterstock）
-
-![圣斯蒂芬大教堂的降临节](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_800x480.jpg&rf=LaDigue_800x480.jpg "圣斯蒂芬大教堂的降临节")
-
-在圣诞节来临之际，圣斯蒂芬大教堂成为了布达佩斯标志性的圣诞集市的中心。在洋溢着节日气氛的集市上，匈牙利手工艺品、节日装饰和当地美食应有尽有，充分体现了传统圣诞节的精髓。作为在圣诞节前几周举行的活动，降临节盛宴也是匈牙利节日传统的一部分，届时会邀请游客们品尝烟囱蛋糕、白菜卷和炖牛肉汤等菜肴，而空气中也会弥漫着热红酒和烤栗子的香味。对许多人来说，大教堂外墙投射的3D灯光秀是一大亮点，现代感十足的灯光秀让这座历史悠久的建筑栩栩如生。
-
-这座大教堂内有一架令人印象深刻的管风琴，它有6500多根音管，是欧洲最大的管风琴之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e8%be%be%e4%bd%a9%e6%96%af%e5%9c%a3%e6%96%af%e8%92%82%e8%8a%ac%e5%a4%a7%e6%95%99%e5%a0%82&form=hpcapt&filters=HpDate:"20241212_1600" "Bing Wallpaper 2024 12月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241213_ChristmasBudapest"&FORM=HPQUIZ "必应主页测验 2024 12月 13")
-[下载480](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利")
-[下载720](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利")
-[下载1080](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利")
-[下载UHD](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_UHD.jpg&rf=LaDigue_UHD.jpg "圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利")
 
 ---
