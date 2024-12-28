@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月29日：圣山之上
+#### 婆罗浮屠大佛寺，爪哇岛，印度尼西亚（© Robertharding/Shutterstock）
+
+![圣山之上](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_800x480.jpg&rf=LaDigue_800x480.jpg "圣山之上")
+
+想象一下，一个由200多万块石头拼成的巨大拼图，这就是今日图片中的婆罗浮屠。这座寺庙建于公元9世纪，由当时统治爪哇岛的夏连特拉王朝的统治者建造，是世界上最大的佛教寺庙，巍然屹立在印度尼西亚的爪哇岛。这座古老的圣殿因其采用了先进的石块连接系统，在数百年的自然灾害中屹立不倒，包括火山喷发和地震。历史上，婆罗浮屠是一个重要的朝圣地。在被遗弃数百年后，它在19世纪被英国副总督莱佛士重新发现。
+
+婆罗浮屠曾隐藏在火山灰和丛林植被之下，数百年无人知晓。它被遗弃的原因至今仍是一个谜。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a9%86%e7%bd%97%e6%b5%ae%e5%b1%a0%e5%a4%a7%e4%bd%9b%e5%af%ba&form=hpcapt&filters=HpDate:"20241228_1600" "Bing Wallpaper 2024 12月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241229_BorobudurBells"&FORM=HPQUIZ "必应主页测验 2024 12月 29")
+[下载480](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_800x480.jpg&rf=LaDigue_800x480.jpg "婆罗浮屠大佛寺，爪哇岛，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_1280x720.jpg&rf=LaDigue_1280x720.jpg "婆罗浮屠大佛寺，爪哇岛，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "婆罗浮屠大佛寺，爪哇岛，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_UHD.jpg&rf=LaDigue_UHD.jpg "婆罗浮屠大佛寺，爪哇岛，印度尼西亚")
+
+---
 ### 12月28日：保护海洋生物——绿海龟
 #### 一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚（© Damsea/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0755993943_1280x720.jpg&rf=LaDigue_1280x720.jpg "米苏里纳湖，多洛米蒂山脉，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0755993943_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米苏里纳湖，多洛米蒂山脉，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0755993943_UHD.jpg&rf=LaDigue_UHD.jpg "米苏里纳湖，多洛米蒂山脉，意大利")
-
----
-### 12月14日：炯炯有神的凝视
-#### 猛鸮，加拿大（© pchoui/Getty Images）
-
-![炯炯有神的凝视](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN0348993719_800x480.jpg&rf=LaDigue_800x480.jpg "炯炯有神的凝视")
-
-125年来，北美各地的鸟类爱好者通过圣诞节鸟类统计活动将圣诞节变成了一个充满节日气氛的“羽毛盛会”。这项一年一度的活动由鸟类学家弗兰克·查普曼创立，该活动用望远镜取代猎枪，将传统的节日狩猎聚会变成了一种环保的活动。从那时起，它就成了世界上持续时间最长的公民科学项目之一。每年12月14日至1月5日，不同年龄、不同观鸟水平的志愿者都会聚集在一起，在指定的“圆圈”区域进行调查。每个圆圈的直径为15英里，参与者会统计他们在圆圈内看到或听到的每一只鸟。这个统计结果是鸟类多样性的巨大缩影，每年会从2,500多个地点收集数据。这是一项追踪鸟类种群变化的严肃工作，为致力于保护脆弱物种的科学家提供了宝贵的数据。
-
-与大多数猫头鹰不同，北方鹰鸮没有不对称的耳孔。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8c%9b%e9%b8%ae&form=hpcapt&filters=HpDate:"20241213_1600" "Bing Wallpaper 2024 12月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241214_NorthernHawkOwl"&FORM=HPQUIZ "必应主页测验 2024 12月 14")
-[下载480](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN0348993719_800x480.jpg&rf=LaDigue_800x480.jpg "猛鸮，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN0348993719_1280x720.jpg&rf=LaDigue_1280x720.jpg "猛鸮，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN0348993719_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "猛鸮，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN0348993719_UHD.jpg&rf=LaDigue_UHD.jpg "猛鸮，加拿大")
 
 ---
