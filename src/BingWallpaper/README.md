@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月31日：新年快乐！
+#### 国会山上空的烟花，渥太华，加拿大（© naibank/Getty Images）
+
+![新年快乐！](https://cn.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_800x480.jpg&rf=LaDigue_800x480.jpg "新年快乐！")
+
+今天是2024年的最后一天。新旧之年交替的夜晚被称为跨年夜，世界各地通常会举办烟火表演，一些地区则通过宗教和文化仪式迎接新年。许多国家还会用象征繁荣、长寿和好运的食物来迎接新年。在中国，人们会与亲朋好友聚在一起进行各种“除夕夜”活动，如旅行、听除夕音乐会或享用丰盛的除夕晚餐。
+
+西方元旦：公元前46年，古罗马凯撒把这一天定为西历新年的开始，为了祝福双面神“Janus”，这位罗马神话中的门神，“Janus”后来也演化为英文一月“January”这个词。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b8%a5%e5%a4%aa%e5%8d%8e%e5%9b%bd%e4%bc%9a%e5%b1%b1&form=hpcapt&filters=HpDate:"20241230_1600" "Bing Wallpaper 2024 12月 31")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241231_CANYE24"&FORM=HPQUIZ "必应主页测验 2024 12月 31")
+[下载480](https://cn.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_800x480.jpg&rf=LaDigue_800x480.jpg "国会山上空的烟花，渥太华，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_1280x720.jpg&rf=LaDigue_1280x720.jpg "国会山上空的烟花，渥太华，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "国会山上空的烟花，渥太华，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_UHD.jpg&rf=LaDigue_UHD.jpg "国会山上空的烟花，渥太华，加拿大")
+
+---
 ### 12月30日：四季皆美的公园
 #### 多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚（© Whitworth Images/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_ZH-CN1198843758_1280x720.jpg&rf=LaDigue_1280x720.jpg "传统红色渔民小屋，雷讷峡湾岸边，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_ZH-CN1198843758_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "传统红色渔民小屋，雷讷峡湾岸边，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_ZH-CN1198843758_UHD.jpg&rf=LaDigue_UHD.jpg "传统红色渔民小屋，雷讷峡湾岸边，挪威")
-
----
-### 12月16日：闪烁的街道和冰峰
-#### 萨尔茨堡，奥地利（© bluejayphoto/Getty Images）
-
-![闪烁的街道和冰峰](https://cn.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_800x480.jpg&rf=LaDigue_800x480.jpg "闪烁的街道和冰峰")
-
-今天，我们来到奥地利城市萨尔茨堡，一个永不过时的地方。这里的圣诞季有一种神奇的氛围，让人流连忘返。闪闪发光的装饰让这座城市焕发生机，空气中弥漫着炒栗子、热红酒和新鲜出炉的饼干的香气。在此期间，这里会举办萨尔茨堡圣诞集市，这是世界闻名的传统圣诞市场。在今天的照片中，可以看到霍亨萨尔茨堡城堡，那里是颇受欢迎的城堡圣诞市场，洋溢着节日的欢乐。
-
-历史悠久的萨尔茨堡圣诞集市将于2024年迎来50周年纪念日。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%90%a8%e5%b0%94%e8%8c%a8%e5%a0%a1&form=hpcapt&filters=HpDate:"20241215_1600" "Bing Wallpaper 2024 12月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241216_SalzburgSnow"&FORM=HPQUIZ "必应主页测验 2024 12月 16")
-[下载480](https://cn.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_800x480.jpg&rf=LaDigue_800x480.jpg "萨尔茨堡，奥地利")
-[下载720](https://cn.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨尔茨堡，奥地利")
-[下载1080](https://cn.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨尔茨堡，奥地利")
-[下载UHD](https://cn.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_UHD.jpg&rf=LaDigue_UHD.jpg "萨尔茨堡，奥地利")
 
 ---
