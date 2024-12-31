@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月01日：过一个冰雪元旦！
+#### 在北极玩耍的北极熊（© Ondrej Prosicky/Shutterstock）
+
+![过一个冰雪元旦！](https://cn.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_800x480.jpg&rf=LaDigue_800x480.jpg "过一个冰雪元旦！")
+
+元旦快乐！人类至少从公元前2000年开始庆祝新年，但不同的文化选择了与不同日期，通常与春分或是月相周期相关。公元前153年，罗马人将1月1日定为新年的开始，但在中世纪的欧洲，这一习俗逐渐被冷落。然而，自1582年起随着广泛采用格里高里历（公历），今天成为世界上大部分地区庆祝新年的日子。除了观看烟花、喝香槟和许下新年愿望外，其他全球性的传统还包括了品尝象征幸运的美食和互相赠送礼物。
+
+庆祝新年已经有数千年的历史。最早的新年庆祝活动记录可以追溯到巴比伦时期。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%85%83%e6%97%a6&form=hpcapt&filters=HpDate:"20241231_1600" "Bing Wallpaper 2025 1月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250101_PolarBearSwim"&FORM=HPQUIZ "必应主页测验 2025 1月 1")
+[下载480](https://cn.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_800x480.jpg&rf=LaDigue_800x480.jpg "在北极玩耍的北极熊")
+[下载720](https://cn.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_1280x720.jpg&rf=LaDigue_1280x720.jpg "在北极玩耍的北极熊")
+[下载1080](https://cn.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在北极玩耍的北极熊")
+[下载UHD](https://cn.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_UHD.jpg&rf=LaDigue_UHD.jpg "在北极玩耍的北极熊")
+
+---
 ### 12月31日：新年快乐！
 #### 国会山上空的烟花，渥太华，加拿大（© naibank/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_1280x720.jpg&rf=LaDigue_1280x720.jpg "印度吉姆科比特国家公园的大象，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印度吉姆科比特国家公园的大象，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_UHD.jpg&rf=LaDigue_UHD.jpg "印度吉姆科比特国家公园的大象，印度")
-
----
-### 12月17日：值得爱慕的海岸
-#### 传统红色渔民小屋，雷讷峡湾岸边，挪威（© Pilat666/Getty Images）
-
-![值得爱慕的海岸](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_ZH-CN1198843758_800x480.jpg&rf=LaDigue_800x480.jpg "值得爱慕的海岸")
-
-普通的海滨小屋——雷讷的红色小木屋在这里抢尽风头。雷讷是挪威罗弗敦群岛最美丽的地方之一，是一个约有300人居住的渔村。自1775年以来，这里一直是一个贸易站，如今已从商业中心发展成为备受青睐的旅游胜地。村子的海滨两边是传统的渔民小屋，称为“rorbu”或“rorbuer”，如今天的图片所示，这些小屋大多是红色的。这里曾经是渔民的重要住所，如今已成为受游客欢迎的住宿地。1999年，德国画家英戈·库尔在雷讷的一座小木屋里设立了临时工作室，他在这里描绘了高耸山脉衬托下的海港景色。这个村庄真正的亮点在冬季，在这个季节，你有机会看到北极光在夜空中闪烁。
-
-这些风景如画的小木屋并不总是现在这样。事实上，自1100年以来，它们就在挪威北部扮演着相当重要的角色。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%8c%aa%e5%a8%81%e7%bd%97%e5%bc%97%e6%95%a6%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20241216_1600" "Bing Wallpaper 2024 12月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241217_ReinefjordenNorway"&FORM=HPQUIZ "必应主页测验 2024 12月 17")
-[下载480](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_ZH-CN1198843758_800x480.jpg&rf=LaDigue_800x480.jpg "传统红色渔民小屋，雷讷峡湾岸边，挪威")
-[下载720](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_ZH-CN1198843758_1280x720.jpg&rf=LaDigue_1280x720.jpg "传统红色渔民小屋，雷讷峡湾岸边，挪威")
-[下载1080](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_ZH-CN1198843758_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "传统红色渔民小屋，雷讷峡湾岸边，挪威")
-[下载UHD](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_ZH-CN1198843758_UHD.jpg&rf=LaDigue_UHD.jpg "传统红色渔民小屋，雷讷峡湾岸边，挪威")
 
 ---
