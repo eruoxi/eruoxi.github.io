@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月02日：熠熠生辉的村庄
+#### 阿尔德兹村上空的星轨，格劳宾登州，瑞士（© Roberto Moiola/Getty Images）
+
+![熠熠生辉的村庄](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_800x480.jpg&rf=LaDigue_800x480.jpg "熠熠生辉的村庄")
+
+阿尔德兹位于瑞士因河河谷之上，海拔4,790英尺，是瑞士东部的一颗隐藏明珠，以其深厚的文化底蕴和对历史保护的卓越成就而闻名。这如画般的村庄正是今日图片的主角，展示了瑞士罗曼什语区的丰富传统和独特语言。村庄中的房屋都用石膏刻画装饰图案和彩色壁画装饰，这是恩加丁地区标志性的艺术风格。村庄的历史可以追溯到公元840年，当时它被称为阿尔代兹。村内的斯坦斯堡城堡最初属于库尔主教。尽管在1499 年的土瓦本战争中被摧毁，但城堡的塔楼多次被修复，如今仍屹立于此，骄傲地诉说着它的过去。阿尔德兹因其卓越的历史保护成就，于1975年被选为瑞士的模范村庄，其历史魅力因此得以完整保存。
+
+阿尔德兹是位于格劳宾登州恩加丁地区的一个小村庄，也是2016年瑞士最美村庄评选中进入决赛的四个村庄之一。这里有斯坦斯堡城堡的遗迹和圣卢修斯教堂的遗址，是瑞士四个受保护的古村之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%91%9e%e5%a3%ab%e9%98%bf%e5%b0%94%e5%be%b7%e5%85%b9&form=hpcapt&filters=HpDate:"20250101_1600" "Bing Wallpaper 2025 1月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250102_ArdezSwitzerland"&FORM=HPQUIZ "必应主页测验 2025 1月 2")
+[下载480](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔德兹村上空的星轨，格劳宾登州，瑞士")
+[下载720](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔德兹村上空的星轨，格劳宾登州，瑞士")
+[下载1080](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔德兹村上空的星轨，格劳宾登州，瑞士")
+[下载UHD](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔德兹村上空的星轨，格劳宾登州，瑞士")
+
+---
 ### 01月01日：过一个冰雪元旦！
 #### 在北极玩耍的北极熊（© Ondrej Prosicky/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_1280x720.jpg&rf=LaDigue_1280x720.jpg "锡比乌圣诞市场，罗马尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "锡比乌圣诞市场，罗马尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_UHD.jpg&rf=LaDigue_UHD.jpg "锡比乌圣诞市场，罗马尼亚")
-
----
-### 12月18日：壮观的象群队伍
-#### 印度吉姆科比特国家公园的大象，印度（© ABHILASH VISWA PICASSO/Shutterstock）
-
-![壮观的象群队伍](https://cn.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_800x480.jpg&rf=LaDigue_800x480.jpg "壮观的象群队伍")
-
-戴好你的帽子和望远镜，因为在吉姆科比特国家公园，河流不是普通的水道，而是大象的高速公路！印度最古老的国家公园建于1936年，以博物学家和自然保护主义者吉姆·科比特的名字命名。吉姆·科比特国家公园位于喜马拉雅山山麓，毗邻著名的奈尼塔尔山庄，以拥有大量老虎而闻名。在夏季，公园成为野生动物们的活动中心，经常可以看到印度象成群结队地游荡，数量多达数百头。作为特莱弧形景观计划的一部分，该公园是13个被纳入保护和修复目标的保护区之一。该计划的总体目标宏大且重要：保护三个最具代表性的陆地物种，即老虎、亚洲象和大独角犀牛。
-
-吉姆科比特国家公园是印度的一个国家公园，位于北阿坎德邦的奈尼塔尔地区。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%90%89%e5%a7%86%e7%a7%91%e6%af%94%e7%89%b9%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241217_1600" "Bing Wallpaper 2024 12月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241218_MorningElephants"&FORM=HPQUIZ "必应主页测验 2024 12月 18")
-[下载480](https://cn.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_800x480.jpg&rf=LaDigue_800x480.jpg "印度吉姆科比特国家公园的大象，印度")
-[下载720](https://cn.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_1280x720.jpg&rf=LaDigue_1280x720.jpg "印度吉姆科比特国家公园的大象，印度")
-[下载1080](https://cn.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印度吉姆科比特国家公园的大象，印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_UHD.jpg&rf=LaDigue_UHD.jpg "印度吉姆科比特国家公园的大象，印度")
 
 ---
