@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月03日：尽享欢乐时光
+#### 英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰（© atiger/Shutterstock）
+
+![尽享欢乐时光](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_800x480.jpg&rf=LaDigue_800x480.jpg "尽享欢乐时光")
+
+“冒险是否会有尽头？我想不会吧，因为总有人要继续讲述这个故事。” 今天是托尔金日，全球的读者们共同纪念这位创造了中土世界史诗冒险故事的大师：托尔金。托尔金可能是故事的开创者，但他的读者才是故事的传承者，一代又一代的读者沉浸在《霍比特人》、《指环王》等作品中。托尔金的读者们每年都会组织传统的祝酒活动庆祝托尔金的生日，在当地时间的晚上9点站起来并举起酒杯，说一声“敬教授”，然后喝一口即可。
+
+托尔金被大众公认为现代奇幻文学之父，也是史上最具影响力的作家之一。
+
+[Bing搜索](https://cn.bing.com/search?q=JRR+%e6%89%98%e5%b0%94%e9%87%91&form=hpcapt&filters=HpDate:"20250102_1600" "Bing Wallpaper 2025 1月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250103_TolkienOxford"&FORM=HPQUIZ "必应主页测验 2025 1月 3")
+[下载480](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_800x480.jpg&rf=LaDigue_800x480.jpg "英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_1280x720.jpg&rf=LaDigue_1280x720.jpg "英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_UHD.jpg&rf=LaDigue_UHD.jpg "英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰")
+
+---
 ### 01月02日：熠熠生辉的村庄
 #### 阿尔德兹村上空的星轨，格劳宾登州，瑞士（© Roberto Moiola/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗瓦涅米圣诞老人村，拉普兰，芬兰")
 [下载1080](https://cn.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗瓦涅米圣诞老人村，拉普兰，芬兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_UHD.jpg&rf=LaDigue_UHD.jpg "罗瓦涅米圣诞老人村，拉普兰，芬兰")
-
----
-### 12月19日：闪烁的小镇
-#### 锡比乌圣诞市场，罗马尼亚（© Calin Stan/Alamy Stock Photo）
-
-![闪烁的小镇](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_800x480.jpg&rf=LaDigue_800x480.jpg "闪烁的小镇")
-
-随着冬季寒潮来临，锡比乌市变成了一个令人眼花缭乱的假日仙境，这里有罗马尼亚最受欢迎的圣诞市场之一。锡比乌圣诞市场从11月底到1月初在中央广场举行。在今天的图片中，一串串闪闪发光的灯悬挂在广场上，形成了一个雨棚，使鹅卵石街道沐浴在温暖的节日光芒中。那里还有一棵灯火辉煌的圣诞树，周围是迷人的木屋，售卖各种各样的东西，不仅有手工制作的装饰品，还有当地制作的点心，比如罗马尼亚传统甜面包，芳香的热葡萄酒，还有撒上盐的热脆饼。
-
-这座小镇被称为“千眼之城”（斜坡上的阁楼窗户形似人的眼睛），是国内外游客的著名旅游目的地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%94%a1%e6%af%94%e4%b9%8c&form=hpcapt&filters=HpDate:"20241218_1600" "Bing Wallpaper 2024 12月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241219_SibiuRomania"&FORM=HPQUIZ "必应主页测验 2024 12月 19")
-[下载480](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_800x480.jpg&rf=LaDigue_800x480.jpg "锡比乌圣诞市场，罗马尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_1280x720.jpg&rf=LaDigue_1280x720.jpg "锡比乌圣诞市场，罗马尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "锡比乌圣诞市场，罗马尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_UHD.jpg&rf=LaDigue_UHD.jpg "锡比乌圣诞市场，罗马尼亚")
 
 ---
