@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月04日：边境天堂
+#### 归春河上的板约-德天瀑布，中国与越南边境（© Shane P. White/Minden Pictures）
+
+![边境天堂](https://cn.bing.com/th?id=OHR.VietnamFalls_ZH-CN9659529108_800x480.jpg&rf=LaDigue_800x480.jpg "边境天堂")
+
+欢迎来到河流与边界线交汇的绝美之地：板约-德天瀑布。今日图片展示的正是这幅美景。该瀑布位于中国广西壮族自治区大新县与越南高平省重庆县之间的喀斯特地貌山丘区，沿着归春河流下。瀑布高达95英尺，宽980英尺，是越南最宽的瀑布，距离河内169英里。多年来，板约瀑布的顶端因侵蚀而缓慢向上游延伸。一年中的大部分时间里，它们以两个独立的瀑布流淌，但到了夏季，当雨水使河水上涨时，它们会汇合成一个巨大的瀑布。
+
+板约-德天瀑布是位于中越国境线上的世界第四大跨国瀑布。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%9d%bf%e7%ba%a6-%e5%be%b7%e5%a4%a9%e7%80%91%e5%b8%83&form=hpcapt&filters=HpDate:"20250103_1600" "Bing Wallpaper 2025 1月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250104_VietnamFalls"&FORM=HPQUIZ "必应主页测验 2025 1月 4")
+[下载480](https://cn.bing.com/th?id=OHR.VietnamFalls_ZH-CN9659529108_800x480.jpg&rf=LaDigue_800x480.jpg "归春河上的板约-德天瀑布，中国与越南边境")
+[下载720](https://cn.bing.com/th?id=OHR.VietnamFalls_ZH-CN9659529108_1280x720.jpg&rf=LaDigue_1280x720.jpg "归春河上的板约-德天瀑布，中国与越南边境")
+[下载1080](https://cn.bing.com/th?id=OHR.VietnamFalls_ZH-CN9659529108_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "归春河上的板约-德天瀑布，中国与越南边境")
+[下载UHD](https://cn.bing.com/th?id=OHR.VietnamFalls_ZH-CN9659529108_UHD.jpg&rf=LaDigue_UHD.jpg "归春河上的板约-德天瀑布，中国与越南边境")
+
+---
 ### 01月03日：尽享欢乐时光
 #### 英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰（© atiger/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_1280x720.jpg&rf=LaDigue_1280x720.jpg "满拉水库的雪景，日喀则，中国西藏自治区")
 [下载1080](https://cn.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "满拉水库的雪景，日喀则，中国西藏自治区")
 [下载UHD](https://cn.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_UHD.jpg&rf=LaDigue_UHD.jpg "满拉水库的雪景，日喀则，中国西藏自治区")
-
----
-### 12月20日：圣诞老人要来镇上了
-#### 罗瓦涅米圣诞老人村，拉普兰，芬兰（© Smelov/Shutterstock）
-
-![圣诞老人要来镇上了](https://cn.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞老人要来镇上了")
-
-圣诞老人村坐落在芬兰的罗瓦涅米，这是一个神奇的四季皆宜的旅游胜地，游客从这里可以进入到迷人的圣诞世界。这个村庄位于北极圈内，可为游客提供独一份的节日体验，比如见到圣诞老人本人或穿越北极圈线。儿童和成人都可以见到圣诞老人忠诚的驯鹿，探索一系列以圣诞节为主题的充满活力的景点，让所有年龄段的游客都能不虚此行。
-
-罗瓦涅米的徽章是由托伊沃·沃雷拉设计的，他是这样描述这个徽章的：在绿色的田野里，有块银色的帷幔，上方角落里扑腾着一簇金色火焰。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%bd%97%e7%93%a6%e6%b6%85%e7%b1%b3&form=hpcapt&filters=HpDate:"20241219_1600" "Bing Wallpaper 2024 12月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241220_SantaClausVillage"&FORM=HPQUIZ "必应主页测验 2024 12月 20")
-[下载480](https://cn.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_800x480.jpg&rf=LaDigue_800x480.jpg "罗瓦涅米圣诞老人村，拉普兰，芬兰")
-[下载720](https://cn.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗瓦涅米圣诞老人村，拉普兰，芬兰")
-[下载1080](https://cn.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗瓦涅米圣诞老人村，拉普兰，芬兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_UHD.jpg&rf=LaDigue_UHD.jpg "罗瓦涅米圣诞老人村，拉普兰，芬兰")
 
 ---
