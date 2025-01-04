@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月05日：树梢上的焦点
+#### 希莫加的紫红头鹦鹉，卡纳塔克邦，印度（© Hira Punjabi/Alamy Stock Photo）
+
+![树梢上的焦点](https://cn.bing.com/th?id=OHR.PlumParakeet_ZH-CN0311942558_800x480.jpg&rf=LaDigue_800x480.jpg "树梢上的焦点")
+
+抬头看看天空，感受鸟类的神奇魅力。鸟类形态各异，色彩斑斓，但像今日图片中这种拥有紫色头冠的鹦鹉如此引人注目的却不多见。这种鹦鹉原产于印度次大陆，以飞行的快速敏捷和空中回荡的独特叫声而闻名。据报道，这种鹦鹉已扩散至美国纽约、佛罗里达州，甚至中东的部分地区。
+
+在中国，紫红头鹦鹉主要分布云南、四川西南部和西藏东南部等地区。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%b4%ab%e7%ba%a2%e5%a4%b4%e9%b9%a6%e9%b9%89&form=hpcapt&filters=HpDate:"20250104_1600" "Bing Wallpaper 2025 1月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250105_PlumParakeet"&FORM=HPQUIZ "必应主页测验 2025 1月 5")
+[下载480](https://cn.bing.com/th?id=OHR.PlumParakeet_ZH-CN0311942558_800x480.jpg&rf=LaDigue_800x480.jpg "希莫加的紫红头鹦鹉，卡纳塔克邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.PlumParakeet_ZH-CN0311942558_1280x720.jpg&rf=LaDigue_1280x720.jpg "希莫加的紫红头鹦鹉，卡纳塔克邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.PlumParakeet_ZH-CN0311942558_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "希莫加的紫红头鹦鹉，卡纳塔克邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.PlumParakeet_ZH-CN0311942558_UHD.jpg&rf=LaDigue_UHD.jpg "希莫加的紫红头鹦鹉，卡纳塔克邦，印度")
+
+---
 ### 01月04日：边境天堂
 #### 归春河上的板约-德天瀑布，中国与越南边境（© Shane P. White/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_1280x720.jpg&rf=LaDigue_1280x720.jpg "水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_UHD.jpg&rf=LaDigue_UHD.jpg "水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国")
-
----
-### 12月21日：极致的冬日景色
-#### 满拉水库的雪景，日喀则，中国西藏自治区（© Zhang Zhenqi/VCG via Getty Images）
-
-![极致的冬日景色](https://cn.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_800x480.jpg&rf=LaDigue_800x480.jpg "极致的冬日景色")
-
-冬至既有自然的内涵，也有人文的内涵。从自然角度看，冬至是二十四节气中的一个重要节气，冬至过后，我国各地气候进入最寒冷的阶段。从文化角度看，这一天也是中华民族的传统节日，全国各地都会举行不同的文化习俗来庆祝这个节气的到来。
-
-满拉水库位于江孜县龙马乡，被称为西藏第一坝。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%86%ac%e8%87%b3&form=hpcapt&filters=HpDate:"20241220_1600" "Bing Wallpaper 2024 12月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241221_WinterSolstice2024"&FORM=HPQUIZ "必应主页测验 2024 12月 21")
-[下载480](https://cn.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_800x480.jpg&rf=LaDigue_800x480.jpg "满拉水库的雪景，日喀则，中国西藏自治区")
-[下载720](https://cn.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_1280x720.jpg&rf=LaDigue_1280x720.jpg "满拉水库的雪景，日喀则，中国西藏自治区")
-[下载1080](https://cn.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "满拉水库的雪景，日喀则，中国西藏自治区")
-[下载UHD](https://cn.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_UHD.jpg&rf=LaDigue_UHD.jpg "满拉水库的雪景，日喀则，中国西藏自治区")
 
 ---
