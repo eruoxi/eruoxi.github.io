@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月06日：神圣的深渊
+#### 被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利（© Andrea Pucci/Getty Images）
+
+![神圣的深渊](https://cn.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_800x480.jpg&rf=LaDigue_800x480.jpg "神圣的深渊")
+
+在意大利拉文纳市，有一座圣弗朗西斯大教堂，以其美丽和历史意义而闻名。这座罗马式教堂始建于公元450年，在9世纪时又加建了一座坚固的方形钟楼，使教堂的外观更加突出。教堂设计有三座中殿，由两排各12根圆柱分隔。而今日图片中的圣弗朗西斯大教堂最引人注目的部分是地下墓穴。这座墓穴是早期宗教设计的杰出典范，拥有向下倾斜的拱形天花板和排列整齐的石柱。地面铺设的地砖镶嵌着精美复杂的马赛克图案，至今仍然保存完好，堪称艺术杰作。
+
+这座城市曾在1636年5月遭遇了一场严重的洪水。 随后的300年间，通过修建运河网络将附近的河流引开，并排干了周围的沼泽，从而降低了洪水发生的可能性，并在城市周边形成了一大片农业用地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e6%8b%89%e6%96%87%e7%ba%b3&form=hpcapt&filters=HpDate:"20250105_1600" "Bing Wallpaper 2025 1月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250106_RavennaBasilica"&FORM=HPQUIZ "必应主页测验 2025 1月 6")
+[下载480](https://cn.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_800x480.jpg&rf=LaDigue_800x480.jpg "被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_1280x720.jpg&rf=LaDigue_1280x720.jpg "被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_UHD.jpg&rf=LaDigue_UHD.jpg "被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利")
+
+---
 ### 01月05日：树梢上的焦点
 #### 希莫加的紫红头鹦鹉，卡纳塔克邦，印度（© Hira Punjabi/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FestivusCranes_ZH-CN2464862059_1280x720.jpg&rf=LaDigue_1280x720.jpg "钏路的两只丹顶鹤，北海道，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.FestivusCranes_ZH-CN2464862059_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "钏路的两只丹顶鹤，北海道，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.FestivusCranes_ZH-CN2464862059_UHD.jpg&rf=LaDigue_UHD.jpg "钏路的两只丹顶鹤，北海道，日本")
-
----
-### 12月22日：冲浪、沙滩和圣诞老人
-#### 水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国（© SamAntonioPhotography/Getty Images）
-
-![冲浪、沙滩和圣诞老人](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_800x480.jpg&rf=LaDigue_800x480.jpg "冲浪、沙滩和圣诞老人")
-
-圣诞老人有足够的跑道可以降落，但要想光临你家的烟囱，那就只能祝你好运了。今天，我们在加利福尼亚州圣地亚哥的太平洋海滩为圣诞节做准备。虽然这里可能不会下雪，但在阳光明媚的南加州，圣诞节前仍然充满了节日气氛。在圣地亚哥的圣诞小径上，有许多美丽的圣诞树，其中一棵20英尺高的圣诞树位于装饰一新的水晶码头尽头。
-
-圣地亚哥（San Diego）的名字可以追溯到16世纪。1602年，西班牙探险家塞瓦斯蒂安·比斯凯诺将海湾和周边地区命名为 “San Diego de Alcalá”，以纪念迭戈·德·阿尔卡拉，后逐渐简化为San Diego。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e5%88%a9%e7%a6%8f%e5%b0%bc%e4%ba%9a%e5%b7%9e%e5%9c%a3%e5%9c%b0%e4%ba%9a%e5%93%a5&form=hpcapt&filters=HpDate:"20241221_1600" "Bing Wallpaper 2024 12月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241222_CrystalPier"&FORM=HPQUIZ "必应主页测验 2024 12月 22")
-[下载480](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_800x480.jpg&rf=LaDigue_800x480.jpg "水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_1280x720.jpg&rf=LaDigue_1280x720.jpg "水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_UHD.jpg&rf=LaDigue_UHD.jpg "水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国")
 
 ---
