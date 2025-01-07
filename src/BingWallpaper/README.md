@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月08日：银装素裹，巍峨壮丽
+#### 被雪覆盖的长城，中国（© View Stock/Alamy Stock Photo）
+
+![银装素裹，巍峨壮丽](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_800x480.jpg&rf=LaDigue_800x480.jpg "银装素裹，巍峨壮丽")
+
+如今，这个古老的奇迹绵延 13,000 多英里，横跨崎岖的山脉、峡谷和数千年前修建的沙漠防御工事。长城上有陡峭的壕沟和瞭望塔，用以抵御入侵者。徒步攀登长城可以近距离感受这一历史地标，体验独特的长城之旅。从保存完好的慕田峪长城，到人迹罕至、最原始、最险峻的箭扣长城，每段长城的体验都不尽相同，有些台阶像梯子一样高。中国长城不仅仅是一堵墙，它还象征着坚韧和力量。今天，我们攀登长城，就是用顽强的毅力向更高的地方攀登！
+
+2009年，通过红外测距仪和全球卫星定位系统的帮助，首次精确测出明长城的总长度为8851.8千米。2015年3月至4月，在宁夏和甘肃交界地段黄河内岸，新发现了9段总长度超过10公里的长城遗址。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e9%95%bf%e5%9f%8e&form=hpcapt&filters=HpDate:"20250107_1600" "Bing Wallpaper 2025 1月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250108_GreatWallStairs"&FORM=HPQUIZ "必应主页测验 2025 1月 8")
+[下载480](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_800x480.jpg&rf=LaDigue_800x480.jpg "被雪覆盖的长城，中国")
+[下载720](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_1280x720.jpg&rf=LaDigue_1280x720.jpg "被雪覆盖的长城，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被雪覆盖的长城，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_UHD.jpg&rf=LaDigue_UHD.jpg "被雪覆盖的长城，中国")
+
+---
 ### 01月07日：岩石与滚石
 #### 日落时的摩拉基大圆石，南岛，新西兰（© Douglas Pearson/eStock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_1280x720.jpg&rf=LaDigue_1280x720.jpg "科瓦东加湖，阿斯图里亚斯，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科瓦东加湖，阿斯图里亚斯，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_UHD.jpg&rf=LaDigue_UHD.jpg "科瓦东加湖，阿斯图里亚斯，西班牙")
-
----
-### 12月24日：祝你圣诞快乐！
-#### 德国圣诞市场（© Cyril Gosselin/Getty Images）
-
-![祝你圣诞快乐！](https://cn.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_800x480.jpg&rf=LaDigue_800x480.jpg "祝你圣诞快乐！")
-
-德国的圣诞集市是一个值得珍视的节日传统，它带领游客进入一个神奇的世界，这里有闪烁的灯光、欢快的音乐和美味可口的季节性美食。这些集市的历史可以追溯至中世纪，它们在德国各地的城镇广场举办，其中最具代表性的是纽伦堡、慕尼黑和德累斯顿等城市。每个集市都会展示独特的地方手工艺品以及节日习俗。在这里，游客可以看到手工制作的装饰品，木制玩具以及舒适的冬日配饰，还有热红酒、姜饼和烤坚果等特色食品。在浓厚的圣诞气氛中，这里是边吃边逛的理想之地。
-
-全球最著名的圣诞集市之一就位于德国纽伦堡。除此之外，该地还以其历史魅力、节日气氛、传统工艺品和美食而闻名。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b9%b3%e5%ae%89%e5%a4%9c&form=hpcapt&filters=HpDate:"20241223_1600" "Bing Wallpaper 2024 12月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241224_SantaSnowglobe"&FORM=HPQUIZ "必应主页测验 2024 12月 24")
-[下载480](https://cn.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_800x480.jpg&rf=LaDigue_800x480.jpg "德国圣诞市场")
-[下载720](https://cn.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_1280x720.jpg&rf=LaDigue_1280x720.jpg "德国圣诞市场")
-[下载1080](https://cn.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "德国圣诞市场")
-[下载UHD](https://cn.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_UHD.jpg&rf=LaDigue_UHD.jpg "德国圣诞市场")
 
 ---
