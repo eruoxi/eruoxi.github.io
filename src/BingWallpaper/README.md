@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月09日：变换的地平线
+#### 苏丝斯黎沙丘，纳米布沙漠，纳米比亚（© Airpano/Amazing Aerial Agency）
+
+![变换的地平线](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_800x480.jpg&rf=LaDigue_800x480.jpg "变换的地平线")
+
+想象在日出时分，连绵起伏的沙丘泛着橙色光芒，延伸至视野尽头，欢迎来到横跨纳米比亚数千英里的纳米布沙漠。据估计它已有5500万年的历史，被认为是世界上最古老的沙漠。这里拥有地球上最著名的沙丘，包括高达1,066英尺的“大爸爸”沙丘；纳米比亚最高的沙丘“沙丘7”，高度达1256英尺；以及深受摄影师喜爱的“沙丘45”，高度约为560英尺。
+
+想象在日出时分，连绵起伏的沙丘泛着橙色光芒，延伸至视野尽头，欢迎来到横跨纳米比亚数千英里的纳米布沙漠。据估计它已有5500万年的历史，被认为是世界上最古老的沙漠。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%b3%e7%b1%b3%e5%b8%83%e6%b2%99%e6%bc%a0&form=hpcapt&filters=HpDate:"20250108_1600" "Bing Wallpaper 2025 1月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250109_NamibiaDunes"&FORM=HPQUIZ "必应主页测验 2025 1月 9")
+[下载480](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_800x480.jpg&rf=LaDigue_800x480.jpg "苏丝斯黎沙丘，纳米布沙漠，纳米比亚")
+[下载720](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_1280x720.jpg&rf=LaDigue_1280x720.jpg "苏丝斯黎沙丘，纳米布沙漠，纳米比亚")
+[下载1080](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "苏丝斯黎沙丘，纳米布沙漠，纳米比亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_UHD.jpg&rf=LaDigue_UHD.jpg "苏丝斯黎沙丘，纳米布沙漠，纳米比亚")
+
+---
 ### 01月08日：银装素裹，巍峨壮丽
 #### 被雪覆盖的长城，中国（© View Stock/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_1280x720.jpg&rf=LaDigue_1280x720.jpg "莫斯霍尔港的圣诞灯饰，康沃尔，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫斯霍尔港的圣诞灯饰，康沃尔，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_UHD.jpg&rf=LaDigue_UHD.jpg "莫斯霍尔港的圣诞灯饰，康沃尔，英格兰")
-
----
-### 12月25日：传说中的风景
-#### 科瓦东加湖，阿斯图里亚斯，西班牙（© Carlos Fernandez/Getty Images）
-
-![传说中的风景](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_800x480.jpg&rf=LaDigue_800x480.jpg "传说中的风景")
-
-迷人的科瓦东加湖位于阿斯图里亚斯雄伟的欧罗巴山的中心地带，这是一个标志性的旅游胜地，在冬季尤为迷人。这些湖泊被皑皑白雪覆盖，四周环绕着雄伟的山脉，这幅自然奇观吸引着来自世界各地的游客。
-
-从科瓦东加通往湖区的这段上坡路是专业公路自行车赛中很受欢迎的爬坡路。在过去的25年里，环西班牙自行车赛曾多次经过这条路。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e7%93%a6%e4%b8%9c%e5%8a%a0%e5%8e%86%e5%8f%b2&form=hpcapt&filters=HpDate:"20241224_1600" "Bing Wallpaper 2024 12月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241225_CovadongaWinter"&FORM=HPQUIZ "必应主页测验 2024 12月 25")
-[下载480](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_800x480.jpg&rf=LaDigue_800x480.jpg "科瓦东加湖，阿斯图里亚斯，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_1280x720.jpg&rf=LaDigue_1280x720.jpg "科瓦东加湖，阿斯图里亚斯，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科瓦东加湖，阿斯图里亚斯，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_UHD.jpg&rf=LaDigue_UHD.jpg "科瓦东加湖，阿斯图里亚斯，西班牙")
 
 ---
