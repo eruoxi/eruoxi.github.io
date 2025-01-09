@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月10日：冰层中气泡奇观
+#### 亚伯拉罕湖，阿尔伯塔省，加拿大（© Basic Elements Photography/Getty Images）
+
+![冰层中气泡奇观](https://cn.bing.com/th?id=OHR.BubbleLake_ZH-CN7146244555_800x480.jpg&rf=LaDigue_800x480.jpg "冰层中气泡奇观")
+
+听说过冻住的泡泡吗？每到冬季，加拿大阿尔伯塔省的亚伯拉罕湖便会上演这一奇观，这些气泡不仅美丽，更是科学的结晶。建于1972年的亚伯拉罕湖是一个占地超过20平方英里的人造湖，沿北萨斯喀彻温河延伸。湖泊的水源来自落基山脉的冰川融水，即使在寒冬，湖水依然清澈透明。冰川融水携带的细小沉积物能够散射阳光，而岩石的天然过滤作用将污染物降至最低。
+
+湖泊的冰层覆盖会随着冬季的不同阶段而有所变化。亚伯拉罕湖通常会在12月底完全冻结。而冰泡景观的最佳观赏时间是1月中旬至2月中旬。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e5%b0%94%e4%bc%af%e5%a1%94%e7%9c%81%e4%ba%9a%e4%bc%af%e6%8b%89%e7%bd%95%e6%b9%96&form=hpcapt&filters=HpDate:"20250109_1600" "Bing Wallpaper 2025 1月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250110_BubbleLake"&FORM=HPQUIZ "必应主页测验 2025 1月 10")
+[下载480](https://cn.bing.com/th?id=OHR.BubbleLake_ZH-CN7146244555_800x480.jpg&rf=LaDigue_800x480.jpg "亚伯拉罕湖，阿尔伯塔省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.BubbleLake_ZH-CN7146244555_1280x720.jpg&rf=LaDigue_1280x720.jpg "亚伯拉罕湖，阿尔伯塔省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.BubbleLake_ZH-CN7146244555_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亚伯拉罕湖，阿尔伯塔省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.BubbleLake_ZH-CN7146244555_UHD.jpg&rf=LaDigue_UHD.jpg "亚伯拉罕湖，阿尔伯塔省，加拿大")
+
+---
 ### 01月09日：变换的地平线
 #### 苏丝斯黎沙丘，纳米布沙漠，纳米比亚（© Airpano/Amazing Aerial Agency）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_1280x720.jpg&rf=LaDigue_1280x720.jpg "布莱德湖，斯洛文尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布莱德湖，斯洛文尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_UHD.jpg&rf=LaDigue_UHD.jpg "布莱德湖，斯洛文尼亚")
-
----
-### 12月26日：节日还在继续
-#### 莫斯霍尔港的圣诞灯饰，康沃尔，英格兰（© ianwool/Getty Images）
-
-![节日还在继续](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_800x480.jpg&rf=LaDigue_800x480.jpg "节日还在继续")
-
-当圣诞颂歌的余音仍在空中回荡时，节礼日又到了。英国、加拿大及多个英联邦国家都会庆祝这个节日。过去，富人们会在圣诞节后的这一天给仆人赠送装满礼物的礼盒，这一传统后来演变为向不幸者进行慈善捐赠的日子。如今，尽管赠予的精神仍在，但这一天已转变为购物促销和观看足球比赛的节日。
-
-2004年12月26日发生的印度洋地震及海啸被称为“节礼日海啸”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8a%82%e7%a4%bc%e6%97%a5&form=hpcapt&filters=HpDate:"20241225_1600" "Bing Wallpaper 2024 12月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241226_MouseholeXmas"&FORM=HPQUIZ "必应主页测验 2024 12月 26")
-[下载480](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_800x480.jpg&rf=LaDigue_800x480.jpg "莫斯霍尔港的圣诞灯饰，康沃尔，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_1280x720.jpg&rf=LaDigue_1280x720.jpg "莫斯霍尔港的圣诞灯饰，康沃尔，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫斯霍尔港的圣诞灯饰，康沃尔，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_UHD.jpg&rf=LaDigue_UHD.jpg "莫斯霍尔港的圣诞灯饰，康沃尔，英格兰")
 
 ---
