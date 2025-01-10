@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月11日：旧时代的古老拱门
+#### 梅克内斯的Heri es-Swani，摩洛哥（© Calin Stan/Shutterstock）
+
+![旧时代的古老拱门](https://cn.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_800x480.jpg&rf=LaDigue_800x480.jpg "旧时代的古老拱门")
+
+梅克内斯位于摩洛哥中北部，是一座历史悠久的皇家城市。17世纪，阿拉维王朝的苏丹伊斯梅尔·伊本·谢里夫曾将其作为摩洛哥的首都。这座城市以宏伟的城墙、壮丽的城门以及经久不衰的建筑闻名，完美体现了摩洛哥的建筑风格。其中最令人印象深刻的地标之一就是今日图片展示的古城赫里·埃斯·斯瓦尼。
+
+赫里·埃斯·斯瓦尼位于摩洛哥梅克内斯，是一座古老的城堡，至今仍为摩洛哥国王所用，不对公众开放。其他地方，如穆莱·伊斯梅尔的陵墓和赫里·埃斯·斯瓦尼，则作为宗教场所或旅游景点对外开放。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a2%85%e5%85%8b%e5%86%85%e6%96%af&form=hpcapt&filters=HpDate:"20250110_1600" "Bing Wallpaper 2025 1月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250111_MeknesMorocco"&FORM=HPQUIZ "必应主页测验 2025 1月 11")
+[下载480](https://cn.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_800x480.jpg&rf=LaDigue_800x480.jpg "梅克内斯的Heri es-Swani，摩洛哥")
+[下载720](https://cn.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_1280x720.jpg&rf=LaDigue_1280x720.jpg "梅克内斯的Heri es-Swani，摩洛哥")
+[下载1080](https://cn.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梅克内斯的Heri es-Swani，摩洛哥")
+[下载UHD](https://cn.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_UHD.jpg&rf=LaDigue_UHD.jpg "梅克内斯的Heri es-Swani，摩洛哥")
+
+---
 ### 01月10日：冰层中气泡奇观
 #### 亚伯拉罕湖，阿尔伯塔省，加拿大（© Basic Elements Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_UHD.jpg&rf=LaDigue_UHD.jpg "一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚")
-
----
-### 12月27日：冰雪倒影和积雪覆盖的群峰
-#### 布莱德湖，斯洛文尼亚（© Kesu01/Getty Images）
-
-![冰雪倒影和积雪覆盖的群峰](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_800x480.jpg&rf=LaDigue_800x480.jpg "冰雪倒影和积雪覆盖的群峰")
-
-斯洛文尼亚的布莱德湖在夏季备受关注，而在冬季，这里的一切都放慢了脚步。湖水碧绿，色调柔和，湖心岛上的古朴教堂宛如从冬季童话中走出的一般，正如今日图片所示。这座长1.3英里的湖泊，被积雪覆盖的朱利安阿尔卑斯山环绕，形成于大约14,000年前的冰川与地质活动。布莱德岛上最早的定居迹象可追溯至新石器时代（公元前10,000年至公元前3,000年）。此外，考古学家在这里还发现了公元9世纪的中世纪早期墓地。如今，这里坐落着圣母升天教堂，其现有建筑形式建于17世纪末，游客们会在这里敲响“许愿钟”以祈求好运。
-
-其灵感来源于20世纪初，面包师之子拉夫尼克在奥地利和德国旅行时收集的食谱，其中就包括了一种制作香草奶油馅的配方。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e6%b4%9b%e6%96%87%e5%b0%bc%e4%ba%9a%e5%b8%83%e8%8e%b1%e5%be%b7%e6%b9%96&form=hpcapt&filters=HpDate:"20241226_1600" "Bing Wallpaper 2024 12月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241227_LakeBledSnow"&FORM=HPQUIZ "必应主页测验 2024 12月 27")
-[下载480](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_800x480.jpg&rf=LaDigue_800x480.jpg "布莱德湖，斯洛文尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_1280x720.jpg&rf=LaDigue_1280x720.jpg "布莱德湖，斯洛文尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布莱德湖，斯洛文尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_UHD.jpg&rf=LaDigue_UHD.jpg "布莱德湖，斯洛文尼亚")
 
 ---
