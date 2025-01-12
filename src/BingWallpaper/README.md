@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月13日：“威尔士”祝你新年快乐！
+#### 小屋和特尔莫尔灯塔，兰德温岛，威尔士，英国（© Westend61 on Offset/Shutterstock）
+
+![“威尔士”祝你新年快乐！](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN9113929287_800x480.jpg&rf=LaDigue_800x480.jpg "“威尔士”祝你新年快乐！")
+
+谁说新年一定要在1月1日？在威尔士，1月13日，人们会“时钟倒转”庆祝盖兰节，也就是“旧新年”。 在这一传统中，“Calennig”（意为“新年礼物”）起着核心作用，将庆典与儒略历时代的风俗相连接。尽管1582年世界大部分地区改用格里高利历，但威尔士的一些地区依然坚持旧传统。在传统上，这一天会有孩子们挨家挨户拜访，唱歌送祝福，以此换取硬币、食物或糖果等礼物。其中一大特色是用丁香装饰的苹果，它们并非用来食用，而是象征好运与繁荣的装饰品。
+
+在新年当天赠送礼物和金钱是一项古老的传统，即使在现代的威尔士，这一习俗仍保留着，不过如今人们更倾向于赠送面包和奶酪。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%94%e5%a3%ab%e6%97%a7%e6%96%b0%e5%b9%b4&form=hpcapt&filters=HpDate:"20250112_1600" "Bing Wallpaper 2025 1月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250113_CoastalWales"&FORM=HPQUIZ "必应主页测验 2025 1月 13")
+[下载480](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN9113929287_800x480.jpg&rf=LaDigue_800x480.jpg "小屋和特尔莫尔灯塔，兰德温岛，威尔士，英国")
+[下载720](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN9113929287_1280x720.jpg&rf=LaDigue_1280x720.jpg "小屋和特尔莫尔灯塔，兰德温岛，威尔士，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN9113929287_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "小屋和特尔莫尔灯塔，兰德温岛，威尔士，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN9113929287_UHD.jpg&rf=LaDigue_UHD.jpg "小屋和特尔莫尔灯塔，兰德温岛，威尔士，英国")
+
+---
 ### 01月12日：深海中的锐利目光
 #### 大堡礁的宝石大眼鲷鱼，澳大利亚（© Fred Bavendam/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_1280x720.jpg&rf=LaDigue_1280x720.jpg "多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_UHD.jpg&rf=LaDigue_UHD.jpg "多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚")
-
----
-### 12月29日：圣山之上
-#### 婆罗浮屠大佛寺，爪哇岛，印度尼西亚（© Robertharding/Shutterstock）
-
-![圣山之上](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_800x480.jpg&rf=LaDigue_800x480.jpg "圣山之上")
-
-想象一下，一个由200多万块石头拼成的巨大拼图，这就是今日图片中的婆罗浮屠。这座寺庙建于公元9世纪，由当时统治爪哇岛的夏连特拉王朝的统治者建造，是世界上最大的佛教寺庙，巍然屹立在印度尼西亚的爪哇岛。这座古老的圣殿因其采用了先进的石块连接系统，在数百年的自然灾害中屹立不倒，包括火山喷发和地震。历史上，婆罗浮屠是一个重要的朝圣地。在被遗弃数百年后，它在19世纪被英国副总督莱佛士重新发现。
-
-婆罗浮屠曾隐藏在火山灰和丛林植被之下，数百年无人知晓。它被遗弃的原因至今仍是一个谜。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a9%86%e7%bd%97%e6%b5%ae%e5%b1%a0%e5%a4%a7%e4%bd%9b%e5%af%ba&form=hpcapt&filters=HpDate:"20241228_1600" "Bing Wallpaper 2024 12月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241229_BorobudurBells"&FORM=HPQUIZ "必应主页测验 2024 12月 29")
-[下载480](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_800x480.jpg&rf=LaDigue_800x480.jpg "婆罗浮屠大佛寺，爪哇岛，印度尼西亚")
-[下载720](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_1280x720.jpg&rf=LaDigue_1280x720.jpg "婆罗浮屠大佛寺，爪哇岛，印度尼西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "婆罗浮屠大佛寺，爪哇岛，印度尼西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_UHD.jpg&rf=LaDigue_UHD.jpg "婆罗浮屠大佛寺，爪哇岛，印度尼西亚")
 
 ---
