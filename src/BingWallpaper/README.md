@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月14日：宁静之地
+#### Village of Zahara de la Sierra, Cádiz province, Spain（© SEN LI/Getty Images）
+
+![宁静之地](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_800x480.jpg&rf=LaDigue_800x480.jpg "宁静之地")
+
+萨哈拉·德拉谢拉位于西班牙加的斯的群山之上，是伊比利亚半岛南部历史与自然完美结合的白色小镇。村庄坐落在岩石山顶，从今日图片中可以看到，它俯瞰着碧蓝的萨哈拉-埃尔加斯托尔水库和郁郁葱葱的格拉萨莱马自然公园。该公园自1977年起被列为联合国教科文组织生物圈保护区。村内的摩尔人城堡遗址和15世纪塔楼，见证了其作为中世纪要塞的辉煌历史。漫步在鲜花簇拥的狭窄街道，参观风景如画的圣玛丽亚德拉梅萨教堂，或放松身心，尽享壮丽景色。萨哈拉·德拉谢拉还是探险的门户，徒步、骑行和皮划艇等活动只是小镇丰富体验的一部分。
+
+萨哈拉·德拉谢拉是安达卢西亚著名的“白色城镇”之一，大部分建筑的外墙以白色为主。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%90%a8%e9%98%bf%e6%8b%89%c2%b7%e5%be%b7%e6%8b%89%e8%b0%a2%e6%8b%89&form=hpcapt&filters=HpDate:"20250113_1600" "Bing Wallpaper 2025 1月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250114_CadizSpain"&FORM=HPQUIZ "必应主页测验 2025 1月 14")
+[下载480](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_800x480.jpg&rf=LaDigue_800x480.jpg "Village of Zahara de la Sierra, Cádiz province, Spain")
+[下载720](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_1280x720.jpg&rf=LaDigue_1280x720.jpg "Village of Zahara de la Sierra, Cádiz province, Spain")
+[下载1080](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Village of Zahara de la Sierra, Cádiz province, Spain")
+[下载UHD](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_UHD.jpg&rf=LaDigue_UHD.jpg "Village of Zahara de la Sierra, Cádiz province, Spain")
+
+---
 ### 01月13日：“威尔士”祝你新年快乐！
 #### 小屋和特尔莫尔灯塔，兰德温岛，威尔士，英国（© Westend61 on Offset/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_1280x720.jpg&rf=LaDigue_1280x720.jpg "国会山上空的烟花，渥太华，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "国会山上空的烟花，渥太华，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_UHD.jpg&rf=LaDigue_UHD.jpg "国会山上空的烟花，渥太华，加拿大")
-
----
-### 12月30日：四季皆美的公园
-#### 多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚（© Whitworth Images/Getty Images）
-
-![四季皆美的公园](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_800x480.jpg&rf=LaDigue_800x480.jpg "四季皆美的公园")
-
-位于澳大利亚东南海岸附近的塔斯马尼亚岛的中心，坐落着菲尔德山国家公园。该公园占地超过60平方英里，是该州最古老的国家公园之一。沿着蜿蜒的公路驶入公园，你将看到多样的自然景观，从温带雨林中世界上最高的桉树到高山沼泽地。这些千变万化的景色让公园有了“四季公园”的美誉。公园必去的景点之一是罗素瀑布，瀑布呈三级，落差达190英尺。
-
-这座公园是重要的植被保护区，保护了众多物种，其中包括了塔斯马尼亚至少13种珍稀或濒危物种。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%b4%b9%e5%b0%94%e5%be%b7%e5%b1%b1%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20241229_1600" "Bing Wallpaper 2024 12月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20241230_MountFieldNP"&FORM=HPQUIZ "必应主页测验 2024 12月 30")
-[下载480](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_800x480.jpg&rf=LaDigue_800x480.jpg "多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_1280x720.jpg&rf=LaDigue_1280x720.jpg "多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_UHD.jpg&rf=LaDigue_UHD.jpg "多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚")
 
 ---
