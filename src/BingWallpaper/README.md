@@ -1,4 +1,38 @@
 ## Bing Wallpaper(最近15天)
+### 01月18日：1,001座白色沙丘
+#### 白沙国家公园的日落，新墨西哥州，美国（© Image Professionals GmbH/Alamy Stock Photo）
+
+![1,001座白色沙丘](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_800x480.jpg&rf=LaDigue_800x480.jpg "1,001座白色沙丘")
+
+今日图片展示了新墨西哥州白沙国家公园最令人叹为观止的自然奇观，一片闪耀梦幻光芒的白色沙丘，这里有地球上规模最大的石膏沙丘。这片广袤的沙漠占地超过145,000英亩，沙丘高度可达60英尺，展现出其他地方难以见到的独特景观。这座公园不仅是自然奇观，更是历史瑰宝，这里发现了距今约23,000年的化石化人类脚印，被认为是北美最古老的人类遗迹之一。
+
+在白沙国家公园的生态系统中，植物发挥着重要作用，不仅稳定沙丘前沿，还为野生动物提供食物与庇护所。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%b0%e5%a2%a8%e8%a5%bf%e5%93%a5%e5%b7%9e%e7%99%bd%e6%b2%99%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250117_1600" "Bing Wallpaper 2025 1月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250118_WhiteSandsNP"&FORM=HPQUIZ "必应主页测验 2025 1月 18")
+[下载480](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_800x480.jpg&rf=LaDigue_800x480.jpg "白沙国家公园的日落，新墨西哥州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_1280x720.jpg&rf=LaDigue_1280x720.jpg "白沙国家公园的日落，新墨西哥州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "白沙国家公园的日落，新墨西哥州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_UHD.jpg&rf=LaDigue_UHD.jpg "白沙国家公园的日落，新墨西哥州，美国")
+
+---
+### 01月17日：完美的囊袋
+#### 褐鹈鹕，圣地亚哥，加利福尼亚州，美国（© Arthur Morris/BIRDS AS ART/Getty Images）
+
+![完美的囊袋](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_800x480.jpg&rf=LaDigue_800x480.jpg "完美的囊袋")
+
+今日图片展示的是褐鹈鹕，这种鸟不仅会飞，还能以极高的精准度滑翔、发现猎物并俯冲捕食。虽然它是全球八种鹈鹕中体型最小的成员，但褐鹈鹕仍属于大型鸟类，身长约4英尺，翼展达6.5英尺。褐鹈鹕是海洋鸟类，分布在美洲的大西洋海岸，从新泽西到亚马逊河口；在太平洋沿岸，从不列颠哥伦比亚到秘鲁的沿海地区，包括加拉帕戈斯群岛，都可以找到它们的身影。
+
+在太平洋沿岸，繁殖季节的成年褐鹈鹕喉部皮肤呈红色；而在大西洋和墨西哥湾沿岸，褐鹈鹕体型略小，喉部皮肤呈绿黑色。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a4%90%e9%b9%88%e9%b9%95&form=hpcapt&filters=HpDate:"20250116_1600" "Bing Wallpaper 2025 1月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250117_PelicanPortrait"&FORM=HPQUIZ "必应主页测验 2025 1月 17")
+[下载480](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_800x480.jpg&rf=LaDigue_800x480.jpg "褐鹈鹕，圣地亚哥，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_1280x720.jpg&rf=LaDigue_1280x720.jpg "褐鹈鹕，圣地亚哥，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "褐鹈鹕，圣地亚哥，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_UHD.jpg&rf=LaDigue_UHD.jpg "褐鹈鹕，圣地亚哥，加利福尼亚州，美国")
+
+---
 ### 01月16日：诞生于火，历久弥坚
 #### 尖峰国家公园的高峰步道，圣贝尼托县，加利福尼亚州，美国（© yhelfman/Getty Images）
 
@@ -218,39 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.VietnamFalls_ZH-CN9659529108_1280x720.jpg&rf=LaDigue_1280x720.jpg "归春河上的板约-德天瀑布，中国与越南边境")
 [下载1080](https://cn.bing.com/th?id=OHR.VietnamFalls_ZH-CN9659529108_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "归春河上的板约-德天瀑布，中国与越南边境")
 [下载UHD](https://cn.bing.com/th?id=OHR.VietnamFalls_ZH-CN9659529108_UHD.jpg&rf=LaDigue_UHD.jpg "归春河上的板约-德天瀑布，中国与越南边境")
-
----
-### 01月03日：尽享欢乐时光
-#### 英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰（© atiger/Shutterstock）
-
-![尽享欢乐时光](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_800x480.jpg&rf=LaDigue_800x480.jpg "尽享欢乐时光")
-
-“冒险是否会有尽头？我想不会吧，因为总有人要继续讲述这个故事。” 今天是托尔金日，全球的读者们共同纪念这位创造了中土世界史诗冒险故事的大师：托尔金。托尔金可能是故事的开创者，但他的读者才是故事的传承者，一代又一代的读者沉浸在《霍比特人》、《指环王》等作品中。托尔金的读者们每年都会组织传统的祝酒活动庆祝托尔金的生日，在当地时间的晚上9点站起来并举起酒杯，说一声“敬教授”，然后喝一口即可。
-
-托尔金被大众公认为现代奇幻文学之父，也是史上最具影响力的作家之一。
-
-[Bing搜索](https://cn.bing.com/search?q=JRR+%e6%89%98%e5%b0%94%e9%87%91&form=hpcapt&filters=HpDate:"20250102_1600" "Bing Wallpaper 2025 1月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250103_TolkienOxford"&FORM=HPQUIZ "必应主页测验 2025 1月 3")
-[下载480](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_800x480.jpg&rf=LaDigue_800x480.jpg "英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_1280x720.jpg&rf=LaDigue_1280x720.jpg "英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_UHD.jpg&rf=LaDigue_UHD.jpg "英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰")
-
----
-### 01月02日：熠熠生辉的村庄
-#### 阿尔德兹村上空的星轨，格劳宾登州，瑞士（© Roberto Moiola/Getty Images）
-
-![熠熠生辉的村庄](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_800x480.jpg&rf=LaDigue_800x480.jpg "熠熠生辉的村庄")
-
-阿尔德兹位于瑞士因河河谷之上，海拔4,790英尺，是瑞士东部的一颗隐藏明珠，以其深厚的文化底蕴和对历史保护的卓越成就而闻名。这如画般的村庄正是今日图片的主角，展示了瑞士罗曼什语区的丰富传统和独特语言。村庄中的房屋都用石膏刻画装饰图案和彩色壁画装饰，这是恩加丁地区标志性的艺术风格。村庄的历史可以追溯到公元840年，当时它被称为阿尔代兹。村内的斯坦斯堡城堡最初属于库尔主教。尽管在1499 年的土瓦本战争中被摧毁，但城堡的塔楼多次被修复，如今仍屹立于此，骄傲地诉说着它的过去。阿尔德兹因其卓越的历史保护成就，于1975年被选为瑞士的模范村庄，其历史魅力因此得以完整保存。
-
-阿尔德兹是位于格劳宾登州恩加丁地区的一个小村庄，也是2016年瑞士最美村庄评选中进入决赛的四个村庄之一。这里有斯坦斯堡城堡的遗迹和圣卢修斯教堂的遗址，是瑞士四个受保护的古村之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%91%9e%e5%a3%ab%e9%98%bf%e5%b0%94%e5%be%b7%e5%85%b9&form=hpcapt&filters=HpDate:"20250101_1600" "Bing Wallpaper 2025 1月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250102_ArdezSwitzerland"&FORM=HPQUIZ "必应主页测验 2025 1月 2")
-[下载480](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔德兹村上空的星轨，格劳宾登州，瑞士")
-[下载720](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔德兹村上空的星轨，格劳宾登州，瑞士")
-[下载1080](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔德兹村上空的星轨，格劳宾登州，瑞士")
-[下载UHD](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔德兹村上空的星轨，格劳宾登州，瑞士")
 
 ---
