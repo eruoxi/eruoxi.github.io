@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月20日：松鼠之趣
+#### 欧亚红松鼠与毒蘑菇（© Edwin Giesbers/Minden Pictures）
+
+![松鼠之趣](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_800x480.jpg&rf=LaDigue_800x480.jpg "松鼠之趣")
+
+一条长长的、蓬松的尾巴在树枝间飞快地穿梭着，那是什么？很可能是松鼠。这些小啮齿动物几乎遍布全球，今天是它们的特殊日子：松鼠感谢日。这个非官方的节日是由北卡罗来纳州的一位野生动物康复师发起的，旨在鼓励人们为这些小动物留下种子和坚果。从只有5.5英寸长的侏儒松鼠，到超过4英尺长的不丹巨型飞松鼠，这些哺乳动物有各种各样的体型。
+
+红松鼠是英国纹章中的常见特征，在英国纹章中，红松鼠总是被描绘成坐着的姿态，并且经常敲打坚果。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e4%ba%9a%e7%ba%a2%e6%9d%be%e9%bc%a0&form=hpcapt&filters=HpDate:"20250119_1600" "Bing Wallpaper 2025 1月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250120_DutchSquirrel"&FORM=HPQUIZ "必应主页测验 2025 1月 20")
+[下载480](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_800x480.jpg&rf=LaDigue_800x480.jpg "欧亚红松鼠与毒蘑菇")
+[下载720](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧亚红松鼠与毒蘑菇")
+[下载1080](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚红松鼠与毒蘑菇")
+[下载UHD](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚红松鼠与毒蘑菇")
+
+---
 ### 01月19日：一座适合神居住的石窟
 #### 海王星石窟，撒丁岛， 意大利（© Carlo Murenu/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_1280x720.jpg&rf=LaDigue_1280x720.jpg "被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_UHD.jpg&rf=LaDigue_UHD.jpg "被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利")
-
----
-### 01月05日：树梢上的焦点
-#### 希莫加的紫红头鹦鹉，卡纳塔克邦，印度（© Hira Punjabi/Alamy Stock Photo）
-
-![树梢上的焦点](https://cn.bing.com/th?id=OHR.PlumParakeet_ZH-CN0311942558_800x480.jpg&rf=LaDigue_800x480.jpg "树梢上的焦点")
-
-抬头看看天空，感受鸟类的神奇魅力。鸟类形态各异，色彩斑斓，但像今日图片中这种拥有紫色头冠的鹦鹉如此引人注目的却不多见。这种鹦鹉原产于印度次大陆，以飞行的快速敏捷和空中回荡的独特叫声而闻名。据报道，这种鹦鹉已扩散至美国纽约、佛罗里达州，甚至中东的部分地区。
-
-在中国，紫红头鹦鹉主要分布云南、四川西南部和西藏东南部等地区。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%b4%ab%e7%ba%a2%e5%a4%b4%e9%b9%a6%e9%b9%89&form=hpcapt&filters=HpDate:"20250104_1600" "Bing Wallpaper 2025 1月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250105_PlumParakeet"&FORM=HPQUIZ "必应主页测验 2025 1月 5")
-[下载480](https://cn.bing.com/th?id=OHR.PlumParakeet_ZH-CN0311942558_800x480.jpg&rf=LaDigue_800x480.jpg "希莫加的紫红头鹦鹉，卡纳塔克邦，印度")
-[下载720](https://cn.bing.com/th?id=OHR.PlumParakeet_ZH-CN0311942558_1280x720.jpg&rf=LaDigue_1280x720.jpg "希莫加的紫红头鹦鹉，卡纳塔克邦，印度")
-[下载1080](https://cn.bing.com/th?id=OHR.PlumParakeet_ZH-CN0311942558_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "希莫加的紫红头鹦鹉，卡纳塔克邦，印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.PlumParakeet_ZH-CN0311942558_UHD.jpg&rf=LaDigue_UHD.jpg "希莫加的紫红头鹦鹉，卡纳塔克邦，印度")
 
 ---
