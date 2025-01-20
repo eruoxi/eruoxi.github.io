@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月21日：迷人的海湾风光
+#### 俯瞰那不勒斯湾和维苏威火山，意大利（© ezypix/Getty Images）
+
+![迷人的海湾风光](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_800x480.jpg&rf=LaDigue_800x480.jpg "迷人的海湾风光")
+
+那不勒斯湾（意大利语：Golfo di Napoli）是位于意大利西南海岸（大都市区那不勒斯，坎帕尼亚地区）的一个海湾，宽约15公里，向西通往地中海。那不勒斯湾因风景优美而闻名，是著名的旅游区，沿岸有陡峭的火山峰，包括维苏威火山等活火山以及庞贝古城、赫库兰尼姆古城遗址。海湾入口处有卡普里岛、伊斯基亚岛和普罗奇达岛等风景名胜。据说罗马皇帝卡里古拉在海湾上建造了一座船桥，他身穿亚历山大大帝的盔甲，乘坐战车横跨海湾。
+
+除了伊斯基亚岛、波佐利湾以及加埃塔湾，当地水域还是各种鲸鱼和海豚的栖息地，包括长须鲸和抹香鲸。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%82%a3%e4%b8%8d%e5%8b%92%e6%96%af%e6%b9%be&form=hpcapt&filters=HpDate:"20250120_1600" "Bing Wallpaper 2025 1月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250121_NapoliPizza"&FORM=HPQUIZ "必应主页测验 2025 1月 21")
+[下载480](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_800x480.jpg&rf=LaDigue_800x480.jpg "俯瞰那不勒斯湾和维苏威火山，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_1280x720.jpg&rf=LaDigue_1280x720.jpg "俯瞰那不勒斯湾和维苏威火山，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "俯瞰那不勒斯湾和维苏威火山，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_UHD.jpg&rf=LaDigue_UHD.jpg "俯瞰那不勒斯湾和维苏威火山，意大利")
+
+---
 ### 01月20日：松鼠之趣
 #### 欧亚红松鼠与毒蘑菇（© Edwin Giesbers/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时的摩拉基大圆石，南岛，新西兰")
 [下载1080](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时的摩拉基大圆石，南岛，新西兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_UHD.jpg&rf=LaDigue_UHD.jpg "日落时的摩拉基大圆石，南岛，新西兰")
-
----
-### 01月06日：神圣的深渊
-#### 被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利（© Andrea Pucci/Getty Images）
-
-![神圣的深渊](https://cn.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_800x480.jpg&rf=LaDigue_800x480.jpg "神圣的深渊")
-
-在意大利拉文纳市，有一座圣弗朗西斯大教堂，以其美丽和历史意义而闻名。这座罗马式教堂始建于公元450年，在9世纪时又加建了一座坚固的方形钟楼，使教堂的外观更加突出。教堂设计有三座中殿，由两排各12根圆柱分隔。而今日图片中的圣弗朗西斯大教堂最引人注目的部分是地下墓穴。这座墓穴是早期宗教设计的杰出典范，拥有向下倾斜的拱形天花板和排列整齐的石柱。地面铺设的地砖镶嵌着精美复杂的马赛克图案，至今仍然保存完好，堪称艺术杰作。
-
-这座城市曾在1636年5月遭遇了一场严重的洪水。 随后的300年间，通过修建运河网络将附近的河流引开，并排干了周围的沼泽，从而降低了洪水发生的可能性，并在城市周边形成了一大片农业用地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e6%8b%89%e6%96%87%e7%ba%b3&form=hpcapt&filters=HpDate:"20250105_1600" "Bing Wallpaper 2025 1月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250106_RavennaBasilica"&FORM=HPQUIZ "必应主页测验 2025 1月 6")
-[下载480](https://cn.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_800x480.jpg&rf=LaDigue_800x480.jpg "被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_1280x720.jpg&rf=LaDigue_1280x720.jpg "被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_UHD.jpg&rf=LaDigue_UHD.jpg "被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利")
 
 ---
