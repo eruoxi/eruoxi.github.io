@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月22日：在失落之城发现美
+#### 代尔修道院，佩特拉，约旦（© Punnawit Suwuttananun/Getty Images）
+
+![在失落之城发现美](https://cn.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_800x480.jpg&rf=LaDigue_800x480.jpg "在失落之城发现美")
+
+佩特拉及其皇冠上的明珠——代尔修道院，雕凿在玫瑰色的悬崖峭壁上，让人仿佛置身于电影《印第安纳琼斯》的探险场景中。这座古城坐落在约旦干旱沙漠地貌的中心，曾在公元前2世纪作为纳巴泰王国的首都而繁荣一时。它还是香料贸易的枢纽，连接着中国、埃及、希腊和印度等遥远地区。
+
+这座城市被遗弃了大约500年，直到1812年才被重新发现，因此被称为 “失落之城”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bd%a9%e7%89%b9%e6%8b%89%e4%bb%a3%e5%b0%94%e4%bf%ae%e9%81%93%e9%99%a2&form=hpcapt&filters=HpDate:"20250121_1600" "Bing Wallpaper 2025 1月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250122_PetraMonastery"&FORM=HPQUIZ "必应主页测验 2025 1月 22")
+[下载480](https://cn.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_800x480.jpg&rf=LaDigue_800x480.jpg "代尔修道院，佩特拉，约旦")
+[下载720](https://cn.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_1280x720.jpg&rf=LaDigue_1280x720.jpg "代尔修道院，佩特拉，约旦")
+[下载1080](https://cn.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "代尔修道院，佩特拉，约旦")
+[下载UHD](https://cn.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_UHD.jpg&rf=LaDigue_UHD.jpg "代尔修道院，佩特拉，约旦")
+
+---
 ### 01月21日：迷人的海湾风光
 #### 俯瞰那不勒斯湾和维苏威火山，意大利（© ezypix/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_1280x720.jpg&rf=LaDigue_1280x720.jpg "被雪覆盖的长城，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被雪覆盖的长城，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_UHD.jpg&rf=LaDigue_UHD.jpg "被雪覆盖的长城，中国")
-
----
-### 01月07日：岩石与滚石
-#### 日落时的摩拉基大圆石，南岛，新西兰（© Douglas Pearson/eStock Photo）
-
-![岩石与滚石](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_800x480.jpg&rf=LaDigue_800x480.jpg "岩石与滚石")
-
-今天是“古老岩石日”，一个庆祝和学习古老岩石与化石的节日。岩石虽常见，但我们很少花时间思考它们的神奇之处。在火山中锻造或在千年压力下形成的这些固体矿物质，是我们了解地球如何形成的关键。岩石中还可能包含化石，即早已灭绝的生物遗骸，为科学家揭示地球45亿年历史中生命和植物的演化线索。
-
-摩拉基大圆石最引人注目之处是它们异常巨大的体积和球形外观，并展现出明显的双峰尺寸分布特征。大约三分之一的巨石直径范围为0.5至1.0米，而其余三分之二的直径范围为1.5至2.2米。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%91%a9%e6%8b%89%e5%9f%ba%e5%a4%a7%e5%9c%86%e7%9f%b3&form=hpcapt&filters=HpDate:"20250106_1600" "Bing Wallpaper 2025 1月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250107_BouldersNZ"&FORM=HPQUIZ "必应主页测验 2025 1月 7")
-[下载480](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_800x480.jpg&rf=LaDigue_800x480.jpg "日落时的摩拉基大圆石，南岛，新西兰")
-[下载720](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时的摩拉基大圆石，南岛，新西兰")
-[下载1080](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时的摩拉基大圆石，南岛，新西兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_UHD.jpg&rf=LaDigue_UHD.jpg "日落时的摩拉基大圆石，南岛，新西兰")
 
 ---
