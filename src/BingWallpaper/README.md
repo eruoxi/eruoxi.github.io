@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月23日：电影、山脉和魔法
+#### 黄昏时的鹿谷，帕克城，犹他州，美国（© Adventure_Photo/Getty Images）
+
+![电影、山脉和魔法](https://cn.bing.com/th?id=OHR.DeerValley_ZH-CN6029262704_800x480.jpg&rf=LaDigue_800x480.jpg "电影、山脉和魔法")
+
+今天，圣丹斯电影节拉开帷幕，以犹他州的群山为背景，庆祝电影的魅力。电影节的中心是帕克城，它是圣丹斯活力四射的主办城市之一，活动在犹他州的多个地点举行。每年一月，这个宁静的旅游胜地都会变成一个热闹的创意中心，吸引来自世界各地的电影制作人和电影爱好者。除了银幕，帕克城也值得一游。这里拥有迷人的风景、鹿谷和帕克城山等顶级滑雪胜地，以及无尽的户外探险活动，从徒步旅行、骑自行车到泡温泉，应有尽有。无论你是来看电影还是寻求刺激，帕克城圣丹斯电影节都将为你带来难忘的体验。
+
+鹿谷是瓦萨奇山脉的高山滑雪胜地，一直是北美顶级滑雪胜地之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%95%e5%85%8b%e5%9f%8e%e9%b9%bf%e8%b0%b7%e6%bb%91%e9%9b%aa%e5%ba%a6%e5%81%87%e6%9d%91&form=hpcapt&filters=HpDate:"20250122_1600" "Bing Wallpaper 2025 1月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250123_DeerValley"&FORM=HPQUIZ "必应主页测验 2025 1月 23")
+[下载480](https://cn.bing.com/th?id=OHR.DeerValley_ZH-CN6029262704_800x480.jpg&rf=LaDigue_800x480.jpg "黄昏时的鹿谷，帕克城，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.DeerValley_ZH-CN6029262704_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄昏时的鹿谷，帕克城，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.DeerValley_ZH-CN6029262704_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄昏时的鹿谷，帕克城，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.DeerValley_ZH-CN6029262704_UHD.jpg&rf=LaDigue_UHD.jpg "黄昏时的鹿谷，帕克城，犹他州，美国")
+
+---
 ### 01月22日：在失落之城发现美
 #### 代尔修道院，佩特拉，约旦（© Punnawit Suwuttananun/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_1280x720.jpg&rf=LaDigue_1280x720.jpg "苏丝斯黎沙丘，纳米布沙漠，纳米比亚")
 [下载1080](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "苏丝斯黎沙丘，纳米布沙漠，纳米比亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_UHD.jpg&rf=LaDigue_UHD.jpg "苏丝斯黎沙丘，纳米布沙漠，纳米比亚")
-
----
-### 01月08日：银装素裹，巍峨壮丽
-#### 被雪覆盖的长城，中国（© View Stock/Alamy Stock Photo）
-
-![银装素裹，巍峨壮丽](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_800x480.jpg&rf=LaDigue_800x480.jpg "银装素裹，巍峨壮丽")
-
-如今，这个古老的奇迹绵延 13,000 多英里，横跨崎岖的山脉、峡谷和数千年前修建的沙漠防御工事。长城上有陡峭的壕沟和瞭望塔，用以抵御入侵者。徒步攀登长城可以近距离感受这一历史地标，体验独特的长城之旅。从保存完好的慕田峪长城，到人迹罕至、最原始、最险峻的箭扣长城，每段长城的体验都不尽相同，有些台阶像梯子一样高。中国长城不仅仅是一堵墙，它还象征着坚韧和力量。今天，我们攀登长城，就是用顽强的毅力向更高的地方攀登！
-
-2009年，通过红外测距仪和全球卫星定位系统的帮助，首次精确测出明长城的总长度为8851.8千米。2015年3月至4月，在宁夏和甘肃交界地段黄河内岸，新发现了9段总长度超过10公里的长城遗址。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e9%95%bf%e5%9f%8e&form=hpcapt&filters=HpDate:"20250107_1600" "Bing Wallpaper 2025 1月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250108_GreatWallStairs"&FORM=HPQUIZ "必应主页测验 2025 1月 8")
-[下载480](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_800x480.jpg&rf=LaDigue_800x480.jpg "被雪覆盖的长城，中国")
-[下载720](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_1280x720.jpg&rf=LaDigue_1280x720.jpg "被雪覆盖的长城，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被雪覆盖的长城，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_UHD.jpg&rf=LaDigue_UHD.jpg "被雪覆盖的长城，中国")
 
 ---
