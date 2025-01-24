@@ -1,4 +1,38 @@
 ## Bing Wallpaper(最近15天)
+### 01月25日：波尔图的黄金时刻
+#### 波尔图，葡萄牙（© Starcevic/Getty Images）
+
+![波尔图的黄金时刻](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_800x480.jpg&rf=LaDigue_800x480.jpg "波尔图的黄金时刻")
+
+今日图片带我们走进一座大胆而质朴，却充满魅力的城市。虽然波尔图以波特酒闻名，但这座葡萄牙城市还有更多值得探索的地方。漫步波尔图街头，你会注意到装饰着锡釉陶瓷砖的建筑。这种彩绘釉面瓷砖在葡萄牙和西班牙十分常见。此外，历史悠久的圣弗朗西斯科教堂和横跨蜿蜒杜罗河的标志性建筑——路易一世大桥，都令人印象深刻。
+
+波特酒是葡萄牙最著名的出口商品之一，因波尔图而得名。该都会区，尤其是维拉诺瓦德盖亚酒窖，负责这种加强型葡萄酒的包装、运输与出口。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%91%a1%e8%90%84%e7%89%99%e6%b3%a2%e5%b0%94%e5%9b%be&form=hpcapt&filters=HpDate:"20250124_1600" "Bing Wallpaper 2025 1月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250125_PortoSunset"&FORM=HPQUIZ "必应主页测验 2025 1月 25")
+[下载480](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_800x480.jpg&rf=LaDigue_800x480.jpg "波尔图，葡萄牙")
+[下载720](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_1280x720.jpg&rf=LaDigue_1280x720.jpg "波尔图，葡萄牙")
+[下载1080](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波尔图，葡萄牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_UHD.jpg&rf=LaDigue_UHD.jpg "波尔图，葡萄牙")
+
+---
+### 01月24日：力量沸腾
+#### 冰岛的史托克间歇泉（© John and Tina Reid/Getty Images）
+
+![力量沸腾](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_800x480.jpg&rf=LaDigue_800x480.jpg "力量沸腾")
+
+还有什么比一场充满乐趣与野性的盛宴更能温暖寒冬呢？臭食节作为冰岛的冬至节，邀请人们深入体验传统文化。这一庆祝活动围绕生存、文化和社区展开，可追溯至维京时代，当时冰岛人用它祭祀雷神托尔。如今，人们聚在一起，通过享用发酵鲨鱼肉、熏羊肉、黑麦面包及‘黑死神’布伦尼温烈酒等当地美食来庆祝这一节日。
+
+如今，臭食节已成为冰岛常见的节庆活动，形式多样，既有亲朋好友的非正式聚餐，也有舞台表演和餐后舞会等大型活动。这些大型庆典通常由社团组织、冰岛侨民协会或乡村地方节日主办。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%86%b0%e5%b2%9b%e8%87%ad%e9%a3%9f%e8%8a%82&form=hpcapt&filters=HpDate:"20250123_1600" "Bing Wallpaper 2025 1月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250124_IcelandGeyser"&FORM=HPQUIZ "必应主页测验 2025 1月 24")
+[下载480](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_800x480.jpg&rf=LaDigue_800x480.jpg "冰岛的史托克间歇泉")
+[下载720](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_1280x720.jpg&rf=LaDigue_1280x720.jpg "冰岛的史托克间歇泉")
+[下载1080](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冰岛的史托克间歇泉")
+[下载UHD](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_UHD.jpg&rf=LaDigue_UHD.jpg "冰岛的史托克间歇泉")
+
+---
 ### 01月23日：电影、山脉和魔法
 #### 黄昏时的鹿谷，帕克城，犹他州，美国（© Adventure_Photo/Getty Images）
 
@@ -218,39 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_1280x720.jpg&rf=LaDigue_1280x720.jpg "梅克内斯的Heri es-Swani，摩洛哥")
 [下载1080](https://cn.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梅克内斯的Heri es-Swani，摩洛哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_UHD.jpg&rf=LaDigue_UHD.jpg "梅克内斯的Heri es-Swani，摩洛哥")
-
----
-### 01月10日：冰层中气泡奇观
-#### 亚伯拉罕湖，阿尔伯塔省，加拿大（© Basic Elements Photography/Getty Images）
-
-![冰层中气泡奇观](https://cn.bing.com/th?id=OHR.BubbleLake_ZH-CN7146244555_800x480.jpg&rf=LaDigue_800x480.jpg "冰层中气泡奇观")
-
-听说过冻住的泡泡吗？每到冬季，加拿大阿尔伯塔省的亚伯拉罕湖便会上演这一奇观，这些气泡不仅美丽，更是科学的结晶。建于1972年的亚伯拉罕湖是一个占地超过20平方英里的人造湖，沿北萨斯喀彻温河延伸。湖泊的水源来自落基山脉的冰川融水，即使在寒冬，湖水依然清澈透明。冰川融水携带的细小沉积物能够散射阳光，而岩石的天然过滤作用将污染物降至最低。
-
-湖泊的冰层覆盖会随着冬季的不同阶段而有所变化。亚伯拉罕湖通常会在12月底完全冻结。而冰泡景观的最佳观赏时间是1月中旬至2月中旬。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e5%b0%94%e4%bc%af%e5%a1%94%e7%9c%81%e4%ba%9a%e4%bc%af%e6%8b%89%e7%bd%95%e6%b9%96&form=hpcapt&filters=HpDate:"20250109_1600" "Bing Wallpaper 2025 1月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250110_BubbleLake"&FORM=HPQUIZ "必应主页测验 2025 1月 10")
-[下载480](https://cn.bing.com/th?id=OHR.BubbleLake_ZH-CN7146244555_800x480.jpg&rf=LaDigue_800x480.jpg "亚伯拉罕湖，阿尔伯塔省，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.BubbleLake_ZH-CN7146244555_1280x720.jpg&rf=LaDigue_1280x720.jpg "亚伯拉罕湖，阿尔伯塔省，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.BubbleLake_ZH-CN7146244555_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亚伯拉罕湖，阿尔伯塔省，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.BubbleLake_ZH-CN7146244555_UHD.jpg&rf=LaDigue_UHD.jpg "亚伯拉罕湖，阿尔伯塔省，加拿大")
-
----
-### 01月09日：变换的地平线
-#### 苏丝斯黎沙丘，纳米布沙漠，纳米比亚（© Airpano/Amazing Aerial Agency）
-
-![变换的地平线](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_800x480.jpg&rf=LaDigue_800x480.jpg "变换的地平线")
-
-想象在日出时分，连绵起伏的沙丘泛着橙色光芒，延伸至视野尽头，欢迎来到横跨纳米比亚数千英里的纳米布沙漠。据估计它已有5500万年的历史，被认为是世界上最古老的沙漠。这里拥有地球上最著名的沙丘，包括高达1,066英尺的“大爸爸”沙丘；纳米比亚最高的沙丘“沙丘7”，高度达1256英尺；以及深受摄影师喜爱的“沙丘45”，高度约为560英尺。
-
-想象在日出时分，连绵起伏的沙丘泛着橙色光芒，延伸至视野尽头，欢迎来到横跨纳米比亚数千英里的纳米布沙漠。据估计它已有5500万年的历史，被认为是世界上最古老的沙漠。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%b3%e7%b1%b3%e5%b8%83%e6%b2%99%e6%bc%a0&form=hpcapt&filters=HpDate:"20250108_1600" "Bing Wallpaper 2025 1月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250109_NamibiaDunes"&FORM=HPQUIZ "必应主页测验 2025 1月 9")
-[下载480](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_800x480.jpg&rf=LaDigue_800x480.jpg "苏丝斯黎沙丘，纳米布沙漠，纳米比亚")
-[下载720](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_1280x720.jpg&rf=LaDigue_1280x720.jpg "苏丝斯黎沙丘，纳米布沙漠，纳米比亚")
-[下载1080](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "苏丝斯黎沙丘，纳米布沙漠，纳米比亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_UHD.jpg&rf=LaDigue_UHD.jpg "苏丝斯黎沙丘，纳米布沙漠，纳米比亚")
 
 ---
