@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月26日：优雅地老去
+#### 比利时的欧洲山毛榉森林（© Philippe Moes/Minden Pictures）
+
+![优雅地老去](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_800x480.jpg&rf=LaDigue_800x480.jpg "优雅地老去")
+
+山毛榉树堪称大自然的奇迹。虽然全球有多个品种，但在欧洲，欧洲山毛榉尤为引人注目。正如今日图片展示的比利时森林，欧洲山毛榉以光滑的灰色树皮、短粗的树干和宽展的枝条脱颖而出。这种树生长于温带地区，偏爱排水良好、土壤肥沃的环境，通常需30年才能成熟。欧洲山毛榉树高可达160英尺，不仅是森林的主角，其木材还广泛用于制作家具、地板和厨房工具，以坚固耐用闻名。
+
+山毛榉是雌雄同株植物，同一棵树上会同时开出雄花和雌花。这些小花为单性花，雌花成对生长，而雄花则通过风授粉，以柔荑花的形式出现。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e6%b4%b2%e5%b1%b1%e6%af%9b%e6%a6%89&form=hpcapt&filters=HpDate:"20250125_1600" "Bing Wallpaper 2025 1月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250126_FrostedBeech"&FORM=HPQUIZ "必应主页测验 2025 1月 26")
+[下载480](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_800x480.jpg&rf=LaDigue_800x480.jpg "比利时的欧洲山毛榉森林")
+[下载720](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_1280x720.jpg&rf=LaDigue_1280x720.jpg "比利时的欧洲山毛榉森林")
+[下载1080](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "比利时的欧洲山毛榉森林")
+[下载UHD](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_UHD.jpg&rf=LaDigue_UHD.jpg "比利时的欧洲山毛榉森林")
+
+---
 ### 01月25日：波尔图的黄金时刻
 #### 波尔图，葡萄牙（© Starcevic/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_1280x720.jpg&rf=LaDigue_1280x720.jpg "大堡礁的宝石大眼鲷鱼，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大堡礁的宝石大眼鲷鱼，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_UHD.jpg&rf=LaDigue_UHD.jpg "大堡礁的宝石大眼鲷鱼，澳大利亚")
-
----
-### 01月11日：旧时代的古老拱门
-#### 梅克内斯的Heri es-Swani，摩洛哥（© Calin Stan/Shutterstock）
-
-![旧时代的古老拱门](https://cn.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_800x480.jpg&rf=LaDigue_800x480.jpg "旧时代的古老拱门")
-
-梅克内斯位于摩洛哥中北部，是一座历史悠久的皇家城市。17世纪，阿拉维王朝的苏丹伊斯梅尔·伊本·谢里夫曾将其作为摩洛哥的首都。这座城市以宏伟的城墙、壮丽的城门以及经久不衰的建筑闻名，完美体现了摩洛哥的建筑风格。其中最令人印象深刻的地标之一就是今日图片展示的古城赫里·埃斯·斯瓦尼。
-
-赫里·埃斯·斯瓦尼位于摩洛哥梅克内斯，是一座古老的城堡，至今仍为摩洛哥国王所用，不对公众开放。其他地方，如穆莱·伊斯梅尔的陵墓和赫里·埃斯·斯瓦尼，则作为宗教场所或旅游景点对外开放。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a2%85%e5%85%8b%e5%86%85%e6%96%af&form=hpcapt&filters=HpDate:"20250110_1600" "Bing Wallpaper 2025 1月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250111_MeknesMorocco"&FORM=HPQUIZ "必应主页测验 2025 1月 11")
-[下载480](https://cn.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_800x480.jpg&rf=LaDigue_800x480.jpg "梅克内斯的Heri es-Swani，摩洛哥")
-[下载720](https://cn.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_1280x720.jpg&rf=LaDigue_1280x720.jpg "梅克内斯的Heri es-Swani，摩洛哥")
-[下载1080](https://cn.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梅克内斯的Heri es-Swani，摩洛哥")
-[下载UHD](https://cn.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_UHD.jpg&rf=LaDigue_UHD.jpg "梅克内斯的Heri es-Swani，摩洛哥")
 
 ---
