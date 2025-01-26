@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月27日：激发你的好奇心
+#### 琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国（© Nick Lake/Tandem Stills + Motion）
+
+![激发你的好奇心](https://cn.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_800x480.jpg&rf=LaDigue_800x480.jpg "激发你的好奇心")
+
+大峡谷的岩层记录了地球近20亿年的历史，这些岩层由科罗拉多河长期侵蚀形成。尽管地质学家对大峡谷的形成过程仍存在一些争议，但最新研究表明，科罗拉多河大约在500万到600万年前开始在这一地区开凿出河道。从那时起，这条河流不断加深和拓宽峡谷，最终塑造出如今壮观的地质奇观。
+
+琐罗亚斯德神庙名字来源于古代伊朗先知琐罗亚斯德，由美国摄影师乔治·沃顿·詹姆斯和地质学家克拉伦斯·达顿共同命名。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%90%90%e7%bd%97%e4%ba%9a%e6%96%af%e5%be%b7%e7%a5%9e%e5%ba%99&form=hpcapt&filters=HpDate:"20250126_1600" "Bing Wallpaper 2025 1月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250127_CanyonSnow"&FORM=HPQUIZ "必应主页测验 2025 1月 27")
+[下载480](https://cn.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_800x480.jpg&rf=LaDigue_800x480.jpg "琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_1280x720.jpg&rf=LaDigue_1280x720.jpg "琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_UHD.jpg&rf=LaDigue_UHD.jpg "琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国")
+
+---
 ### 01月26日：优雅地老去
 #### 比利时的欧洲山毛榉森林（© Philippe Moes/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN2499109149_1280x720.jpg&rf=LaDigue_1280x720.jpg "小屋和小塔灯塔，兰德温岛，威尔士，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN2499109149_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "小屋和小塔灯塔，兰德温岛，威尔士，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN2499109149_UHD.jpg&rf=LaDigue_UHD.jpg "小屋和小塔灯塔，兰德温岛，威尔士，英国")
-
----
-### 01月12日：深海中的锐利目光
-#### 大堡礁的宝石大眼鲷鱼，澳大利亚（© Fred Bavendam/Minden Pictures）
-
-![深海中的锐利目光](https://cn.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_800x480.jpg&rf=LaDigue_800x480.jpg "深海中的锐利目光")
-
-认识一下宝石大眼鲷鱼，这种鱼如同它的名字一样引人注目。它拥有硕大的眼睛和一条形状如新月的尾鳍，十分容易辨认。宝石大眼鲷鱼体长约18至20英寸，体型流线型，下颚突出，带有细小的圆锥形牙齿。它的眼睛适应了深水的低光环境，帮助它发现猎物和躲避掠食者。这种鱼主要捕食小型鱼类、甲壳类和无脊椎动物，支撑其活跃穿梭于珊瑚礁的生活方式。
-
-这些鱼类通常独居，有时也会在开阔水域形成小群体或大型鱼群。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%ae%9d%e7%9f%b3%e5%a4%a7%e7%9c%bc%e9%b2%b7%e9%b1%bc&form=hpcapt&filters=HpDate:"20250111_1600" "Bing Wallpaper 2025 1月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250112_CrescentTail"&FORM=HPQUIZ "必应主页测验 2025 1月 12")
-[下载480](https://cn.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_800x480.jpg&rf=LaDigue_800x480.jpg "大堡礁的宝石大眼鲷鱼，澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_1280x720.jpg&rf=LaDigue_1280x720.jpg "大堡礁的宝石大眼鲷鱼，澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大堡礁的宝石大眼鲷鱼，澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_UHD.jpg&rf=LaDigue_UHD.jpg "大堡礁的宝石大眼鲷鱼，澳大利亚")
 
 ---
