@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月28日：祝您阖家欢乐，万事如意！
+#### 夜空中的烟花表演，长沙，湖南省，中国（© Sino Images/Getty Images）
+
+![祝您阖家欢乐，万事如意！](https://cn.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_800x480.jpg&rf=LaDigue_800x480.jpg "祝您阖家欢乐，万事如意！")
+
+今天是除夕夜，中国农历"龙年"的最后一天。“年”称为“岁除”，那天晚上叫“除夕”。它与新年首尾相连，是除旧迎新的重要时间交界点。岁除之日，民间尤为重视，家家户户忙忙碌碌或清扫庭舍，除旧布新，张灯结彩，家人相聚，共同来迎接新的一年。
+
+早在先秦时期就有相对比较完整的生肖系统。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%99%a4%e5%a4%95%e5%a4%9c&form=hpcapt&filters=HpDate:"20250127_1600" "Bing Wallpaper 2025 1月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250128_LunarNewYearEve25Y"&FORM=HPQUIZ "必应主页测验 2025 1月 28")
+[下载480](https://cn.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_800x480.jpg&rf=LaDigue_800x480.jpg "夜空中的烟花表演，长沙，湖南省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_1280x720.jpg&rf=LaDigue_1280x720.jpg "夜空中的烟花表演，长沙，湖南省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夜空中的烟花表演，长沙，湖南省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_UHD.jpg&rf=LaDigue_UHD.jpg "夜空中的烟花表演，长沙，湖南省，中国")
+
+---
 ### 01月27日：激发你的好奇心
 #### 琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国（© Nick Lake/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN1840219361_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨阿拉-德拉谢拉村，加的斯省，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN1840219361_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨阿拉-德拉谢拉村，加的斯省，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN1840219361_UHD.jpg&rf=LaDigue_UHD.jpg "萨阿拉-德拉谢拉村，加的斯省，西班牙")
-
----
-### 01月13日：“威尔士”祝你新年快乐！
-#### 小屋和小塔灯塔，兰德温岛，威尔士，英国（© Westend61 on Offset/Shutterstock）
-
-![“威尔士”祝你新年快乐！](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN2499109149_800x480.jpg&rf=LaDigue_800x480.jpg "“威尔士”祝你新年快乐！")
-
-谁说新年一定要在1月1日？在威尔士，1月13日，人们会“时钟倒转”庆祝盖兰节，也就是“旧新年”。 在这一传统中，“Calennig”（意为“新年礼物”）起着核心作用，将庆典与儒略历时代的风俗相连接。尽管1582年世界大部分地区改用格里高利历，但威尔士的一些地区依然坚持旧传统。在传统上，这一天会有孩子们挨家挨户拜访，唱歌送祝福，以此换取硬币、食物或糖果等礼物。其中一大特色是用丁香装饰的苹果，它们并非用来食用，而是象征好运与繁荣的装饰品。
-
-在新年当天赠送礼物和金钱是一项古老的传统，即使在现代的威尔士，这一习俗仍保留着，不过如今人们更倾向于赠送面包和奶酪。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%94%e5%a3%ab%e6%97%a7%e6%96%b0%e5%b9%b4&form=hpcapt&filters=HpDate:"20250112_1600" "Bing Wallpaper 2025 1月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250113_CoastalWales"&FORM=HPQUIZ "必应主页测验 2025 1月 13")
-[下载480](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN2499109149_800x480.jpg&rf=LaDigue_800x480.jpg "小屋和小塔灯塔，兰德温岛，威尔士，英国")
-[下载720](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN2499109149_1280x720.jpg&rf=LaDigue_1280x720.jpg "小屋和小塔灯塔，兰德温岛，威尔士，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN2499109149_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "小屋和小塔灯塔，兰德温岛，威尔士，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN2499109149_UHD.jpg&rf=LaDigue_UHD.jpg "小屋和小塔灯塔，兰德温岛，威尔士，英国")
 
 ---
