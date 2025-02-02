@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月03日：春光明媚的日子
+#### 盛开的樱花树上的红头长尾山雀（© Haitong Yu/Getty Images）
+
+![春光明媚的日子](https://cn.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_800x480.jpg&rf=LaDigue_800x480.jpg "春光明媚的日子")
+
+立春到啦，新的四季轮回已经开启。虽然我们已经开始步入了春天，但中国幅员辽阔，南北跨度大，很多地区都是只是刚刚进入春天的前奏阶段。
+
+黑喉丛山雀具有很强的社会性，它们会成群迁徙，最多可有40只鸟。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a2%e5%a4%b4%e9%95%bf%e5%b0%be%e5%b1%b1%e9%9b%80&form=hpcapt&filters=HpDate:"20250202_1600" "Bing Wallpaper 2025 2月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250203_BeginningofSpring25Y"&FORM=HPQUIZ "必应主页测验 2025 2月 3")
+[下载480](https://cn.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_800x480.jpg&rf=LaDigue_800x480.jpg "盛开的樱花树上的红头长尾山雀")
+[下载720](https://cn.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_1280x720.jpg&rf=LaDigue_1280x720.jpg "盛开的樱花树上的红头长尾山雀")
+[下载1080](https://cn.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的樱花树上的红头长尾山雀")
+[下载UHD](https://cn.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的樱花树上的红头长尾山雀")
+
+---
 ### 02月02日：天气预报还是运气预报？
 #### 年幼的高山土拨鼠（© Jonas Fichtner-Pflaum/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧亚红松鼠与毒蘑菇")
 [下载1080](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚红松鼠与毒蘑菇")
 [下载UHD](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚红松鼠与毒蘑菇")
-
----
-### 01月19日：一座适合神居住的石窟
-#### 海王星石窟，撒丁岛， 意大利（© Carlo Murenu/Getty Images）
-
-![一座适合神居住的石窟](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_800x480.jpg&rf=LaDigue_800x480.jpg "一座适合神居住的石窟")
-
-沿着654级台阶俯瞰撒丁岛海面，令人惊叹的景象尽收眼底。海王星石窟是一座距海平面仅约3英尺的钟乳石洞穴。这座洞穴由当地渔民在18世纪首次发现，以罗马海神尼普顿命名。整个洞穴系统全长约4023米，游客可进入的区域仅约304.8米。洞内有迷宫般的小径，灯光照亮蜿蜒穿过钟乳石与石笋的路径，最终通向一个约119米长的咸水湖。
-
-海王星石窟以海神尼普顿命名，形成于约200万年前，18世纪由渔民发现。石窟位于撒丁岛阿尔盖罗镇约24公里外的卡波卡恰-伊索拉皮亚纳海洋保护区，隶属于波尔图孔特公园。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e7%8e%8b%e6%98%9f%e7%9f%b3%e7%aa%9f&form=hpcapt&filters=HpDate:"20250118_1600" "Bing Wallpaper 2025 1月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250119_NeptunesGrotto"&FORM=HPQUIZ "必应主页测验 2025 1月 19")
-[下载480](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_800x480.jpg&rf=LaDigue_800x480.jpg "海王星石窟，撒丁岛， 意大利")
-[下载720](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_1280x720.jpg&rf=LaDigue_1280x720.jpg "海王星石窟，撒丁岛， 意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海王星石窟，撒丁岛， 意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_UHD.jpg&rf=LaDigue_UHD.jpg "海王星石窟，撒丁岛， 意大利")
 
 ---
