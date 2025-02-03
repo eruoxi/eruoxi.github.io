@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月04日：云端漫步
+#### 金桥，巴拿山，岘港，越南（© Hien Phung Thu/Shutterstock）
+
+![云端漫步](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_800x480.jpg&rf=LaDigue_800x480.jpg "云端漫步")
+
+两只巨大的石手托起一条闪闪发光的金色步道，仿佛是周围的群山将其献给天空。这就是金桥，位于越南中部岘港附近群山中的步行桥。自2018年开放以来，这座桥凭借独特设计和壮丽景观迅速成为全球瞩目的景点，吸引无数游客前来打卡。
+
+越南中部，尤其是岘港的美食，在国内外都享有盛誉，知名度不断提升。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b2%98%e6%b8%af%e9%87%91%e6%a1%a5&form=hpcapt&filters=HpDate:"20250203_1600" "Bing Wallpaper 2025 2月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250204_GoldenBridge"&FORM=HPQUIZ "必应主页测验 2025 2月 4")
+[下载480](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_800x480.jpg&rf=LaDigue_800x480.jpg "金桥，巴拿山，岘港，越南")
+[下载720](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_1280x720.jpg&rf=LaDigue_1280x720.jpg "金桥，巴拿山，岘港，越南")
+[下载1080](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "金桥，巴拿山，岘港，越南")
+[下载UHD](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_UHD.jpg&rf=LaDigue_UHD.jpg "金桥，巴拿山，岘港，越南")
+
+---
 ### 02月03日：春光明媚的日子
 #### 盛开的樱花树上的红头长尾山雀（© Haitong Yu/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_1280x720.jpg&rf=LaDigue_1280x720.jpg "俯瞰那不勒斯湾和维苏威火山，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "俯瞰那不勒斯湾和维苏威火山，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_UHD.jpg&rf=LaDigue_UHD.jpg "俯瞰那不勒斯湾和维苏威火山，意大利")
-
----
-### 01月20日：松鼠之趣
-#### 欧亚红松鼠与毒蘑菇（© Edwin Giesbers/Minden Pictures）
-
-![松鼠之趣](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_800x480.jpg&rf=LaDigue_800x480.jpg "松鼠之趣")
-
-一条长长的、蓬松的尾巴在树枝间飞快地穿梭着，那是什么？很可能是松鼠。这些小啮齿动物几乎遍布全球，今天是它们的特殊日子：松鼠感谢日。这个非官方的节日是由北卡罗来纳州的一位野生动物康复师发起的，旨在鼓励人们为这些小动物留下种子和坚果。从只有5.5英寸长的侏儒松鼠，到超过4英尺长的不丹巨型飞松鼠，这些哺乳动物有各种各样的体型。
-
-红松鼠是英国纹章中的常见特征，在英国纹章中，红松鼠总是被描绘成坐着的姿态，并且经常敲打坚果。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e4%ba%9a%e7%ba%a2%e6%9d%be%e9%bc%a0&form=hpcapt&filters=HpDate:"20250119_1600" "Bing Wallpaper 2025 1月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250120_DutchSquirrel"&FORM=HPQUIZ "必应主页测验 2025 1月 20")
-[下载480](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_800x480.jpg&rf=LaDigue_800x480.jpg "欧亚红松鼠与毒蘑菇")
-[下载720](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧亚红松鼠与毒蘑菇")
-[下载1080](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚红松鼠与毒蘑菇")
-[下载UHD](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚红松鼠与毒蘑菇")
 
 ---
