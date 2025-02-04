@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月05日：对国家遗产的思考
+#### 拱门群岛，瓦拉里基海滩，南岛，新西兰（© Francesco Vaninetti/AWL/plainpicture）
+
+![对国家遗产的思考](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_800x480.jpg&rf=LaDigue_800x480.jpg "对国家遗产的思考")
+
+1840年，500多位毛利酋长与英国王室代表共同签署了一份条约，新西兰人至今仍在怀唐伊日纪念这一历史时刻。这一天，签署的《怀唐伊条约》确立了两种文化共存的原则。在怀唐伊条约签署地，庆典活动包括毛利传统表演、演讲和精彩的独木舟比赛。从奥克兰和惠灵顿的节日与音乐会，到低调的社区聚会，这一天的核心精神是联系与文化。
+
+自2014年以来，新西兰作家协会在怀唐伊日颁发文学荣誉奖，以纪念这一天的特殊意义。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%80%80%e5%94%90%e4%bc%8a%e6%97%a5&form=hpcapt&filters=HpDate:"20250204_1600" "Bing Wallpaper 2025 2月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250205_ScottishSheep"&FORM=HPQUIZ "必应主页测验 2025 2月 5")
+[下载480](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_800x480.jpg&rf=LaDigue_800x480.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
+[下载720](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_1280x720.jpg&rf=LaDigue_1280x720.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
+[下载1080](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_UHD.jpg&rf=LaDigue_UHD.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
+
+---
 ### 02月04日：云端漫步
 #### 金桥，巴拿山，岘港，越南（© Hien Phung Thu/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_1280x720.jpg&rf=LaDigue_1280x720.jpg "代尔修道院，佩特拉，约旦")
 [下载1080](https://cn.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "代尔修道院，佩特拉，约旦")
 [下载UHD](https://cn.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_UHD.jpg&rf=LaDigue_UHD.jpg "代尔修道院，佩特拉，约旦")
-
----
-### 01月21日：迷人的海湾风光
-#### 俯瞰那不勒斯湾和维苏威火山，意大利（© ezypix/Getty Images）
-
-![迷人的海湾风光](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_800x480.jpg&rf=LaDigue_800x480.jpg "迷人的海湾风光")
-
-那不勒斯湾（意大利语：Golfo di Napoli）是位于意大利西南海岸（大都市区那不勒斯，坎帕尼亚地区）的一个海湾，宽约15公里，向西通往地中海。那不勒斯湾因风景优美而闻名，是著名的旅游区，沿岸有陡峭的火山峰，包括维苏威火山等活火山以及庞贝古城、赫库兰尼姆古城遗址。海湾入口处有卡普里岛、伊斯基亚岛和普罗奇达岛等风景名胜。据说罗马皇帝卡里古拉在海湾上建造了一座船桥，他身穿亚历山大大帝的盔甲，乘坐战车横跨海湾。
-
-除了伊斯基亚岛、波佐利湾以及加埃塔湾，当地水域还是各种鲸鱼和海豚的栖息地，包括长须鲸和抹香鲸。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%82%a3%e4%b8%8d%e5%8b%92%e6%96%af%e6%b9%be&form=hpcapt&filters=HpDate:"20250120_1600" "Bing Wallpaper 2025 1月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250121_NapoliPizza"&FORM=HPQUIZ "必应主页测验 2025 1月 21")
-[下载480](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_800x480.jpg&rf=LaDigue_800x480.jpg "俯瞰那不勒斯湾和维苏威火山，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_1280x720.jpg&rf=LaDigue_1280x720.jpg "俯瞰那不勒斯湾和维苏威火山，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "俯瞰那不勒斯湾和维苏威火山，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_UHD.jpg&rf=LaDigue_UHD.jpg "俯瞰那不勒斯湾和维苏威火山，意大利")
 
 ---
