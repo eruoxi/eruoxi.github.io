@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月07日：沉浸在蓝调时分
+#### 特隆赫姆的蓝色时刻，挪威（© Jeanny Mueller/Getty Images）
+
+![沉浸在蓝调时分](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_800x480.jpg&rf=LaDigue_800x480.jpg "沉浸在蓝调时分")
+
+在挪威，冬季不仅是一个季节，更是一种独特的体验。在挪威北部，黑夜长达20小时，有时甚至整周太阳都隐匿在地平线之下。这听起来或许有些阴郁，但这种特殊的时节也展现出独特的魅力。通常在下午1点至2点之间，柔和的光线从白雪覆盖的地面和深蓝色海面反射而来。这形成了一种令人惊叹的如玻璃般湛蓝的光辉，笼罩着整片大地。这种蓝调时分每天都会来得稍晚一些，温柔地提醒人们太阳正缓缓准备重新升起。
+
+蓝调时分指的是日出前或日落后，太阳位于地平线下-4至-6度之间的时间段，此时天空呈现出一种静谧的蓝色调。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%8c%aa%e5%a8%81%e7%89%b9%e9%9a%86%e8%b5%ab%e5%a7%86&form=hpcapt&filters=HpDate:"20250206_1600" "Bing Wallpaper 2025 2月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250207_BlueNorway"&FORM=HPQUIZ "必应主页测验 2025 2月 7")
+[下载480](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_800x480.jpg&rf=LaDigue_800x480.jpg "特隆赫姆的蓝色时刻，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_1280x720.jpg&rf=LaDigue_1280x720.jpg "特隆赫姆的蓝色时刻，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特隆赫姆的蓝色时刻，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_UHD.jpg&rf=LaDigue_UHD.jpg "特隆赫姆的蓝色时刻，挪威")
+
+---
 ### 02月06日：对国家遗产的思考
 #### 拱门群岛，瓦拉里基海滩，南岛，新西兰（© Francesco Vaninetti/AWL/plainpicture）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_1280x720.jpg&rf=LaDigue_1280x720.jpg "冰岛的史托克间歇泉")
 [下载1080](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冰岛的史托克间歇泉")
 [下载UHD](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_UHD.jpg&rf=LaDigue_UHD.jpg "冰岛的史托克间歇泉")
-
----
-### 01月23日：电影、山脉和魔法
-#### 黄昏时的鹿谷，帕克城，犹他州，美国（© Adventure_Photo/Getty Images）
-
-![电影、山脉和魔法](https://cn.bing.com/th?id=OHR.DeerValley_ZH-CN6029262704_800x480.jpg&rf=LaDigue_800x480.jpg "电影、山脉和魔法")
-
-今天，圣丹斯电影节拉开帷幕，以犹他州的群山为背景，庆祝电影的魅力。电影节的中心是帕克城，它是圣丹斯活力四射的主办城市之一，活动在犹他州的多个地点举行。每年一月，这个宁静的旅游胜地都会变成一个热闹的创意中心，吸引来自世界各地的电影制作人和电影爱好者。除了银幕，帕克城也值得一游。这里拥有迷人的风景、鹿谷和帕克城山等顶级滑雪胜地，以及无尽的户外探险活动，从徒步旅行、骑自行车到泡温泉，应有尽有。无论你是来看电影还是寻求刺激，帕克城圣丹斯电影节都将为你带来难忘的体验。
-
-鹿谷是瓦萨奇山脉的高山滑雪胜地，一直是北美顶级滑雪胜地之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%95%e5%85%8b%e5%9f%8e%e9%b9%bf%e8%b0%b7%e6%bb%91%e9%9b%aa%e5%ba%a6%e5%81%87%e6%9d%91&form=hpcapt&filters=HpDate:"20250122_1600" "Bing Wallpaper 2025 1月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250123_DeerValley"&FORM=HPQUIZ "必应主页测验 2025 1月 23")
-[下载480](https://cn.bing.com/th?id=OHR.DeerValley_ZH-CN6029262704_800x480.jpg&rf=LaDigue_800x480.jpg "黄昏时的鹿谷，帕克城，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.DeerValley_ZH-CN6029262704_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄昏时的鹿谷，帕克城，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.DeerValley_ZH-CN6029262704_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄昏时的鹿谷，帕克城，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.DeerValley_ZH-CN6029262704_UHD.jpg&rf=LaDigue_UHD.jpg "黄昏时的鹿谷，帕克城，犹他州，美国")
 
 ---
