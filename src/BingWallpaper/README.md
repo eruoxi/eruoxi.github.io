@@ -1,8 +1,25 @@
 ## Bing Wallpaper(最近15天)
+### 02月08日：凝固的时光
+#### 梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚（© photoaliona/Getty Images）
+
+![凝固的时光](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_800x480.jpg&rf=LaDigue_800x480.jpg "凝固的时光")
+
+冬季为梅斯蒂亚的中世纪塔楼披上冰雪，宛如一座座坚固的堡垒。梅斯蒂亚坐落于高加索山脉，海拔4921英尺，是格鲁吉亚西北部一座迷人的高原小镇。小镇是斯万人的故乡，他们是格鲁吉亚文化和语言的一个独特分支。尽管规模不大，梅斯蒂亚数百年来一直是格鲁吉亚文化的枢纽，小镇遍布斯万族的防御塔，如今日图片所示。这些防御塔大多建于9至12世纪，这一时期被誉为格鲁吉亚的黄金时代。据推测，这些塔楼的历史可能追溯至更久远的史前时期。塔楼不仅是防御工事，也是家庭住宅的重要组成部分，反映了该地区坚韧不拔、自给自足的历史。因此，梅斯蒂亚不仅是一座小镇，更是一个活的博物馆，其历史从塔楼中升起，回荡在高山之间。
+
+尽管梅斯蒂亚面积不大，但数个世纪以来，这座小镇一直是格鲁吉亚文化的重要中心。小镇内有许多中世纪古迹，如教堂和堡垒，这些遗迹已被联合国教科文组织列入世界遗产名录。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a2%85%e6%96%af%e8%92%82%e4%ba%9a&form=hpcapt&filters=HpDate:"20250207_1600" "Bing Wallpaper 2025 2月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250208_SnowySvaneti"&FORM=HPQUIZ "必应主页测验 2025 2月 8")
+[下载480](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_800x480.jpg&rf=LaDigue_800x480.jpg "梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚")
+[下载720](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_1280x720.jpg&rf=LaDigue_1280x720.jpg "梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚")
+[下载1080](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_UHD.jpg&rf=LaDigue_UHD.jpg "梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚")
+
+---
 ### 02月07日：沉浸在蓝调时分
 #### 特隆赫姆的蓝色时刻，挪威（© Jeanny Mueller/Getty Images）
 
-![沉浸在蓝调时分](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_800x480.jpg&rf=LaDigue_800x480.jpg "沉浸在蓝调时分")
+![沉浸在蓝调时分](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_800x480.jpg&rf=LaDigue_800x480.jpg "沉浸在蓝调时分")
 
 在挪威，冬季不仅是一个季节，更是一种独特的体验。在挪威北部，黑夜长达20小时，有时甚至整周太阳都隐匿在地平线之下。这听起来或许有些阴郁，但这种特殊的时节也展现出独特的魅力。通常在下午1点至2点之间，柔和的光线从白雪覆盖的地面和深蓝色海面反射而来。这形成了一种令人惊叹的如玻璃般湛蓝的光辉，笼罩着整片大地。这种蓝调时分每天都会来得稍晚一些，温柔地提醒人们太阳正缓缓准备重新升起。
 
@@ -10,10 +27,10 @@
 
 [Bing搜索](https://cn.bing.com/search?q=%e6%8c%aa%e5%a8%81%e7%89%b9%e9%9a%86%e8%b5%ab%e5%a7%86&form=hpcapt&filters=HpDate:"20250206_1600" "Bing Wallpaper 2025 2月 7")
 [必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250207_BlueNorway"&FORM=HPQUIZ "必应主页测验 2025 2月 7")
-[下载480](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_800x480.jpg&rf=LaDigue_800x480.jpg "特隆赫姆的蓝色时刻，挪威")
-[下载720](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_1280x720.jpg&rf=LaDigue_1280x720.jpg "特隆赫姆的蓝色时刻，挪威")
-[下载1080](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特隆赫姆的蓝色时刻，挪威")
-[下载UHD](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_UHD.jpg&rf=LaDigue_UHD.jpg "特隆赫姆的蓝色时刻，挪威")
+[下载480](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_800x480.jpg&rf=LaDigue_800x480.jpg "特隆赫姆的蓝色时刻，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_1280x720.jpg&rf=LaDigue_1280x720.jpg "特隆赫姆的蓝色时刻，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特隆赫姆的蓝色时刻，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_UHD.jpg&rf=LaDigue_UHD.jpg "特隆赫姆的蓝色时刻，挪威")
 
 ---
 ### 02月06日：对国家遗产的思考
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_1280x720.jpg&rf=LaDigue_1280x720.jpg "波尔图，葡萄牙")
 [下载1080](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波尔图，葡萄牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_UHD.jpg&rf=LaDigue_UHD.jpg "波尔图，葡萄牙")
-
----
-### 01月24日：力量沸腾
-#### 冰岛的史托克间歇泉（© John and Tina Reid/Getty Images）
-
-![力量沸腾](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_800x480.jpg&rf=LaDigue_800x480.jpg "力量沸腾")
-
-还有什么比一场充满乐趣与野性的盛宴更能温暖寒冬呢？臭食节作为冰岛的冬至节，邀请人们深入体验传统文化。这一庆祝活动围绕生存、文化和社区展开，可追溯至维京时代，当时冰岛人用它祭祀雷神托尔。如今，人们聚在一起，通过享用发酵鲨鱼肉、熏羊肉、黑麦面包及‘黑死神’布伦尼温烈酒等当地美食来庆祝这一节日。
-
-如今，臭食节已成为冰岛常见的节庆活动，形式多样，既有亲朋好友的非正式聚餐，也有舞台表演和餐后舞会等大型活动。这些大型庆典通常由社团组织、冰岛侨民协会或乡村地方节日主办。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%86%b0%e5%b2%9b%e8%87%ad%e9%a3%9f%e8%8a%82&form=hpcapt&filters=HpDate:"20250123_1600" "Bing Wallpaper 2025 1月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250124_IcelandGeyser"&FORM=HPQUIZ "必应主页测验 2025 1月 24")
-[下载480](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_800x480.jpg&rf=LaDigue_800x480.jpg "冰岛的史托克间歇泉")
-[下载720](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_1280x720.jpg&rf=LaDigue_1280x720.jpg "冰岛的史托克间歇泉")
-[下载1080](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冰岛的史托克间歇泉")
-[下载UHD](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_UHD.jpg&rf=LaDigue_UHD.jpg "冰岛的史托克间歇泉")
 
 ---
