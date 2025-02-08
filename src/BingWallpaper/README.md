@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月09日：值得深思的高地
+#### 阿尔斯特罗姆角，鲍威尔湖，犹他州，美国（© T.M. Schultze/TANDEM Stills + Motion）
+
+![值得深思的高地](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_800x480.jpg&rf=LaDigue_800x480.jpg "值得深思的高地")
+
+如果你向往壮丽的日落和令人惊叹的美景，不妨来到阿尔斯特罗姆角。阿尔斯特罗姆角位于犹他州南部凯恩县的格伦峡谷国家休闲区，海拔达4685英尺。阿尔斯特罗姆角主要由恩特拉达砂岩构成，与附近的罗马纳梅萨主峰及东侧的冈赛特山共享相同的地质起源。
+
+阿尔斯特罗姆角是绝佳的摄影和露营地点。还曾在 1968 年的电影《人猿星球》中短暂亮相。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8a%b9%e4%bb%96%e5%b7%9e%e9%98%bf%e5%b0%94%e6%96%af%e7%89%b9%e7%bd%97%e5%a7%86%e8%a7%92&form=hpcapt&filters=HpDate:"20250208_1600" "Bing Wallpaper 2025 2月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250209_AlstromPoint"&FORM=HPQUIZ "必应主页测验 2025 2月 9")
+[下载480](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔斯特罗姆角，鲍威尔湖，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔斯特罗姆角，鲍威尔湖，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔斯特罗姆角，鲍威尔湖，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔斯特罗姆角，鲍威尔湖，犹他州，美国")
+
+---
 ### 02月08日：凝固的时光
 #### 梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚（© photoaliona/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_1280x720.jpg&rf=LaDigue_1280x720.jpg "比利时的欧洲山毛榉森林")
 [下载1080](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "比利时的欧洲山毛榉森林")
 [下载UHD](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_UHD.jpg&rf=LaDigue_UHD.jpg "比利时的欧洲山毛榉森林")
-
----
-### 01月25日：波尔图的黄金时刻
-#### 波尔图，葡萄牙（© Starcevic/Getty Images）
-
-![波尔图的黄金时刻](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_800x480.jpg&rf=LaDigue_800x480.jpg "波尔图的黄金时刻")
-
-今日图片带我们走进一座大胆而质朴，却充满魅力的城市。虽然波尔图以波特酒闻名，但这座葡萄牙城市还有更多值得探索的地方。漫步波尔图街头，你会注意到装饰着锡釉陶瓷砖的建筑。这种彩绘釉面瓷砖在葡萄牙和西班牙十分常见。此外，历史悠久的圣弗朗西斯科教堂和横跨蜿蜒杜罗河的标志性建筑——路易一世大桥，都令人印象深刻。
-
-波特酒是葡萄牙最著名的出口商品之一，因波尔图而得名。该都会区，尤其是维拉诺瓦德盖亚酒窖，负责这种加强型葡萄酒的包装、运输与出口。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%91%a1%e8%90%84%e7%89%99%e6%b3%a2%e5%b0%94%e5%9b%be&form=hpcapt&filters=HpDate:"20250124_1600" "Bing Wallpaper 2025 1月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250125_PortoSunset"&FORM=HPQUIZ "必应主页测验 2025 1月 25")
-[下载480](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_800x480.jpg&rf=LaDigue_800x480.jpg "波尔图，葡萄牙")
-[下载720](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_1280x720.jpg&rf=LaDigue_1280x720.jpg "波尔图，葡萄牙")
-[下载1080](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波尔图，葡萄牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_UHD.jpg&rf=LaDigue_UHD.jpg "波尔图，葡萄牙")
 
 ---
