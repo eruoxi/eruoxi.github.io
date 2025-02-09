@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月10日：在伞下
+#### 雨伞艺术装置，博罗市场，伦敦，英国（© Malcolm P Chapman/Getty Images）
+
+![在伞下](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_800x480.jpg&rf=LaDigue_800x480.jpg "在伞下")
+
+今天是国际伞日，这一充满趣味的节日旨在纪念人类历史上最简单却重要的发明之一：雨伞或阳伞。早在4000多年前，伞已出现在古埃及、亚述和中国，最初用于遮挡阳光。直到17世纪，我们今天所熟知的雨伞才在欧洲流行，最初作为专为女性设计的奢侈品。几个世纪以来，雨伞不仅成为日常生活的必需品，也成为流行文化的象征。例如，玛丽·波平斯的标志性飞行雨伞，以及蕾哈娜的热门歌曲《雨伞》。
+
+伞如今已成为全球畅销的消费品。据统计，截至2008年，全球大部分的伞产自中国，主要集中于广东、福建和浙江等省份。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%9b%a8%e4%bc%9e&form=hpcapt&filters=HpDate:"20250209_1600" "Bing Wallpaper 2025 2月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250210_UmbrellaDay"&FORM=HPQUIZ "必应主页测验 2025 2月 10")
+[下载480](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_800x480.jpg&rf=LaDigue_800x480.jpg "雨伞艺术装置，博罗市场，伦敦，英国")
+[下载720](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_1280x720.jpg&rf=LaDigue_1280x720.jpg "雨伞艺术装置，博罗市场，伦敦，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雨伞艺术装置，博罗市场，伦敦，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_UHD.jpg&rf=LaDigue_UHD.jpg "雨伞艺术装置，博罗市场，伦敦，英国")
+
+---
 ### 02月09日：值得深思的高地
 #### 阿尔斯特罗姆角，鲍威尔湖，犹他州，美国（© T.M. Schultze/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_1280x720.jpg&rf=LaDigue_1280x720.jpg "琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_UHD.jpg&rf=LaDigue_UHD.jpg "琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国")
-
----
-### 01月26日：优雅地老去
-#### 比利时的欧洲山毛榉森林（© Philippe Moes/Minden Pictures）
-
-![优雅地老去](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_800x480.jpg&rf=LaDigue_800x480.jpg "优雅地老去")
-
-山毛榉树堪称大自然的奇迹。虽然全球有多个品种，但在欧洲，欧洲山毛榉尤为引人注目。正如今日图片展示的比利时森林，欧洲山毛榉以光滑的灰色树皮、短粗的树干和宽展的枝条脱颖而出。这种树生长于温带地区，偏爱排水良好、土壤肥沃的环境，通常需30年才能成熟。欧洲山毛榉树高可达160英尺，不仅是森林的主角，其木材还广泛用于制作家具、地板和厨房工具，以坚固耐用闻名。
-
-山毛榉是雌雄同株植物，同一棵树上会同时开出雄花和雌花。这些小花为单性花，雌花成对生长，而雄花则通过风授粉，以柔荑花的形式出现。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e6%b4%b2%e5%b1%b1%e6%af%9b%e6%a6%89&form=hpcapt&filters=HpDate:"20250125_1600" "Bing Wallpaper 2025 1月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250126_FrostedBeech"&FORM=HPQUIZ "必应主页测验 2025 1月 26")
-[下载480](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_800x480.jpg&rf=LaDigue_800x480.jpg "比利时的欧洲山毛榉森林")
-[下载720](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_1280x720.jpg&rf=LaDigue_1280x720.jpg "比利时的欧洲山毛榉森林")
-[下载1080](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "比利时的欧洲山毛榉森林")
-[下载UHD](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_UHD.jpg&rf=LaDigue_UHD.jpg "比利时的欧洲山毛榉森林")
 
 ---
