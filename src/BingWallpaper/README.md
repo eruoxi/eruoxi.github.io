@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月11日：历史的守望之眼
+#### 云冈石窟，大同，山西省，中国（© Eric Yang/Getty Images）
+
+![历史的守望之眼](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_800x480.jpg&rf=LaDigue_800x480.jpg "历史的守望之眼")
+
+云冈石窟中汇聚了51,000尊古代雕像，这座早期佛教艺术杰作位于中国山西省大同市附近。石窟开凿于1500多年前的北魏时期（公元386-534/535年），现存主要洞窟45个，附属洞窟209个。最引人注目的是第5窟中的巨大佛像，高达56英尺，令人叹为观止。这只是冰山一角，每个洞窟都展现其独特魅力。有些洞窟宛如古代画卷，描绘佛教经典故事；另一些则展示僧侣、神祇、乐师，甚至北魏时期的日常生活场景。
+
+云冈石窟因爆款国产3A游戏《黑神话：悟空》中作为主角“天命人“游历的场景之一而备受关注，山西省其他景点也因此广受青睐。游戏上线后短短几周，云冈石窟从北魏三大石窟中游客最少的一个跃升为最受欢迎的景点，游客数量大幅增长。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e5%90%8c%e4%ba%91%e5%86%88%e7%9f%b3%e7%aa%9f&form=hpcapt&filters=HpDate:"20250210_1600" "Bing Wallpaper 2025 2月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250211_YungangGrottoes"&FORM=HPQUIZ "必应主页测验 2025 2月 11")
+[下载480](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_800x480.jpg&rf=LaDigue_800x480.jpg "云冈石窟，大同，山西省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_1280x720.jpg&rf=LaDigue_1280x720.jpg "云冈石窟，大同，山西省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "云冈石窟，大同，山西省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_UHD.jpg&rf=LaDigue_UHD.jpg "云冈石窟，大同，山西省，中国")
+
+---
 ### 02月10日：在伞下
 #### 雨伞艺术装置，博罗市场，伦敦，英国（© Malcolm P Chapman/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_1280x720.jpg&rf=LaDigue_1280x720.jpg "夜空中的烟花表演，长沙，湖南省，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夜空中的烟花表演，长沙，湖南省，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_UHD.jpg&rf=LaDigue_UHD.jpg "夜空中的烟花表演，长沙，湖南省，中国")
-
----
-### 01月27日：激发你的好奇心
-#### 琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国（© Nick Lake/Tandem Stills + Motion）
-
-![激发你的好奇心](https://cn.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_800x480.jpg&rf=LaDigue_800x480.jpg "激发你的好奇心")
-
-大峡谷的岩层记录了地球近20亿年的历史，这些岩层由科罗拉多河长期侵蚀形成。尽管地质学家对大峡谷的形成过程仍存在一些争议，但最新研究表明，科罗拉多河大约在500万到600万年前开始在这一地区开凿出河道。从那时起，这条河流不断加深和拓宽峡谷，最终塑造出如今壮观的地质奇观。
-
-琐罗亚斯德神庙名字来源于古代伊朗先知琐罗亚斯德，由美国摄影师乔治·沃顿·詹姆斯和地质学家克拉伦斯·达顿共同命名。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%90%90%e7%bd%97%e4%ba%9a%e6%96%af%e5%be%b7%e7%a5%9e%e5%ba%99&form=hpcapt&filters=HpDate:"20250126_1600" "Bing Wallpaper 2025 1月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250127_CanyonSnow"&FORM=HPQUIZ "必应主页测验 2025 1月 27")
-[下载480](https://cn.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_800x480.jpg&rf=LaDigue_800x480.jpg "琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_1280x720.jpg&rf=LaDigue_1280x720.jpg "琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_UHD.jpg&rf=LaDigue_UHD.jpg "琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国")
 
 ---
