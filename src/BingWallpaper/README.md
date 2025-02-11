@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月12日：喜气洋洋的元宵节
+#### 上海豫园的灯会，元宵节，上海市，中国（© atiger/Shutterstock）
+
+![喜气洋洋的元宵节](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_800x480.jpg&rf=LaDigue_800x480.jpg "喜气洋洋的元宵节")
+
+元宵节（Lantern Festival），是新年第一个月圆之夜，又可以称为“闹元宵”，是中国春节年俗活动的“压轴戏”。人们在这一天可以出门赏月、燃灯放焰、喜猜灯谜、共吃元宵、汤圆，合家团聚、同庆佳节，其乐融融。观赏花灯是中国人在这一天一项重大活动。上海豫园的灯会尤其精彩。
+
+今年是“豫园灯会30周年，邀请了许多国家级非遗“灯彩”项目的代表性传承人来参与此次灯会。
+
+[Bing搜索](https://cn.bing.com/search?q=2025%e5%85%83%e5%ae%b5%e8%8a%82&form=hpcapt&filters=HpDate:"20250211_1600" "Bing Wallpaper 2025 2月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250212_LanterFestival25Y"&FORM=HPQUIZ "必应主页测验 2025 2月 12")
+[下载480](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_800x480.jpg&rf=LaDigue_800x480.jpg "上海豫园的灯会，元宵节，上海市，中国")
+[下载720](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_1280x720.jpg&rf=LaDigue_1280x720.jpg "上海豫园的灯会，元宵节，上海市，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "上海豫园的灯会，元宵节，上海市，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_UHD.jpg&rf=LaDigue_UHD.jpg "上海豫园的灯会，元宵节，上海市，中国")
+
+---
 ### 02月11日：历史的守望之眼
 #### 云冈石窟，大同，山西省，中国（© Eric Yang/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpringFestival25Y_ZH-CN6133182159_1280x720.jpg&rf=LaDigue_1280x720.jpg "南京夫子庙的春节许愿牌，江苏省，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.SpringFestival25Y_ZH-CN6133182159_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南京夫子庙的春节许愿牌，江苏省，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpringFestival25Y_ZH-CN6133182159_UHD.jpg&rf=LaDigue_UHD.jpg "南京夫子庙的春节许愿牌，江苏省，中国")
-
----
-### 01月28日：祝您阖家欢乐，万事如意！
-#### 夜空中的烟花表演，长沙，湖南省，中国（© Sino Images/Getty Images）
-
-![祝您阖家欢乐，万事如意！](https://cn.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_800x480.jpg&rf=LaDigue_800x480.jpg "祝您阖家欢乐，万事如意！")
-
-今天是除夕夜，中国农历"龙年"的最后一天。“年”称为“岁除”，那天晚上叫“除夕”。它与新年首尾相连，是除旧迎新的重要时间交界点。岁除之日，民间尤为重视，家家户户忙忙碌碌或清扫庭舍，除旧布新，张灯结彩，家人相聚，共同来迎接新的一年。
-
-早在先秦时期就有相对比较完整的生肖系统。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%99%a4%e5%a4%95%e5%a4%9c&form=hpcapt&filters=HpDate:"20250127_1600" "Bing Wallpaper 2025 1月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250128_LunarNewYearEve25Y"&FORM=HPQUIZ "必应主页测验 2025 1月 28")
-[下载480](https://cn.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_800x480.jpg&rf=LaDigue_800x480.jpg "夜空中的烟花表演，长沙，湖南省，中国")
-[下载720](https://cn.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_1280x720.jpg&rf=LaDigue_1280x720.jpg "夜空中的烟花表演，长沙，湖南省，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夜空中的烟花表演，长沙，湖南省，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_UHD.jpg&rf=LaDigue_UHD.jpg "夜空中的烟花表演，长沙，湖南省，中国")
 
 ---
