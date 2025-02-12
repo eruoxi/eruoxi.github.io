@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月13日：大地之盐
+#### 泰瑞尔湖，维多利亚州，澳大利亚（© Monica Bertolazzi/Getty Images）
+
+![大地之盐](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_800x480.jpg&rf=LaDigue_800x480.jpg "大地之盐")
+
+澳大利亚南部的泰瑞尔湖，是天空与大地交汇之地，形成了令人炫目的奇景。泰瑞尔湖是维多利亚州最大的盐湖，形成于约12万年前。随着气候变化，湖泊水位逐渐下降，如今大部分时间干涸，仅在冬季覆盖约2英寸的水层。“泰瑞尔”这个名字源自当地沃加亚语中的“天空”，致敬了博罗恩原住民对天文学的浓厚兴趣。泰瑞尔湖面积超过70平方英里，是野生动物的天堂，栖息着马利地区的爬行动物、袋鼠和鸸鹋。
+
+旅游业是澳大利亚维多利亚州的重要产业之一。首府墨尔本是澳大利亚第二大人口城市，截至2017年12月的一年，该州共接待了270万国际过夜游客和930万国内过夜游客。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%be%b3%e5%a4%a7%e5%88%a9%e4%ba%9a%e6%b3%b0%e7%91%9e%e5%b0%94%e6%b9%96&form=hpcapt&filters=HpDate:"20250212_1600" "Bing Wallpaper 2025 2月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250213_LakeTyrrell"&FORM=HPQUIZ "必应主页测验 2025 2月 13")
+[下载480](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_800x480.jpg&rf=LaDigue_800x480.jpg "泰瑞尔湖，维多利亚州，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_1280x720.jpg&rf=LaDigue_1280x720.jpg "泰瑞尔湖，维多利亚州，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰瑞尔湖，维多利亚州，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_UHD.jpg&rf=LaDigue_UHD.jpg "泰瑞尔湖，维多利亚州，澳大利亚")
+
+---
 ### 02月12日：喜气洋洋的元宵节
 #### 上海豫园的灯会，元宵节，上海市，中国（© atiger/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OrdesaSpain_ZH-CN1445868068_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗兰多山口，奥德萨和佩迪多山国家公园，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.OrdesaSpain_ZH-CN1445868068_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗兰多山口，奥德萨和佩迪多山国家公园，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.OrdesaSpain_ZH-CN1445868068_UHD.jpg&rf=LaDigue_UHD.jpg "罗兰多山口，奥德萨和佩迪多山国家公园，西班牙")
-
----
-### 01月29日：春节快乐！
-#### 南京夫子庙的春节许愿牌，江苏省，中国（© lazy dragon/Shutterstock）
-
-![春节快乐！](https://cn.bing.com/th?id=OHR.SpringFestival25Y_ZH-CN6133182159_800x480.jpg&rf=LaDigue_800x480.jpg "春节快乐！")
-
-春节，是中国民间最隆重也最富有特色的传统节日之一。春节期间的民俗众多，活动内容也是丰富多彩，且具有重要的历史、艺术和文化价值。其中逛庙会、赏灯会，更是春节最具特色的民俗活动之一。
-
-夫子庙饮食文化源远流长，传统食品和风味小吃不下200种。经过历代改进融合已经形成了以“秦淮八绝”为代表的秦淮风味小吃。
-
-[Bing搜索](https://cn.bing.com/search?q=2025%e5%b9%b4%e8%9b%87%e5%b9%b4%e6%98%a5%e8%8a%82&form=hpcapt&filters=HpDate:"20250128_1600" "Bing Wallpaper 2025 1月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250129_SpringFestival25Y"&FORM=HPQUIZ "必应主页测验 2025 1月 29")
-[下载480](https://cn.bing.com/th?id=OHR.SpringFestival25Y_ZH-CN6133182159_800x480.jpg&rf=LaDigue_800x480.jpg "南京夫子庙的春节许愿牌，江苏省，中国")
-[下载720](https://cn.bing.com/th?id=OHR.SpringFestival25Y_ZH-CN6133182159_1280x720.jpg&rf=LaDigue_1280x720.jpg "南京夫子庙的春节许愿牌，江苏省，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.SpringFestival25Y_ZH-CN6133182159_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南京夫子庙的春节许愿牌，江苏省，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpringFestival25Y_ZH-CN6133182159_UHD.jpg&rf=LaDigue_UHD.jpg "南京夫子庙的春节许愿牌，江苏省，中国")
 
 ---
