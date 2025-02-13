@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月14日：瞧这对恩爱的情侣
+#### 两只麦哲伦企鹅，福克兰群岛（© Vicki Jauron, Babylon and Beyond Photography/Getty Images）
+
+![瞧这对恩爱的情侣](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_800x480.jpg&rf=LaDigue_800x480.jpg "瞧这对恩爱的情侣")
+
+今天是情人节，空气中弥漫着浓浓爱意。全球范围内，数百万束鲜花将被赠送，浪漫餐厅也会因情人节约会座无虚席。情人节起源于圣瓦伦丁的故事。据传，这位罗马基督徒曾为那些被禁止结婚的基督徒士兵主持婚礼。如同今天庆祝节日的人类情侣，自然界中也有许多浪漫故事。
+
+麦哲伦企鹅生活在南美洲大西洋沿岸，与加岛环企鹅相比，它们的食物供应更加稳定，不易面临严重的食物短缺。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%83%85%e4%ba%ba%e8%8a%82&form=hpcapt&filters=HpDate:"20250213_1600" "Bing Wallpaper 2025 2月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250214_PenguinLove"&FORM=HPQUIZ "必应主页测验 2025 2月 14")
+[下载480](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_800x480.jpg&rf=LaDigue_800x480.jpg "两只麦哲伦企鹅，福克兰群岛")
+[下载720](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_1280x720.jpg&rf=LaDigue_1280x720.jpg "两只麦哲伦企鹅，福克兰群岛")
+[下载1080](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "两只麦哲伦企鹅，福克兰群岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_UHD.jpg&rf=LaDigue_UHD.jpg "两只麦哲伦企鹅，福克兰群岛")
+
+---
 ### 02月13日：大地之盐
 #### 泰瑞尔湖，维多利亚州，澳大利亚（© Monica Bertolazzi/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PlainsZebra_ZH-CN1989542307_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的平原斑马，莫卡拉国家公园，南非")
 [下载1080](https://cn.bing.com/th?id=OHR.PlainsZebra_ZH-CN1989542307_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的平原斑马，莫卡拉国家公园，南非")
 [下载UHD](https://cn.bing.com/th?id=OHR.PlainsZebra_ZH-CN1989542307_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的平原斑马，莫卡拉国家公园，南非")
-
----
-### 01月30日：再次冲向战斗
-#### 罗兰多山口，奥德萨和佩迪多山国家公园，西班牙（© Inaki Relanzon/Nature Picture Library/Alamy Stock Photo）
-
-![再次冲向战斗](https://cn.bing.com/th?id=OHR.OrdesaSpain_ZH-CN1445868068_800x480.jpg&rf=LaDigue_800x480.jpg "再次冲向战斗")
-
-在比利牛斯山脉高处，有一个山间缺口，罗兰缺口。这道缺口高约300 多英尺，宽 131 英尺，是令人惊叹的自然奇观。那么罗兰是谁？他是公元八世纪查理曼大帝统治时期的法兰克军事领袖。传说他在战败后用剑在山脉砍出一个缺口，有人说是为了毁掉自己的宝剑，也有人说是为了最后再看一眼祖国法兰西。
-
-自 1997 年起，奥德萨和佩迪杜山国家公园被联合国教科文组织列入奥德萨-维纳马拉生物圈保护区。同年，因其壮观的地质地貌，该公园还被列入比利牛斯-佩尔迪多山世界自然遗产的一部分。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a5%a5%e5%be%b7%e8%90%a8%e5%92%8c%e4%bd%a9%e8%bf%aa%e5%a4%9a%e5%b1%b1%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250129_1600" "Bing Wallpaper 2025 1月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250130_OrdesaSpain"&FORM=HPQUIZ "必应主页测验 2025 1月 30")
-[下载480](https://cn.bing.com/th?id=OHR.OrdesaSpain_ZH-CN1445868068_800x480.jpg&rf=LaDigue_800x480.jpg "罗兰多山口，奥德萨和佩迪多山国家公园，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.OrdesaSpain_ZH-CN1445868068_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗兰多山口，奥德萨和佩迪多山国家公园，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.OrdesaSpain_ZH-CN1445868068_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗兰多山口，奥德萨和佩迪多山国家公园，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.OrdesaSpain_ZH-CN1445868068_UHD.jpg&rf=LaDigue_UHD.jpg "罗兰多山口，奥德萨和佩迪多山国家公园，西班牙")
 
 ---
