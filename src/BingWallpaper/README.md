@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月15日：冰雪奇景
+#### 三十槌冰柱，秩父市，日本（© watayu0821/shutterstock）
+
+![冰雪奇景](https://cn.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_800x480.jpg&rf=LaDigue_800x480.jpg "冰雪奇景")
+
+看，这就是日本秩父市的三十槌冰柱奇观！这道令人叹为观止的天然冰墙宽约98英尺，高约33英尺，由泉水沿岩壁流下结冰而成。这一景观每年仅在1月中旬至2月中旬开放，夜幕降临时还会点亮彩灯，仿佛置身于冬日童话世界。
+
+在适宜条件下，类似的冰柱也可能由海冰下沉的盐水形成。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%86%b0%e6%9f%b1&form=hpcapt&filters=HpDate:"20250214_1600" "Bing Wallpaper 2025 2月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250215_Misotsuchi2025"&FORM=HPQUIZ "必应主页测验 2025 2月 15")
+[下载480](https://cn.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_800x480.jpg&rf=LaDigue_800x480.jpg "三十槌冰柱，秩父市，日本")
+[下载720](https://cn.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_1280x720.jpg&rf=LaDigue_1280x720.jpg "三十槌冰柱，秩父市，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "三十槌冰柱，秩父市，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_UHD.jpg&rf=LaDigue_UHD.jpg "三十槌冰柱，秩父市，日本")
+
+---
 ### 02月14日：瞧这对恩爱的情侣
 #### 两只麦哲伦企鹅，福克兰群岛（© Vicki Jauron, Babylon and Beyond Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ZH-CN2192655745_1280x720.jpg&rf=LaDigue_1280x720.jpg "国王岩堡垒 , 瑞士撒克逊, 德国")
 [下载1080](https://cn.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ZH-CN2192655745_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "国王岩堡垒 , 瑞士撒克逊, 德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ZH-CN2192655745_UHD.jpg&rf=LaDigue_UHD.jpg "国王岩堡垒 , 瑞士撒克逊, 德国")
-
----
-### 01月31日：一点都不普通
-#### 日出时的平原斑马，莫卡拉国家公园，南非（© EcoPrint/Shutterstock）
-
-![一点都不普通](https://cn.bing.com/th?id=OHR.PlainsZebra_ZH-CN1989542307_800x480.jpg&rf=LaDigue_800x480.jpg "一点都不普通")
-
-在国际斑马日，让我们一起庆祝斑马的独特之美！这些黑白条纹的动物主要生活在非洲草原上，从肯尼亚延伸至南非。斑马分为细纹斑马、平原斑马和山斑马三种，其中细纹斑马最为濒危，其数量在三十年内减少了一半以上。尽管平原斑马种群繁盛，山斑马仍面临偷猎和栖息地侵占等威胁。斑马在生态系统中发挥着重要作用，它们与狮子和鬣狗等捕食者共存，并影响草原生态的平衡。
-
-平原斑马是博茨瓦纳共和国的国兽，其条纹图案也出现在国旗上，象征种族和谐。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%96%91%e9%a9%ac%e6%97%a5&form=hpcapt&filters=HpDate:"20250130_1600" "Bing Wallpaper 2025 1月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250131_PlainsZebra"&FORM=HPQUIZ "必应主页测验 2025 1月 31")
-[下载480](https://cn.bing.com/th?id=OHR.PlainsZebra_ZH-CN1989542307_800x480.jpg&rf=LaDigue_800x480.jpg "日出时的平原斑马，莫卡拉国家公园，南非")
-[下载720](https://cn.bing.com/th?id=OHR.PlainsZebra_ZH-CN1989542307_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的平原斑马，莫卡拉国家公园，南非")
-[下载1080](https://cn.bing.com/th?id=OHR.PlainsZebra_ZH-CN1989542307_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的平原斑马，莫卡拉国家公园，南非")
-[下载UHD](https://cn.bing.com/th?id=OHR.PlainsZebra_ZH-CN1989542307_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的平原斑马，莫卡拉国家公园，南非")
 
 ---
