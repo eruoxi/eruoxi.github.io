@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月16日：守护海洋巨兽
+#### 座头鲸妈妈和宝宝，汤加（© Chase Dekker/Minden Pictures）
+
+![守护海洋巨兽](https://cn.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_800x480.jpg&rf=LaDigue_800x480.jpg "守护海洋巨兽")
+
+每年二月的第三个星期日是世界鲸鱼日，旨在宣传鲸鱼之美及其所面临的挑战。今年的世界鲸鱼日是2月16日，让我们一起致敬这些壮丽的生物，比如今日图片中的座头鲸，它们以迷人的歌声和震撼的跃出水面而闻名。世界鲸鱼日创立于1980年，由太平洋鲸鱼基金会创始人格雷格·考夫曼在夏威夷毛伊岛发起，旨在保护濒临灭绝的座头鲸。如今，这一节日呼吁全球采取行动，应对鲸鱼面临的诸多威胁，例如海洋污染、气候变化及栖息地丧失。
+
+你知道座头鲸会使用“气泡网“捕食吗？它们制造螺旋状气泡将鱼群困住，然后一口吞下，尽享美味！
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e9%b2%b8%e6%97%a5&form=hpcapt&filters=HpDate:"20250215_1600" "Bing Wallpaper 2025 2月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250216_HumpbackMother"&FORM=HPQUIZ "必应主页测验 2025 2月 16")
+[下载480](https://cn.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_800x480.jpg&rf=LaDigue_800x480.jpg "座头鲸妈妈和宝宝，汤加")
+[下载720](https://cn.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_1280x720.jpg&rf=LaDigue_1280x720.jpg "座头鲸妈妈和宝宝，汤加")
+[下载1080](https://cn.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "座头鲸妈妈和宝宝，汤加")
+[下载UHD](https://cn.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_UHD.jpg&rf=LaDigue_UHD.jpg "座头鲸妈妈和宝宝，汤加")
+
+---
 ### 02月15日：冰雪奇景
 #### 三十槌冰柱，秩父市，日本（© watayu0821/shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AustriaMarmot_ZH-CN2303743586_1280x720.jpg&rf=LaDigue_1280x720.jpg "年幼的高山土拨鼠")
 [下载1080](https://cn.bing.com/th?id=OHR.AustriaMarmot_ZH-CN2303743586_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "年幼的高山土拨鼠")
 [下载UHD](https://cn.bing.com/th?id=OHR.AustriaMarmot_ZH-CN2303743586_UHD.jpg&rf=LaDigue_UHD.jpg "年幼的高山土拨鼠")
-
----
-### 02月01日：雪与石
-#### 国王岩堡垒 , 瑞士撒克逊, 德国（© Bildagentur-online/Exss/Alamy）
-
-![雪与石](https://cn.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ZH-CN2192655745_800x480.jpg&rf=LaDigue_800x480.jpg "雪与石")
-
-作为欧洲最壮观的山地要塞之一，它耸立于易北砂岩山脉之巅。历史记录显示，1233年波希米亚国王温塞斯拉斯一世的文件首次提及这座堡垒，当时称其为施泰因的总督堡，推测即为国王岩堡垒。当时，这片区域属于波希米亚王国。16世纪，这座城堡经过大规模扩建，逐步发展为萨克森州立要塞。1566年至1569年，堡内建造了一口深达152.5米的井，这也是德国最深的历史古井之一，标志着要塞发展的重要里程碑。此外，首位国家囚犯马丁·米鲁斯博士的囚禁，揭开了堡垒作为监狱的历史篇章。
-
-国王岩堡垒位于德国萨克森瑞士的群山之中。堡垒不仅保留了德国最古老的军营，还拥有萨克森最深的井、首座驻军教堂以及奥古斯特强王传奇巨型酒桶的复制品。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e7%8e%8b%e5%b2%a9%e5%a0%a1%e5%9e%92&form=hpcapt&filters=HpDate:"20250131_1600" "Bing Wallpaper 2025 2月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250201_FestungKonigsteinElbsandsteingebirge"&FORM=HPQUIZ "必应主页测验 2025 2月 1")
-[下载480](https://cn.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ZH-CN2192655745_800x480.jpg&rf=LaDigue_800x480.jpg "国王岩堡垒 , 瑞士撒克逊, 德国")
-[下载720](https://cn.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ZH-CN2192655745_1280x720.jpg&rf=LaDigue_1280x720.jpg "国王岩堡垒 , 瑞士撒克逊, 德国")
-[下载1080](https://cn.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ZH-CN2192655745_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "国王岩堡垒 , 瑞士撒克逊, 德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ZH-CN2192655745_UHD.jpg&rf=LaDigue_UHD.jpg "国王岩堡垒 , 瑞士撒克逊, 德国")
 
 ---
