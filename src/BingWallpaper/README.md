@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月18日：无尽的蓝色
+#### 大蓝洞，伯利兹（© JamiesOnAMission/Shutterstock）
+
+![无尽的蓝色](https://cn.bing.com/th?id=OHR.BlueBelize_ZH-CN9875040666_800x480.jpg&rf=LaDigue_800x480.jpg "无尽的蓝色")
+
+大蓝洞位于伯利兹海岸外的灯塔礁中心附近，是大自然最令人叹为观止的杰作之一。这个巨大的海洋天坑直径1043英尺，深407英尺，形成于上一次冰河时期。当时，一座多孔疏松的石灰岩穹顶因重力与地震等作用坍塌，巧合地形成一个圆形竖井。随着冰雪消融、海平面升高，海水倒灌入竖井，最终形成这一引人注目的奇特景观。
+
+大蓝洞是世界上同类自然奇观中规模最大的之一，隶属于联合国教科文组织列为世界遗产的大堡礁保护系统
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bc%af%e5%88%a9%e5%85%b9%e5%a4%a7%e8%93%9d%e6%b4%9e&form=hpcapt&filters=HpDate:"20250217_1600" "Bing Wallpaper 2025 2月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250218_BlueBelize"&FORM=HPQUIZ "必应主页测验 2025 2月 18")
+[下载480](https://cn.bing.com/th?id=OHR.BlueBelize_ZH-CN9875040666_800x480.jpg&rf=LaDigue_800x480.jpg "大蓝洞，伯利兹")
+[下载720](https://cn.bing.com/th?id=OHR.BlueBelize_ZH-CN9875040666_1280x720.jpg&rf=LaDigue_1280x720.jpg "大蓝洞，伯利兹")
+[下载1080](https://cn.bing.com/th?id=OHR.BlueBelize_ZH-CN9875040666_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大蓝洞，伯利兹")
+[下载UHD](https://cn.bing.com/th?id=OHR.BlueBelize_ZH-CN9875040666_UHD.jpg&rf=LaDigue_UHD.jpg "大蓝洞，伯利兹")
+
+---
 ### 02月17日：冰雪边界
 #### Coll d'Ares，加泰罗尼亚比利牛斯​​山脉（© CRISTIAN IONUT ZAHARIA/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_1280x720.jpg&rf=LaDigue_1280x720.jpg "金桥，巴拿山，岘港，越南")
 [下载1080](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "金桥，巴拿山，岘港，越南")
 [下载UHD](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_UHD.jpg&rf=LaDigue_UHD.jpg "金桥，巴拿山，岘港，越南")
-
----
-### 02月03日：春光明媚的日子
-#### 盛开的樱花树上的红头长尾山雀（© Haitong Yu/Getty Images）
-
-![春光明媚的日子](https://cn.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_800x480.jpg&rf=LaDigue_800x480.jpg "春光明媚的日子")
-
-立春到啦，新的四季轮回已经开启。虽然我们已经开始步入了春天，但中国幅员辽阔，南北跨度大，很多地区都是只是刚刚进入春天的前奏阶段。
-
-黑喉丛山雀具有很强的社会性，它们会成群迁徙，最多可有40只鸟。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a2%e5%a4%b4%e9%95%bf%e5%b0%be%e5%b1%b1%e9%9b%80&form=hpcapt&filters=HpDate:"20250202_1600" "Bing Wallpaper 2025 2月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250203_BeginningofSpring25Y"&FORM=HPQUIZ "必应主页测验 2025 2月 3")
-[下载480](https://cn.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_800x480.jpg&rf=LaDigue_800x480.jpg "盛开的樱花树上的红头长尾山雀")
-[下载720](https://cn.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_1280x720.jpg&rf=LaDigue_1280x720.jpg "盛开的樱花树上的红头长尾山雀")
-[下载1080](https://cn.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的樱花树上的红头长尾山雀")
-[下载UHD](https://cn.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的樱花树上的红头长尾山雀")
 
 ---
