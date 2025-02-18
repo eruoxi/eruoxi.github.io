@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月19日：水獭的另一面
+#### 欧亚水獭，莱利斯塔德，荷兰（© Ernst Dirksen/Minden Pictures）
+
+![水獭的另一面](https://cn.bing.com/th?id=OHR.IceHoleOtter_ZH-CN0106321041_800x480.jpg&rf=LaDigue_800x480.jpg "水獭的另一面")
+
+今日图片中的欧亚水獭在野外不仅仅是可爱的象征。它们分布于欧洲、亚洲及北非部分地区，栖息于清澈的河流、湖泊和湿地，是环境健康的重要指标。作为半水生动物，它们拥有流线型的身体、带蹼的脚和致密的毛发，能够在冰冷的水中保持温暖。每平方英寸的毛发包含超过40万根毛，使其成为自然界最有效的绝缘材料之一。曾因污染和栖息地丧失，河獭一度濒临灭绝。然而，随着保护措施的推进，欧洲许多地区的河獭数量正在回升。
+
+这只活泼的水獭饮食多样，包括鱼类、甲壳类动物、两栖动物，有时还会捕食爬行动物、鸟类、鸟蛋、昆虫和蠕虫。它通常是夜行性动物，其踪迹可见于许多淡水环境中。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e4%ba%9a%e6%b0%b4%e7%8d%ad&form=hpcapt&filters=HpDate:"20250218_1600" "Bing Wallpaper 2025 2月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250219_IceHoleOtter"&FORM=HPQUIZ "必应主页测验 2025 2月 19")
+[下载480](https://cn.bing.com/th?id=OHR.IceHoleOtter_ZH-CN0106321041_800x480.jpg&rf=LaDigue_800x480.jpg "欧亚水獭，莱利斯塔德，荷兰")
+[下载720](https://cn.bing.com/th?id=OHR.IceHoleOtter_ZH-CN0106321041_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧亚水獭，莱利斯塔德，荷兰")
+[下载1080](https://cn.bing.com/th?id=OHR.IceHoleOtter_ZH-CN0106321041_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚水獭，莱利斯塔德，荷兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.IceHoleOtter_ZH-CN0106321041_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚水獭，莱利斯塔德，荷兰")
+
+---
 ### 02月18日：无尽的蓝色
 #### 大蓝洞，伯利兹（© JamiesOnAMission/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN7122848634_1280x720.jpg&rf=LaDigue_1280x720.jpg "苏格兰黑脸羊，阿伯丁郡，苏格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN7122848634_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "苏格兰黑脸羊，阿伯丁郡，苏格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN7122848634_UHD.jpg&rf=LaDigue_UHD.jpg "苏格兰黑脸羊，阿伯丁郡，苏格兰")
-
----
-### 02月04日：云端漫步
-#### 金桥，巴拿山，岘港，越南（© Hien Phung Thu/Shutterstock）
-
-![云端漫步](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_800x480.jpg&rf=LaDigue_800x480.jpg "云端漫步")
-
-两只巨大的石手托起一条闪闪发光的金色步道，仿佛是周围的群山将其献给天空。这就是金桥，位于越南中部岘港附近群山中的步行桥。自2018年开放以来，这座桥凭借独特设计和壮丽景观迅速成为全球瞩目的景点，吸引无数游客前来打卡。
-
-越南中部，尤其是岘港的美食，在国内外都享有盛誉，知名度不断提升。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b2%98%e6%b8%af%e9%87%91%e6%a1%a5&form=hpcapt&filters=HpDate:"20250203_1600" "Bing Wallpaper 2025 2月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250204_GoldenBridge"&FORM=HPQUIZ "必应主页测验 2025 2月 4")
-[下载480](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_800x480.jpg&rf=LaDigue_800x480.jpg "金桥，巴拿山，岘港，越南")
-[下载720](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_1280x720.jpg&rf=LaDigue_1280x720.jpg "金桥，巴拿山，岘港，越南")
-[下载1080](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "金桥，巴拿山，岘港，越南")
-[下载UHD](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_UHD.jpg&rf=LaDigue_UHD.jpg "金桥，巴拿山，岘港，越南")
 
 ---
