@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月20日：高贵的双影
+#### 马鹿，加拿大（© Delbars/Getty Images）
+
+![高贵的双影](https://cn.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_800x480.jpg&rf=LaDigue_800x480.jpg "高贵的双影")
+
+马鹿因其雄伟与力量而备受人类敬畏与尊崇。马鹿分布于欧洲、亚洲、北非部分地区及其他少数区域。在加拿大，马鹿主要栖息于艾伯塔省，马鹿市周边的草原和公园地带为其提供了理想的生存环境。雄鹿的鹿角每年生长一次，完全成熟时通常超过70厘米，重量约为1千克。鹿角自古以来象征力量，也是唯一能够完全再生的哺乳动物器官。雌鹿体型较小且无角，正如今日图片所展示。繁殖季节是雄鹿激烈争夺配偶的时期，它们通过吼叫和鹿角交锋展现力量。马鹿在文化中象征自然的生命循环。从中世纪的手稿到现代雕塑，艺术创作常以马鹿为主题，展现其优雅与力量。
+
+马鹿的蹄印或‘蹄槽’非常大，特征显著，可能与羊或山羊的蹄印混淆。受步态或地面软硬程度的影响，蹄槽形状可能有所变化。雄鹿的前蹄长度通常为8至9厘米。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e9%b9%bf&form=hpcapt&filters=HpDate:"20250219_1600" "Bing Wallpaper 2025 2月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250220_CanadaDeer"&FORM=HPQUIZ "必应主页测验 2025 2月 20")
+[下载480](https://cn.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_800x480.jpg&rf=LaDigue_800x480.jpg "马鹿，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_1280x720.jpg&rf=LaDigue_1280x720.jpg "马鹿，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马鹿，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_UHD.jpg&rf=LaDigue_UHD.jpg "马鹿，加拿大")
+
+---
 ### 02月19日：水獭的另一面
 #### 欧亚水獭，莱利斯塔德，荷兰（© Ernst Dirksen/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_1280x720.jpg&rf=LaDigue_1280x720.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
 [下载1080](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_UHD.jpg&rf=LaDigue_UHD.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
-
----
-### 02月05日：咩，咩，黑脸羊？
-#### 苏格兰黑脸羊，阿伯丁郡，苏格兰（© Mike Powles/Getty Images）
-
-![咩，咩，黑脸羊？](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN7122848634_800x480.jpg&rf=LaDigue_800x480.jpg "咩，咩，黑脸羊？")
-
-成为“黑羊”并不一定是坏事，比如这只生活在苏格兰阿伯丁郡的苏格兰黑脸羊。凭借引人注目的黑色特征和在严寒恶劣环境中的适应能力，这种羊颠覆了‘黑羊’一词的负面印象。它不仅没有被排斥，反而是苏格兰农村生活的支柱，也是丘陵和沼泽地的生存高手。有趣的是，黑脸羊并非起源于苏格兰，而是来自苏格兰南部边境地区。这种羊的历史令人着迷，大体型的珀斯羊和中等体型的拉纳克羊等变种分布在英国各地。尽管黑脸羊是当地最常见的品种，但如今已传播到包括美国在内的世界各地。它的粗毛非常适合制作地毯和花呢等耐用面料，显然不适合制作普通毛衣！
-
-黑脸羊最显著的外貌特征是黑色的脸、耳朵和四肢，以及蓬松的雪白毛皮。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8b%8f%e6%a0%bc%e5%85%b0%e9%bb%91%e8%84%b8%e7%be%8a&form=hpcapt&filters=HpDate:"20250204_1600" "Bing Wallpaper 2025 2月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250205_ScottishSheep"&FORM=HPQUIZ "必应主页测验 2025 2月 5")
-[下载480](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN7122848634_800x480.jpg&rf=LaDigue_800x480.jpg "苏格兰黑脸羊，阿伯丁郡，苏格兰")
-[下载720](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN7122848634_1280x720.jpg&rf=LaDigue_1280x720.jpg "苏格兰黑脸羊，阿伯丁郡，苏格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN7122848634_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "苏格兰黑脸羊，阿伯丁郡，苏格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN7122848634_UHD.jpg&rf=LaDigue_UHD.jpg "苏格兰黑脸羊，阿伯丁郡，苏格兰")
 
 ---
