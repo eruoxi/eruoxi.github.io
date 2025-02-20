@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月21日：静水流深的传说
+#### 希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度（© Amith Nag Photography/Getty Images）
+
+![静水流深的传说](https://cn.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_800x480.jpg&rf=LaDigue_800x480.jpg "静水流深的传说")
+
+从瀑布到寺庙，位于印度南部卡纳塔克邦的希瓦莫加，拥有众多等待探索的奇观。这座城市历史悠久，在印度史诗《罗摩衍那》和《摩诃婆罗多》中均有提及。这两部史诗以诗歌形式创作，背景设定在印度古代印度教王国。希瓦莫加这个名字本身具有宗教意义，源自梵语“Shiva-Mukha”，意为“湿婆的面容”，湿婆是印度教三大主神之一。这里有许多寺庙，包括供奉湿婆的沙拉瓦蒂寺，以及位于科达查德里山的一座寺庙，登临此地可俯瞰西高止山脉的壮丽景色。
+
+希瓦莫加有印度最大的槟榔市场，以采购优质槟榔而闻名。其他农产品如大米、玉米、辣椒、椰子等，也在农产品市场理事会进行交易。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%8c%e8%8e%ab%e5%8a%a0&form=hpcapt&filters=HpDate:"20250220_1600" "Bing Wallpaper 2025 2月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250221_ChampakaSarasi"&FORM=HPQUIZ "必应主页测验 2025 2月 21")
+[下载480](https://cn.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_800x480.jpg&rf=LaDigue_800x480.jpg "希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_1280x720.jpg&rf=LaDigue_1280x720.jpg "希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_UHD.jpg&rf=LaDigue_UHD.jpg "希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度")
+
+---
 ### 02月20日：高贵的双影
 #### 马鹿，加拿大（© Delbars/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_1280x720.jpg&rf=LaDigue_1280x720.jpg "特隆赫姆的蓝色时刻，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特隆赫姆的蓝色时刻，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_UHD.jpg&rf=LaDigue_UHD.jpg "特隆赫姆的蓝色时刻，挪威")
-
----
-### 02月06日：对国家遗产的思考
-#### 拱门群岛，瓦拉里基海滩，南岛，新西兰（© Francesco Vaninetti/AWL/plainpicture）
-
-![对国家遗产的思考](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_800x480.jpg&rf=LaDigue_800x480.jpg "对国家遗产的思考")
-
-1840年，500多位毛利酋长与英国王室代表共同签署了一份条约，新西兰人至今仍在怀唐伊日纪念这一历史时刻。这一天，签署的《怀唐伊条约》确立了两种文化共存的原则。在怀唐伊条约签署地，庆典活动包括毛利传统表演、演讲和精彩的独木舟比赛。从奥克兰和惠灵顿的节日与音乐会，到低调的社区聚会，这一天的核心精神是联系与文化。
-
-自2014年以来，新西兰作家协会在怀唐伊日颁发文学荣誉奖，以纪念这一天的特殊意义。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%80%80%e5%94%90%e4%bc%8a%e6%97%a5&form=hpcapt&filters=HpDate:"20250205_1600" "Bing Wallpaper 2025 2月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250206_WhararikiBeach"&FORM=HPQUIZ "必应主页测验 2025 2月 6")
-[下载480](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_800x480.jpg&rf=LaDigue_800x480.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
-[下载720](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_1280x720.jpg&rf=LaDigue_1280x720.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
-[下载1080](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_UHD.jpg&rf=LaDigue_UHD.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
 
 ---
