@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月22日：向辉煌迈进
+#### 圣路易斯拱门, 密苏里州, 美国（© f11photo/Getty Images）
+
+![向辉煌迈进](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_800x480.jpg&rf=LaDigue_800x480.jpg "向辉煌迈进")
+
+今天，我们庆祝圣路易斯市密苏里州拱门国家公园成立周年纪念日，该公园于2018 年2月22日正式设立，坐落在风景如画的密西西比河沿岸，旨在纪念托马斯·杰斐逊提出的“大陆国家”构想。公园的核心是圣路易斯拱门，这座令人惊叹的630英尺高的建筑已成为圣路易斯的终极象征。拱门采用不锈钢建造，是世界上最高的拱门，也是密苏里州最高的可进入建筑。芬兰裔美国建筑师埃罗·沙里宁于1947年构思出这一设计，并在1965年10月28日正式落成，实现了他的愿景。这座拱门的未来主义设计长期以来被视为汽车时代的象征，代表着现代都市景观与技术进步带来的未来希望。
+
+拱门基座的中心建筑是旧法院，它曾是密苏里州最高的建筑，其圆顶与美国国会大厦的圆顶相似，这一圆顶是在美国内战期间与国会大厦的圆顶同时建造的。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e8%b7%af%e6%98%93%e6%96%af%e6%8b%b1%e9%97%a8%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250221_1600" "Bing Wallpaper 2025 2月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250222_StLouisArch"&FORM=HPQUIZ "必应主页测验 2025 2月 22")
+[下载480](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_800x480.jpg&rf=LaDigue_800x480.jpg "圣路易斯拱门, 密苏里州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣路易斯拱门, 密苏里州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣路易斯拱门, 密苏里州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_UHD.jpg&rf=LaDigue_UHD.jpg "圣路易斯拱门, 密苏里州, 美国")
+
+---
 ### 02月21日：静水流深的传说
 #### 希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度（© Amith Nag Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_1280x720.jpg&rf=LaDigue_1280x720.jpg "梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚")
 [下载1080](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_UHD.jpg&rf=LaDigue_UHD.jpg "梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚")
-
----
-### 02月07日：沉浸在蓝调时分
-#### 特隆赫姆的蓝色时刻，挪威（© Jeanny Mueller/Getty Images）
-
-![沉浸在蓝调时分](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_800x480.jpg&rf=LaDigue_800x480.jpg "沉浸在蓝调时分")
-
-在挪威，冬季不仅是一个季节，更是一种独特的体验。在挪威北部，黑夜长达20小时，有时甚至整周太阳都隐匿在地平线之下。这听起来或许有些阴郁，但这种特殊的时节也展现出独特的魅力。通常在下午1点至2点之间，柔和的光线从白雪覆盖的地面和深蓝色海面反射而来。这形成了一种令人惊叹的如玻璃般湛蓝的光辉，笼罩着整片大地。这种蓝调时分每天都会来得稍晚一些，温柔地提醒人们太阳正缓缓准备重新升起。
-
-蓝调时分指的是日出前或日落后，太阳位于地平线下-4至-6度之间的时间段，此时天空呈现出一种静谧的蓝色调。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%8c%aa%e5%a8%81%e7%89%b9%e9%9a%86%e8%b5%ab%e5%a7%86&form=hpcapt&filters=HpDate:"20250206_1600" "Bing Wallpaper 2025 2月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250207_BlueNorway"&FORM=HPQUIZ "必应主页测验 2025 2月 7")
-[下载480](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_800x480.jpg&rf=LaDigue_800x480.jpg "特隆赫姆的蓝色时刻，挪威")
-[下载720](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_1280x720.jpg&rf=LaDigue_1280x720.jpg "特隆赫姆的蓝色时刻，挪威")
-[下载1080](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特隆赫姆的蓝色时刻，挪威")
-[下载UHD](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_UHD.jpg&rf=LaDigue_UHD.jpg "特隆赫姆的蓝色时刻，挪威")
 
 ---
