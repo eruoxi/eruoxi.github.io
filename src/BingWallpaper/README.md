@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月23日：清晨的美好精致
+#### 日出时分的富士山, 河口湖, 日本（© Twenty47studio/Getty Images）
+
+![清晨的美好精致](https://cn.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_800x480.jpg&rf=LaDigue_800x480.jpg "清晨的美好精致")
+
+在东京西南约 60 英里处，矗立着日本的文化象征之一：富士山。这座日本最高峰海拔近12,000英尺，其近乎完美对称的火山锥，每年约有五个月被积雪覆盖，形成壮丽景观。几个世纪以来，富士山一直被视为神圣之山。在神道信仰中，富士山被奉为本宫浅间大社的圣山，并在其视野范围内建有供奉它的神社。
+
+富士山是世界上最大的活火山之一，也是富士火山带的一部分。富士火山带是一条火山链，主要从马里亚纳群岛经伊豆群岛和伊豆半岛到本州北部。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%af%8c%e5%a3%ab%e5%b1%b1&form=hpcapt&filters=HpDate:"20250222_1600" "Bing Wallpaper 2025 2月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250223_MtFujiSunrise"&FORM=HPQUIZ "必应主页测验 2025 2月 23")
+[下载480](https://cn.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_800x480.jpg&rf=LaDigue_800x480.jpg "日出时分的富士山, 河口湖, 日本")
+[下载720](https://cn.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时分的富士山, 河口湖, 日本")
+[下载1080](https://cn.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时分的富士山, 河口湖, 日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_UHD.jpg&rf=LaDigue_UHD.jpg "日出时分的富士山, 河口湖, 日本")
+
+---
 ### 02月22日：向辉煌迈进
 #### 圣路易斯拱门, 密苏里州, 美国（© f11photo/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔斯特罗姆角，鲍威尔湖，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔斯特罗姆角，鲍威尔湖，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔斯特罗姆角，鲍威尔湖，犹他州，美国")
-
----
-### 02月08日：凝固的时光
-#### 梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚（© photoaliona/Getty Images）
-
-![凝固的时光](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_800x480.jpg&rf=LaDigue_800x480.jpg "凝固的时光")
-
-冬季为梅斯蒂亚的中世纪塔楼披上冰雪，宛如一座座坚固的堡垒。梅斯蒂亚坐落于高加索山脉，海拔4921英尺，是格鲁吉亚西北部一座迷人的高原小镇。小镇是斯万人的故乡，他们是格鲁吉亚文化和语言的一个独特分支。尽管规模不大，梅斯蒂亚数百年来一直是格鲁吉亚文化的枢纽，小镇遍布斯万族的防御塔，如今日图片所示。这些防御塔大多建于9至12世纪，这一时期被誉为格鲁吉亚的黄金时代。据推测，这些塔楼的历史可能追溯至更久远的史前时期。塔楼不仅是防御工事，也是家庭住宅的重要组成部分，反映了该地区坚韧不拔、自给自足的历史。因此，梅斯蒂亚不仅是一座小镇，更是一个活的博物馆，其历史从塔楼中升起，回荡在高山之间。
-
-尽管梅斯蒂亚面积不大，但数个世纪以来，这座小镇一直是格鲁吉亚文化的重要中心。小镇内有许多中世纪古迹，如教堂和堡垒，这些遗迹已被联合国教科文组织列入世界遗产名录。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a2%85%e6%96%af%e8%92%82%e4%ba%9a&form=hpcapt&filters=HpDate:"20250207_1600" "Bing Wallpaper 2025 2月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250208_SnowySvaneti"&FORM=HPQUIZ "必应主页测验 2025 2月 8")
-[下载480](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_800x480.jpg&rf=LaDigue_800x480.jpg "梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚")
-[下载720](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_1280x720.jpg&rf=LaDigue_1280x720.jpg "梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚")
-[下载1080](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_UHD.jpg&rf=LaDigue_UHD.jpg "梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚")
 
 ---
