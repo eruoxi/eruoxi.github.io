@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月24日：墨迹与伪装
+#### 斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚（© Gary Bell/Minden Pictures）
+
+![墨迹与伪装](https://cn.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_800x480.jpg&rf=LaDigue_800x480.jpg "墨迹与伪装")
+
+伞膜乌贼以惊人的伪装能力闻名，它能够在瞬间改变外观，与周围环境融为一体。这种乌贼生活在澳大利亚温带和亚热带水域，从昆士兰州的布里斯班到西澳大利亚州的鲨鱼湾，一直延伸至塔斯马尼亚南部海域。今日图片拍摄于南澳大利亚怀阿拉，这里的伞膜乌贼种群存在显著的性别失衡，雄性数量远多于雌性，因此繁殖权的竞争异常激烈。伞膜乌贼，也被称为澳大利亚巨型乌贼，是地球上体型最大的乌贼之一。其外套膜长度可达 20 英寸，触手完全伸展时总长度可达 39 英寸。体重超过 23 磅。和所有乌贼一样，伞膜乌贼拥有八条腕足、两条触手、三颗心脏和蓝色的血液。不过，它最引人注目的特征是其皮肤中的色素胞，能够迅速改变颜色和图案，以达到伪装的目的。尽管伞膜乌贼是色盲，但其眼睛配备了光感受器，能够检测线性偏振光，从而在捕食和伪装时仍能精确感知周围环境。
+
+一项生物能量学研究发现，伞膜乌贼主要在白天活动，其活动范围较小（90 至 550 米或 300 至 1800 英尺），但在繁殖季节会迁徙长距离。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bc%9e%e8%86%9c%e4%b9%8c%e8%b4%bc&form=hpcapt&filters=HpDate:"20250223_1600" "Bing Wallpaper 2025 2月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250224_GiantCuttlefish"&FORM=HPQUIZ "必应主页测验 2025 2月 24")
+[下载480](https://cn.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_800x480.jpg&rf=LaDigue_800x480.jpg "斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_UHD.jpg&rf=LaDigue_UHD.jpg "斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚")
+
+---
 ### 02月23日：清晨的美好精致
 #### 日出时分的富士山, 河口湖, 日本（© Twenty47studio/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_1280x720.jpg&rf=LaDigue_1280x720.jpg "雨伞艺术装置，博罗市场，伦敦，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雨伞艺术装置，博罗市场，伦敦，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_UHD.jpg&rf=LaDigue_UHD.jpg "雨伞艺术装置，博罗市场，伦敦，英国")
-
----
-### 02月09日：值得深思的高地
-#### 阿尔斯特罗姆角，鲍威尔湖，犹他州，美国（© T.M. Schultze/TANDEM Stills + Motion）
-
-![值得深思的高地](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_800x480.jpg&rf=LaDigue_800x480.jpg "值得深思的高地")
-
-如果你向往壮丽的日落和令人惊叹的美景，不妨来到阿尔斯特罗姆角。阿尔斯特罗姆角位于犹他州南部凯恩县的格伦峡谷国家休闲区，海拔达4685英尺。阿尔斯特罗姆角主要由恩特拉达砂岩构成，与附近的罗马纳梅萨主峰及东侧的冈赛特山共享相同的地质起源。
-
-阿尔斯特罗姆角是绝佳的摄影和露营地点。还曾在 1968 年的电影《人猿星球》中短暂亮相。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8a%b9%e4%bb%96%e5%b7%9e%e9%98%bf%e5%b0%94%e6%96%af%e7%89%b9%e7%bd%97%e5%a7%86%e8%a7%92&form=hpcapt&filters=HpDate:"20250208_1600" "Bing Wallpaper 2025 2月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250209_AlstromPoint"&FORM=HPQUIZ "必应主页测验 2025 2月 9")
-[下载480](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔斯特罗姆角，鲍威尔湖，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔斯特罗姆角，鲍威尔湖，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔斯特罗姆角，鲍威尔湖，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔斯特罗姆角，鲍威尔湖，犹他州，美国")
 
 ---
