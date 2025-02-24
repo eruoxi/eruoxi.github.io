@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月25日：风蚀石们的问候
+#### 砂岩石柱，布莱斯峡谷国家公园，犹他州，美国（© Stephen Matera/TANDEM Stills + Motion）
+
+![风蚀石们的问候](https://cn.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_800x480.jpg&rf=LaDigue_800x480.jpg "风蚀石们的问候")
+
+在美国犹他州，布莱斯峡谷国家公园以其壮观的砂岩迷宫和独特的岩柱景观闻名于世。这里的历史可追溯至少10,000年前，曾是阿纳齐族人、普韦布洛人和派尤特人的家园。公园里的岩柱是由侵蚀作用形成的高耸岩石尖塔，在派尤特部落的创世神话中占据重要地位。根据传说，这些岩柱曾是“传说中的人”， 因狡猾的郊狼施下的诅咒而化为石头。
+
+布莱斯峡谷国家公园的夜空亮度为7.4级，是北美最黑暗的夜空之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e8%8e%b1%e6%96%af%e5%b3%a1%e8%b0%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250224_1600" "Bing Wallpaper 2025 2月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250225_BryceHoodoos"&FORM=HPQUIZ "必应主页测验 2025 2月 25")
+[下载480](https://cn.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_800x480.jpg&rf=LaDigue_800x480.jpg "砂岩石柱，布莱斯峡谷国家公园，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_1280x720.jpg&rf=LaDigue_1280x720.jpg "砂岩石柱，布莱斯峡谷国家公园，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "砂岩石柱，布莱斯峡谷国家公园，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_UHD.jpg&rf=LaDigue_UHD.jpg "砂岩石柱，布莱斯峡谷国家公园，犹他州，美国")
+
+---
 ### 02月24日：墨迹与伪装
 #### 斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚（© Gary Bell/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_1280x720.jpg&rf=LaDigue_1280x720.jpg "云冈石窟，大同，山西省，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "云冈石窟，大同，山西省，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_UHD.jpg&rf=LaDigue_UHD.jpg "云冈石窟，大同，山西省，中国")
-
----
-### 02月10日：在伞下
-#### 雨伞艺术装置，博罗市场，伦敦，英国（© Malcolm P Chapman/Getty Images）
-
-![在伞下](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_800x480.jpg&rf=LaDigue_800x480.jpg "在伞下")
-
-今天是国际伞日，这一充满趣味的节日旨在纪念人类历史上最简单却重要的发明之一：雨伞或阳伞。早在4000多年前，伞已出现在古埃及、亚述和中国，最初用于遮挡阳光。直到17世纪，我们今天所熟知的雨伞才在欧洲流行，最初作为专为女性设计的奢侈品。几个世纪以来，雨伞不仅成为日常生活的必需品，也成为流行文化的象征。例如，玛丽·波平斯的标志性飞行雨伞，以及蕾哈娜的热门歌曲《雨伞》。
-
-伞如今已成为全球畅销的消费品。据统计，截至2008年，全球大部分的伞产自中国，主要集中于广东、福建和浙江等省份。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%9b%a8%e4%bc%9e&form=hpcapt&filters=HpDate:"20250209_1600" "Bing Wallpaper 2025 2月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250210_UmbrellaDay"&FORM=HPQUIZ "必应主页测验 2025 2月 10")
-[下载480](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_800x480.jpg&rf=LaDigue_800x480.jpg "雨伞艺术装置，博罗市场，伦敦，英国")
-[下载720](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_1280x720.jpg&rf=LaDigue_1280x720.jpg "雨伞艺术装置，博罗市场，伦敦，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雨伞艺术装置，博罗市场，伦敦，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_UHD.jpg&rf=LaDigue_UHD.jpg "雨伞艺术装置，博罗市场，伦敦，英国")
 
 ---
