@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月26日：苏格兰战略的最佳体现
+#### 莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰（© WLDavies/Getty Images）
+
+![苏格兰战略的最佳体现](https://cn.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_800x480.jpg&rf=LaDigue_800x480.jpg "苏格兰战略的最佳体现")
+
+斯托克尔城堡巍然屹立于阿盖尔莱奇湖的潮汐小岛上，是苏格兰保存最完好、最具风景美感的中世纪塔式城堡之一。它由阿平的斯图尔特家族于1440 年代左右建造，历史上曾迎来王室造访，甚至因一场醉酒赌局短暂易主至坎贝尔家族。尽管到了 19 世纪时已破败不堪，但在 20 世纪中期，这座城堡经历了精心修复，如今仍为私人所有。在夏季，游客可在特定的导游带领下览游探索这座历史遗址。
+
+斯托克城堡坐落在莱奇湖 (Loch Laich) 的一个潮汐小岛上。退潮时，从岸边很难到达这个小岛。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8b%8f%e6%a0%bc%e5%85%b0%e6%96%af%e6%89%98%e5%85%8b%e5%b0%94%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20250225_1600" "Bing Wallpaper 2025 2月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250226_ArgyllStalker"&FORM=HPQUIZ "必应主页测验 2025 2月 26")
+[下载480](https://cn.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_800x480.jpg&rf=LaDigue_800x480.jpg "莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰")
+[下载720](https://cn.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_1280x720.jpg&rf=LaDigue_1280x720.jpg "莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_UHD.jpg&rf=LaDigue_UHD.jpg "莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰")
+
+---
 ### 02月25日：风蚀石们的问候
 #### 砂岩石柱，布莱斯峡谷国家公园，犹他州，美国（© Stephen Matera/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_1280x720.jpg&rf=LaDigue_1280x720.jpg "上海豫园的灯会，元宵节，上海市，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "上海豫园的灯会，元宵节，上海市，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_UHD.jpg&rf=LaDigue_UHD.jpg "上海豫园的灯会，元宵节，上海市，中国")
-
----
-### 02月11日：历史的守望之眼
-#### 云冈石窟，大同，山西省，中国（© Eric Yang/Getty Images）
-
-![历史的守望之眼](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_800x480.jpg&rf=LaDigue_800x480.jpg "历史的守望之眼")
-
-云冈石窟中汇聚了51,000尊古代雕像，这座早期佛教艺术杰作位于中国山西省大同市附近。石窟开凿于1500多年前的北魏时期（公元386-534/535年），现存主要洞窟45个，附属洞窟209个。最引人注目的是第5窟中的巨大佛像，高达56英尺，令人叹为观止。这只是冰山一角，每个洞窟都展现其独特魅力。有些洞窟宛如古代画卷，描绘佛教经典故事；另一些则展示僧侣、神祇、乐师，甚至北魏时期的日常生活场景。
-
-云冈石窟因爆款国产3A游戏《黑神话：悟空》中作为主角“天命人“游历的场景之一而备受关注，山西省其他景点也因此广受青睐。游戏上线后短短几周，云冈石窟从北魏三大石窟中游客最少的一个跃升为最受欢迎的景点，游客数量大幅增长。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e5%90%8c%e4%ba%91%e5%86%88%e7%9f%b3%e7%aa%9f&form=hpcapt&filters=HpDate:"20250210_1600" "Bing Wallpaper 2025 2月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250211_YungangGrottoes"&FORM=HPQUIZ "必应主页测验 2025 2月 11")
-[下载480](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_800x480.jpg&rf=LaDigue_800x480.jpg "云冈石窟，大同，山西省，中国")
-[下载720](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_1280x720.jpg&rf=LaDigue_1280x720.jpg "云冈石窟，大同，山西省，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "云冈石窟，大同，山西省，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_UHD.jpg&rf=LaDigue_UHD.jpg "云冈石窟，大同，山西省，中国")
 
 ---
