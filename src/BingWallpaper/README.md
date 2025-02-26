@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月27日：极地关怀
+#### 北极熊幼崽，丘吉尔，马尼托巴省，加拿大（© Eric Baccega/NPL/Minden Pictures）
+
+![极地关怀](https://cn.bing.com/th?id=OHR.PolarCub_ZH-CN1179361319_800x480.jpg&rf=LaDigue_800x480.jpg "极地关怀")
+
+今天，我们将前往北方，参加国际北极熊日。这次活动是了解世界上最大的熊种及其面临的威胁的最佳时机。北极熊原产于北极，分布在阿拉斯加、俄罗斯、格陵兰和斯瓦尔巴群岛。它们也分布在加拿大——比如今天这张照片中的幼崽，拍摄于马尼托巴省丘吉尔。
+
+国际北极熊日是每年2月27日举行的年度活动，这一天恰逢北极熊母熊和幼崽在巢穴中休眠的时期，旨在提高人们对北极熊保护现状的认识。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e5%8c%97%e6%9e%81%e7%86%8a%e6%97%a5&form=hpcapt&filters=HpDate:"20250226_1600" "Bing Wallpaper 2025 2月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250227_PolarCub"&FORM=HPQUIZ "必应主页测验 2025 2月 27")
+[下载480](https://cn.bing.com/th?id=OHR.PolarCub_ZH-CN1179361319_800x480.jpg&rf=LaDigue_800x480.jpg "北极熊幼崽，丘吉尔，马尼托巴省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.PolarCub_ZH-CN1179361319_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极熊幼崽，丘吉尔，马尼托巴省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.PolarCub_ZH-CN1179361319_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊幼崽，丘吉尔，马尼托巴省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.PolarCub_ZH-CN1179361319_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊幼崽，丘吉尔，马尼托巴省，加拿大")
+
+---
 ### 02月26日：苏格兰战略的最佳体现
 #### 莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰（© WLDavies/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_1280x720.jpg&rf=LaDigue_1280x720.jpg "泰瑞尔湖，维多利亚州，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰瑞尔湖，维多利亚州，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_UHD.jpg&rf=LaDigue_UHD.jpg "泰瑞尔湖，维多利亚州，澳大利亚")
-
----
-### 02月12日：喜气洋洋的元宵节
-#### 上海豫园的灯会，元宵节，上海市，中国（© atiger/Shutterstock）
-
-![喜气洋洋的元宵节](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_800x480.jpg&rf=LaDigue_800x480.jpg "喜气洋洋的元宵节")
-
-元宵节（Lantern Festival），是新年第一个月圆之夜，又可以称为“闹元宵”，是中国春节年俗活动的“压轴戏”。人们在这一天可以出门赏月、燃灯放焰、喜猜灯谜、共吃元宵、汤圆，合家团聚、同庆佳节，其乐融融。观赏花灯是中国人在这一天一项重大活动。上海豫园的灯会尤其精彩。
-
-今年是“豫园灯会30周年，邀请了许多国家级非遗“灯彩”项目的代表性传承人来参与此次灯会。
-
-[Bing搜索](https://cn.bing.com/search?q=2025%e5%85%83%e5%ae%b5%e8%8a%82&form=hpcapt&filters=HpDate:"20250211_1600" "Bing Wallpaper 2025 2月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250212_LanterFestival25Y"&FORM=HPQUIZ "必应主页测验 2025 2月 12")
-[下载480](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_800x480.jpg&rf=LaDigue_800x480.jpg "上海豫园的灯会，元宵节，上海市，中国")
-[下载720](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_1280x720.jpg&rf=LaDigue_1280x720.jpg "上海豫园的灯会，元宵节，上海市，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "上海豫园的灯会，元宵节，上海市，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_UHD.jpg&rf=LaDigue_UHD.jpg "上海豫园的灯会，元宵节，上海市，中国")
 
 ---
