@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月28日：在虎穴小憩
+#### 虎穴寺，不丹（© Baron Reznik/Getty Images）
+
+![在虎穴小憩](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_800x480.jpg&rf=LaDigue_800x480.jpg "在虎穴小憩")
+
+今日图片带我们来到不丹海拔10000英尺的虎穴寺，这座佛教寺院和圣地也被称为帕罗虎穴寺，它建于1692年，围绕塔克桑森给桑杜普洞穴而建。据传，这里是莲花生大师修行和传授金刚乘佛教给弟子的地方，他是将该教派引入不丹的重要人物。帕罗虎穴寺由四座主殿组成，主殿之间通过凿刻在悬崖上的阶梯相连，并有几座摇摇欲坠的吊桥横跨其中。
+
+1998 年4月19日，虎穴寺的主建筑发生火灾，导致珍贵的壁画、文物和雕像被焚毁。据推测，火灾可能是由电路短路或酥油灯火焰接触悬挂的壁毯所引起的。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%8d%e4%b8%b9%e8%99%8e%e7%a9%b4%e5%af%ba&form=hpcapt&filters=HpDate:"20250227_1600" "Bing Wallpaper 2025 2月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250228_BhutanMonastery"&FORM=HPQUIZ "必应主页测验 2025 2月 28")
+[下载480](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_800x480.jpg&rf=LaDigue_800x480.jpg "虎穴寺，不丹")
+[下载720](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_1280x720.jpg&rf=LaDigue_1280x720.jpg "虎穴寺，不丹")
+[下载1080](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "虎穴寺，不丹")
+[下载UHD](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_UHD.jpg&rf=LaDigue_UHD.jpg "虎穴寺，不丹")
+
+---
 ### 02月27日：极地关怀
 #### 北极熊幼崽，丘吉尔，马尼托巴省，加拿大（© Eric Baccega/NPL/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_1280x720.jpg&rf=LaDigue_1280x720.jpg "两只麦哲伦企鹅，福克兰群岛")
 [下载1080](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "两只麦哲伦企鹅，福克兰群岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_UHD.jpg&rf=LaDigue_UHD.jpg "两只麦哲伦企鹅，福克兰群岛")
-
----
-### 02月13日：大地之盐
-#### 泰瑞尔湖，维多利亚州，澳大利亚（© Monica Bertolazzi/Getty Images）
-
-![大地之盐](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_800x480.jpg&rf=LaDigue_800x480.jpg "大地之盐")
-
-澳大利亚南部的泰瑞尔湖，是天空与大地交汇之地，形成了令人炫目的奇景。泰瑞尔湖是维多利亚州最大的盐湖，形成于约12万年前。随着气候变化，湖泊水位逐渐下降，如今大部分时间干涸，仅在冬季覆盖约2英寸的水层。“泰瑞尔”这个名字源自当地沃加亚语中的“天空”，致敬了博罗恩原住民对天文学的浓厚兴趣。泰瑞尔湖面积超过70平方英里，是野生动物的天堂，栖息着马利地区的爬行动物、袋鼠和鸸鹋。
-
-旅游业是澳大利亚维多利亚州的重要产业之一。首府墨尔本是澳大利亚第二大人口城市，截至2017年12月的一年，该州共接待了270万国际过夜游客和930万国内过夜游客。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%be%b3%e5%a4%a7%e5%88%a9%e4%ba%9a%e6%b3%b0%e7%91%9e%e5%b0%94%e6%b9%96&form=hpcapt&filters=HpDate:"20250212_1600" "Bing Wallpaper 2025 2月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250213_LakeTyrrell"&FORM=HPQUIZ "必应主页测验 2025 2月 13")
-[下载480](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_800x480.jpg&rf=LaDigue_800x480.jpg "泰瑞尔湖，维多利亚州，澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_1280x720.jpg&rf=LaDigue_1280x720.jpg "泰瑞尔湖，维多利亚州，澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰瑞尔湖，维多利亚州，澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_UHD.jpg&rf=LaDigue_UHD.jpg "泰瑞尔湖，维多利亚州，澳大利亚")
 
 ---
