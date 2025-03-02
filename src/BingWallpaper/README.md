@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月03日：狂热野生
+#### 南黄弯嘴犀鸟，克鲁格国家公园 ，南非（© Richard Du Toit/Minden Pictures）
+
+![狂热野生](https://cn.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_800x480.jpg&rf=LaDigue_800x480.jpg "狂热野生")
+
+还有什么比世界野生动植物日更适合关注大自然的时刻呢？这一天提醒我们保护野生动植物是全球共同的责任。今年的主题是“野生动植物投融资：投资于人类与地球”。相关活动侧重于思想交流、提出解决方案，并探讨创新融资如何阻止生物多样性丧失，为更可持续的未来提供可能性。各地的学校、保护组织和野生动物公园会举办如自然徒步、研讨会、艺术比赛、野生动物摄影比赛以及保护主题讲座等一系列活动，以提高人们的认识。在众多野生物种中，南黄弯嘴犀鸟是一个值得关注的例子。正如今日图片所示，这种鸟遍布整个南部非洲，在南非的克鲁格国家公园尤为常见。它们的标志性特征是鲜艳的黄色弯嘴，经常被看到在地面上跳跃觅食。其食物包括昆虫、种子、水果、浆果、坚果和小型爬行动物，在生态系统中扮演捕食者和种子传播者的双重角色。南黄弯嘴犀鸟是群居动物通常成对或组成小群体一起觅食。它们的叫声多样，包括哨声、咕噜声和咯咯声，响彻非洲大草原。
+
+南黄弯嘴犀鸟在清晨、白天和傍晚都很活跃。到了夜晚，它们会栖息在高高的树上，以免成为猎物。它们可以单独行动，也可以成双成对或组成小群体。通常，它们是独居性的鸟类，除非是繁殖季节、筑巢期或旱季的局部迁徙时期。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%85%8b%e9%b2%81%e6%a0%bc%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250302_1600" "Bing Wallpaper 2025 3月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250303_HornbillPair"&FORM=HPQUIZ "必应主页测验 2025 3月 3")
+[下载480](https://cn.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_800x480.jpg&rf=LaDigue_800x480.jpg "南黄弯嘴犀鸟，克鲁格国家公园 ，南非")
+[下载720](https://cn.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_1280x720.jpg&rf=LaDigue_1280x720.jpg "南黄弯嘴犀鸟，克鲁格国家公园 ，南非")
+[下载1080](https://cn.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南黄弯嘴犀鸟，克鲁格国家公园 ，南非")
+[下载UHD](https://cn.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_UHD.jpg&rf=LaDigue_UHD.jpg "南黄弯嘴犀鸟，克鲁格国家公园 ，南非")
+
+---
 ### 03月02日：桉树奇景
 #### 桉树，梅加龙谷，蓝山山脉国家公园，新南威尔士州，澳大利亚（© Andrew Peacock/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CatalanPyrenees_ZH-CN9699602584_1280x720.jpg&rf=LaDigue_1280x720.jpg "Coll d'Ares，加泰罗尼亚比利牛斯​​山脉")
 [下载1080](https://cn.bing.com/th?id=OHR.CatalanPyrenees_ZH-CN9699602584_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Coll d'Ares，加泰罗尼亚比利牛斯​​山脉")
 [下载UHD](https://cn.bing.com/th?id=OHR.CatalanPyrenees_ZH-CN9699602584_UHD.jpg&rf=LaDigue_UHD.jpg "Coll d'Ares，加泰罗尼亚比利牛斯​​山脉")
-
----
-### 02月16日：守护海洋巨兽
-#### 座头鲸妈妈和宝宝，汤加（© Chase Dekker/Minden Pictures）
-
-![守护海洋巨兽](https://cn.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_800x480.jpg&rf=LaDigue_800x480.jpg "守护海洋巨兽")
-
-每年二月的第三个星期日是世界鲸鱼日，旨在宣传鲸鱼之美及其所面临的挑战。今年的世界鲸鱼日是2月16日，让我们一起致敬这些壮丽的生物，比如今日图片中的座头鲸，它们以迷人的歌声和震撼的跃出水面而闻名。世界鲸鱼日创立于1980年，由太平洋鲸鱼基金会创始人格雷格·考夫曼在夏威夷毛伊岛发起，旨在保护濒临灭绝的座头鲸。如今，这一节日呼吁全球采取行动，应对鲸鱼面临的诸多威胁，例如海洋污染、气候变化及栖息地丧失。
-
-你知道座头鲸会使用“气泡网“捕食吗？它们制造螺旋状气泡将鱼群困住，然后一口吞下，尽享美味！
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e9%b2%b8%e6%97%a5&form=hpcapt&filters=HpDate:"20250215_1600" "Bing Wallpaper 2025 2月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250216_HumpbackMother"&FORM=HPQUIZ "必应主页测验 2025 2月 16")
-[下载480](https://cn.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_800x480.jpg&rf=LaDigue_800x480.jpg "座头鲸妈妈和宝宝，汤加")
-[下载720](https://cn.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_1280x720.jpg&rf=LaDigue_1280x720.jpg "座头鲸妈妈和宝宝，汤加")
-[下载1080](https://cn.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "座头鲸妈妈和宝宝，汤加")
-[下载UHD](https://cn.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_UHD.jpg&rf=LaDigue_UHD.jpg "座头鲸妈妈和宝宝，汤加")
 
 ---
