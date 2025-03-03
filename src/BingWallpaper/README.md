@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月04日：马蒂·格拉斯狂欢节
+#### 杰克逊广场，新奥尔良，路易斯安那州，美国（© SeanPavonePhoto/Getty Images）
+
+![马蒂·格拉斯狂欢节](https://cn.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_800x480.jpg&rf=LaDigue_800x480.jpg "马蒂·格拉斯狂欢节")
+
+新奥尔良与狂欢节密不可分，这一传统自1699年起就在这里庆祝。如今，色彩斑斓的游行队伍、戴着面具的狂欢者，以及标志性的社团，已成为这座城市庆典的象征。今日图片中的杰克逊广场位于法国区，见证了这些热闹非凡的传统。该广场始建于19世纪初，至今仍是游客感受狂欢节氛围的核心地点。1872 年，雷克斯狂欢组织确定了狂欢节的官方颜色：紫色代表正义，绿色代表信仰，金色代表权力。无论是品尝国王蛋糕，还是欣赏华丽的花车巡游，马蒂·格拉斯狂欢节都能带来一场难忘的文化盛宴。
+
+马蒂·格拉斯狂欢节已逐渐演变成展示多元民族风情的大舞台和各族人民共同参与、分享快乐的好机会。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e8%92%82%c2%b7%e6%a0%bc%e6%8b%89%e6%96%af%e7%8b%82%e6%ac%a2%e8%8a%82&form=hpcapt&filters=HpDate:"20250303_1600" "Bing Wallpaper 2025 3月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250304_MardiGrasJackson"&FORM=HPQUIZ "必应主页测验 2025 3月 4")
+[下载480](https://cn.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_800x480.jpg&rf=LaDigue_800x480.jpg "杰克逊广场，新奥尔良，路易斯安那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_1280x720.jpg&rf=LaDigue_1280x720.jpg "杰克逊广场，新奥尔良，路易斯安那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杰克逊广场，新奥尔良，路易斯安那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_UHD.jpg&rf=LaDigue_UHD.jpg "杰克逊广场，新奥尔良，路易斯安那州，美国")
+
+---
 ### 03月03日：狂热野生
 #### 南黄弯嘴犀鸟，克鲁格国家公园 ，南非（© Richard Du Toit/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BlueBelize_ZH-CN9875040666_1280x720.jpg&rf=LaDigue_1280x720.jpg "大蓝洞，伯利兹")
 [下载1080](https://cn.bing.com/th?id=OHR.BlueBelize_ZH-CN9875040666_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大蓝洞，伯利兹")
 [下载UHD](https://cn.bing.com/th?id=OHR.BlueBelize_ZH-CN9875040666_UHD.jpg&rf=LaDigue_UHD.jpg "大蓝洞，伯利兹")
-
----
-### 02月17日：冰雪边界
-#### Coll d'Ares，加泰罗尼亚比利牛斯​​山脉（© CRISTIAN IONUT ZAHARIA/Shutterstock）
-
-![冰雪边界](https://cn.bing.com/th?id=OHR.CatalanPyrenees_ZH-CN9699602584_800x480.jpg&rf=LaDigue_800x480.jpg "冰雪边界")
-
-阿雷斯山口位于海拔1,512米，是穿越雄伟比利牛斯山脉、连接西班牙和法国的山间通道。山口位于加泰罗尼亚里波列斯地区的莫洛与法国奥克西塔尼亚的普拉茨德莫洛拉普雷斯特之间。冬季，这里白雪皑皑，景色令人叹为观止。
-
-在希腊神话中，比利牛斯山以公主比利牛斯的名字命名。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%af%94%e5%88%a9%e7%89%9b%e6%96%af%e2%80%8b%e2%80%8b%e5%b1%b1%e8%84%89&form=hpcapt&filters=HpDate:"20250216_1600" "Bing Wallpaper 2025 2月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250217_CatalanPyrenees"&FORM=HPQUIZ "必应主页测验 2025 2月 17")
-[下载480](https://cn.bing.com/th?id=OHR.CatalanPyrenees_ZH-CN9699602584_800x480.jpg&rf=LaDigue_800x480.jpg "Coll d'Ares，加泰罗尼亚比利牛斯​​山脉")
-[下载720](https://cn.bing.com/th?id=OHR.CatalanPyrenees_ZH-CN9699602584_1280x720.jpg&rf=LaDigue_1280x720.jpg "Coll d'Ares，加泰罗尼亚比利牛斯​​山脉")
-[下载1080](https://cn.bing.com/th?id=OHR.CatalanPyrenees_ZH-CN9699602584_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Coll d'Ares，加泰罗尼亚比利牛斯​​山脉")
-[下载UHD](https://cn.bing.com/th?id=OHR.CatalanPyrenees_ZH-CN9699602584_UHD.jpg&rf=LaDigue_UHD.jpg "Coll d'Ares，加泰罗尼亚比利牛斯​​山脉")
 
 ---
