@@ -1,8 +1,25 @@
 ## Bing Wallpaper(最近15天)
-### 03月05日：丛林探险
-#### 俯瞰拷索山林国家公园，素叻府，泰国（© Peetatham Kongkapech/Getty Images）
+### 03月06日：岩石间的生存之道
+#### 沙漠大角羊，内华达州火焰谷州立公园，美国（© Rachid Dahnoun/Cavan Images）
 
-![丛林探险](https://cn.bing.com/th?id=OHR.SuratThani_ZH-CN4797096558_800x480.jpg&rf=LaDigue_800x480.jpg "丛林探险")
+![岩石间的生存之道](https://cn.bing.com/th?id=OHR.NevadaBigHorns_ZH-CN5987046965_800x480.jpg&rf=LaDigue_800x480.jpg "岩石间的生存之道")
+
+沙漠中的大角羊是大自然的登山高手，它们能轻松攀爬悬崖，优雅穿行于崎岖的岩石地形。作为北美的原生物种，大角羊以其独特的卷曲羊角闻名，羊角重量可达30磅。雄羊会用巨大的羊角进行激烈的撞角较量，在这些对决中，它们能以每小时20英里的速度相互冲撞。相比之下，雌羊更加低调，通常会与幼崽组成小群体。大角羊适应了沙漠环境，能长时间不饮水，主要依靠植物中的水分生存。
+
+火焰谷州立公园因其红色砂岩地貌而得名，这些阿兹特克砂岩形成于1.5亿年前的流动沙丘。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%81%ab%e7%84%b0%e8%b0%b7%e5%b7%9e%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250305_1600" "Bing Wallpaper 2025 3月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250306_NevadaBigHorns"&FORM=HPQUIZ "必应主页测验 2025 3月 6")
+[下载480](https://cn.bing.com/th?id=OHR.NevadaBigHorns_ZH-CN5987046965_800x480.jpg&rf=LaDigue_800x480.jpg "沙漠大角羊，内华达州火焰谷州立公园，美国")
+[下载720](https://cn.bing.com/th?id=OHR.NevadaBigHorns_ZH-CN5987046965_1280x720.jpg&rf=LaDigue_1280x720.jpg "沙漠大角羊，内华达州火焰谷州立公园，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.NevadaBigHorns_ZH-CN5987046965_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙漠大角羊，内华达州火焰谷州立公园，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NevadaBigHorns_ZH-CN5987046965_UHD.jpg&rf=LaDigue_UHD.jpg "沙漠大角羊，内华达州火焰谷州立公园，美国")
+
+---
+### 03月05日：丛林探险
+#### 俯瞰考索国家公园，素叻府，泰国（© Peetatham Kongkapech/Getty Images）
+
+![丛林探险](https://cn.bing.com/th?id=OHR.SuratThani_ZH-CN6836438823_800x480.jpg&rf=LaDigue_800x480.jpg "丛林探险")
 
 今天，我们来到了一片充满野生动物的奇境，泰国素叻他尼府的考索国家公园。这片雨林比亚马逊更古老，生态系统极为丰富。公园成立于1980 年栖息着马来貘、白掌长臂猿、印度野牛和犀鸟等多种野生动物，是任何想要逃离城市喧嚣、沉浸丛林之声的旅行者的理想目的地。这里有蜿蜒的远足小径供人探索，也可以乘皮划艇悠然穿行。如果够幸运，还能目睹巨型莱佛士花盛开的壮观景象。
 
@@ -10,10 +27,10 @@
 
 [Bing搜索](https://cn.bing.com/search?q=%e7%b4%a0%e5%8f%bb%e5%ba%9c&form=hpcapt&filters=HpDate:"20250304_1600" "Bing Wallpaper 2025 3月 5")
 [必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250305_SuratThani"&FORM=HPQUIZ "必应主页测验 2025 3月 5")
-[下载480](https://cn.bing.com/th?id=OHR.SuratThani_ZH-CN4797096558_800x480.jpg&rf=LaDigue_800x480.jpg "俯瞰拷索山林国家公园，素叻府，泰国")
-[下载720](https://cn.bing.com/th?id=OHR.SuratThani_ZH-CN4797096558_1280x720.jpg&rf=LaDigue_1280x720.jpg "俯瞰拷索山林国家公园，素叻府，泰国")
-[下载1080](https://cn.bing.com/th?id=OHR.SuratThani_ZH-CN4797096558_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "俯瞰拷索山林国家公园，素叻府，泰国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SuratThani_ZH-CN4797096558_UHD.jpg&rf=LaDigue_UHD.jpg "俯瞰拷索山林国家公园，素叻府，泰国")
+[下载480](https://cn.bing.com/th?id=OHR.SuratThani_ZH-CN6836438823_800x480.jpg&rf=LaDigue_800x480.jpg "俯瞰考索国家公园，素叻府，泰国")
+[下载720](https://cn.bing.com/th?id=OHR.SuratThani_ZH-CN6836438823_1280x720.jpg&rf=LaDigue_1280x720.jpg "俯瞰考索国家公园，素叻府，泰国")
+[下载1080](https://cn.bing.com/th?id=OHR.SuratThani_ZH-CN6836438823_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "俯瞰考索国家公园，素叻府，泰国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SuratThani_ZH-CN6836438823_UHD.jpg&rf=LaDigue_UHD.jpg "俯瞰考索国家公园，素叻府，泰国")
 
 ---
 ### 03月04日：马蒂·格拉斯狂欢节
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_1280x720.jpg&rf=LaDigue_1280x720.jpg "马鹿，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马鹿，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_UHD.jpg&rf=LaDigue_UHD.jpg "马鹿，加拿大")
-
----
-### 02月19日：水獭的另一面
-#### 欧亚水獭，莱利斯塔德，荷兰（© Ernst Dirksen/Minden Pictures）
-
-![水獭的另一面](https://cn.bing.com/th?id=OHR.IceHoleOtter_ZH-CN0106321041_800x480.jpg&rf=LaDigue_800x480.jpg "水獭的另一面")
-
-今日图片中的欧亚水獭在野外不仅仅是可爱的象征。它们分布于欧洲、亚洲及北非部分地区，栖息于清澈的河流、湖泊和湿地，是环境健康的重要指标。作为半水生动物，它们拥有流线型的身体、带蹼的脚和致密的毛发，能够在冰冷的水中保持温暖。每平方英寸的毛发包含超过40万根毛，使其成为自然界最有效的绝缘材料之一。曾因污染和栖息地丧失，河獭一度濒临灭绝。然而，随着保护措施的推进，欧洲许多地区的河獭数量正在回升。
-
-这只活泼的水獭饮食多样，包括鱼类、甲壳类动物、两栖动物，有时还会捕食爬行动物、鸟类、鸟蛋、昆虫和蠕虫。它通常是夜行性动物，其踪迹可见于许多淡水环境中。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e4%ba%9a%e6%b0%b4%e7%8d%ad&form=hpcapt&filters=HpDate:"20250218_1600" "Bing Wallpaper 2025 2月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250219_IceHoleOtter"&FORM=HPQUIZ "必应主页测验 2025 2月 19")
-[下载480](https://cn.bing.com/th?id=OHR.IceHoleOtter_ZH-CN0106321041_800x480.jpg&rf=LaDigue_800x480.jpg "欧亚水獭，莱利斯塔德，荷兰")
-[下载720](https://cn.bing.com/th?id=OHR.IceHoleOtter_ZH-CN0106321041_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧亚水獭，莱利斯塔德，荷兰")
-[下载1080](https://cn.bing.com/th?id=OHR.IceHoleOtter_ZH-CN0106321041_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚水獭，莱利斯塔德，荷兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.IceHoleOtter_ZH-CN0106321041_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚水獭，莱利斯塔德，荷兰")
 
 ---
