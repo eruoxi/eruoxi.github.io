@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月07日：花开中国
+#### 中国的梅花（© zhikun sun/Getty Images）
+
+![花开中国](https://cn.bing.com/th?id=OHR.PlumBlossom_ZH-CN5888621119_800x480.jpg&rf=LaDigue_800x480.jpg "花开中国")
+
+在杭州西湖，这些转瞬即逝的花朵吸引了无数游客，他们纷纷前来欣赏这短暂而绚丽的美景。在中国文化中，梅花象征着纯洁和春天的到来，而在日本，它则代表新的开始。梅花即使在严寒的冬季也能傲然绽放，这种特性使其成为坚毅与希望的象征。目前已知的梅花品种超过 300 种，适应各种园林环境，呈现出丰富多样的形态和颜色。除了视觉上的吸引力，梅花还被用于传统美食，如花茶和酸甜可口的梅子蜜饯。看到这里，为何不亲自去感受这份独特的魅力呢？
+
+在中国传统文化中，梅以它的高洁、坚强、谦虚的品格，给人以立志奋发的激励。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e7%9a%84%e6%a2%85%e8%8a%b1&form=hpcapt&filters=HpDate:"20250306_1600" "Bing Wallpaper 2025 3月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250307_PlumBlossom"&FORM=HPQUIZ "必应主页测验 2025 3月 7")
+[下载480](https://cn.bing.com/th?id=OHR.PlumBlossom_ZH-CN5888621119_800x480.jpg&rf=LaDigue_800x480.jpg "中国的梅花")
+[下载720](https://cn.bing.com/th?id=OHR.PlumBlossom_ZH-CN5888621119_1280x720.jpg&rf=LaDigue_1280x720.jpg "中国的梅花")
+[下载1080](https://cn.bing.com/th?id=OHR.PlumBlossom_ZH-CN5888621119_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国的梅花")
+[下载UHD](https://cn.bing.com/th?id=OHR.PlumBlossom_ZH-CN5888621119_UHD.jpg&rf=LaDigue_UHD.jpg "中国的梅花")
+
+---
 ### 03月06日：岩石间的生存之道
 #### 沙漠大角羊，内华达州火焰谷州立公园，美国（© Rachid Dahnoun/Cavan Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_1280x720.jpg&rf=LaDigue_1280x720.jpg "希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_UHD.jpg&rf=LaDigue_UHD.jpg "希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度")
-
----
-### 02月20日：高贵的双影
-#### 马鹿，加拿大（© Delbars/Getty Images）
-
-![高贵的双影](https://cn.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_800x480.jpg&rf=LaDigue_800x480.jpg "高贵的双影")
-
-马鹿因其雄伟与力量而备受人类敬畏与尊崇。马鹿分布于欧洲、亚洲、北非部分地区及其他少数区域。在加拿大，马鹿主要栖息于艾伯塔省，马鹿市周边的草原和公园地带为其提供了理想的生存环境。雄鹿的鹿角每年生长一次，完全成熟时通常超过70厘米，重量约为1千克。鹿角自古以来象征力量，也是唯一能够完全再生的哺乳动物器官。雌鹿体型较小且无角，正如今日图片所展示。繁殖季节是雄鹿激烈争夺配偶的时期，它们通过吼叫和鹿角交锋展现力量。马鹿在文化中象征自然的生命循环。从中世纪的手稿到现代雕塑，艺术创作常以马鹿为主题，展现其优雅与力量。
-
-马鹿的蹄印或‘蹄槽’非常大，特征显著，可能与羊或山羊的蹄印混淆。受步态或地面软硬程度的影响，蹄槽形状可能有所变化。雄鹿的前蹄长度通常为8至9厘米。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e9%b9%bf&form=hpcapt&filters=HpDate:"20250219_1600" "Bing Wallpaper 2025 2月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250220_CanadaDeer"&FORM=HPQUIZ "必应主页测验 2025 2月 20")
-[下载480](https://cn.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_800x480.jpg&rf=LaDigue_800x480.jpg "马鹿，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_1280x720.jpg&rf=LaDigue_1280x720.jpg "马鹿，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马鹿，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_UHD.jpg&rf=LaDigue_UHD.jpg "马鹿，加拿大")
 
 ---
