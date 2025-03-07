@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月08日：原始纯净的自然天堂
+#### 石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国（© 3quarks/Getty Images）
+
+![原始纯净的自然天堂](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_800x480.jpg&rf=LaDigue_800x480.jpg "原始纯净的自然天堂")
+
+作为联合国教科文组织世界遗产的一部分，石勒苏益格-荷尔斯泰因瓦登海国家公园不仅是一片珍贵的生态系统，同时也是德国北海海岸上的真正自然天堂。公园占地面积达 4410 平方公里，是德国最大的国家公园。在这里，游客可以近距离感受潮汐的奇妙变化，探索这片独特的生态景观。这里栖息着大量鸟类、鱼类和海洋哺乳动物，展现出令人惊叹的生物多样性。
+
+石勒苏益格-荷尔斯泰因瓦登海国家公园与下萨克森瓦登海国家公园、汉堡瓦登海国家公园以及不属于自然保护区的易北河口部分，共同构成了德国瓦登海的一部分。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%9f%b3%e5%8b%92%e8%8b%8f%e7%9b%8a%e6%a0%bc-%e8%8d%b7%e5%b0%94%e6%96%af%e6%b3%b0%e5%9b%a0%e5%b7%9e%e7%93%a6%e7%99%bb%e6%b5%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250307_1600" "Bing Wallpaper 2025 3月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250308_WaddenSeaBiosphereReserve"&FORM=HPQUIZ "必应主页测验 2025 3月 8")
+[下载480](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_800x480.jpg&rf=LaDigue_800x480.jpg "石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国")
+[下载720](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_1280x720.jpg&rf=LaDigue_1280x720.jpg "石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_UHD.jpg&rf=LaDigue_UHD.jpg "石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国")
+
+---
 ### 03月07日：花开中国
 #### 中国的梅花（© zhikun sun/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣路易斯拱门, 密苏里州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣路易斯拱门, 密苏里州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_UHD.jpg&rf=LaDigue_UHD.jpg "圣路易斯拱门, 密苏里州, 美国")
-
----
-### 02月21日：静水流深的传说
-#### 希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度（© Amith Nag Photography/Getty Images）
-
-![静水流深的传说](https://cn.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_800x480.jpg&rf=LaDigue_800x480.jpg "静水流深的传说")
-
-从瀑布到寺庙，位于印度南部卡纳塔克邦的希瓦莫加，拥有众多等待探索的奇观。这座城市历史悠久，在印度史诗《罗摩衍那》和《摩诃婆罗多》中均有提及。这两部史诗以诗歌形式创作，背景设定在印度古代印度教王国。希瓦莫加这个名字本身具有宗教意义，源自梵语“Shiva-Mukha”，意为“湿婆的面容”，湿婆是印度教三大主神之一。这里有许多寺庙，包括供奉湿婆的沙拉瓦蒂寺，以及位于科达查德里山的一座寺庙，登临此地可俯瞰西高止山脉的壮丽景色。
-
-希瓦莫加有印度最大的槟榔市场，以采购优质槟榔而闻名。其他农产品如大米、玉米、辣椒、椰子等，也在农产品市场理事会进行交易。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%8c%e8%8e%ab%e5%8a%a0&form=hpcapt&filters=HpDate:"20250220_1600" "Bing Wallpaper 2025 2月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250221_ChampakaSarasi"&FORM=HPQUIZ "必应主页测验 2025 2月 21")
-[下载480](https://cn.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_800x480.jpg&rf=LaDigue_800x480.jpg "希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度")
-[下载720](https://cn.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_1280x720.jpg&rf=LaDigue_1280x720.jpg "希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度")
-[下载1080](https://cn.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_UHD.jpg&rf=LaDigue_UHD.jpg "希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度")
 
 ---
