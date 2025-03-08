@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月09日：时间的步伐
+#### 圣马可钟楼，威尼斯，意大利（© scaliger/Getty Images）
+
+![时间的步伐](https://cn.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_800x480.jpg&rf=LaDigue_800x480.jpg "时间的步伐")
+
+又到了一年中的这个时刻，时钟拨快一小时，虽然少睡了一小时，但换来了更长的傍晚时光。今年的夏令时从今天凌晨2点正式开始，亚利桑那州和夏威夷州除外，这再次提醒我们，时间从不会等待任何人。夏令时的理念很简单：最大化利用自然光，减少能源消耗。这一概念最早在 18 世纪由本杰明·富兰克林提出，尽管他当时 “节省蜡烛”的建议更像是一种讽刺，而非严肃提议。时间快进到 20 世纪初，许多国家在战争期间采用夏令时以节省燃料。美国于 1966 年颁布了《统一时间法案》，正式将夏时令标准化。如今，全球约70个国家实行夏令时，通常从3月持续到11月，让人们享受长达八个月的漫长夜晚。
+
+2014年6月10日，俄罗斯通过相关法案，决定取消自2011年以来实施的“永久夏令时”，改回冬令时，并不再实行冬夏时制的交替调整。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%8f%e4%bb%a4%e6%97%b6&form=hpcapt&filters=HpDate:"20250308_1600" "Bing Wallpaper 2025 3月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250309_ItalyClock"&FORM=HPQUIZ "必应主页测验 2025 3月 9")
+[下载480](https://cn.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_800x480.jpg&rf=LaDigue_800x480.jpg "圣马可钟楼，威尼斯，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣马可钟楼，威尼斯，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣马可钟楼，威尼斯，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_UHD.jpg&rf=LaDigue_UHD.jpg "圣马可钟楼，威尼斯，意大利")
+
+---
 ### 03月08日：原始纯净的自然天堂
 #### 石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国（© 3quarks/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时分的富士山, 河口湖, 日本")
 [下载1080](https://cn.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时分的富士山, 河口湖, 日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_UHD.jpg&rf=LaDigue_UHD.jpg "日出时分的富士山, 河口湖, 日本")
-
----
-### 02月22日：向辉煌迈进
-#### 圣路易斯拱门, 密苏里州, 美国（© f11photo/Getty Images）
-
-![向辉煌迈进](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_800x480.jpg&rf=LaDigue_800x480.jpg "向辉煌迈进")
-
-今天，我们庆祝圣路易斯市密苏里州拱门国家公园成立周年纪念日，该公园于2018 年2月22日正式设立，坐落在风景如画的密西西比河沿岸，旨在纪念托马斯·杰斐逊提出的“大陆国家”构想。公园的核心是圣路易斯拱门，这座令人惊叹的630英尺高的建筑已成为圣路易斯的终极象征。拱门采用不锈钢建造，是世界上最高的拱门，也是密苏里州最高的可进入建筑。芬兰裔美国建筑师埃罗·沙里宁于1947年构思出这一设计，并在1965年10月28日正式落成，实现了他的愿景。这座拱门的未来主义设计长期以来被视为汽车时代的象征，代表着现代都市景观与技术进步带来的未来希望。
-
-拱门基座的中心建筑是旧法院，它曾是密苏里州最高的建筑，其圆顶与美国国会大厦的圆顶相似，这一圆顶是在美国内战期间与国会大厦的圆顶同时建造的。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e8%b7%af%e6%98%93%e6%96%af%e6%8b%b1%e9%97%a8%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250221_1600" "Bing Wallpaper 2025 2月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250222_StLouisArch"&FORM=HPQUIZ "必应主页测验 2025 2月 22")
-[下载480](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_800x480.jpg&rf=LaDigue_800x480.jpg "圣路易斯拱门, 密苏里州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣路易斯拱门, 密苏里州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣路易斯拱门, 密苏里州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_UHD.jpg&rf=LaDigue_UHD.jpg "圣路易斯拱门, 密苏里州, 美国")
 
 ---
