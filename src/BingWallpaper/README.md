@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月10日：小睡片刻，再征服世界
+#### 在伊沙沙区里正在睡觉的狮子，伊丽莎白女王国家公园，乌干达（© Gunter Nuyts/Getty Images）
+
+![小睡片刻，再征服世界](https://cn.bing.com/th?id=OHR.NappingLion_ZH-CN1214312983_800x480.jpg&rf=LaDigue_800x480.jpg "小睡片刻，再征服世界")
+
+感觉有点困？你并不是一个人。夏令时让人少睡了一小时，难怪许多人都会感到昏昏欲睡。这正是午睡日存在的原因。这个非官方节日由波士顿大学教授威廉·安东尼及其妻子卡米尔于 1999 年创立，旨在鼓励人们享受高质量的小憩。该节日通常在时钟调快后的第一个星期一庆祝，提醒人们休息对健康至关重要。研究表明，短暂的小憩可以改善情绪、增强专注力并提升记忆力。午睡还与减轻压力和改善心脏健康密切相关。最佳的“能量午睡”时间为20-30分钟，但即便是几分钟的小憩，也能带来一定的恢复效果。
+
+伊丽莎白女王国家公园占地约 1978 平方公里，以其丰富的野生动物而闻名，尤其是鲁昆吉里区的伊沙沙地区，这里因树栖狮子而备受瞩目。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bc%8a%e4%b8%bd%e8%8e%8e%e7%99%bd%e5%a5%b3%e7%8e%8b%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250309_1600" "Bing Wallpaper 2025 3月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250310_NappingLion"&FORM=HPQUIZ "必应主页测验 2025 3月 10")
+[下载480](https://cn.bing.com/th?id=OHR.NappingLion_ZH-CN1214312983_800x480.jpg&rf=LaDigue_800x480.jpg "在伊沙沙区里正在睡觉的狮子，伊丽莎白女王国家公园，乌干达")
+[下载720](https://cn.bing.com/th?id=OHR.NappingLion_ZH-CN1214312983_1280x720.jpg&rf=LaDigue_1280x720.jpg "在伊沙沙区里正在睡觉的狮子，伊丽莎白女王国家公园，乌干达")
+[下载1080](https://cn.bing.com/th?id=OHR.NappingLion_ZH-CN1214312983_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在伊沙沙区里正在睡觉的狮子，伊丽莎白女王国家公园，乌干达")
+[下载UHD](https://cn.bing.com/th?id=OHR.NappingLion_ZH-CN1214312983_UHD.jpg&rf=LaDigue_UHD.jpg "在伊沙沙区里正在睡觉的狮子，伊丽莎白女王国家公园，乌干达")
+
+---
 ### 03月09日：时间的步伐
 #### 圣马可钟楼，威尼斯，意大利（© scaliger/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_UHD.jpg&rf=LaDigue_UHD.jpg "斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚")
-
----
-### 02月23日：清晨的美好精致
-#### 日出时分的富士山, 河口湖, 日本（© Twenty47studio/Getty Images）
-
-![清晨的美好精致](https://cn.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_800x480.jpg&rf=LaDigue_800x480.jpg "清晨的美好精致")
-
-在东京西南约 60 英里处，矗立着日本的文化象征之一：富士山。这座日本最高峰海拔近12,000英尺，其近乎完美对称的火山锥，每年约有五个月被积雪覆盖，形成壮丽景观。几个世纪以来，富士山一直被视为神圣之山。在神道信仰中，富士山被奉为本宫浅间大社的圣山，并在其视野范围内建有供奉它的神社。
-
-富士山是世界上最大的活火山之一，也是富士火山带的一部分。富士火山带是一条火山链，主要从马里亚纳群岛经伊豆群岛和伊豆半岛到本州北部。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%af%8c%e5%a3%ab%e5%b1%b1&form=hpcapt&filters=HpDate:"20250222_1600" "Bing Wallpaper 2025 2月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250223_MtFujiSunrise"&FORM=HPQUIZ "必应主页测验 2025 2月 23")
-[下载480](https://cn.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_800x480.jpg&rf=LaDigue_800x480.jpg "日出时分的富士山, 河口湖, 日本")
-[下载720](https://cn.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时分的富士山, 河口湖, 日本")
-[下载1080](https://cn.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时分的富士山, 河口湖, 日本")
-[下载UHD](https://cn.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_UHD.jpg&rf=LaDigue_UHD.jpg "日出时分的富士山, 河口湖, 日本")
 
 ---
