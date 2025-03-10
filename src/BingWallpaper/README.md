@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月11日：大海的非凡造化
+#### 努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚（© joakimbkk/Getty Images）
+
+![大海的非凡造化](https://cn.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_800x480.jpg&rf=LaDigue_800x480.jpg "大海的非凡造化")
+
+巴厘岛的海滩已经足够令人惊艳，但努沙佩尼达岛的风景却更别具一格。这座远离主流旅游线路的岛屿隶属于巴厘省，以狂野自然之美闻名，壮观的悬崖、湛蓝的海水和未受污染的海岸线，让游客暂时远离巴厘岛的繁华，沉浸在大自然的宁静之中。“努沙佩尼达”在当地语言中意为“祭司之岛”，历史上这里曾是精神修行之地，至今仍保留着传统寺庙和宗教仪式。
+
+努沙佩尼达岛的居民使用一种独特的巴厘语方言，称为努沙佩尼达巴厘语。这种语言与巴厘岛本岛的巴厘语不同，据说更接近巴厘阿加人的原住民语言，因此岛上居民与本岛居民无法直接交流。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8a%aa%e6%b2%99%e4%bd%a9%e5%b0%bc%e8%be%be%e5%b2%9b&form=hpcapt&filters=HpDate:"20250310_1600" "Bing Wallpaper 2025 3月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250311_NusaPenida"&FORM=HPQUIZ "必应主页测验 2025 3月 11")
+[下载480](https://cn.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_800x480.jpg&rf=LaDigue_800x480.jpg "努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_1280x720.jpg&rf=LaDigue_1280x720.jpg "努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_UHD.jpg&rf=LaDigue_UHD.jpg "努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚")
+
+---
 ### 03月10日：小睡片刻，再征服世界
 #### 在伊沙沙区里正在睡觉的狮子，伊丽莎白女王国家公园，乌干达（© Gunter Nuyts/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_1280x720.jpg&rf=LaDigue_1280x720.jpg "砂岩石柱，布莱斯峡谷国家公园，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "砂岩石柱，布莱斯峡谷国家公园，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_UHD.jpg&rf=LaDigue_UHD.jpg "砂岩石柱，布莱斯峡谷国家公园，犹他州，美国")
-
----
-### 02月24日：墨迹与伪装
-#### 斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚（© Gary Bell/Minden Pictures）
-
-![墨迹与伪装](https://cn.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_800x480.jpg&rf=LaDigue_800x480.jpg "墨迹与伪装")
-
-伞膜乌贼以惊人的伪装能力闻名，它能够在瞬间改变外观，与周围环境融为一体。这种乌贼生活在澳大利亚温带和亚热带水域，从昆士兰州的布里斯班到西澳大利亚州的鲨鱼湾，一直延伸至塔斯马尼亚南部海域。今日图片拍摄于南澳大利亚怀阿拉，这里的伞膜乌贼种群存在显著的性别失衡，雄性数量远多于雌性，因此繁殖权的竞争异常激烈。伞膜乌贼，也被称为澳大利亚巨型乌贼，是地球上体型最大的乌贼之一。其外套膜长度可达 20 英寸，触手完全伸展时总长度可达 39 英寸。体重超过 23 磅。和所有乌贼一样，伞膜乌贼拥有八条腕足、两条触手、三颗心脏和蓝色的血液。不过，它最引人注目的特征是其皮肤中的色素胞，能够迅速改变颜色和图案，以达到伪装的目的。尽管伞膜乌贼是色盲，但其眼睛配备了光感受器，能够检测线性偏振光，从而在捕食和伪装时仍能精确感知周围环境。
-
-一项生物能量学研究发现，伞膜乌贼主要在白天活动，其活动范围较小（90 至 550 米或 300 至 1800 英尺），但在繁殖季节会迁徙长距离。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bc%9e%e8%86%9c%e4%b9%8c%e8%b4%bc&form=hpcapt&filters=HpDate:"20250223_1600" "Bing Wallpaper 2025 2月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250224_GiantCuttlefish"&FORM=HPQUIZ "必应主页测验 2025 2月 24")
-[下载480](https://cn.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_800x480.jpg&rf=LaDigue_800x480.jpg "斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_UHD.jpg&rf=LaDigue_UHD.jpg "斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚")
 
 ---
