@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月12日：屹立不倒
+#### 卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国（© StockPhotoAstur/Shutterstock）
+
+![屹立不倒](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_800x480.jpg&rf=LaDigue_800x480.jpg "屹立不倒")
+
+如果你是历史爱好者，又喜欢一点跌宕起伏的戏剧故事，那么位于法国北部中心的卢瓦尔河畔叙利城堡一定不会让你失望。这座城堡经历了战乱、权力更迭以及皇室恩怨，承载着波澜壮阔的法国历史。这座中世纪城堡始建于 14 世纪，最初用于守护卢瓦尔河，并控制通往该地区的战略通道。随着时间的推移，城堡逐渐演变为贵族住所，最著名的主人之一是叙利公爵马克西米利安·德·贝蒂讷，他曾是亨利四世国王最信赖的大臣之一。在1562 年至 1598 年的法国宗教战争期间，城堡发挥了重要作用，并见证了无数政治斗争与外交谈判。1940 年二战期间，城堡的城墙被炮弹击中，留下巨大的弹孔，但整体结构依然完好无损。
+
+卢瓦尔河畔叙利城堡被法国文化部列为历史古迹。如今，这座城堡属于卢瓦雷省，并经历了多次修复。每年六月，这里都会举办古典音乐节。同时也是苏利公爵及其第二任妻子的长眠之地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a2%e7%93%a6%e5%b0%94%e6%b2%b3%e7%95%94%e5%8f%99%e5%88%a9%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20250311_1600" "Bing Wallpaper 2025 3月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250312_ChateauLoire"&FORM=HPQUIZ "必应主页测验 2025 3月 12")
+[下载480](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_800x480.jpg&rf=LaDigue_800x480.jpg "卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国")
+[下载720](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_1280x720.jpg&rf=LaDigue_1280x720.jpg "卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国")
+[下载1080](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_UHD.jpg&rf=LaDigue_UHD.jpg "卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国")
+
+---
 ### 03月11日：大海的非凡造化
 #### 努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚（© joakimbkk/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_1280x720.jpg&rf=LaDigue_1280x720.jpg "莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_UHD.jpg&rf=LaDigue_UHD.jpg "莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰")
-
----
-### 02月25日：风蚀石们的问候
-#### 砂岩石柱，布莱斯峡谷国家公园，犹他州，美国（© Stephen Matera/TANDEM Stills + Motion）
-
-![风蚀石们的问候](https://cn.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_800x480.jpg&rf=LaDigue_800x480.jpg "风蚀石们的问候")
-
-在美国犹他州，布莱斯峡谷国家公园以其壮观的砂岩迷宫和独特的岩柱景观闻名于世。这里的历史可追溯至少10,000年前，曾是阿纳齐族人、普韦布洛人和派尤特人的家园。公园里的岩柱是由侵蚀作用形成的高耸岩石尖塔，在派尤特部落的创世神话中占据重要地位。根据传说，这些岩柱曾是“传说中的人”， 因狡猾的郊狼施下的诅咒而化为石头。
-
-布莱斯峡谷国家公园的夜空亮度为7.4级，是北美最黑暗的夜空之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e8%8e%b1%e6%96%af%e5%b3%a1%e8%b0%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250224_1600" "Bing Wallpaper 2025 2月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250225_BryceHoodoos"&FORM=HPQUIZ "必应主页测验 2025 2月 25")
-[下载480](https://cn.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_800x480.jpg&rf=LaDigue_800x480.jpg "砂岩石柱，布莱斯峡谷国家公园，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_1280x720.jpg&rf=LaDigue_1280x720.jpg "砂岩石柱，布莱斯峡谷国家公园，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "砂岩石柱，布莱斯峡谷国家公园，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_UHD.jpg&rf=LaDigue_UHD.jpg "砂岩石柱，布莱斯峡谷国家公园，犹他州，美国")
 
 ---
