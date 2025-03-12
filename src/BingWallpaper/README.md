@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月13日：洒满色彩的欢乐
+#### 洒红节庆祝活动，斋浦尔，印度（© powerofforever/Getty Images）
+
+![洒满色彩的欢乐](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_800x480.jpg&rf=LaDigue_800x480.jpg "洒满色彩的欢乐")
+
+在洒红节期间漫步印度街头，就像走进一个色彩斑斓的万花筒：湛蓝、翠绿、鲜红、明黄、粉色和橙色的颜料在空中飞舞，营造出一场梦幻般的视觉盛宴。这一节日通常在印度教历法的帕尔古那月满月之日庆祝，大约在2月底或3月。这是一个重要的传统，象征着春天的到来和善战胜恶。除了在印度，洒红节也在尼泊尔、孟加拉国、巴基斯坦等地的印度教社区广泛庆祝，同时，在美国等全球各地的印度侨民社区，人们也热情参与这场色彩盛宴。
+
+近年来，多个非政府组织推动安全使用颜色的宣传活动。一些组织致力于生产和推广更安全的天然色彩，这些颜料提取自蔬菜、花卉等天然来源，以减少对健康和环境的影响。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b4%92%e7%ba%a2%e8%8a%82&form=hpcapt&filters=HpDate:"20250312_1600" "Bing Wallpaper 2025 3月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250313_HoliColors"&FORM=HPQUIZ "必应主页测验 2025 3月 13")
+[下载480](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_800x480.jpg&rf=LaDigue_800x480.jpg "洒红节庆祝活动，斋浦尔，印度")
+[下载720](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_1280x720.jpg&rf=LaDigue_1280x720.jpg "洒红节庆祝活动，斋浦尔，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "洒红节庆祝活动，斋浦尔，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_UHD.jpg&rf=LaDigue_UHD.jpg "洒红节庆祝活动，斋浦尔，印度")
+
+---
 ### 03月12日：屹立不倒
 #### 卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国（© StockPhotoAstur/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PolarCub_ZH-CN1179361319_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极熊幼崽，丘吉尔，马尼托巴省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.PolarCub_ZH-CN1179361319_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊幼崽，丘吉尔，马尼托巴省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.PolarCub_ZH-CN1179361319_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊幼崽，丘吉尔，马尼托巴省，加拿大")
-
----
-### 02月26日：苏格兰战略的最佳体现
-#### 莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰（© WLDavies/Getty Images）
-
-![苏格兰战略的最佳体现](https://cn.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_800x480.jpg&rf=LaDigue_800x480.jpg "苏格兰战略的最佳体现")
-
-斯托克尔城堡巍然屹立于阿盖尔莱奇湖的潮汐小岛上，是苏格兰保存最完好、最具风景美感的中世纪塔式城堡之一。它由阿平的斯图尔特家族于1440 年代左右建造，历史上曾迎来王室造访，甚至因一场醉酒赌局短暂易主至坎贝尔家族。尽管到了 19 世纪时已破败不堪，但在 20 世纪中期，这座城堡经历了精心修复，如今仍为私人所有。在夏季，游客可在特定的导游带领下览游探索这座历史遗址。
-
-斯托克城堡坐落在莱奇湖 (Loch Laich) 的一个潮汐小岛上。退潮时，从岸边很难到达这个小岛。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8b%8f%e6%a0%bc%e5%85%b0%e6%96%af%e6%89%98%e5%85%8b%e5%b0%94%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20250225_1600" "Bing Wallpaper 2025 2月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250226_ArgyllStalker"&FORM=HPQUIZ "必应主页测验 2025 2月 26")
-[下载480](https://cn.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_800x480.jpg&rf=LaDigue_800x480.jpg "莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰")
-[下载720](https://cn.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_1280x720.jpg&rf=LaDigue_1280x720.jpg "莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_UHD.jpg&rf=LaDigue_UHD.jpg "莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰")
 
 ---
