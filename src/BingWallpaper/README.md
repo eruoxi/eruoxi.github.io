@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月14日：天空中的圆周率
+#### 索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙（© David Herraez Calzada/plainpicture）
+
+![天空中的圆周率](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_800x480.jpg&rf=LaDigue_800x480.jpg "天空中的圆周率")
+
+计算圆的周长与直径的比值就像 π 一样简单。今天是圆周率日，一个专门庆祝这一数学常数的节日。这个日期之所以被选中，是因为3、1、4正是圆周率π的前三位有效数字。作为一个无理数，圆周率无法被写成分数，其小数部分会无限延伸且不重复。人类对 π 的探索可以追溯到公元前 1900 年左右的古巴比伦和古埃及。
+
+“Sorginetxe”在巴斯克语中意为“女巫的房子”， 这一名称源于当地的民间传说。相传，这座遗迹是女巫在夜晚用纺车上的纺锤，将巨石从恩西亚山脉运来并堆砌而成。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%86%e5%91%a8%e7%8e%87%e6%97%a5&form=hpcapt&filters=HpDate:"20250313_1600" "Bing Wallpaper 2025 3月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250314_BasqueDolmen"&FORM=HPQUIZ "必应主页测验 2025 3月 14")
+[下载480](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_800x480.jpg&rf=LaDigue_800x480.jpg "索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_1280x720.jpg&rf=LaDigue_1280x720.jpg "索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_UHD.jpg&rf=LaDigue_UHD.jpg "索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙")
+
+---
 ### 03月13日：洒满色彩的欢乐
 #### 洒红节庆祝活动，斋浦尔，印度（© powerofforever/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_1280x720.jpg&rf=LaDigue_1280x720.jpg "虎穴寺，不丹")
 [下载1080](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "虎穴寺，不丹")
 [下载UHD](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_UHD.jpg&rf=LaDigue_UHD.jpg "虎穴寺，不丹")
-
----
-### 02月27日：极地关怀
-#### 北极熊幼崽，丘吉尔，马尼托巴省，加拿大（© Eric Baccega/NPL/Minden Pictures）
-
-![极地关怀](https://cn.bing.com/th?id=OHR.PolarCub_ZH-CN1179361319_800x480.jpg&rf=LaDigue_800x480.jpg "极地关怀")
-
-今天，我们将前往北方，参加国际北极熊日。这次活动是了解世界上最大的熊种及其面临的威胁的最佳时机。北极熊原产于北极，分布在阿拉斯加、俄罗斯、格陵兰和斯瓦尔巴群岛。它们也分布在加拿大——比如今天这张照片中的幼崽，拍摄于马尼托巴省丘吉尔。
-
-国际北极熊日是每年2月27日举行的年度活动，这一天恰逢北极熊母熊和幼崽在巢穴中休眠的时期，旨在提高人们对北极熊保护现状的认识。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e5%8c%97%e6%9e%81%e7%86%8a%e6%97%a5&form=hpcapt&filters=HpDate:"20250226_1600" "Bing Wallpaper 2025 2月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250227_PolarCub"&FORM=HPQUIZ "必应主页测验 2025 2月 27")
-[下载480](https://cn.bing.com/th?id=OHR.PolarCub_ZH-CN1179361319_800x480.jpg&rf=LaDigue_800x480.jpg "北极熊幼崽，丘吉尔，马尼托巴省，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.PolarCub_ZH-CN1179361319_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极熊幼崽，丘吉尔，马尼托巴省，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.PolarCub_ZH-CN1179361319_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊幼崽，丘吉尔，马尼托巴省，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.PolarCub_ZH-CN1179361319_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊幼崽，丘吉尔，马尼托巴省，加拿大")
 
 ---
