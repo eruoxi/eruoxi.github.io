@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月15日：“朋友们，罗马人，同胞们…”
+#### 罗马广场上的罗马萨图尔诺农神庙，罗马，意大利（© Nico De Pasquale Photography/Getty Images）
+
+![“朋友们，罗马人，同胞们…”](https://cn.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_800x480.jpg&rf=LaDigue_800x480.jpg "“朋友们，罗马人，同胞们…”")
+
+正如莎士比亚在其戏剧《尤利乌斯·凯撒》中所写：“朋友们，罗马人，同胞们，请听我说。”今天是三月十五日，一个深深烙印在罗马历史与传统中的日子。在罗马历法中，“十五日”指的是每月的中旬，通常标志着满月。这一天曾是庆祝节日和公共集会的日子。然而，在公元前 44 年，三月十五日成为政治动荡与背叛的代名词，并引发了罗马共和国覆灭的关键事件。在那个决定性的日子，罗马独裁者凯撒遭到一群元老院成员的刺杀。其中甚至包括他的亲密盟友布鲁图斯。这些密谋者自认为是在拯救共和国，阻止凯撒权力日益膨胀。凯撒在庞贝剧院附近遇刺，这一历史性时刻的影响却回荡在罗马广场，这里曾是罗马政治与社会生活的中心。
+
+这座神庙最初的落成时间传统上可追溯至公元前497年，但古代文献对于此地的历史存在极大分歧。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%bd%97%e9%a9%ac%e8%90%a8%e5%9b%be%e5%b0%94%e8%af%ba%e5%86%9c%e7%a5%9e%e5%ba%99&form=hpcapt&filters=HpDate:"20250314_1600" "Bing Wallpaper 2025 3月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250315_ForumRomanum"&FORM=HPQUIZ "必应主页测验 2025 3月 15")
+[下载480](https://cn.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_800x480.jpg&rf=LaDigue_800x480.jpg "罗马广场上的罗马萨图尔诺农神庙，罗马，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗马广场上的罗马萨图尔诺农神庙，罗马，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗马广场上的罗马萨图尔诺农神庙，罗马，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_UHD.jpg&rf=LaDigue_UHD.jpg "罗马广场上的罗马萨图尔诺农神庙，罗马，意大利")
+
+---
 ### 03月14日：天空中的圆周率
 #### 索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙（© David Herraez Calzada/plainpicture）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MaligneLakeJasper_ZH-CN2664289451_1280x720.jpg&rf=LaDigue_1280x720.jpg "玛琳湖精灵岛上空的北极光，贾斯珀国家公园，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.MaligneLakeJasper_ZH-CN2664289451_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玛琳湖精灵岛上空的北极光，贾斯珀国家公园，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.MaligneLakeJasper_ZH-CN2664289451_UHD.jpg&rf=LaDigue_UHD.jpg "玛琳湖精灵岛上空的北极光，贾斯珀国家公园，加拿大")
-
----
-### 02月28日：在虎穴小憩
-#### 虎穴寺，不丹（© Baron Reznik/Getty Images）
-
-![在虎穴小憩](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_800x480.jpg&rf=LaDigue_800x480.jpg "在虎穴小憩")
-
-今日图片带我们来到不丹海拔10000英尺的虎穴寺，这座佛教寺院和圣地也被称为帕罗虎穴寺，它建于1692年，围绕塔克桑森给桑杜普洞穴而建。据传，这里是莲花生大师修行和传授金刚乘佛教给弟子的地方，他是将该教派引入不丹的重要人物。帕罗虎穴寺由四座主殿组成，主殿之间通过凿刻在悬崖上的阶梯相连，并有几座摇摇欲坠的吊桥横跨其中。
-
-1998 年4月19日，虎穴寺的主建筑发生火灾，导致珍贵的壁画、文物和雕像被焚毁。据推测，火灾可能是由电路短路或酥油灯火焰接触悬挂的壁毯所引起的。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%8d%e4%b8%b9%e8%99%8e%e7%a9%b4%e5%af%ba&form=hpcapt&filters=HpDate:"20250227_1600" "Bing Wallpaper 2025 2月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250228_BhutanMonastery"&FORM=HPQUIZ "必应主页测验 2025 2月 28")
-[下载480](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_800x480.jpg&rf=LaDigue_800x480.jpg "虎穴寺，不丹")
-[下载720](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_1280x720.jpg&rf=LaDigue_1280x720.jpg "虎穴寺，不丹")
-[下载1080](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "虎穴寺，不丹")
-[下载UHD](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_UHD.jpg&rf=LaDigue_UHD.jpg "虎穴寺，不丹")
 
 ---
