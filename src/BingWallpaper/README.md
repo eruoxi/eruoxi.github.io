@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月16日：回归黑白世界
+#### 雪地里的大熊猫宝宝，中国（© Cheryl Schneider/Alamy Stock Photo）
+
+![回归黑白世界](https://cn.bing.com/th?id=OHR.PandaSnow_ZH-CN5981854301_800x480.jpg&rf=LaDigue_800x480.jpg "回归黑白世界")
+
+让我们一起庆祝大自然最毛茸茸的珍宝之一：大熊猫。这些标志性的黑白色熊原产于中国，不仅仅因可爱而闻名。它们在竹林生态系统中发挥着关键作用，通过传播种子和促进植被生长，造福无数动植物。
+
+熊猫每天要花14个小时咀嚼竹子，一天最多可吃83磅！它们独特的“第六指”实则是手掌前端增大的手腕部骨骼，帮助它们更轻松地抓握竹子。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e7%86%8a%e7%8c%ab&form=hpcapt&filters=HpDate:"20250315_1600" "Bing Wallpaper 2025 3月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250316_PandaSnow"&FORM=HPQUIZ "必应主页测验 2025 3月 16")
+[下载480](https://cn.bing.com/th?id=OHR.PandaSnow_ZH-CN5981854301_800x480.jpg&rf=LaDigue_800x480.jpg "雪地里的大熊猫宝宝，中国")
+[下载720](https://cn.bing.com/th?id=OHR.PandaSnow_ZH-CN5981854301_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪地里的大熊猫宝宝，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.PandaSnow_ZH-CN5981854301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪地里的大熊猫宝宝，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PandaSnow_ZH-CN5981854301_UHD.jpg&rf=LaDigue_UHD.jpg "雪地里的大熊猫宝宝，中国")
+
+---
 ### 03月15日：“朋友们，罗马人，同胞们…”
 #### 罗马广场上的罗马萨图尔诺农神庙，罗马，意大利（© Nico De Pasquale Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EucalyptusForest_ZH-CN3052498076_1280x720.jpg&rf=LaDigue_1280x720.jpg "桉树，梅加龙谷，蓝山山脉国家公园，新南威尔士州，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.EucalyptusForest_ZH-CN3052498076_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "桉树，梅加龙谷，蓝山山脉国家公园，新南威尔士州，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.EucalyptusForest_ZH-CN3052498076_UHD.jpg&rf=LaDigue_UHD.jpg "桉树，梅加龙谷，蓝山山脉国家公园，新南威尔士州，澳大利亚")
-
----
-### 03月01日：天空之镜
-#### 玛琳湖精灵岛上空的北极光，贾斯珀国家公园，加拿大（© Mumemories/Getty Images）
-
-![天空之镜](https://cn.bing.com/th?id=OHR.MaligneLakeJasper_ZH-CN2664289451_800x480.jpg&rf=LaDigue_800x480.jpg "天空之镜")
-
-有些地方仿佛被时间遗忘。在加拿大阿尔伯塔省贾斯珀国家公园深处，就有这样一个世外桃源：玛琳湖。这条长达22 公里的蜿蜒湖泊，穿越巍峨群山，是加拿大落基山脉中最大的天然湖泊。这里，高耸的山峰、冰川融水和无尽的天空交汇，构成了一幅震撼人心的画面。
-
-在这座高海拔贫营养湖畔，野生动物数量惊人。灰熊、黑熊、骡鹿、北美驯鹿、狼、麋鹿和大角羊等大型哺乳动物，都会在夏季来到湖区。白头海雕、金雕和鱼鹰也常出没于此，以湖中的鱼群为食。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8e%9b%e7%90%b3%e6%b9%96&form=hpcapt&filters=HpDate:"20250228_1600" "Bing Wallpaper 2025 3月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250301_MaligneLakeJasper"&FORM=HPQUIZ "必应主页测验 2025 3月 1")
-[下载480](https://cn.bing.com/th?id=OHR.MaligneLakeJasper_ZH-CN2664289451_800x480.jpg&rf=LaDigue_800x480.jpg "玛琳湖精灵岛上空的北极光，贾斯珀国家公园，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.MaligneLakeJasper_ZH-CN2664289451_1280x720.jpg&rf=LaDigue_1280x720.jpg "玛琳湖精灵岛上空的北极光，贾斯珀国家公园，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.MaligneLakeJasper_ZH-CN2664289451_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玛琳湖精灵岛上空的北极光，贾斯珀国家公园，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.MaligneLakeJasper_ZH-CN2664289451_UHD.jpg&rf=LaDigue_UHD.jpg "玛琳湖精灵岛上空的北极光，贾斯珀国家公园，加拿大")
 
 ---
