@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月18日：漩涡般的心境
+#### 红色岩层，塞多纳，亚利桑那州，美国（© Jim Ekstrand/Alamy Stock Photo）
+
+![漩涡般的心境](https://cn.bing.com/th?id=OHR.SedonaSpring_ZH-CN6305197600_800x480.jpg&rf=LaDigue_800x480.jpg "漩涡般的心境")
+
+亚利桑那州的塞多纳是一片融合自然奇观、历史遗产与灵性体验的土地。这里坐落着壮丽的红色砂岩地貌，其火红的岩层属于施内布利山地层，由古代海洋沉积物形成，历经数百万年的地质变迁。风化与侵蚀塑造出塞多纳今日的壮观景观，使其在日出和日落时分更显绚丽夺目。这里的威尔逊山、七圣池和大教堂岩等地标，以其奇特的岩层和迷人的景致，吸引着无数游客。
+
+塞多纳自 20 世纪 50 年代开始发展成为旅游胜地、度假住宅区和养老中心。如今，所见的大部分建筑是在 20 世纪 80 年代和 90 年代建造的。截至 2007 年，塞多纳几乎没有大规模未开发的土地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%ba%9a%e5%88%a9%e6%a1%91%e9%82%a3%e5%b7%9e%e5%a1%9e%e5%a4%9a%e7%ba%b3&form=hpcapt&filters=HpDate:"20250317_1600" "Bing Wallpaper 2025 3月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250318_SedonaSpring"&FORM=HPQUIZ "必应主页测验 2025 3月 18")
+[下载480](https://cn.bing.com/th?id=OHR.SedonaSpring_ZH-CN6305197600_800x480.jpg&rf=LaDigue_800x480.jpg "红色岩层，塞多纳，亚利桑那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SedonaSpring_ZH-CN6305197600_1280x720.jpg&rf=LaDigue_1280x720.jpg "红色岩层，塞多纳，亚利桑那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SedonaSpring_ZH-CN6305197600_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红色岩层，塞多纳，亚利桑那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SedonaSpring_ZH-CN6305197600_UHD.jpg&rf=LaDigue_UHD.jpg "红色岩层，塞多纳，亚利桑那州，美国")
+
+---
 ### 03月17日：圣帕特里克节的魅力
 #### 塞缪尔·贝克特桥, 都柏林, 爱尔兰（© Colm Keating/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_1280x720.jpg&rf=LaDigue_1280x720.jpg "杰克逊广场，新奥尔良，路易斯安那州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杰克逊广场，新奥尔良，路易斯安那州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_UHD.jpg&rf=LaDigue_UHD.jpg "杰克逊广场，新奥尔良，路易斯安那州，美国")
-
----
-### 03月03日：狂热野生
-#### 南黄弯嘴犀鸟，克鲁格国家公园 ，南非（© Richard Du Toit/Minden Pictures）
-
-![狂热野生](https://cn.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_800x480.jpg&rf=LaDigue_800x480.jpg "狂热野生")
-
-还有什么比世界野生动植物日更适合关注大自然的时刻呢？这一天提醒我们保护野生动植物是全球共同的责任。今年的主题是“野生动植物投融资：投资于人类与地球”。相关活动侧重于思想交流、提出解决方案，并探讨创新融资如何阻止生物多样性丧失，为更可持续的未来提供可能性。各地的学校、保护组织和野生动物公园会举办如自然徒步、研讨会、艺术比赛、野生动物摄影比赛以及保护主题讲座等一系列活动，以提高人们的认识。在众多野生物种中，南黄弯嘴犀鸟是一个值得关注的例子。正如今日图片所示，这种鸟遍布整个南部非洲，在南非的克鲁格国家公园尤为常见。它们的标志性特征是鲜艳的黄色弯嘴，经常被看到在地面上跳跃觅食。其食物包括昆虫、种子、水果、浆果、坚果和小型爬行动物，在生态系统中扮演捕食者和种子传播者的双重角色。南黄弯嘴犀鸟是群居动物通常成对或组成小群体一起觅食。它们的叫声多样，包括哨声、咕噜声和咯咯声，响彻非洲大草原。
-
-南黄弯嘴犀鸟在清晨、白天和傍晚都很活跃。到了夜晚，它们会栖息在高高的树上，以免成为猎物。它们可以单独行动，也可以成双成对或组成小群体。通常，它们是独居性的鸟类，除非是繁殖季节、筑巢期或旱季的局部迁徙时期。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%85%8b%e9%b2%81%e6%a0%bc%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250302_1600" "Bing Wallpaper 2025 3月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250303_HornbillPair"&FORM=HPQUIZ "必应主页测验 2025 3月 3")
-[下载480](https://cn.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_800x480.jpg&rf=LaDigue_800x480.jpg "南黄弯嘴犀鸟，克鲁格国家公园 ，南非")
-[下载720](https://cn.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_1280x720.jpg&rf=LaDigue_1280x720.jpg "南黄弯嘴犀鸟，克鲁格国家公园 ，南非")
-[下载1080](https://cn.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南黄弯嘴犀鸟，克鲁格国家公园 ，南非")
-[下载UHD](https://cn.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_UHD.jpg&rf=LaDigue_UHD.jpg "南黄弯嘴犀鸟，克鲁格国家公园 ，南非")
 
 ---
