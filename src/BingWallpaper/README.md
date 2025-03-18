@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月19日：伞状捕猎术
+#### 黑鹭捕鱼，乔贝国家公园，博茨瓦纳（© Paul Souders/Minden PIctures）
+
+![伞状捕猎术](https://cn.bing.com/th?id=OHR.BlackHeron_ZH-CN6764711050_800x480.jpg&rf=LaDigue_800x480.jpg "伞状捕猎术")
+
+在聪明的捕猎者世界里，黑鹭独占鳌头。这种鸟主要栖息在浅水区、开阔水域及淡水湖泊和池塘的边缘，也常见于沼泽、稻田、季节性洪泛草地和河岸。乍一看，黑鹭与其他涉禽并无不同：它们同样拥有长腿、细颈和尖喙，这些特征都有助于捕猎。然而，当黑鹭开始捕食时，这种乌黑亮丽的非洲鸟类展现出独特的技巧：它会撑起一把“伞”，正如今日图片所示。在捕鱼时，黑鹭会低下头，张开双翼环绕身体，形成一个遮蔽的圆形阴影。这种聪明的捕猎技巧被称为“伞状捕猎”。关于这一行为最常见的理论认为，小鱼在寻找遮蔽时会被黑鹭的翅膀所制造的阴影吸引，从而游入它的陷阱。此外，阴影还能起到类似偏光太阳镜的作用，能减少水面反光，提高苍鹭在水下的视力。同时，这一动作还能帮助黑鹭隐藏自己，进一步增强捕猎的成功率。
+
+黑鹭的巢由树枝搭建而成，通常位于水边的树上、灌木丛或芦苇丛中，结构坚固。黑鹭在雨季初期筑巢，既可以单独筑巢，也可以与其他鸟类混群，形成规模可达数百只的群落。黑鹭的蛋呈深蓝色，每窝产卵两到四枚。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%bb%91%e9%b9%ad&form=hpcapt&filters=HpDate:"20250318_1600" "Bing Wallpaper 2025 3月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250319_BlackHeron"&FORM=HPQUIZ "必应主页测验 2025 3月 19")
+[下载480](https://cn.bing.com/th?id=OHR.BlackHeron_ZH-CN6764711050_800x480.jpg&rf=LaDigue_800x480.jpg "黑鹭捕鱼，乔贝国家公园，博茨瓦纳")
+[下载720](https://cn.bing.com/th?id=OHR.BlackHeron_ZH-CN6764711050_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑鹭捕鱼，乔贝国家公园，博茨瓦纳")
+[下载1080](https://cn.bing.com/th?id=OHR.BlackHeron_ZH-CN6764711050_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑鹭捕鱼，乔贝国家公园，博茨瓦纳")
+[下载UHD](https://cn.bing.com/th?id=OHR.BlackHeron_ZH-CN6764711050_UHD.jpg&rf=LaDigue_UHD.jpg "黑鹭捕鱼，乔贝国家公园，博茨瓦纳")
+
+---
 ### 03月18日：漩涡般的心境
 #### 红色岩层，塞多纳，亚利桑那州，美国（© Jim Ekstrand/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SuratThani_ZH-CN6836438823_1280x720.jpg&rf=LaDigue_1280x720.jpg "俯瞰考索国家公园，素叻府，泰国")
 [下载1080](https://cn.bing.com/th?id=OHR.SuratThani_ZH-CN6836438823_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "俯瞰考索国家公园，素叻府，泰国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SuratThani_ZH-CN6836438823_UHD.jpg&rf=LaDigue_UHD.jpg "俯瞰考索国家公园，素叻府，泰国")
-
----
-### 03月04日：马蒂·格拉斯狂欢节
-#### 杰克逊广场，新奥尔良，路易斯安那州，美国（© SeanPavonePhoto/Getty Images）
-
-![马蒂·格拉斯狂欢节](https://cn.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_800x480.jpg&rf=LaDigue_800x480.jpg "马蒂·格拉斯狂欢节")
-
-新奥尔良与狂欢节密不可分，这一传统自1699年起就在这里庆祝。如今，色彩斑斓的游行队伍、戴着面具的狂欢者，以及标志性的社团，已成为这座城市庆典的象征。今日图片中的杰克逊广场位于法国区，见证了这些热闹非凡的传统。该广场始建于19世纪初，至今仍是游客感受狂欢节氛围的核心地点。1872 年，雷克斯狂欢组织确定了狂欢节的官方颜色：紫色代表正义，绿色代表信仰，金色代表权力。无论是品尝国王蛋糕，还是欣赏华丽的花车巡游，马蒂·格拉斯狂欢节都能带来一场难忘的文化盛宴。
-
-马蒂·格拉斯狂欢节已逐渐演变成展示多元民族风情的大舞台和各族人民共同参与、分享快乐的好机会。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e8%92%82%c2%b7%e6%a0%bc%e6%8b%89%e6%96%af%e7%8b%82%e6%ac%a2%e8%8a%82&form=hpcapt&filters=HpDate:"20250303_1600" "Bing Wallpaper 2025 3月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250304_MardiGrasJackson"&FORM=HPQUIZ "必应主页测验 2025 3月 4")
-[下载480](https://cn.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_800x480.jpg&rf=LaDigue_800x480.jpg "杰克逊广场，新奥尔良，路易斯安那州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_1280x720.jpg&rf=LaDigue_1280x720.jpg "杰克逊广场，新奥尔良，路易斯安那州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杰克逊广场，新奥尔良，路易斯安那州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_UHD.jpg&rf=LaDigue_UHD.jpg "杰克逊广场，新奥尔良，路易斯安那州，美国")
 
 ---
