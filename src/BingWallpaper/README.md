@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月22日：水的奇妙世界！
+#### 尼特哈天然井水面上的睡莲，图卢姆，墨西哥（© Franco Banfi/NPL/Minden）
+
+![水的奇妙世界！](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_800x480.jpg&rf=LaDigue_800x480.jpg "水的奇妙世界！")
+
+3 月 22 日是世界水日，这是联合国发起的一项倡议，旨在强调淡水及其保护的重要性。这一天不仅提高了人们对全球水危机的认识，并推动采取行动以确保所有人都能获得清洁水源。淡水不仅是生命之源，还是维持生态平衡、农业发展，甚至文化传承的重要基石。
+
+2025 年世界水日的主题是“冰川保护”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b0%b4%e6%97%a5&form=hpcapt&filters=HpDate:"20250321_1600" "Bing Wallpaper 2025 3月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250322_CenoteLilies"&FORM=HPQUIZ "必应主页测验 2025 3月 22")
+[下载480](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_800x480.jpg&rf=LaDigue_800x480.jpg "尼特哈天然井水面上的睡莲，图卢姆，墨西哥")
+[下载720](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_1280x720.jpg&rf=LaDigue_1280x720.jpg "尼特哈天然井水面上的睡莲，图卢姆，墨西哥")
+[下载1080](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "尼特哈天然井水面上的睡莲，图卢姆，墨西哥")
+[下载UHD](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_UHD.jpg&rf=LaDigue_UHD.jpg "尼特哈天然井水面上的睡莲，图卢姆，墨西哥")
+
+---
 ### 03月21日：树木万岁
 #### 低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚（© Nick Garbutt/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_1280x720.jpg&rf=LaDigue_1280x720.jpg "石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_UHD.jpg&rf=LaDigue_UHD.jpg "石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国")
-
----
-### 03月07日：花开中国
-#### 中国的梅花（© zhikun sun/Getty Images）
-
-![花开中国](https://cn.bing.com/th?id=OHR.PlumBlossom_ZH-CN5888621119_800x480.jpg&rf=LaDigue_800x480.jpg "花开中国")
-
-在杭州西湖，这些转瞬即逝的花朵吸引了无数游客，他们纷纷前来欣赏这短暂而绚丽的美景。在中国文化中，梅花象征着纯洁和春天的到来，而在日本，它则代表新的开始。梅花即使在严寒的冬季也能傲然绽放，这种特性使其成为坚毅与希望的象征。目前已知的梅花品种超过 300 种，适应各种园林环境，呈现出丰富多样的形态和颜色。除了视觉上的吸引力，梅花还被用于传统美食，如花茶和酸甜可口的梅子蜜饯。看到这里，为何不亲自去感受这份独特的魅力呢？
-
-在中国传统文化中，梅以它的高洁、坚强、谦虚的品格，给人以立志奋发的激励。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e7%9a%84%e6%a2%85%e8%8a%b1&form=hpcapt&filters=HpDate:"20250306_1600" "Bing Wallpaper 2025 3月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250307_PlumBlossom"&FORM=HPQUIZ "必应主页测验 2025 3月 7")
-[下载480](https://cn.bing.com/th?id=OHR.PlumBlossom_ZH-CN5888621119_800x480.jpg&rf=LaDigue_800x480.jpg "中国的梅花")
-[下载720](https://cn.bing.com/th?id=OHR.PlumBlossom_ZH-CN5888621119_1280x720.jpg&rf=LaDigue_1280x720.jpg "中国的梅花")
-[下载1080](https://cn.bing.com/th?id=OHR.PlumBlossom_ZH-CN5888621119_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国的梅花")
-[下载UHD](https://cn.bing.com/th?id=OHR.PlumBlossom_ZH-CN5888621119_UHD.jpg&rf=LaDigue_UHD.jpg "中国的梅花")
 
 ---
