@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月23日：雷鸣不可阻挡
+#### 鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国（© john finney photography/Getty Images）
+
+![雷鸣不可阻挡](https://cn.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_800x480.jpg&rf=LaDigue_800x480.jpg "雷鸣不可阻挡")
+
+今天，我们庆祝世界气象日，这一纪念日旨在纪念1950年世界气象组织的成立。每年的世界气象日都会关注一个重要的全球气象议题。2025 年的主题“携手缩小预警差距”，强调及时的天气预警和早期行动对于减少灾害损失的重要性。
+
+委内瑞拉的马拉开波湖是世界上雷电活动最频繁的地区，这里存在一种独特的大气现象，被称为“卡塔通博闪电”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b0%94%e8%b1%a1%e6%97%a5&form=hpcapt&filters=HpDate:"20250322_1600" "Bing Wallpaper 2025 3月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250323_NebraskaStorm"&FORM=HPQUIZ "必应主页测验 2025 3月 23")
+[下载480](https://cn.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_800x480.jpg&rf=LaDigue_800x480.jpg "鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_1280x720.jpg&rf=LaDigue_1280x720.jpg "鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_UHD.jpg&rf=LaDigue_UHD.jpg "鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国")
+
+---
 ### 03月22日：水的奇妙世界！
 #### 尼特哈天然井水面上的睡莲，图卢姆，墨西哥（© Franco Banfi/NPL/Minden）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣马可钟楼，威尼斯，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣马可钟楼，威尼斯，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_UHD.jpg&rf=LaDigue_UHD.jpg "圣马可钟楼，威尼斯，意大利")
-
----
-### 03月08日：原始纯净的自然天堂
-#### 石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国（© 3quarks/Getty Images）
-
-![原始纯净的自然天堂](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_800x480.jpg&rf=LaDigue_800x480.jpg "原始纯净的自然天堂")
-
-作为联合国教科文组织世界遗产的一部分，石勒苏益格-荷尔斯泰因瓦登海国家公园不仅是一片珍贵的生态系统，同时也是德国北海海岸上的真正自然天堂。公园占地面积达 4410 平方公里，是德国最大的国家公园。在这里，游客可以近距离感受潮汐的奇妙变化，探索这片独特的生态景观。这里栖息着大量鸟类、鱼类和海洋哺乳动物，展现出令人惊叹的生物多样性。
-
-石勒苏益格-荷尔斯泰因瓦登海国家公园与下萨克森瓦登海国家公园、汉堡瓦登海国家公园以及不属于自然保护区的易北河口部分，共同构成了德国瓦登海的一部分。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%9f%b3%e5%8b%92%e8%8b%8f%e7%9b%8a%e6%a0%bc-%e8%8d%b7%e5%b0%94%e6%96%af%e6%b3%b0%e5%9b%a0%e5%b7%9e%e7%93%a6%e7%99%bb%e6%b5%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250307_1600" "Bing Wallpaper 2025 3月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250308_WaddenSeaBiosphereReserve"&FORM=HPQUIZ "必应主页测验 2025 3月 8")
-[下载480](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_800x480.jpg&rf=LaDigue_800x480.jpg "石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国")
-[下载720](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_1280x720.jpg&rf=LaDigue_1280x720.jpg "石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_UHD.jpg&rf=LaDigue_UHD.jpg "石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国")
 
 ---
