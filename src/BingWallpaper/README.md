@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月24日：高草盛宴
+#### 沙漠象与小象在高高的草丛中觅食，纳米比亚（© Christophe Courteau/Minden Pictures）
+
+![高草盛宴](https://cn.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_800x480.jpg&rf=LaDigue_800x480.jpg "高草盛宴")
+
+生活在纳米比亚和马里的沙漠象，实际上是非洲草原象的一种，它们已经适应了纳米布沙漠和撒哈拉沙漠的恶劣环境，这些极度干旱的地区年降雨量不足 2.75 英寸。与其他草原象相比，沙漠象的腿更短、脚掌更宽、体型也略小。它们沿着代代相传的古老迁徙路线，在水源之间移动，寻找季节性的食物和水源。雄性沙漠象通常独自在广阔的区域内游荡，而以雌性为首的家族群体则会靠近河流附近，因为那里食物更丰富。它们的适应能力极其惊人，不仅能够在极端环境下生存，还能在一夜之间跋涉长达 43 英里，只为寻找最爱的没药灌木。
+
+成年雄性大象每天可摄入约250 千克的草料，并饮用约160升的水。然而，即使连续三天不喝水，它们依然能生存。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b2%99%e6%bc%a0%e8%b1%a1&form=hpcapt&filters=HpDate:"20250323_1600" "Bing Wallpaper 2025 3月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250324_ElephantGrass"&FORM=HPQUIZ "必应主页测验 2025 3月 24")
+[下载480](https://cn.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_800x480.jpg&rf=LaDigue_800x480.jpg "沙漠象与小象在高高的草丛中觅食，纳米比亚")
+[下载720](https://cn.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_1280x720.jpg&rf=LaDigue_1280x720.jpg "沙漠象与小象在高高的草丛中觅食，纳米比亚")
+[下载1080](https://cn.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙漠象与小象在高高的草丛中觅食，纳米比亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_UHD.jpg&rf=LaDigue_UHD.jpg "沙漠象与小象在高高的草丛中觅食，纳米比亚")
+
+---
 ### 03月23日：雷鸣不可阻挡
 #### 鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国（© john finney photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NappingLion_ZH-CN1214312983_1280x720.jpg&rf=LaDigue_1280x720.jpg "在伊沙沙区里正在睡觉的狮子，伊丽莎白女王国家公园，乌干达")
 [下载1080](https://cn.bing.com/th?id=OHR.NappingLion_ZH-CN1214312983_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在伊沙沙区里正在睡觉的狮子，伊丽莎白女王国家公园，乌干达")
 [下载UHD](https://cn.bing.com/th?id=OHR.NappingLion_ZH-CN1214312983_UHD.jpg&rf=LaDigue_UHD.jpg "在伊沙沙区里正在睡觉的狮子，伊丽莎白女王国家公园，乌干达")
-
----
-### 03月09日：时间的步伐
-#### 圣马可钟楼，威尼斯，意大利（© scaliger/Getty Images）
-
-![时间的步伐](https://cn.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_800x480.jpg&rf=LaDigue_800x480.jpg "时间的步伐")
-
-又到了一年中的这个时刻，时钟拨快一小时，虽然少睡了一小时，但换来了更长的傍晚时光。今年的夏令时从今天凌晨2点正式开始，亚利桑那州和夏威夷州除外，这再次提醒我们，时间从不会等待任何人。夏令时的理念很简单：最大化利用自然光，减少能源消耗。这一概念最早在 18 世纪由本杰明·富兰克林提出，尽管他当时 “节省蜡烛”的建议更像是一种讽刺，而非严肃提议。时间快进到 20 世纪初，许多国家在战争期间采用夏令时以节省燃料。美国于 1966 年颁布了《统一时间法案》，正式将夏时令标准化。如今，全球约70个国家实行夏令时，通常从3月持续到11月，让人们享受长达八个月的漫长夜晚。
-
-2014年6月10日，俄罗斯通过相关法案，决定取消自2011年以来实施的“永久夏令时”，改回冬令时，并不再实行冬夏时制的交替调整。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%8f%e4%bb%a4%e6%97%b6&form=hpcapt&filters=HpDate:"20250308_1600" "Bing Wallpaper 2025 3月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250309_ItalyClock"&FORM=HPQUIZ "必应主页测验 2025 3月 9")
-[下载480](https://cn.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_800x480.jpg&rf=LaDigue_800x480.jpg "圣马可钟楼，威尼斯，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣马可钟楼，威尼斯，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣马可钟楼，威尼斯，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_UHD.jpg&rf=LaDigue_UHD.jpg "圣马可钟楼，威尼斯，意大利")
 
 ---
