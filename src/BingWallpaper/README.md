@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月26日：水面下的生命
+#### 水晶河的海牛，佛罗里达州，美国（© Stephen Frink/Getty Images）
+
+![水面下的生命](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_800x480.jpg&rf=LaDigue_800x480.jpg "水面下的生命")
+
+海牛的生活节奏从不匆忙，它们悠然自得地漂浮在温暖的水域中，咀嚼着海草，静静地度过数百万年的岁月。然而，尽管它们天性温顺，却正面临严峻的生存威胁。为此，每年 3 月的最后一个星期三被定为海牛感恩日，旨在提高人们对海牛保护的意识。
+
+海牛能够进行辨别任务，并展现出复杂的联想学习能力，同时它们还拥有良好的长期记忆。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e7%89%9b%e6%84%9f%e6%81%a9%e6%97%a5&form=hpcapt&filters=HpDate:"20250325_1600" "Bing Wallpaper 2025 3月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250326_CrystalManatee"&FORM=HPQUIZ "必应主页测验 2025 3月 26")
+[下载480](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_800x480.jpg&rf=LaDigue_800x480.jpg "水晶河的海牛，佛罗里达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_1280x720.jpg&rf=LaDigue_1280x720.jpg "水晶河的海牛，佛罗里达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "水晶河的海牛，佛罗里达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_UHD.jpg&rf=LaDigue_UHD.jpg "水晶河的海牛，佛罗里达州，美国")
+
+---
 ### 03月25日：色彩斑斓的访客
 #### 向日葵田里的红额金翅雀，德国（© Juniors Bildarchiv GmbH/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_1280x720.jpg&rf=LaDigue_1280x720.jpg "卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国")
 [下载1080](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_UHD.jpg&rf=LaDigue_UHD.jpg "卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国")
-
----
-### 03月11日：大海的非凡造化
-#### 努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚（© joakimbkk/Getty Images）
-
-![大海的非凡造化](https://cn.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_800x480.jpg&rf=LaDigue_800x480.jpg "大海的非凡造化")
-
-巴厘岛的海滩已经足够令人惊艳，但努沙佩尼达岛的风景却更别具一格。这座远离主流旅游线路的岛屿隶属于巴厘省，以狂野自然之美闻名，壮观的悬崖、湛蓝的海水和未受污染的海岸线，让游客暂时远离巴厘岛的繁华，沉浸在大自然的宁静之中。“努沙佩尼达”在当地语言中意为“祭司之岛”，历史上这里曾是精神修行之地，至今仍保留着传统寺庙和宗教仪式。
-
-努沙佩尼达岛的居民使用一种独特的巴厘语方言，称为努沙佩尼达巴厘语。这种语言与巴厘岛本岛的巴厘语不同，据说更接近巴厘阿加人的原住民语言，因此岛上居民与本岛居民无法直接交流。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8a%aa%e6%b2%99%e4%bd%a9%e5%b0%bc%e8%be%be%e5%b2%9b&form=hpcapt&filters=HpDate:"20250310_1600" "Bing Wallpaper 2025 3月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250311_NusaPenida"&FORM=HPQUIZ "必应主页测验 2025 3月 11")
-[下载480](https://cn.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_800x480.jpg&rf=LaDigue_800x480.jpg "努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚")
-[下载720](https://cn.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_1280x720.jpg&rf=LaDigue_1280x720.jpg "努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_UHD.jpg&rf=LaDigue_UHD.jpg "努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚")
 
 ---
