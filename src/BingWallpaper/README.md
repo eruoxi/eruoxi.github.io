@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月27日：向戏剧致敬
+#### 希罗德·阿提库斯剧场，雅典卫城，希腊（© f11photo/Getty Images）
+
+![向戏剧致敬](https://cn.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_800x480.jpg&rf=LaDigue_800x480.jpg "向戏剧致敬")
+
+灯光亮起，帷幕升起，今天是世界戏剧日。自 1961 年以来，国际戏剧协会每年都会举办这一年度盛事，旨在让全球观众和艺术家共同庆祝戏剧的魅力，感受叙事的力量、创造力和文化的交汇。每年，国际戏剧协会都会邀请一位享誉全球的戏剧界代表发表主题演讲，这些演讲被翻译成50多种语言，与世界各地的人们分享。这些演讲强调了戏剧在社会中的重要作用，它既可以是作为现实的镜子，也是推动变革的力量，或是激发想象力的庇护所。无论是莎士比亚的独白，还是先锋实验剧场，戏剧艺术始终在发展演变，但它的核心始终不变：人与人之间的情感联系。
+
+它曾被用作音乐会场地，可容纳5,000名观众。剧场在很长一段时间内保持完好，直到公元267年，它被赫鲁利人摧毁，最终成为废墟。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%88%8f%e5%89%a7%e6%97%a5&form=hpcapt&filters=HpDate:"20250326_1600" "Bing Wallpaper 2025 3月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250327_OdeonAthens"&FORM=HPQUIZ "必应主页测验 2025 3月 27")
+[下载480](https://cn.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_800x480.jpg&rf=LaDigue_800x480.jpg "希罗德·阿提库斯剧场，雅典卫城，希腊")
+[下载720](https://cn.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_1280x720.jpg&rf=LaDigue_1280x720.jpg "希罗德·阿提库斯剧场，雅典卫城，希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "希罗德·阿提库斯剧场，雅典卫城，希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_UHD.jpg&rf=LaDigue_UHD.jpg "希罗德·阿提库斯剧场，雅典卫城，希腊")
+
+---
 ### 03月26日：水面下的生命
 #### 水晶河的海牛，佛罗里达州，美国（© Stephen Frink/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_1280x720.jpg&rf=LaDigue_1280x720.jpg "洒红节庆祝活动，斋浦尔，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "洒红节庆祝活动，斋浦尔，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_UHD.jpg&rf=LaDigue_UHD.jpg "洒红节庆祝活动，斋浦尔，印度")
-
----
-### 03月12日：屹立不倒
-#### 卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国（© StockPhotoAstur/Shutterstock）
-
-![屹立不倒](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_800x480.jpg&rf=LaDigue_800x480.jpg "屹立不倒")
-
-如果你是历史爱好者，又喜欢一点跌宕起伏的戏剧故事，那么位于法国北部中心的卢瓦尔河畔叙利城堡一定不会让你失望。这座城堡经历了战乱、权力更迭以及皇室恩怨，承载着波澜壮阔的法国历史。这座中世纪城堡始建于 14 世纪，最初用于守护卢瓦尔河，并控制通往该地区的战略通道。随着时间的推移，城堡逐渐演变为贵族住所，最著名的主人之一是叙利公爵马克西米利安·德·贝蒂讷，他曾是亨利四世国王最信赖的大臣之一。在1562 年至 1598 年的法国宗教战争期间，城堡发挥了重要作用，并见证了无数政治斗争与外交谈判。1940 年二战期间，城堡的城墙被炮弹击中，留下巨大的弹孔，但整体结构依然完好无损。
-
-卢瓦尔河畔叙利城堡被法国文化部列为历史古迹。如今，这座城堡属于卢瓦雷省，并经历了多次修复。每年六月，这里都会举办古典音乐节。同时也是苏利公爵及其第二任妻子的长眠之地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a2%e7%93%a6%e5%b0%94%e6%b2%b3%e7%95%94%e5%8f%99%e5%88%a9%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20250311_1600" "Bing Wallpaper 2025 3月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250312_ChateauLoire"&FORM=HPQUIZ "必应主页测验 2025 3月 12")
-[下载480](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_800x480.jpg&rf=LaDigue_800x480.jpg "卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国")
-[下载720](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_1280x720.jpg&rf=LaDigue_1280x720.jpg "卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国")
-[下载1080](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_UHD.jpg&rf=LaDigue_UHD.jpg "卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国")
 
 ---
