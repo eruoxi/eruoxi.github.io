@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月28日：温暖舒适的摇篮
+#### 正在筑巢的雌性黑枕王鹟（© komkrit tonusin/Alamy）
+
+![温暖舒适的摇篮](https://cn.bing.com/th?id=OHR.NestingMonarch_ZH-CN7848166951_800x480.jpg&rf=LaDigue_800x480.jpg "温暖舒适的摇篮")
+
+仔细观察，你或许能瞥见黑枕王鹟的身影。这种鸟属于王鹟科的一员，是伯劳鹟、鹊百灵和天堂鹟的近亲。它们分布于南亚热带地区，从伊朗、斯里兰卡到印度尼西亚、菲律宾均可见踪影。黑枕王鹟喜欢茂密的森林及其他植被繁茂的区域。黑枕王鹟的腿短，站姿挺直，并以空中捕食昆虫为主。它们常常与不同种类的鸟群混居，并且在森林冠层的浓密底层活动频繁。在繁殖季节，雌鸟会在树杈间筑起一个温暖的杯状巢穴，通常产下两到三枚蛋，正如今日图片所示。这一鸟巢结构十分独特，由蜘蛛丝和菌丝体交织而成。这种巧妙的构造不仅增强了鸟巢的韧性，还能帮助抵御有害微生物的侵袭，使鸟巢成为一个自给自足的庇护所。更有趣的是，黑枕王鹟还会用蜘蛛卵囊装饰鸟巢，不仅增强伪装效果，增添一丝特别的风格。
+
+当黑枕王鹟进入警戒状态时，颈后的羽毛会竖起，形成锐利的羽冠。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%bb%91%e6%9e%95%e7%8e%8b%e9%b9%9f&form=hpcapt&filters=HpDate:"20250327_1600" "Bing Wallpaper 2025 3月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250328_NestingMonarch"&FORM=HPQUIZ "必应主页测验 2025 3月 28")
+[下载480](https://cn.bing.com/th?id=OHR.NestingMonarch_ZH-CN7848166951_800x480.jpg&rf=LaDigue_800x480.jpg "正在筑巢的雌性黑枕王鹟")
+[下载720](https://cn.bing.com/th?id=OHR.NestingMonarch_ZH-CN7848166951_1280x720.jpg&rf=LaDigue_1280x720.jpg "正在筑巢的雌性黑枕王鹟")
+[下载1080](https://cn.bing.com/th?id=OHR.NestingMonarch_ZH-CN7848166951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "正在筑巢的雌性黑枕王鹟")
+[下载UHD](https://cn.bing.com/th?id=OHR.NestingMonarch_ZH-CN7848166951_UHD.jpg&rf=LaDigue_UHD.jpg "正在筑巢的雌性黑枕王鹟")
+
+---
 ### 03月27日：向戏剧致敬
 #### 希罗德·阿提库斯剧场，雅典卫城，希腊（© f11photo/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_1280x720.jpg&rf=LaDigue_1280x720.jpg "索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_UHD.jpg&rf=LaDigue_UHD.jpg "索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙")
-
----
-### 03月13日：洒满色彩的欢乐
-#### 洒红节庆祝活动，斋浦尔，印度（© powerofforever/Getty Images）
-
-![洒满色彩的欢乐](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_800x480.jpg&rf=LaDigue_800x480.jpg "洒满色彩的欢乐")
-
-在洒红节期间漫步印度街头，就像走进一个色彩斑斓的万花筒：湛蓝、翠绿、鲜红、明黄、粉色和橙色的颜料在空中飞舞，营造出一场梦幻般的视觉盛宴。这一节日通常在印度教历法的帕尔古那月满月之日庆祝，大约在2月底或3月。这是一个重要的传统，象征着春天的到来和善战胜恶。除了在印度，洒红节也在尼泊尔、孟加拉国、巴基斯坦等地的印度教社区广泛庆祝，同时，在美国等全球各地的印度侨民社区，人们也热情参与这场色彩盛宴。
-
-近年来，多个非政府组织推动安全使用颜色的宣传活动。一些组织致力于生产和推广更安全的天然色彩，这些颜料提取自蔬菜、花卉等天然来源，以减少对健康和环境的影响。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b4%92%e7%ba%a2%e8%8a%82&form=hpcapt&filters=HpDate:"20250312_1600" "Bing Wallpaper 2025 3月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250313_HoliColors"&FORM=HPQUIZ "必应主页测验 2025 3月 13")
-[下载480](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_800x480.jpg&rf=LaDigue_800x480.jpg "洒红节庆祝活动，斋浦尔，印度")
-[下载720](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_1280x720.jpg&rf=LaDigue_1280x720.jpg "洒红节庆祝活动，斋浦尔，印度")
-[下载1080](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "洒红节庆祝活动，斋浦尔，印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_UHD.jpg&rf=LaDigue_UHD.jpg "洒红节庆祝活动，斋浦尔，印度")
 
 ---
