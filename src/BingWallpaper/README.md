@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月29日：花海绽放
+#### 卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国（© Robb Hirsch/TANDEM Stills + Motion）
+
+![花海绽放](https://cn.bing.com/th?id=OHR.CarrizoBloom_ZH-CN7967467357_800x480.jpg&rf=LaDigue_800x480.jpg "花海绽放")
+
+在沙漠地区，大片花朵绽放的景象并不常见，但在超级花海期间，原本干旱的土地将被无尽的花田覆盖。这种罕见的自然现象发生在美国加利福尼亚州和亚利桑那州，当雨季来临，沉睡在土壤中的野花种子被唤醒，形成壮观的花海景观。加利福尼亚州的超级花海通常每十年出现一次，然而21 世纪持续的干旱使其愈发罕见。超级花海不仅展示了加州丰富的植物多样性，还吸引游客前来观赏，短暂地促进当地经济发展。今日图片中的卡里佐平原国家纪念碑正是观赏这一壮观景象的最佳地点之一。这片广阔的封闭型草原位于加利福尼亚州圣路易斯奥比斯波县东南部，全长约50英里，宽约15英里。坦布洛山脉和卡连特山脉的山丘，以及苏打湖附近的谷地，都会变成一片五彩斑斓的野花拼图，绚丽至极。你曾有幸见过超级花海吗？
+
+在南非西海岸，从开普敦到纳马夸兰的干旱地带，每逢雨季，就会出现类似的花海现象。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e5%88%a9%e7%a6%8f%e5%b0%bc%e4%ba%9a%e5%b7%9e%e8%b6%85%e7%ba%a7%e8%8a%b1%e6%9c%9f&form=hpcapt&filters=HpDate:"20250328_1600" "Bing Wallpaper 2025 3月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250329_CarrizoBloom"&FORM=HPQUIZ "必应主页测验 2025 3月 29")
+[下载480](https://cn.bing.com/th?id=OHR.CarrizoBloom_ZH-CN7967467357_800x480.jpg&rf=LaDigue_800x480.jpg "卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CarrizoBloom_ZH-CN7967467357_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CarrizoBloom_ZH-CN7967467357_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CarrizoBloom_ZH-CN7967467357_UHD.jpg&rf=LaDigue_UHD.jpg "卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国")
+
+---
 ### 03月28日：温暖舒适的摇篮
 #### 正在筑巢的雌性黑枕王鹟（© komkrit tonusin/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗马广场上的罗马萨图尔诺农神庙，罗马，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗马广场上的罗马萨图尔诺农神庙，罗马，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_UHD.jpg&rf=LaDigue_UHD.jpg "罗马广场上的罗马萨图尔诺农神庙，罗马，意大利")
-
----
-### 03月14日：天空中的圆周率
-#### 索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙（© David Herraez Calzada/plainpicture）
-
-![天空中的圆周率](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_800x480.jpg&rf=LaDigue_800x480.jpg "天空中的圆周率")
-
-计算圆的周长与直径的比值就像 π 一样简单。今天是圆周率日，一个专门庆祝这一数学常数的节日。这个日期之所以被选中，是因为3、1、4正是圆周率π的前三位有效数字。作为一个无理数，圆周率无法被写成分数，其小数部分会无限延伸且不重复。人类对 π 的探索可以追溯到公元前 1900 年左右的古巴比伦和古埃及。
-
-“Sorginetxe”在巴斯克语中意为“女巫的房子”， 这一名称源于当地的民间传说。相传，这座遗迹是女巫在夜晚用纺车上的纺锤，将巨石从恩西亚山脉运来并堆砌而成。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%86%e5%91%a8%e7%8e%87%e6%97%a5&form=hpcapt&filters=HpDate:"20250313_1600" "Bing Wallpaper 2025 3月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250314_BasqueDolmen"&FORM=HPQUIZ "必应主页测验 2025 3月 14")
-[下载480](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_800x480.jpg&rf=LaDigue_800x480.jpg "索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_1280x720.jpg&rf=LaDigue_1280x720.jpg "索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_UHD.jpg&rf=LaDigue_UHD.jpg "索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙")
 
 ---
