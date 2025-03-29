@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月30日：尽享美景
+#### 悉尼港鸟瞰图，新南威尔士州，澳大利亚（© jamenpercy/Getty Images）
+
+![尽享美景](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_800x480.jpg&rf=LaDigue_800x480.jpg "尽享美景")
+
+今日图片展示了悉尼的著名景点，波光粼粼的海面映衬着世界级地标：杰克逊港，也就是人们更熟知的悉尼港。在图片右侧，可以俯瞰到悉尼歌剧院，这座建筑杰作以白色帆状外壳闻名，在澳大利亚的阳光下熠熠生辉作为联合国教科文组织世界遗产，该建筑由丹麦建筑师约恩·乌松 设计，耗时 14 年建成。如今，它每年举办超过 1500 场演出，是全球最知名的文化艺术中心之一。图片左侧，横跨港湾的是悉尼海港大桥，因其拱形钢架结构而被亲切地称为“衣架”，连接着悉尼的南北两岸。这座桥1932 年开通时，是世界上最宽的长跨度桥梁。喜欢冒险的游客还可以攀登桥顶，到达 440 英尺的高度，俯瞰令人惊叹的悉尼全景。
+
+杰克逊港，即悉尼港，是澳大利亚大陆上首个欧洲人定居点和殖民地的所在地，并一直在悉尼的历史与发展中扮演着重要角色。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%be%b3%e5%a4%a7%e5%88%a9%e4%ba%9a%e6%9d%b0%e5%85%8b%e9%80%8a%e6%b8%af&form=hpcapt&filters=HpDate:"20250329_1600" "Bing Wallpaper 2025 3月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250330_SydneyHarbour"&FORM=HPQUIZ "必应主页测验 2025 3月 30")
+[下载480](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_800x480.jpg&rf=LaDigue_800x480.jpg "悉尼港鸟瞰图，新南威尔士州，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_1280x720.jpg&rf=LaDigue_1280x720.jpg "悉尼港鸟瞰图，新南威尔士州，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "悉尼港鸟瞰图，新南威尔士州，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_UHD.jpg&rf=LaDigue_UHD.jpg "悉尼港鸟瞰图，新南威尔士州，澳大利亚")
+
+---
 ### 03月29日：花海绽放
 #### 卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国（© Robb Hirsch/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PandaSnow_ZH-CN5981854301_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪地里的大熊猫宝宝，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.PandaSnow_ZH-CN5981854301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪地里的大熊猫宝宝，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PandaSnow_ZH-CN5981854301_UHD.jpg&rf=LaDigue_UHD.jpg "雪地里的大熊猫宝宝，中国")
-
----
-### 03月15日：“朋友们，罗马人，同胞们…”
-#### 罗马广场上的罗马萨图尔诺农神庙，罗马，意大利（© Nico De Pasquale Photography/Getty Images）
-
-![“朋友们，罗马人，同胞们…”](https://cn.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_800x480.jpg&rf=LaDigue_800x480.jpg "“朋友们，罗马人，同胞们…”")
-
-正如莎士比亚在其戏剧《尤利乌斯·凯撒》中所写：“朋友们，罗马人，同胞们，请听我说。”今天是三月十五日，一个深深烙印在罗马历史与传统中的日子。在罗马历法中，“十五日”指的是每月的中旬，通常标志着满月。这一天曾是庆祝节日和公共集会的日子。然而，在公元前 44 年，三月十五日成为政治动荡与背叛的代名词，并引发了罗马共和国覆灭的关键事件。在那个决定性的日子，罗马独裁者凯撒遭到一群元老院成员的刺杀。其中甚至包括他的亲密盟友布鲁图斯。这些密谋者自认为是在拯救共和国，阻止凯撒权力日益膨胀。凯撒在庞贝剧院附近遇刺，这一历史性时刻的影响却回荡在罗马广场，这里曾是罗马政治与社会生活的中心。
-
-这座神庙最初的落成时间传统上可追溯至公元前497年，但古代文献对于此地的历史存在极大分歧。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%bd%97%e9%a9%ac%e8%90%a8%e5%9b%be%e5%b0%94%e8%af%ba%e5%86%9c%e7%a5%9e%e5%ba%99&form=hpcapt&filters=HpDate:"20250314_1600" "Bing Wallpaper 2025 3月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250315_ForumRomanum"&FORM=HPQUIZ "必应主页测验 2025 3月 15")
-[下载480](https://cn.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_800x480.jpg&rf=LaDigue_800x480.jpg "罗马广场上的罗马萨图尔诺农神庙，罗马，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗马广场上的罗马萨图尔诺农神庙，罗马，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗马广场上的罗马萨图尔诺农神庙，罗马，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_UHD.jpg&rf=LaDigue_UHD.jpg "罗马广场上的罗马萨图尔诺农神庙，罗马，意大利")
 
 ---
