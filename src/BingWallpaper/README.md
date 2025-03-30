@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月31日：普利亚的“白色之城”
+#### 黄昏下的奥斯图尼, 普利亚, 意大利（© Feng Wei Photography/Getty Images）
+
+![普利亚的“白色之城”](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_800x480.jpg&rf=LaDigue_800x480.jpg "普利亚的“白色之城”")
+
+这座历史悠久的城市坐落在亚得里亚海的山顶，以其迷宫般的白色建筑、蜿蜒的小巷和阳光普照的广场吸引着游客。欢迎来到意大利普利亚大区的奥斯图尼！普利亚位于意大利“靴子”形版图的“脚后跟”，拥有该国大陆地区最长的海岸线，这里不仅有迷人的海滩、壮丽的悬崖，还有如今日图片中的奥斯图尼这样美丽的城市。
+
+普利亚全年气候宜人，夏季炎热干燥，冬季温和，但空气中的湿度和偶尔的降雨可以带来一丝凉爽。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e5%a5%a5%e6%96%af%e5%9b%be%e5%b0%bc&form=hpcapt&filters=HpDate:"20250330_1600" "Bing Wallpaper 2025 3月 31")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250331_ItalyOstuni"&FORM=HPQUIZ "必应主页测验 2025 3月 31")
+[下载480](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_800x480.jpg&rf=LaDigue_800x480.jpg "黄昏下的奥斯图尼, 普利亚, 意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄昏下的奥斯图尼, 普利亚, 意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄昏下的奥斯图尼, 普利亚, 意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_UHD.jpg&rf=LaDigue_UHD.jpg "黄昏下的奥斯图尼, 普利亚, 意大利")
+
+---
 ### 03月30日：尽享美景
 #### 悉尼港鸟瞰图，新南威尔士州，澳大利亚（© jamenpercy/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BeckettBridge_ZH-CN6206942429_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞缪尔·贝克特桥, 都柏林, 爱尔兰")
 [下载1080](https://cn.bing.com/th?id=OHR.BeckettBridge_ZH-CN6206942429_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞缪尔·贝克特桥, 都柏林, 爱尔兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.BeckettBridge_ZH-CN6206942429_UHD.jpg&rf=LaDigue_UHD.jpg "塞缪尔·贝克特桥, 都柏林, 爱尔兰")
-
----
-### 03月16日：回归黑白世界
-#### 雪地里的大熊猫宝宝，中国（© Cheryl Schneider/Alamy Stock Photo）
-
-![回归黑白世界](https://cn.bing.com/th?id=OHR.PandaSnow_ZH-CN5981854301_800x480.jpg&rf=LaDigue_800x480.jpg "回归黑白世界")
-
-让我们一起庆祝大自然最毛茸茸的珍宝之一：大熊猫。这些标志性的黑白色熊原产于中国，不仅仅因可爱而闻名。它们在竹林生态系统中发挥着关键作用，通过传播种子和促进植被生长，造福无数动植物。
-
-熊猫每天要花14个小时咀嚼竹子，一天最多可吃83磅！它们独特的“第六指”实则是手掌前端增大的手腕部骨骼，帮助它们更轻松地抓握竹子。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e7%86%8a%e7%8c%ab&form=hpcapt&filters=HpDate:"20250315_1600" "Bing Wallpaper 2025 3月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250316_PandaSnow"&FORM=HPQUIZ "必应主页测验 2025 3月 16")
-[下载480](https://cn.bing.com/th?id=OHR.PandaSnow_ZH-CN5981854301_800x480.jpg&rf=LaDigue_800x480.jpg "雪地里的大熊猫宝宝，中国")
-[下载720](https://cn.bing.com/th?id=OHR.PandaSnow_ZH-CN5981854301_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪地里的大熊猫宝宝，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.PandaSnow_ZH-CN5981854301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪地里的大熊猫宝宝，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PandaSnow_ZH-CN5981854301_UHD.jpg&rf=LaDigue_UHD.jpg "雪地里的大熊猫宝宝，中国")
 
 ---
