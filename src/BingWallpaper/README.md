@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月02日：时间的波浪
+#### 凯恩维尔附近荒地的砂岩地层, 犹他州, 美国（© Chris Moore/TANDEM Stills + Motion）
+
+![时间的波浪](https://cn.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_800x480.jpg&rf=LaDigue_800x480.jpg "时间的波浪")
+
+蜿蜒起伏的砂岩脊绵延于犹他州凯恩维尔荒地，宛如大自然在石头上绘制的笔触。这些地貌由细粒沉积物构成，最初沉积在古代河流三角洲和内陆海洋中，随后逐渐硬化为岩石。随着时间的推移，侵蚀作用穿透了这些地层，露出流动般的波纹状图案。沉积岩层记录着气候变迁和古老地貌的演变。今日图片中，这片荒凉的土地看似毫无生机，但在早春时节，降雨会让大地铺满紫色和黄色的小花。一天的不同时刻，光影不断变化，展现出不同的角度与风貌，为摄影师和游客提供了丰富的观赏体验。尽管这片崎岖不平的地形大部分仍然保持原始状态，但部分区域地势较为平缓，允许游客在无需剧烈攀爬的情况下轻松探索。
+
+这片沙漠由色彩斑斓的丘陵、孤峰、悬崖和尖塔组成，数百万年来受到风和水的侵蚀，最终形成了一种超现实的景观，让人联想到火星、月球，甚至是恐龙的游乐场。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8a%b9%e4%bb%96%e5%b7%9e%e5%87%af%e6%81%a9%e7%bb%b4%e5%b0%94&form=hpcapt&filters=HpDate:"20250401_1600" "Bing Wallpaper 2025 4月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250402_UtahBadlands"&FORM=HPQUIZ "必应主页测验 2025 4月 2")
+[下载480](https://cn.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_800x480.jpg&rf=LaDigue_800x480.jpg "凯恩维尔附近荒地的砂岩地层, 犹他州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_1280x720.jpg&rf=LaDigue_1280x720.jpg "凯恩维尔附近荒地的砂岩地层, 犹他州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "凯恩维尔附近荒地的砂岩地层, 犹他州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_UHD.jpg&rf=LaDigue_UHD.jpg "凯恩维尔附近荒地的砂岩地层, 犹他州, 美国")
+
+---
 ### 04月01日：蹦跳迎接国家青蛙月
 #### 树蛙, 哥斯达黎加（© Ondrej Prosicky/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BlackHeron_ZH-CN6764711050_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑鹭捕鱼，乔贝国家公园，博茨瓦纳")
 [下载1080](https://cn.bing.com/th?id=OHR.BlackHeron_ZH-CN6764711050_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑鹭捕鱼，乔贝国家公园，博茨瓦纳")
 [下载UHD](https://cn.bing.com/th?id=OHR.BlackHeron_ZH-CN6764711050_UHD.jpg&rf=LaDigue_UHD.jpg "黑鹭捕鱼，乔贝国家公园，博茨瓦纳")
-
----
-### 03月18日：漩涡般的心境
-#### 红色岩层，塞多纳，亚利桑那州，美国（© Jim Ekstrand/Alamy Stock Photo）
-
-![漩涡般的心境](https://cn.bing.com/th?id=OHR.SedonaSpring_ZH-CN6305197600_800x480.jpg&rf=LaDigue_800x480.jpg "漩涡般的心境")
-
-亚利桑那州的塞多纳是一片融合自然奇观、历史遗产与灵性体验的土地。这里坐落着壮丽的红色砂岩地貌，其火红的岩层属于施内布利山地层，由古代海洋沉积物形成，历经数百万年的地质变迁。风化与侵蚀塑造出塞多纳今日的壮观景观，使其在日出和日落时分更显绚丽夺目。这里的威尔逊山、七圣池和大教堂岩等地标，以其奇特的岩层和迷人的景致，吸引着无数游客。
-
-塞多纳自 20 世纪 50 年代开始发展成为旅游胜地、度假住宅区和养老中心。如今，所见的大部分建筑是在 20 世纪 80 年代和 90 年代建造的。截至 2007 年，塞多纳几乎没有大规模未开发的土地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%ba%9a%e5%88%a9%e6%a1%91%e9%82%a3%e5%b7%9e%e5%a1%9e%e5%a4%9a%e7%ba%b3&form=hpcapt&filters=HpDate:"20250317_1600" "Bing Wallpaper 2025 3月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250318_SedonaSpring"&FORM=HPQUIZ "必应主页测验 2025 3月 18")
-[下载480](https://cn.bing.com/th?id=OHR.SedonaSpring_ZH-CN6305197600_800x480.jpg&rf=LaDigue_800x480.jpg "红色岩层，塞多纳，亚利桑那州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.SedonaSpring_ZH-CN6305197600_1280x720.jpg&rf=LaDigue_1280x720.jpg "红色岩层，塞多纳，亚利桑那州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SedonaSpring_ZH-CN6305197600_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红色岩层，塞多纳，亚利桑那州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SedonaSpring_ZH-CN6305197600_UHD.jpg&rf=LaDigue_UHD.jpg "红色岩层，塞多纳，亚利桑那州，美国")
 
 ---
