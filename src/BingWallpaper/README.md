@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月03日：天空无极限
+#### 沃森峰上空的彩虹, 巨人柱国家公园, 亚利桑那州, 美国（© Frank Staub/Getty Images）
+
+![天空无极限](https://cn.bing.com/th?id=OHR.SaguaroRainbow_ZH-CN0139056375_800x480.jpg&rf=LaDigue_800x480.jpg "天空无极限")
+
+您是否曾偶然发现彩虹，并感受到一股幸福感？你是否曾想在雨后捕捉阳光下的七彩奇观？从北欧神话中的众神，到爱尔兰妖精的聚宝盆，彩虹一直被赋予神秘的意义。但除了传说，彩虹背后的科学同样引人入胜，德国物理学家狄奥多里克在1304年给出了第一个合理的解释。他发现，阳光进入雨滴后会发生折射，然后在雨滴内反射，再折射出雨滴。这个过程将光线分解成不同的颜色，形成我们看到的光谱。虽然我们知道 “ROYGBIV”（红、橙、黄、绿、蓝、靛、紫）是彩虹的基本颜色，但彩虹实际上包含了数百万种颜色的渐变混合物。
+
+月虹，是在月光下出现的彩虹，又叫黑夜彩虹、黑虹。由于月虹的出现需各种天气因素的配合，所以是非常罕见的自然现象。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%bd%a9%e8%99%b9&form=hpcapt&filters=HpDate:"20250402_1600" "Bing Wallpaper 2025 4月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250403_SaguaroRainbow"&FORM=HPQUIZ "必应主页测验 2025 4月 3")
+[下载480](https://cn.bing.com/th?id=OHR.SaguaroRainbow_ZH-CN0139056375_800x480.jpg&rf=LaDigue_800x480.jpg "沃森峰上空的彩虹, 巨人柱国家公园, 亚利桑那州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.SaguaroRainbow_ZH-CN0139056375_1280x720.jpg&rf=LaDigue_1280x720.jpg "沃森峰上空的彩虹, 巨人柱国家公园, 亚利桑那州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SaguaroRainbow_ZH-CN0139056375_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沃森峰上空的彩虹, 巨人柱国家公园, 亚利桑那州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SaguaroRainbow_ZH-CN0139056375_UHD.jpg&rf=LaDigue_UHD.jpg "沃森峰上空的彩虹, 巨人柱国家公园, 亚利桑那州, 美国")
+
+---
 ### 04月02日：时间的波浪
 #### 凯恩维尔附近荒地的砂岩地层, 犹他州, 美国（© Chris Moore/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpringequinoxY25_ZH-CN1635828827_1280x720.jpg&rf=LaDigue_1280x720.jpg "美丽盛开的樱花，杭州的春天，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.SpringequinoxY25_ZH-CN1635828827_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美丽盛开的樱花，杭州的春天，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpringequinoxY25_ZH-CN1635828827_UHD.jpg&rf=LaDigue_UHD.jpg "美丽盛开的樱花，杭州的春天，中国")
-
----
-### 03月19日：伞状捕猎术
-#### 黑鹭捕鱼，乔贝国家公园，博茨瓦纳（© Paul Souders/Minden PIctures）
-
-![伞状捕猎术](https://cn.bing.com/th?id=OHR.BlackHeron_ZH-CN6764711050_800x480.jpg&rf=LaDigue_800x480.jpg "伞状捕猎术")
-
-在聪明的捕猎者世界里，黑鹭独占鳌头。这种鸟主要栖息在浅水区、开阔水域及淡水湖泊和池塘的边缘，也常见于沼泽、稻田、季节性洪泛草地和河岸。乍一看，黑鹭与其他涉禽并无不同：它们同样拥有长腿、细颈和尖喙，这些特征都有助于捕猎。然而，当黑鹭开始捕食时，这种乌黑亮丽的非洲鸟类展现出独特的技巧：它会撑起一把“伞”，正如今日图片所示。在捕鱼时，黑鹭会低下头，张开双翼环绕身体，形成一个遮蔽的圆形阴影。这种聪明的捕猎技巧被称为“伞状捕猎”。关于这一行为最常见的理论认为，小鱼在寻找遮蔽时会被黑鹭的翅膀所制造的阴影吸引，从而游入它的陷阱。此外，阴影还能起到类似偏光太阳镜的作用，能减少水面反光，提高苍鹭在水下的视力。同时，这一动作还能帮助黑鹭隐藏自己，进一步增强捕猎的成功率。
-
-黑鹭的巢由树枝搭建而成，通常位于水边的树上、灌木丛或芦苇丛中，结构坚固。黑鹭在雨季初期筑巢，既可以单独筑巢，也可以与其他鸟类混群，形成规模可达数百只的群落。黑鹭的蛋呈深蓝色，每窝产卵两到四枚。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%bb%91%e9%b9%ad&form=hpcapt&filters=HpDate:"20250318_1600" "Bing Wallpaper 2025 3月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250319_BlackHeron"&FORM=HPQUIZ "必应主页测验 2025 3月 19")
-[下载480](https://cn.bing.com/th?id=OHR.BlackHeron_ZH-CN6764711050_800x480.jpg&rf=LaDigue_800x480.jpg "黑鹭捕鱼，乔贝国家公园，博茨瓦纳")
-[下载720](https://cn.bing.com/th?id=OHR.BlackHeron_ZH-CN6764711050_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑鹭捕鱼，乔贝国家公园，博茨瓦纳")
-[下载1080](https://cn.bing.com/th?id=OHR.BlackHeron_ZH-CN6764711050_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑鹭捕鱼，乔贝国家公园，博茨瓦纳")
-[下载UHD](https://cn.bing.com/th?id=OHR.BlackHeron_ZH-CN6764711050_UHD.jpg&rf=LaDigue_UHD.jpg "黑鹭捕鱼，乔贝国家公园，博茨瓦纳")
 
 ---
