@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月04日：春和景明
+#### 苏州古镇风景，江苏省，中国（© gyn9038/Getty Images）
+
+![春和景明](https://cn.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_800x480.jpg&rf=LaDigue_800x480.jpg "春和景明")
+
+清明是中国二十四节气之一，源于古代祖先信仰和春祭。至今，扫墓、踏青仍是清明节的主要活动。清明节，春回大地，万物生机，正是人们出门赏春的好时节。
+
+同里古镇位于苏州，也是江南六大古镇之一。古镇内有许多精致的园林，古色古香，极具江南特色。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b8%85%e6%98%8e%e8%8a%82&form=hpcapt&filters=HpDate:"20250403_1600" "Bing Wallpaper 2025 4月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250404_QingMingY25"&FORM=HPQUIZ "必应主页测验 2025 4月 4")
+[下载480](https://cn.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_800x480.jpg&rf=LaDigue_800x480.jpg "苏州古镇风景，江苏省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_1280x720.jpg&rf=LaDigue_1280x720.jpg "苏州古镇风景，江苏省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "苏州古镇风景，江苏省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_UHD.jpg&rf=LaDigue_UHD.jpg "苏州古镇风景，江苏省，中国")
+
+---
 ### 04月03日：天空无极限
 #### 沃森峰上空的彩虹, 巨人柱国家公园, 亚利桑那州, 美国（© Frank Staub/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DanumValley_ZH-CN5786482012_1280x720.jpg&rf=LaDigue_1280x720.jpg "低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.DanumValley_ZH-CN5786482012_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.DanumValley_ZH-CN5786482012_UHD.jpg&rf=LaDigue_UHD.jpg "低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚")
-
----
-### 03月20日：春日仙境
-#### 美丽盛开的樱花，杭州的春天，中国（© zhang shuang/Getty Images）
-
-![春日仙境](https://cn.bing.com/th?id=OHR.SpringequinoxY25_ZH-CN1635828827_800x480.jpg&rf=LaDigue_800x480.jpg "春日仙境")
-
-春分有两个含义。其一是 “四季相等”。传统上，从立春到立夏之间的这段时间被称为春季，春分点位于两个节气之间，平分了春季。春分的另一个含义是 “昼夜相等”。春分时节，太阳直射赤道，昼夜等长，各为 12 小时。春分过后，除青藏高原、东北、西北和华北北部地区外，全中国进入明媚的春天。
-
-樱花在中国分布很广，北起黑龙江、华北各省，南至海南、云南、广东、广西，西到青海、甘肃、新疆。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%98%a5%e5%88%86&form=hpcapt&filters=HpDate:"20250319_1600" "Bing Wallpaper 2025 3月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250320_SpringequinoxY25"&FORM=HPQUIZ "必应主页测验 2025 3月 20")
-[下载480](https://cn.bing.com/th?id=OHR.SpringequinoxY25_ZH-CN1635828827_800x480.jpg&rf=LaDigue_800x480.jpg "美丽盛开的樱花，杭州的春天，中国")
-[下载720](https://cn.bing.com/th?id=OHR.SpringequinoxY25_ZH-CN1635828827_1280x720.jpg&rf=LaDigue_1280x720.jpg "美丽盛开的樱花，杭州的春天，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.SpringequinoxY25_ZH-CN1635828827_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美丽盛开的樱花，杭州的春天，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpringequinoxY25_ZH-CN1635828827_UHD.jpg&rf=LaDigue_UHD.jpg "美丽盛开的樱花，杭州的春天，中国")
 
 ---
