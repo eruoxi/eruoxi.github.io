@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月05日：朝圣圣胡安·德·加兹特鲁加特
+#### 日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙（© Eloi_Omella/Getty Images）
+
+![朝圣圣胡安·德·加兹特鲁加特](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_800x480.jpg&rf=LaDigue_800x480.jpg "朝圣圣胡安·德·加兹特鲁加特")
+
+加兹特鲁加特小岛位于西班牙巴斯克地区比斯开海岸，以其壮丽的风景而闻名。岛顶坐落着圣胡安·德·加兹特卢加切修道院，供奉施洗者圣约翰。这座修道院始建于10 世纪，曾因战争和火灾多次损毁，亦数次重建。如今的建筑矗立在小岛之巅，游客需沿着一条狭窄的石阶小径攀登241 级台阶方能抵达。这里是著名的朝圣地，游客常会敲响教堂的钟三次并许愿。相传施洗者约翰曾踏足此地。站在山顶，可俯瞰比斯开湾崎岖的海岸线，远眺坎塔布连海的壮美风光。加兹特鲁加特因成为美剧《权力的游戏》的取景地而名声大噪。在剧中，它被塑造为坦格利安家族的祖传领地龙石岛。
+
+这座教堂随着时间的推移逐渐破败，最终于 1886 年被拆除，随后从零开始重建。不幸的是，在拆除过程中，地下出土的所有文物，如硬币和炮弹，均被弃入大海，令人惋惜。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e5%85%b9%e7%89%b9%e9%b2%81%e5%8a%a0%e7%89%b9&form=hpcapt&filters=HpDate:"20250404_1600" "Bing Wallpaper 2025 4月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250405_GaztelugatxeSunset"&FORM=HPQUIZ "必应主页测验 2025 4月 5")
+[下载480](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_800x480.jpg&rf=LaDigue_800x480.jpg "日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_UHD.jpg&rf=LaDigue_UHD.jpg "日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙")
+
+---
 ### 04月04日：春和景明
 #### 苏州古镇风景，江苏省，中国（© gyn9038/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_1280x720.jpg&rf=LaDigue_1280x720.jpg "尼特哈天然井水面上的睡莲，图卢姆，墨西哥")
 [下载1080](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "尼特哈天然井水面上的睡莲，图卢姆，墨西哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_UHD.jpg&rf=LaDigue_UHD.jpg "尼特哈天然井水面上的睡莲，图卢姆，墨西哥")
-
----
-### 03月21日：树木万岁
-#### 低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚（© Nick Garbutt/Alamy）
-
-![树木万岁](https://cn.bing.com/th?id=OHR.DanumValley_ZH-CN5786482012_800x480.jpg&rf=LaDigue_800x480.jpg "树木万岁")
-
-3月21日是国际森林日，这一全球性纪念日旨在庆祝森林在支持生物多样性和应对气候变化方面发挥的重要作用。国际森林日由联合国于2013年首次设立，鼓励全球开展植树活动，以提高人们对森林对未来世代重要性的认识。
-
-低地热带雨林是神秘的眼镜花啄鸟唯一被记录到的栖息地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%a3%ae%e6%9e%97%e6%97%a5&form=hpcapt&filters=HpDate:"20250320_1600" "Bing Wallpaper 2025 3月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250321_DanumValley"&FORM=HPQUIZ "必应主页测验 2025 3月 21")
-[下载480](https://cn.bing.com/th?id=OHR.DanumValley_ZH-CN5786482012_800x480.jpg&rf=LaDigue_800x480.jpg "低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚")
-[下载720](https://cn.bing.com/th?id=OHR.DanumValley_ZH-CN5786482012_1280x720.jpg&rf=LaDigue_1280x720.jpg "低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.DanumValley_ZH-CN5786482012_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.DanumValley_ZH-CN5786482012_UHD.jpg&rf=LaDigue_UHD.jpg "低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚")
 
 ---
