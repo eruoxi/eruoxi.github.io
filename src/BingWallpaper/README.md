@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月06日：伦敦最尖锐的地标
+#### 碎片大厦，伦敦（© Dennis Fischer Photography/Moment/Getty Images）
+
+![伦敦最尖锐的地标](https://cn.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_800x480.jpg&rf=LaDigue_800x480.jpg "伦敦最尖锐的地标")
+
+伦敦天际线中有许多标志性建筑，但没有一座能像碎片大厦一样独具特色。这座玻璃幕墙摩天大楼高达310 米，不仅是英国最高建筑，更成为了现代伦敦的象征。它由意大利建筑师伦佐·皮亚诺设计，他以高科技、轻质且实用的设计风格著称。受教堂尖塔和船桅的启发，他构想出一座线条流畅、逐渐收窄的建筑，能够反射不断变化的天空。大厦于2009 年开始建设，并于2012 年正式落成，成为西欧最高的摩天大楼。
+
+2015年，在英国旅游局举办的“#BritainisYouName#”活动中，“摘星塔”这一名称得到了碎片大厦的青睐，并受到了多家英国媒体的关注。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%a2%8e%e7%89%87%e5%a4%a7%e5%8e%a6&form=hpcapt&filters=HpDate:"20250405_1600" "Bing Wallpaper 2025 4月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250406_ShardLondon2025"&FORM=HPQUIZ "必应主页测验 2025 4月 6")
+[下载480](https://cn.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_800x480.jpg&rf=LaDigue_800x480.jpg "碎片大厦，伦敦")
+[下载720](https://cn.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_1280x720.jpg&rf=LaDigue_1280x720.jpg "碎片大厦，伦敦")
+[下载1080](https://cn.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "碎片大厦，伦敦")
+[下载UHD](https://cn.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_UHD.jpg&rf=LaDigue_UHD.jpg "碎片大厦，伦敦")
+
+---
 ### 04月05日：朝圣圣胡安·德·加兹特鲁加特
 #### 日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙（© Eloi_Omella/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_1280x720.jpg&rf=LaDigue_1280x720.jpg "鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_UHD.jpg&rf=LaDigue_UHD.jpg "鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国")
-
----
-### 03月22日：水的奇妙世界！
-#### 尼特哈天然井水面上的睡莲，图卢姆，墨西哥（© Franco Banfi/NPL/Minden）
-
-![水的奇妙世界！](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_800x480.jpg&rf=LaDigue_800x480.jpg "水的奇妙世界！")
-
-3 月 22 日是世界水日，这是联合国发起的一项倡议，旨在强调淡水及其保护的重要性。这一天不仅提高了人们对全球水危机的认识，并推动采取行动以确保所有人都能获得清洁水源。淡水不仅是生命之源，还是维持生态平衡、农业发展，甚至文化传承的重要基石。
-
-2025 年世界水日的主题是“冰川保护”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b0%b4%e6%97%a5&form=hpcapt&filters=HpDate:"20250321_1600" "Bing Wallpaper 2025 3月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250322_CenoteLilies"&FORM=HPQUIZ "必应主页测验 2025 3月 22")
-[下载480](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_800x480.jpg&rf=LaDigue_800x480.jpg "尼特哈天然井水面上的睡莲，图卢姆，墨西哥")
-[下载720](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_1280x720.jpg&rf=LaDigue_1280x720.jpg "尼特哈天然井水面上的睡莲，图卢姆，墨西哥")
-[下载1080](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "尼特哈天然井水面上的睡莲，图卢姆，墨西哥")
-[下载UHD](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_UHD.jpg&rf=LaDigue_UHD.jpg "尼特哈天然井水面上的睡莲，图卢姆，墨西哥")
 
 ---
