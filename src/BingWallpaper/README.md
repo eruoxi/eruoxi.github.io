@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月07日：你好，海狸！
+#### 美洲海狸, Moran, 怀俄明州, 美国（© Enrique Aguirre Aves/Getty Images）
+
+![你好，海狸！](https://cn.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_800x480.jpg&rf=LaDigue_800x480.jpg "你好，海狸！")
+
+今天，我们迎来国际海狸日！该节日由湿地与野生海狸组织于2009 年设立，旨在强调海狸在生态系统中的重要作用。海狸是了不起的动物，以筑坝技能闻名，它们建造的湿地为众多物种提供了栖息地。作为北美最大的啮齿动物，成年海狸体长可达3 英尺，还不包括其独特的扁平尾巴。它们的门牙不断生长，并因覆盖着厚厚的橙色珐琅质而呈现独特的色泽。海狸啃食树木不仅能保持牙齿健康，还能帮助调节环境。难怪它们坚固的门牙让它们成为大自然最优秀的工程师之一。
+
+海狸主要在夜间活动，并且是出色的游泳健将，能在水下潜伏长达 15 分钟。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%b5%b7%e7%8b%b8%e6%97%a5&form=hpcapt&filters=HpDate:"20250406_1600" "Bing Wallpaper 2025 4月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250407_BeaverDay"&FORM=HPQUIZ "必应主页测验 2025 4月 7")
+[下载480](https://cn.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_800x480.jpg&rf=LaDigue_800x480.jpg "美洲海狸, Moran, 怀俄明州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_1280x720.jpg&rf=LaDigue_1280x720.jpg "美洲海狸, Moran, 怀俄明州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美洲海狸, Moran, 怀俄明州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_UHD.jpg&rf=LaDigue_UHD.jpg "美洲海狸, Moran, 怀俄明州, 美国")
+
+---
 ### 04月06日：伦敦最尖锐的地标
 #### 碎片大厦，伦敦（© Dennis Fischer Photography/Moment/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_1280x720.jpg&rf=LaDigue_1280x720.jpg "沙漠象与小象在高高的草丛中觅食，纳米比亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙漠象与小象在高高的草丛中觅食，纳米比亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_UHD.jpg&rf=LaDigue_UHD.jpg "沙漠象与小象在高高的草丛中觅食，纳米比亚")
-
----
-### 03月23日：雷鸣不可阻挡
-#### 鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国（© john finney photography/Getty Images）
-
-![雷鸣不可阻挡](https://cn.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_800x480.jpg&rf=LaDigue_800x480.jpg "雷鸣不可阻挡")
-
-今天，我们庆祝世界气象日，这一纪念日旨在纪念1950年世界气象组织的成立。每年的世界气象日都会关注一个重要的全球气象议题。2025 年的主题“携手缩小预警差距”，强调及时的天气预警和早期行动对于减少灾害损失的重要性。
-
-委内瑞拉的马拉开波湖是世界上雷电活动最频繁的地区，这里存在一种独特的大气现象，被称为“卡塔通博闪电”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b0%94%e8%b1%a1%e6%97%a5&form=hpcapt&filters=HpDate:"20250322_1600" "Bing Wallpaper 2025 3月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250323_NebraskaStorm"&FORM=HPQUIZ "必应主页测验 2025 3月 23")
-[下载480](https://cn.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_800x480.jpg&rf=LaDigue_800x480.jpg "鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_1280x720.jpg&rf=LaDigue_1280x720.jpg "鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_UHD.jpg&rf=LaDigue_UHD.jpg "鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国")
 
 ---
