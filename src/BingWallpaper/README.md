@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月08日：芬芳清新的春天
+#### 春天的水仙花在清晨绽放（© LedyX/Shutterstock）
+
+![芬芳清新的春天](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_800x480.jpg&rf=LaDigue_800x480.jpg "芬芳清新的春天")
+
+春天百花盛开，而水仙花是最著名的花卉之一。几百年来，人们不断在诗歌和绘画中描绘水仙花，它们在不同国家的文化中都占有重要地位。中国水仙属于多花水仙的一种，已有上千年的栽培历史。它们是传统的观赏花卉，并被列为中国十大名花之一。中国水仙美丽、清新、纯净、优雅，具有独特的气质，这使得古代文人墨客为其作诗咏颂，留下了许多脍炙人口的诗篇。
+
+水仙花最适宜在充足的阳光下生长，尽管它们在半阴的环境中也能存活。一般来说，它们对土壤要求不高，但良好的排水性至关重要，因为过湿的环境容易导致根部腐烂。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b0%b4%e4%bb%99%e8%8a%b1&form=hpcapt&filters=HpDate:"20250407_1600" "Bing Wallpaper 2025 4月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250408_SpringDaffodils"&FORM=HPQUIZ "必应主页测验 2025 4月 8")
+[下载480](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_800x480.jpg&rf=LaDigue_800x480.jpg "春天的水仙花在清晨绽放")
+[下载720](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_1280x720.jpg&rf=LaDigue_1280x720.jpg "春天的水仙花在清晨绽放")
+[下载1080](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天的水仙花在清晨绽放")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_UHD.jpg&rf=LaDigue_UHD.jpg "春天的水仙花在清晨绽放")
+
+---
 ### 04月07日：你好，海狸！
 #### 美洲海狸, Moran, 怀俄明州, 美国（© Enrique Aguirre Aves/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_1280x720.jpg&rf=LaDigue_1280x720.jpg "向日葵田里的红额金翅雀，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "向日葵田里的红额金翅雀，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_UHD.jpg&rf=LaDigue_UHD.jpg "向日葵田里的红额金翅雀，德国")
-
----
-### 03月24日：高草盛宴
-#### 沙漠象与小象在高高的草丛中觅食，纳米比亚（© Christophe Courteau/Minden Pictures）
-
-![高草盛宴](https://cn.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_800x480.jpg&rf=LaDigue_800x480.jpg "高草盛宴")
-
-生活在纳米比亚和马里的沙漠象，实际上是非洲草原象的一种，它们已经适应了纳米布沙漠和撒哈拉沙漠的恶劣环境，这些极度干旱的地区年降雨量不足 2.75 英寸。与其他草原象相比，沙漠象的腿更短、脚掌更宽、体型也略小。它们沿着代代相传的古老迁徙路线，在水源之间移动，寻找季节性的食物和水源。雄性沙漠象通常独自在广阔的区域内游荡，而以雌性为首的家族群体则会靠近河流附近，因为那里食物更丰富。它们的适应能力极其惊人，不仅能够在极端环境下生存，还能在一夜之间跋涉长达 43 英里，只为寻找最爱的没药灌木。
-
-成年雄性大象每天可摄入约250 千克的草料，并饮用约160升的水。然而，即使连续三天不喝水，它们依然能生存。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b2%99%e6%bc%a0%e8%b1%a1&form=hpcapt&filters=HpDate:"20250323_1600" "Bing Wallpaper 2025 3月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250324_ElephantGrass"&FORM=HPQUIZ "必应主页测验 2025 3月 24")
-[下载480](https://cn.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_800x480.jpg&rf=LaDigue_800x480.jpg "沙漠象与小象在高高的草丛中觅食，纳米比亚")
-[下载720](https://cn.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_1280x720.jpg&rf=LaDigue_1280x720.jpg "沙漠象与小象在高高的草丛中觅食，纳米比亚")
-[下载1080](https://cn.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙漠象与小象在高高的草丛中觅食，纳米比亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_UHD.jpg&rf=LaDigue_UHD.jpg "沙漠象与小象在高高的草丛中觅食，纳米比亚")
 
 ---
