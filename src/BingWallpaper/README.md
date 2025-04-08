@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月09日：在繁星闪耀之前
+#### 纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊（© Sizun Eye/Getty Images）
+
+![在繁星闪耀之前](https://cn.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_800x480.jpg&rf=LaDigue_800x480.jpg "在繁星闪耀之前")
+
+当白昼消退或黎明降临，希腊的纳克索斯岛便笼罩在一片深邃的蓝色光辉之中，沉浸在蓝色时刻的神秘魅力里。在这短暂的时间里，当太阳位于地平线下方，余晖映照，使天空呈现出浓郁的蓝色。
+
+纳克索斯岛的大理石开采可追溯至公元前550年以前。纳克索斯大理石曾被用于古奥林匹亚遗址的屋顶瓦片及雅典卫城的建筑。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%8c%e8%85%8a%e7%ba%b3%e5%85%8b%e7%b4%a2%e6%96%af%e5%b2%9b&form=hpcapt&filters=HpDate:"20250408_1600" "Bing Wallpaper 2025 4月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250409_BlueNaxos"&FORM=HPQUIZ "必应主页测验 2025 4月 9")
+[下载480](https://cn.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_800x480.jpg&rf=LaDigue_800x480.jpg "纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊")
+[下载720](https://cn.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_1280x720.jpg&rf=LaDigue_1280x720.jpg "纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_UHD.jpg&rf=LaDigue_UHD.jpg "纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊")
+
+---
 ### 04月08日：芬芳清新的春天
 #### 春天的水仙花在清晨绽放（© LedyX/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_1280x720.jpg&rf=LaDigue_1280x720.jpg "水晶河的海牛，佛罗里达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "水晶河的海牛，佛罗里达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_UHD.jpg&rf=LaDigue_UHD.jpg "水晶河的海牛，佛罗里达州，美国")
-
----
-### 03月25日：色彩斑斓的访客
-#### 向日葵田里的红额金翅雀，德国（© Juniors Bildarchiv GmbH/Alamy）
-
-![色彩斑斓的访客](https://cn.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_800x480.jpg&rf=LaDigue_800x480.jpg "色彩斑斓的访客")
-
-你能认出今日图片中的鸟儿吗？如果你曾见过红额金翅雀，一定会对它们的外形印象深刻，因为它们是花园和森林中的亮眼存在。它们鲜艳的色彩和优雅的体态使其独具辨识度。其中，最引人注目的是其红黑相间的脸部羽毛，在白色头部和黑色颈部的映衬下显得格外鲜明。红额金翅雀喜欢开阔但有结构的栖息地，例如带有小型树篱和树木的田野和草地，且主要以种子为食。今日图片展示了红额金翅雀在向日葵田中觅食的场景。被评为2016年“年度鸟类”的红额金翅雀，属于留鸟或短途迁徙鸟，冬季主要分布在中欧、西欧和南欧，因此在德国的冬季依然可见。下次外出散步时，不妨留意一下这只色彩斑斓的小鸟！
-
-红额金翅雀在中国并不常见，主要分布在新疆和西藏的中海拔针叶林和针阔混交林中。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a2%e9%a2%9d%e9%87%91%e7%bf%85%e9%9b%80&form=hpcapt&filters=HpDate:"20250324_1600" "Bing Wallpaper 2025 3月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250325_GoldfinchSunflower"&FORM=HPQUIZ "必应主页测验 2025 3月 25")
-[下载480](https://cn.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_800x480.jpg&rf=LaDigue_800x480.jpg "向日葵田里的红额金翅雀，德国")
-[下载720](https://cn.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_1280x720.jpg&rf=LaDigue_1280x720.jpg "向日葵田里的红额金翅雀，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "向日葵田里的红额金翅雀，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_UHD.jpg&rf=LaDigue_UHD.jpg "向日葵田里的红额金翅雀，德国")
 
 ---
