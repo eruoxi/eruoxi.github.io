@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月10日：野性本能
+#### 靠近巢穴的红狐幼崽（© WildMedia/Shutterstock）
+
+![野性本能](https://cn.bing.com/th?id=OHR.LittleFoxes_ZH-CN8622806156_800x480.jpg&rf=LaDigue_800x480.jpg "野性本能")
+
+每年4月10日，童年的争吵、玩笑、抢玩具的回忆便浮现脑海。今天是兄弟姐妹日，这是一个感恩那些曾经告状、争夺玩具，却依然是你最坚定支持者的人的日子。尽管兄弟姐妹日尚未成为官方法定节日，但它已在多个国家得到认可。该节日由克劳迪娅·埃瓦特创立，以纪念她已故的兄弟姐妹。自1995 年以来，兄弟姐妹日基金会一直致力于推广这一节日，以庆祝兄弟姐妹之间独特的联系。
+
+红狐能利用地球磁场寻找猎物。它们依靠猎物的影子与声音，精准判断最佳捕猎时机。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a2%e7%8b%90%e5%b9%bc%e5%b4%bd&form=hpcapt&filters=HpDate:"20250409_1600" "Bing Wallpaper 2025 4月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250410_LittleFoxes"&FORM=HPQUIZ "必应主页测验 2025 4月 10")
+[下载480](https://cn.bing.com/th?id=OHR.LittleFoxes_ZH-CN8622806156_800x480.jpg&rf=LaDigue_800x480.jpg "靠近巢穴的红狐幼崽")
+[下载720](https://cn.bing.com/th?id=OHR.LittleFoxes_ZH-CN8622806156_1280x720.jpg&rf=LaDigue_1280x720.jpg "靠近巢穴的红狐幼崽")
+[下载1080](https://cn.bing.com/th?id=OHR.LittleFoxes_ZH-CN8622806156_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "靠近巢穴的红狐幼崽")
+[下载UHD](https://cn.bing.com/th?id=OHR.LittleFoxes_ZH-CN8622806156_UHD.jpg&rf=LaDigue_UHD.jpg "靠近巢穴的红狐幼崽")
+
+---
 ### 04月09日：在繁星闪耀之前
 #### 纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊（© Sizun Eye/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_1280x720.jpg&rf=LaDigue_1280x720.jpg "希罗德·阿提库斯剧场，雅典卫城，希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "希罗德·阿提库斯剧场，雅典卫城，希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_UHD.jpg&rf=LaDigue_UHD.jpg "希罗德·阿提库斯剧场，雅典卫城，希腊")
-
----
-### 03月26日：水面下的生命
-#### 水晶河的海牛，佛罗里达州，美国（© Stephen Frink/Getty Images）
-
-![水面下的生命](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_800x480.jpg&rf=LaDigue_800x480.jpg "水面下的生命")
-
-海牛的生活节奏从不匆忙，它们悠然自得地漂浮在温暖的水域中，咀嚼着海草，静静地度过数百万年的岁月。然而，尽管它们天性温顺，却正面临严峻的生存威胁。为此，每年 3 月的最后一个星期三被定为海牛感恩日，旨在提高人们对海牛保护的意识。
-
-海牛能够进行辨别任务，并展现出复杂的联想学习能力，同时它们还拥有良好的长期记忆。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e7%89%9b%e6%84%9f%e6%81%a9%e6%97%a5&form=hpcapt&filters=HpDate:"20250325_1600" "Bing Wallpaper 2025 3月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250326_CrystalManatee"&FORM=HPQUIZ "必应主页测验 2025 3月 26")
-[下载480](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_800x480.jpg&rf=LaDigue_800x480.jpg "水晶河的海牛，佛罗里达州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_1280x720.jpg&rf=LaDigue_1280x720.jpg "水晶河的海牛，佛罗里达州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "水晶河的海牛，佛罗里达州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_UHD.jpg&rf=LaDigue_UHD.jpg "水晶河的海牛，佛罗里达州，美国")
 
 ---
