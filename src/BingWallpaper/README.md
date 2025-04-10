@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月11日：盛放的美好时光
+#### 郁金香，荷兰（© 1111IESPDJ/Getty Images）
+
+![盛放的美好时光](https://cn.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_800x480.jpg&rf=LaDigue_800x480.jpg "盛放的美好时光")
+
+从著名的郁金香花田到世界上最大的花卉拍卖市场，荷兰与郁金香的渊源悠久。有趣的是，郁金香的原产地并非荷兰。这些绚丽的花朵最早于 16 世纪末由奥斯曼帝国传入荷兰。到了 17 世纪，郁金香的价值飙升，甚至一颗郁金香球茎的价格曾超过一栋房屋。这一时期被称为“郁金香狂热”，常被视为是最早有记录的金融泡沫之一。1637 年价格崩盘后，许多人一夜破产，但荷兰人对郁金香的喜爱却从未消退。
+
+郁金香的花瓣可食用。其口感因品种和季节而异，类似于生菜或其他沙拉蔬菜。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%83%81%e9%87%91%e9%a6%99&form=hpcapt&filters=HpDate:"20250410_1600" "Bing Wallpaper 2025 4月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250411_TulipsWindmill"&FORM=HPQUIZ "必应主页测验 2025 4月 11")
+[下载480](https://cn.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_800x480.jpg&rf=LaDigue_800x480.jpg "郁金香，荷兰")
+[下载720](https://cn.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_1280x720.jpg&rf=LaDigue_1280x720.jpg "郁金香，荷兰")
+[下载1080](https://cn.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郁金香，荷兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_UHD.jpg&rf=LaDigue_UHD.jpg "郁金香，荷兰")
+
+---
 ### 04月10日：野性本能
 #### 靠近巢穴的红狐幼崽（© WildMedia/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NestingMonarch_ZH-CN7848166951_1280x720.jpg&rf=LaDigue_1280x720.jpg "正在筑巢的雌性黑枕王鹟")
 [下载1080](https://cn.bing.com/th?id=OHR.NestingMonarch_ZH-CN7848166951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "正在筑巢的雌性黑枕王鹟")
 [下载UHD](https://cn.bing.com/th?id=OHR.NestingMonarch_ZH-CN7848166951_UHD.jpg&rf=LaDigue_UHD.jpg "正在筑巢的雌性黑枕王鹟")
-
----
-### 03月27日：向戏剧致敬
-#### 希罗德·阿提库斯剧场，雅典卫城，希腊（© f11photo/Getty Images）
-
-![向戏剧致敬](https://cn.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_800x480.jpg&rf=LaDigue_800x480.jpg "向戏剧致敬")
-
-灯光亮起，帷幕升起，今天是世界戏剧日。自 1961 年以来，国际戏剧协会每年都会举办这一年度盛事，旨在让全球观众和艺术家共同庆祝戏剧的魅力，感受叙事的力量、创造力和文化的交汇。每年，国际戏剧协会都会邀请一位享誉全球的戏剧界代表发表主题演讲，这些演讲被翻译成50多种语言，与世界各地的人们分享。这些演讲强调了戏剧在社会中的重要作用，它既可以是作为现实的镜子，也是推动变革的力量，或是激发想象力的庇护所。无论是莎士比亚的独白，还是先锋实验剧场，戏剧艺术始终在发展演变，但它的核心始终不变：人与人之间的情感联系。
-
-它曾被用作音乐会场地，可容纳5,000名观众。剧场在很长一段时间内保持完好，直到公元267年，它被赫鲁利人摧毁，最终成为废墟。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%88%8f%e5%89%a7%e6%97%a5&form=hpcapt&filters=HpDate:"20250326_1600" "Bing Wallpaper 2025 3月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250327_OdeonAthens"&FORM=HPQUIZ "必应主页测验 2025 3月 27")
-[下载480](https://cn.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_800x480.jpg&rf=LaDigue_800x480.jpg "希罗德·阿提库斯剧场，雅典卫城，希腊")
-[下载720](https://cn.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_1280x720.jpg&rf=LaDigue_1280x720.jpg "希罗德·阿提库斯剧场，雅典卫城，希腊")
-[下载1080](https://cn.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "希罗德·阿提库斯剧场，雅典卫城，希腊")
-[下载UHD](https://cn.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_UHD.jpg&rf=LaDigue_UHD.jpg "希罗德·阿提库斯剧场，雅典卫城，希腊")
 
 ---
