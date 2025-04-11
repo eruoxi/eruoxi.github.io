@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月12日：改变世界的108分钟
+#### 从国际空间站穹顶俯瞰南太平洋（© NASA）
+
+![改变世界的108分钟](https://cn.bing.com/th?id=OHR.SpaceFlight_ZH-CN0927394503_800x480.jpg&rf=LaDigue_800x480.jpg "改变世界的108分钟")
+
+在人类历史上不久之前，我们迈出了超越地球的第一步。几千年来，人类仰望星空，想象着星辰大海的奥秘。然后，在1961年4月12日，一个人离开了地球，永远改变了历史。那天早上，苏联飞行员尤里·加加林登上了一艘名为“东方1号”的小型球形宇宙飞船。倒计时开始，发动机点火。随着火箭呼啸着冲向天空，他喊道：“出发了！”就这样，地球迎来了首位太空旅行者。
+
+联合国邮政管理局在2011年发行了纪念邮票，以纪念加加林飞行50周年。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e8%bd%bd%e4%ba%ba%e8%88%aa%e5%a4%a9%e6%97%a5&form=hpcapt&filters=HpDate:"20250411_1600" "Bing Wallpaper 2025 4月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250412_SpaceFlight"&FORM=HPQUIZ "必应主页测验 2025 4月 12")
+[下载480](https://cn.bing.com/th?id=OHR.SpaceFlight_ZH-CN0927394503_800x480.jpg&rf=LaDigue_800x480.jpg "从国际空间站穹顶俯瞰南太平洋")
+[下载720](https://cn.bing.com/th?id=OHR.SpaceFlight_ZH-CN0927394503_1280x720.jpg&rf=LaDigue_1280x720.jpg "从国际空间站穹顶俯瞰南太平洋")
+[下载1080](https://cn.bing.com/th?id=OHR.SpaceFlight_ZH-CN0927394503_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从国际空间站穹顶俯瞰南太平洋")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpaceFlight_ZH-CN0927394503_UHD.jpg&rf=LaDigue_UHD.jpg "从国际空间站穹顶俯瞰南太平洋")
+
+---
 ### 04月11日：盛放的美好时光
 #### 郁金香，荷兰（© 1111IESPDJ/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CarrizoBloom_ZH-CN7967467357_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CarrizoBloom_ZH-CN7967467357_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CarrizoBloom_ZH-CN7967467357_UHD.jpg&rf=LaDigue_UHD.jpg "卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国")
-
----
-### 03月28日：温暖舒适的摇篮
-#### 正在筑巢的雌性黑枕王鹟（© komkrit tonusin/Alamy）
-
-![温暖舒适的摇篮](https://cn.bing.com/th?id=OHR.NestingMonarch_ZH-CN7848166951_800x480.jpg&rf=LaDigue_800x480.jpg "温暖舒适的摇篮")
-
-仔细观察，你或许能瞥见黑枕王鹟的身影。这种鸟属于王鹟科的一员，是伯劳鹟、鹊百灵和天堂鹟的近亲。它们分布于南亚热带地区，从伊朗、斯里兰卡到印度尼西亚、菲律宾均可见踪影。黑枕王鹟喜欢茂密的森林及其他植被繁茂的区域。黑枕王鹟的腿短，站姿挺直，并以空中捕食昆虫为主。它们常常与不同种类的鸟群混居，并且在森林冠层的浓密底层活动频繁。在繁殖季节，雌鸟会在树杈间筑起一个温暖的杯状巢穴，通常产下两到三枚蛋，正如今日图片所示。这一鸟巢结构十分独特，由蜘蛛丝和菌丝体交织而成。这种巧妙的构造不仅增强了鸟巢的韧性，还能帮助抵御有害微生物的侵袭，使鸟巢成为一个自给自足的庇护所。更有趣的是，黑枕王鹟还会用蜘蛛卵囊装饰鸟巢，不仅增强伪装效果，增添一丝特别的风格。
-
-当黑枕王鹟进入警戒状态时，颈后的羽毛会竖起，形成锐利的羽冠。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%bb%91%e6%9e%95%e7%8e%8b%e9%b9%9f&form=hpcapt&filters=HpDate:"20250327_1600" "Bing Wallpaper 2025 3月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250328_NestingMonarch"&FORM=HPQUIZ "必应主页测验 2025 3月 28")
-[下载480](https://cn.bing.com/th?id=OHR.NestingMonarch_ZH-CN7848166951_800x480.jpg&rf=LaDigue_800x480.jpg "正在筑巢的雌性黑枕王鹟")
-[下载720](https://cn.bing.com/th?id=OHR.NestingMonarch_ZH-CN7848166951_1280x720.jpg&rf=LaDigue_1280x720.jpg "正在筑巢的雌性黑枕王鹟")
-[下载1080](https://cn.bing.com/th?id=OHR.NestingMonarch_ZH-CN7848166951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "正在筑巢的雌性黑枕王鹟")
-[下载UHD](https://cn.bing.com/th?id=OHR.NestingMonarch_ZH-CN7848166951_UHD.jpg&rf=LaDigue_UHD.jpg "正在筑巢的雌性黑枕王鹟")
 
 ---
