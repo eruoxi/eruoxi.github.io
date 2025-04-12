@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月13日：让我们一起庆祝宋干节！
+#### 班克鲁特的唐赛寺，泰国（© Ratnakorn Piyasirisorost/Getty Images）
+
+![让我们一起庆祝宋干节！](https://cn.bing.com/th?id=OHR.ThailandPagodas_ZH-CN1143878296_800x480.jpg&rf=LaDigue_800x480.jpg "让我们一起庆祝宋干节！")
+
+新年庆祝不一定是烟花的绽放，有时也可以是一场全国范围的泼水狂欢！泰国的宋干节结合了宗教传统与全民水战，是一年中最热闹的节日。今年宋干节将在4月13日至15日举行，作为泰国传统新年，这一节日深深植根于佛教习俗，强调净化和重新开始。在节日期间，人们会前往寺庙，向僧侣供奉食物，并向佛像和长辈的手上泼洒香薰水以示敬意。与此同时，街道上的节日氛围却截然不同，大街小巷都变成了水战竞技场，无论是本地人还是游客，都会加入这场欢乐的水战，享受节日的欢乐。传统的游行队伍穿梭在小巷中，而在一些地方，“宋干小姐”选美比赛更是成为节日的一大亮点，参赛者身着华丽的泰国传统服饰，吸引众多目光。
+
+2024年，联合国教科文组织正式将宋干节列入人类非物质文化遗产名录。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%bc%e6%b0%b4%e8%8a%82&form=hpcapt&filters=HpDate:"20250412_1600" "Bing Wallpaper 2025 4月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250413_ThailandPagodas"&FORM=HPQUIZ "必应主页测验 2025 4月 13")
+[下载480](https://cn.bing.com/th?id=OHR.ThailandPagodas_ZH-CN1143878296_800x480.jpg&rf=LaDigue_800x480.jpg "班克鲁特的唐赛寺，泰国")
+[下载720](https://cn.bing.com/th?id=OHR.ThailandPagodas_ZH-CN1143878296_1280x720.jpg&rf=LaDigue_1280x720.jpg "班克鲁特的唐赛寺，泰国")
+[下载1080](https://cn.bing.com/th?id=OHR.ThailandPagodas_ZH-CN1143878296_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "班克鲁特的唐赛寺，泰国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ThailandPagodas_ZH-CN1143878296_UHD.jpg&rf=LaDigue_UHD.jpg "班克鲁特的唐赛寺，泰国")
+
+---
 ### 04月12日：改变世界的108分钟
 #### 从国际空间站穹顶俯瞰南太平洋（© NASA）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_1280x720.jpg&rf=LaDigue_1280x720.jpg "悉尼港鸟瞰图，新南威尔士州，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "悉尼港鸟瞰图，新南威尔士州，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_UHD.jpg&rf=LaDigue_UHD.jpg "悉尼港鸟瞰图，新南威尔士州，澳大利亚")
-
----
-### 03月29日：花海绽放
-#### 卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国（© Robb Hirsch/TANDEM Stills + Motion）
-
-![花海绽放](https://cn.bing.com/th?id=OHR.CarrizoBloom_ZH-CN7967467357_800x480.jpg&rf=LaDigue_800x480.jpg "花海绽放")
-
-在沙漠地区，大片花朵绽放的景象并不常见，但在超级花海期间，原本干旱的土地将被无尽的花田覆盖。这种罕见的自然现象发生在美国加利福尼亚州和亚利桑那州，当雨季来临，沉睡在土壤中的野花种子被唤醒，形成壮观的花海景观。加利福尼亚州的超级花海通常每十年出现一次，然而21 世纪持续的干旱使其愈发罕见。超级花海不仅展示了加州丰富的植物多样性，还吸引游客前来观赏，短暂地促进当地经济发展。今日图片中的卡里佐平原国家纪念碑正是观赏这一壮观景象的最佳地点之一。这片广阔的封闭型草原位于加利福尼亚州圣路易斯奥比斯波县东南部，全长约50英里，宽约15英里。坦布洛山脉和卡连特山脉的山丘，以及苏打湖附近的谷地，都会变成一片五彩斑斓的野花拼图，绚丽至极。你曾有幸见过超级花海吗？
-
-在南非西海岸，从开普敦到纳马夸兰的干旱地带，每逢雨季，就会出现类似的花海现象。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e5%88%a9%e7%a6%8f%e5%b0%bc%e4%ba%9a%e5%b7%9e%e8%b6%85%e7%ba%a7%e8%8a%b1%e6%9c%9f&form=hpcapt&filters=HpDate:"20250328_1600" "Bing Wallpaper 2025 3月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250329_CarrizoBloom"&FORM=HPQUIZ "必应主页测验 2025 3月 29")
-[下载480](https://cn.bing.com/th?id=OHR.CarrizoBloom_ZH-CN7967467357_800x480.jpg&rf=LaDigue_800x480.jpg "卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.CarrizoBloom_ZH-CN7967467357_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.CarrizoBloom_ZH-CN7967467357_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CarrizoBloom_ZH-CN7967467357_UHD.jpg&rf=LaDigue_UHD.jpg "卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国")
 
 ---
