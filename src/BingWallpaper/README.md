@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月14日：追逐开始！
+#### 圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙（© Jordi Chias/Minden Pictures）
+
+![追逐开始！](https://cn.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_800x480.jpg&rf=LaDigue_800x480.jpg "追逐开始！")
+
+今日图片的主角，大西洋斑点海豚，以其身上的斑点而闻名，这些斑点会随着年龄的增长逐渐增多并变得更密集。它们生活在大西洋温带和热带海域，通常成群合作捕食鱼类。速度快、机动性强的它们不仅是高效的猎手，也是海洋中令人惊叹的存在。美国海域也生活着多种海豚，其中包括宽吻海豚、普通海豚、里索海豚和飞旋海豚等。每个物种都在维持海洋生态平衡中发挥着至关重要的作用，这也提醒我们：保护海豚的栖息地刻不容缓。
+
+这种海豚能发出大约十种不同的声波进行交流，包括哨声、嗡嗡声、尖叫声和吠叫声，每种声音都对应着不同的行为模式。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e8%a5%bf%e6%b4%8b%e7%bb%86%e5%90%bb%e6%b5%b7%e8%b1%9a&form=hpcapt&filters=HpDate:"20250413_1600" "Bing Wallpaper 2025 4月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250414_SpottedDolphins"&FORM=HPQUIZ "必应主页测验 2025 4月 14")
+[下载480](https://cn.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_800x480.jpg&rf=LaDigue_800x480.jpg "圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙")
+[下载720](https://cn.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙")
+[下载1080](https://cn.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_UHD.jpg&rf=LaDigue_UHD.jpg "圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙")
+
+---
 ### 04月13日：让我们一起庆祝宋干节！
 #### 班克鲁特的唐赛寺，泰国（© Ratnakorn Piyasirisorost/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄昏下的奥斯图尼, 普利亚, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄昏下的奥斯图尼, 普利亚, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_UHD.jpg&rf=LaDigue_UHD.jpg "黄昏下的奥斯图尼, 普利亚, 意大利")
-
----
-### 03月30日：尽享美景
-#### 悉尼港鸟瞰图，新南威尔士州，澳大利亚（© jamenpercy/Getty Images）
-
-![尽享美景](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_800x480.jpg&rf=LaDigue_800x480.jpg "尽享美景")
-
-今日图片展示了悉尼的著名景点，波光粼粼的海面映衬着世界级地标：杰克逊港，也就是人们更熟知的悉尼港。在图片右侧，可以俯瞰到悉尼歌剧院，这座建筑杰作以白色帆状外壳闻名，在澳大利亚的阳光下熠熠生辉作为联合国教科文组织世界遗产，该建筑由丹麦建筑师约恩·乌松 设计，耗时 14 年建成。如今，它每年举办超过 1500 场演出，是全球最知名的文化艺术中心之一。图片左侧，横跨港湾的是悉尼海港大桥，因其拱形钢架结构而被亲切地称为“衣架”，连接着悉尼的南北两岸。这座桥1932 年开通时，是世界上最宽的长跨度桥梁。喜欢冒险的游客还可以攀登桥顶，到达 440 英尺的高度，俯瞰令人惊叹的悉尼全景。
-
-杰克逊港，即悉尼港，是澳大利亚大陆上首个欧洲人定居点和殖民地的所在地，并一直在悉尼的历史与发展中扮演着重要角色。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%be%b3%e5%a4%a7%e5%88%a9%e4%ba%9a%e6%9d%b0%e5%85%8b%e9%80%8a%e6%b8%af&form=hpcapt&filters=HpDate:"20250329_1600" "Bing Wallpaper 2025 3月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250330_SydneyHarbour"&FORM=HPQUIZ "必应主页测验 2025 3月 30")
-[下载480](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_800x480.jpg&rf=LaDigue_800x480.jpg "悉尼港鸟瞰图，新南威尔士州，澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_1280x720.jpg&rf=LaDigue_1280x720.jpg "悉尼港鸟瞰图，新南威尔士州，澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "悉尼港鸟瞰图，新南威尔士州，澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_UHD.jpg&rf=LaDigue_UHD.jpg "悉尼港鸟瞰图，新南威尔士州，澳大利亚")
 
 ---
