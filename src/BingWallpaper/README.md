@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月15日：梦幻城堡！
+#### 卡拉奥拉城堡，格拉纳达，西班牙（© Ugo Mellone/eStock Photo）
+
+![梦幻城堡！](https://cn.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_800x480.jpg&rf=LaDigue_800x480.jpg "梦幻城堡！")
+
+在瓜迪克斯地区，群山与山谷之间，坐落着拉卡拉奥拉小镇，一座宏伟的文艺复兴时期城堡便矗立于此。这座建筑瑰宝建于16世纪，由第一代塞内特侯爵修建，既具备坚固的军事防御功能，又融入了意大利宫殿的优雅风格，是西班牙最早的文艺复兴建筑之一。
+
+这座城堡位于海拔 1250 米的高处，最近因被选为瑞安·康达尔和乔治·R·R·马丁创作的电视剧《龙之家族》的拍摄地而声名鹊起。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a0%bc%e6%8b%89%e7%ba%b3%e8%be%be&form=hpcapt&filters=HpDate:"20250414_1600" "Bing Wallpaper 2025 4月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250415_CerezoEnFlor"&FORM=HPQUIZ "必应主页测验 2025 4月 15")
+[下载480](https://cn.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_800x480.jpg&rf=LaDigue_800x480.jpg "卡拉奥拉城堡，格拉纳达，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡拉奥拉城堡，格拉纳达，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡拉奥拉城堡，格拉纳达，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_UHD.jpg&rf=LaDigue_UHD.jpg "卡拉奥拉城堡，格拉纳达，西班牙")
+
+---
 ### 04月14日：追逐开始！
 #### 圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙（© Jordi Chias/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TicanFrog_ZH-CN8949758487_1280x720.jpg&rf=LaDigue_1280x720.jpg "树蛙, 哥斯达黎加")
 [下载1080](https://cn.bing.com/th?id=OHR.TicanFrog_ZH-CN8949758487_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "树蛙, 哥斯达黎加")
 [下载UHD](https://cn.bing.com/th?id=OHR.TicanFrog_ZH-CN8949758487_UHD.jpg&rf=LaDigue_UHD.jpg "树蛙, 哥斯达黎加")
-
----
-### 03月31日：普利亚的“白色之城”
-#### 黄昏下的奥斯图尼, 普利亚, 意大利（© Feng Wei Photography/Getty Images）
-
-![普利亚的“白色之城”](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_800x480.jpg&rf=LaDigue_800x480.jpg "普利亚的“白色之城”")
-
-这座历史悠久的城市坐落在亚得里亚海的山顶，以其迷宫般的白色建筑、蜿蜒的小巷和阳光普照的广场吸引着游客。欢迎来到意大利普利亚大区的奥斯图尼！普利亚位于意大利“靴子”形版图的“脚后跟”，拥有该国大陆地区最长的海岸线，这里不仅有迷人的海滩、壮丽的悬崖，还有如今日图片中的奥斯图尼这样美丽的城市。
-
-普利亚全年气候宜人，夏季炎热干燥，冬季温和，但空气中的湿度和偶尔的降雨可以带来一丝凉爽。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e5%a5%a5%e6%96%af%e5%9b%be%e5%b0%bc&form=hpcapt&filters=HpDate:"20250330_1600" "Bing Wallpaper 2025 3月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250331_ItalyOstuni"&FORM=HPQUIZ "必应主页测验 2025 3月 31")
-[下载480](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_800x480.jpg&rf=LaDigue_800x480.jpg "黄昏下的奥斯图尼, 普利亚, 意大利")
-[下载720](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄昏下的奥斯图尼, 普利亚, 意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄昏下的奥斯图尼, 普利亚, 意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_UHD.jpg&rf=LaDigue_UHD.jpg "黄昏下的奥斯图尼, 普利亚, 意大利")
 
 ---
