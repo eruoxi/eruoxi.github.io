@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月16日：时光通道
+#### 卡奇纳桥，天然桥国家区，犹他州，美国（© Alan Majchrowicz/Getty Images）
+
+![时光通道](https://cn.bing.com/th?id=OHR.KachinaBridge_ZH-CN3333793502_800x480.jpg&rf=LaDigue_800x480.jpg "时光通道")
+
+在犹他州东南部偏远的峡谷深处，天然桥国家保护区静静地诉说着时间与自然的力量。这里坐落着三座壮丽的天然桥：西帕普桥、卡奇纳桥和欧瓦乔莫桥。这些名字来源于曾在此生活的阿纳萨齐祖先印第安人，向他们的文化遗产致敬。其中，西帕普桥是最大的一座，其巨大的桥洞足以容纳美国国会大厦的圆顶。位于西帕普和欧瓦乔莫之间的卡奇纳桥，以桥基处发现的岩画和壁画而得名。而欧瓦乔莫桥被认为是三座桥中最古老的一座，其纤细的拱形结构表明它可能最终会自然坍塌。
+
+公园内的三座天然桥分别被命名为卡奇纳桥、欧瓦乔莫桥和最大的一座西帕普桥。这些桥梁是由峡谷河床中的流水侵蚀作用历经千万年雕刻而成的。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a9%e7%84%b6%e6%a1%a5%e5%9b%bd%e5%ae%b6%e5%8c%ba&form=hpcapt&filters=HpDate:"20250415_1600" "Bing Wallpaper 2025 4月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250416_KachinaBridge"&FORM=HPQUIZ "必应主页测验 2025 4月 16")
+[下载480](https://cn.bing.com/th?id=OHR.KachinaBridge_ZH-CN3333793502_800x480.jpg&rf=LaDigue_800x480.jpg "卡奇纳桥，天然桥国家区，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.KachinaBridge_ZH-CN3333793502_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡奇纳桥，天然桥国家区，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.KachinaBridge_ZH-CN3333793502_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡奇纳桥，天然桥国家区，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KachinaBridge_ZH-CN3333793502_UHD.jpg&rf=LaDigue_UHD.jpg "卡奇纳桥，天然桥国家区，犹他州，美国")
+
+---
 ### 04月15日：梦幻城堡！
 #### 卡拉奥拉城堡，格拉纳达，西班牙（© Ugo Mellone/eStock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_1280x720.jpg&rf=LaDigue_1280x720.jpg "凯恩维尔附近荒地的砂岩地层, 犹他州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "凯恩维尔附近荒地的砂岩地层, 犹他州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_UHD.jpg&rf=LaDigue_UHD.jpg "凯恩维尔附近荒地的砂岩地层, 犹他州, 美国")
-
----
-### 04月01日：蹦跳迎接国家青蛙月
-#### 树蛙, 哥斯达黎加（© Ondrej Prosicky/Shutterstock）
-
-![蹦跳迎接国家青蛙月](https://cn.bing.com/th?id=OHR.TicanFrog_ZH-CN8949758487_800x480.jpg&rf=LaDigue_800x480.jpg "蹦跳迎接国家青蛙月")
-
-青蛙从恐龙时代就已经存在，并进化成了世界上最奇特、最酷的生物。世界上已知的青蛙种类超过4000种，从比一角硬币还小的新几内亚毛蛙到重达7磅以上的巨蛙，它们的形状和大小各不相同。有些青蛙几乎是透明的，比如玻璃蛙，而有些青蛙则剧毒无比。例如，金色毒蛙携带的毒素足以杀死 10个人。如果你认为所有的青蛙都生活在沼泽中，那就来认识一下沙漠雨蛙吧，这是一种又小又胖的两栖动物，通过皮肤吸收水分来适应干旱的环境。
-
-青蛙不仅能用肺呼吸，还能通过皮肤呼吸。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%bf%90%e6%b2%b3%e5%8c%ba%e6%a0%91%e8%9b%99&form=hpcapt&filters=HpDate:"20250331_1600" "Bing Wallpaper 2025 4月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250401_TicanFrog"&FORM=HPQUIZ "必应主页测验 2025 4月 1")
-[下载480](https://cn.bing.com/th?id=OHR.TicanFrog_ZH-CN8949758487_800x480.jpg&rf=LaDigue_800x480.jpg "树蛙, 哥斯达黎加")
-[下载720](https://cn.bing.com/th?id=OHR.TicanFrog_ZH-CN8949758487_1280x720.jpg&rf=LaDigue_1280x720.jpg "树蛙, 哥斯达黎加")
-[下载1080](https://cn.bing.com/th?id=OHR.TicanFrog_ZH-CN8949758487_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "树蛙, 哥斯达黎加")
-[下载UHD](https://cn.bing.com/th?id=OHR.TicanFrog_ZH-CN8949758487_UHD.jpg&rf=LaDigue_UHD.jpg "树蛙, 哥斯达黎加")
 
 ---
