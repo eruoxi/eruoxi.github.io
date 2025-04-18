@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月19日：国家公园周开始了
+#### 锡安国家公园，犹他州，美国（© Simon Dannhauer/Getty Images）
+
+![国家公园周开始了](https://cn.bing.com/th?id=OHR.ZionValley_ZH-CN0611524754_800x480.jpg&rf=LaDigue_800x480.jpg "国家公园周开始了")
+
+穿上你的登山靴——国家公园周开始了！这个为期九天的活动从今天开始，鼓励人们探索并欣赏国家公园的自然美景与文化遗产。这是一个了解这些受保护区域、参与保护工作、并享受壮丽景观的绝佳时机。可以通过参观国家公园、分享这些自然宝藏的信息，来加入这一庆祝活动，同时也感受它们在国家遗产中所扮演的重要角色。
+
+人类在该地区的居住始于大约 8,000 年前，当时由美洲原住民的小型家庭群体组成。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%94%a1%e5%ae%89%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250418_1600" "Bing Wallpaper 2025 4月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250419_ZionValley"&FORM=HPQUIZ "必应主页测验 2025 4月 19")
+[下载480](https://cn.bing.com/th?id=OHR.ZionValley_ZH-CN0611524754_800x480.jpg&rf=LaDigue_800x480.jpg "锡安国家公园，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ZionValley_ZH-CN0611524754_1280x720.jpg&rf=LaDigue_1280x720.jpg "锡安国家公园，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ZionValley_ZH-CN0611524754_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "锡安国家公园，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ZionValley_ZH-CN0611524754_UHD.jpg&rf=LaDigue_UHD.jpg "锡安国家公园，犹他州，美国")
+
+---
 ### 04月18日：纪念历史
 #### 卡帕多西亚格雷梅国家公园上空的热气球，土耳其（© Anton Petrus/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_UHD.jpg&rf=LaDigue_UHD.jpg "日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙")
-
----
-### 04月04日：春和景明
-#### 苏州古镇风景，江苏省，中国（© gyn9038/Getty Images）
-
-![春和景明](https://cn.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_800x480.jpg&rf=LaDigue_800x480.jpg "春和景明")
-
-清明是中国二十四节气之一，源于古代祖先信仰和春祭。至今，扫墓、踏青仍是清明节的主要活动。清明节，春回大地，万物生机，正是人们出门赏春的好时节。
-
-同里古镇位于苏州，也是江南六大古镇之一。古镇内有许多精致的园林，古色古香，极具江南特色。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b8%85%e6%98%8e%e8%8a%82&form=hpcapt&filters=HpDate:"20250403_1600" "Bing Wallpaper 2025 4月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250404_QingMingY25"&FORM=HPQUIZ "必应主页测验 2025 4月 4")
-[下载480](https://cn.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_800x480.jpg&rf=LaDigue_800x480.jpg "苏州古镇风景，江苏省，中国")
-[下载720](https://cn.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_1280x720.jpg&rf=LaDigue_1280x720.jpg "苏州古镇风景，江苏省，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "苏州古镇风景，江苏省，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_UHD.jpg&rf=LaDigue_UHD.jpg "苏州古镇风景，江苏省，中国")
 
 ---
