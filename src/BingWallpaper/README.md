@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月20日：复活节兔子要来了
+#### 春天里的野生小兔子（© Fiona McAllister Photography/Getty Images）
+
+![复活节兔子要来了](https://cn.bing.com/th?id=OHR.BunnyLove_ZH-CN1145897965_800x480.jpg&rf=LaDigue_800x480.jpg "复活节兔子要来了")
+
+复活节快乐！今天是全世界数十亿基督徒的重要节日，这是一个重生、庆祝与传承传统并存的时刻。复活节，也被称为“逾越节”或“复活主日”，纪念《新约》中所描述的耶稣基督的复活事件。这也是一个充满节日传统的时刻，从日出礼拜到寻找复活节彩蛋活动，当然还有深受大家喜爱的复活节兔子！
+
+复活节的另一个象征是兔子，因为它繁殖能力强，人们将其视为新生命的创造者。此外，百合花是复活节期间主要使用的花卉。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%8d%e6%b4%bb%e8%8a%82%e5%85%94%e5%ad%90&form=hpcapt&filters=HpDate:"20250419_1600" "Bing Wallpaper 2025 4月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250420_BunnyLove"&FORM=HPQUIZ "必应主页测验 2025 4月 20")
+[下载480](https://cn.bing.com/th?id=OHR.BunnyLove_ZH-CN1145897965_800x480.jpg&rf=LaDigue_800x480.jpg "春天里的野生小兔子")
+[下载720](https://cn.bing.com/th?id=OHR.BunnyLove_ZH-CN1145897965_1280x720.jpg&rf=LaDigue_1280x720.jpg "春天里的野生小兔子")
+[下载1080](https://cn.bing.com/th?id=OHR.BunnyLove_ZH-CN1145897965_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天里的野生小兔子")
+[下载UHD](https://cn.bing.com/th?id=OHR.BunnyLove_ZH-CN1145897965_UHD.jpg&rf=LaDigue_UHD.jpg "春天里的野生小兔子")
+
+---
 ### 04月19日：国家公园周开始了
 #### 锡安国家公园，犹他州，美国（© Simon Dannhauer/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_1280x720.jpg&rf=LaDigue_1280x720.jpg "碎片大厦，伦敦")
 [下载1080](https://cn.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "碎片大厦，伦敦")
 [下载UHD](https://cn.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_UHD.jpg&rf=LaDigue_UHD.jpg "碎片大厦，伦敦")
-
----
-### 04月05日：朝圣圣胡安·德·加兹特鲁加特
-#### 日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙（© Eloi_Omella/Getty Images）
-
-![朝圣圣胡安·德·加兹特鲁加特](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_800x480.jpg&rf=LaDigue_800x480.jpg "朝圣圣胡安·德·加兹特鲁加特")
-
-加兹特鲁加特小岛位于西班牙巴斯克地区比斯开海岸，以其壮丽的风景而闻名。岛顶坐落着圣胡安·德·加兹特卢加切修道院，供奉施洗者圣约翰。这座修道院始建于10 世纪，曾因战争和火灾多次损毁，亦数次重建。如今的建筑矗立在小岛之巅，游客需沿着一条狭窄的石阶小径攀登241 级台阶方能抵达。这里是著名的朝圣地，游客常会敲响教堂的钟三次并许愿。相传施洗者约翰曾踏足此地。站在山顶，可俯瞰比斯开湾崎岖的海岸线，远眺坎塔布连海的壮美风光。加兹特鲁加特因成为美剧《权力的游戏》的取景地而名声大噪。在剧中，它被塑造为坦格利安家族的祖传领地龙石岛。
-
-这座教堂随着时间的推移逐渐破败，最终于 1886 年被拆除，随后从零开始重建。不幸的是，在拆除过程中，地下出土的所有文物，如硬币和炮弹，均被弃入大海，令人惋惜。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e5%85%b9%e7%89%b9%e9%b2%81%e5%8a%a0%e7%89%b9&form=hpcapt&filters=HpDate:"20250404_1600" "Bing Wallpaper 2025 4月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250405_GaztelugatxeSunset"&FORM=HPQUIZ "必应主页测验 2025 4月 5")
-[下载480](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_800x480.jpg&rf=LaDigue_800x480.jpg "日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_UHD.jpg&rf=LaDigue_UHD.jpg "日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙")
 
 ---
