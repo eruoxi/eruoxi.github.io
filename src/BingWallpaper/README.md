@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月21日：银河的魔力之下
+#### 银河下的约书亚树，加利福尼亚州，美国（© Chao Zhang/Getty Images）
+
+![银河的魔力之下](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_800x480.jpg&rf=LaDigue_800x480.jpg "银河的魔力之下")
+
+想象一下，站在一片漆黑的天空下，银河像一条发光的丝带横跨天际。这正是“国际暗黑周”希望带给我们的体验。每年四月，在新月周（今年是4 月 21 日至 27 日）期间，人们被邀请关闭灯光，仰望星空。这项活动由高中生詹妮弗·巴洛于2003 年发起，旨在对抗光污染。体验夜空之美的最佳地点之一是位于加利福尼亚州东南部的约书亚树国家公园，这是一个国际黑暗公园。在这里，由于没有人工光源的干扰，游客可以看到我们的祖先曾经看到过的星星。你知道吗？光污染使我们无法看到银河系中的大多数星星。通过减少光污染，我们可以重新与宇宙的美丽和神奇建立联系。
+
+暗夜保护区是受保护的区域，用于防止或减少光污染，保持夜空的黑暗。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a6%e4%b9%a6%e4%ba%9a%e6%a0%91&form=hpcapt&filters=HpDate:"20250420_1600" "Bing Wallpaper 2025 4月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250421_JoshuaStars"&FORM=HPQUIZ "必应主页测验 2025 4月 21")
+[下载480](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_800x480.jpg&rf=LaDigue_800x480.jpg "银河下的约书亚树，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_1280x720.jpg&rf=LaDigue_1280x720.jpg "银河下的约书亚树，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "银河下的约书亚树，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_UHD.jpg&rf=LaDigue_UHD.jpg "银河下的约书亚树，加利福尼亚州，美国")
+
+---
 ### 04月20日：复活节兔子要来了
 #### 春天里的野生小兔子（© Fiona McAllister Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_1280x720.jpg&rf=LaDigue_1280x720.jpg "美洲海狸, Moran, 怀俄明州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美洲海狸, Moran, 怀俄明州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_UHD.jpg&rf=LaDigue_UHD.jpg "美洲海狸, Moran, 怀俄明州, 美国")
-
----
-### 04月06日：伦敦最尖锐的地标
-#### 碎片大厦，伦敦（© Dennis Fischer Photography/Moment/Getty Images）
-
-![伦敦最尖锐的地标](https://cn.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_800x480.jpg&rf=LaDigue_800x480.jpg "伦敦最尖锐的地标")
-
-伦敦天际线中有许多标志性建筑，但没有一座能像碎片大厦一样独具特色。这座玻璃幕墙摩天大楼高达310 米，不仅是英国最高建筑，更成为了现代伦敦的象征。它由意大利建筑师伦佐·皮亚诺设计，他以高科技、轻质且实用的设计风格著称。受教堂尖塔和船桅的启发，他构想出一座线条流畅、逐渐收窄的建筑，能够反射不断变化的天空。大厦于2009 年开始建设，并于2012 年正式落成，成为西欧最高的摩天大楼。
-
-2015年，在英国旅游局举办的“#BritainisYouName#”活动中，“摘星塔”这一名称得到了碎片大厦的青睐，并受到了多家英国媒体的关注。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a2%8e%e7%89%87%e5%a4%a7%e5%8e%a6&form=hpcapt&filters=HpDate:"20250405_1600" "Bing Wallpaper 2025 4月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250406_ShardLondon2025"&FORM=HPQUIZ "必应主页测验 2025 4月 6")
-[下载480](https://cn.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_800x480.jpg&rf=LaDigue_800x480.jpg "碎片大厦，伦敦")
-[下载720](https://cn.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_1280x720.jpg&rf=LaDigue_1280x720.jpg "碎片大厦，伦敦")
-[下载1080](https://cn.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "碎片大厦，伦敦")
-[下载UHD](https://cn.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_UHD.jpg&rf=LaDigue_UHD.jpg "碎片大厦，伦敦")
 
 ---
