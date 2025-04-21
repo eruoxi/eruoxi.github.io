@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月22日：我们的能源，我们的星球
+#### 大棱镜彩泉，黄石国家公园，怀俄明州，美国（© Ajith Kumar/Getty Images）
+
+![我们的能源，我们的星球](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_800x480.jpg&rf=LaDigue_800x480.jpg "我们的能源，我们的星球")
+
+在地球日这一天，让我们前往大自然最壮观的地热奇观之一，位于美国怀俄明州黄石国家公园的大棱镜温泉。这是美国最大的温泉，直径达 370 英尺，水温高达 160 华氏度。这一地热奇观由地表下巨大的黄石火山所产生的强大热能驱动。温泉中色彩斑斓的蓝色、绿色、黄色和橙色环带是由生活在富含矿物质的热水中的嗜热微生物（称为嗜热菌）所形成的。
+
+2025年世界地球日的主题是“我们的能源，我们的星球”，呼吁全球团结一致，支持可再生能源，并在2030年前将全球清洁电力的产量提高三倍。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%9c%b0%e7%90%83%e6%97%a5&form=hpcapt&filters=HpDate:"20250421_1600" "Bing Wallpaper 2025 4月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250422_YellowstoneSpring"&FORM=HPQUIZ "必应主页测验 2025 4月 22")
+[下载480](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_800x480.jpg&rf=LaDigue_800x480.jpg "大棱镜彩泉，黄石国家公园，怀俄明州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_1280x720.jpg&rf=LaDigue_1280x720.jpg "大棱镜彩泉，黄石国家公园，怀俄明州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大棱镜彩泉，黄石国家公园，怀俄明州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_UHD.jpg&rf=LaDigue_UHD.jpg "大棱镜彩泉，黄石国家公园，怀俄明州，美国")
+
+---
 ### 04月21日：银河的魔力之下
 #### 银河下的约书亚树，加利福尼亚州，美国（© Chao Zhang/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_1280x720.jpg&rf=LaDigue_1280x720.jpg "春天的水仙花在清晨绽放")
 [下载1080](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天的水仙花在清晨绽放")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_UHD.jpg&rf=LaDigue_UHD.jpg "春天的水仙花在清晨绽放")
-
----
-### 04月07日：你好，海狸！
-#### 美洲海狸, Moran, 怀俄明州, 美国（© Enrique Aguirre Aves/Getty Images）
-
-![你好，海狸！](https://cn.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_800x480.jpg&rf=LaDigue_800x480.jpg "你好，海狸！")
-
-今天，我们迎来国际海狸日！该节日由湿地与野生海狸组织于2009 年设立，旨在强调海狸在生态系统中的重要作用。海狸是了不起的动物，以筑坝技能闻名，它们建造的湿地为众多物种提供了栖息地。作为北美最大的啮齿动物，成年海狸体长可达3 英尺，还不包括其独特的扁平尾巴。它们的门牙不断生长，并因覆盖着厚厚的橙色珐琅质而呈现独特的色泽。海狸啃食树木不仅能保持牙齿健康，还能帮助调节环境。难怪它们坚固的门牙让它们成为大自然最优秀的工程师之一。
-
-海狸主要在夜间活动，并且是出色的游泳健将，能在水下潜伏长达 15 分钟。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%b5%b7%e7%8b%b8%e6%97%a5&form=hpcapt&filters=HpDate:"20250406_1600" "Bing Wallpaper 2025 4月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250407_BeaverDay"&FORM=HPQUIZ "必应主页测验 2025 4月 7")
-[下载480](https://cn.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_800x480.jpg&rf=LaDigue_800x480.jpg "美洲海狸, Moran, 怀俄明州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_1280x720.jpg&rf=LaDigue_1280x720.jpg "美洲海狸, Moran, 怀俄明州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美洲海狸, Moran, 怀俄明州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_UHD.jpg&rf=LaDigue_UHD.jpg "美洲海狸, Moran, 怀俄明州, 美国")
 
 ---
