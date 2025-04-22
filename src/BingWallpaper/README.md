@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月23日：波罗的海的魔力
+#### 海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国（© Frank Lukasseck/eStock Photo）
+
+![波罗的海的魔力](https://cn.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_800x480.jpg&rf=LaDigue_800x480.jpg "波罗的海的魔力")
+
+沙滩椅最早是在 19 世纪被发明的，用于防风和防止细沙侵扰。即便是在风暴天气下，如今日照片中石瓦尔德码头前的场景，沙滩椅依旧有其特别的魅力。石瓦尔德是一个风景如画的半岛，最初仅通过盐沼和艾希霍尔茨低地与大陆相连。如今，它是追求宁静与自然的度假者的天堂。
+
+在海利根港的海滩上，有超过 900 把沙滩椅可供租用。如果你深深爱上了这种户外家具，甚至还可以买下来——无论是新的还是二手的。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e5%88%a9%e6%a0%b9%e6%b8%af%e6%96%af&form=hpcapt&filters=HpDate:"20250422_1600" "Bing Wallpaper 2025 4月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250423_BeachChairsSteinwarder"&FORM=HPQUIZ "必应主页测验 2025 4月 23")
+[下载480](https://cn.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_800x480.jpg&rf=LaDigue_800x480.jpg "海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国")
+[下载720](https://cn.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_1280x720.jpg&rf=LaDigue_1280x720.jpg "海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_UHD.jpg&rf=LaDigue_UHD.jpg "海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国")
+
+---
 ### 04月22日：我们的能源，我们的星球
 #### 大棱镜彩泉，黄石国家公园，怀俄明州，美国（© Ajith Kumar/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_1280x720.jpg&rf=LaDigue_1280x720.jpg "纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_UHD.jpg&rf=LaDigue_UHD.jpg "纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊")
-
----
-### 04月08日：芬芳清新的春天
-#### 春天的水仙花在清晨绽放（© LedyX/Shutterstock）
-
-![芬芳清新的春天](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_800x480.jpg&rf=LaDigue_800x480.jpg "芬芳清新的春天")
-
-春天百花盛开，而水仙花是最著名的花卉之一。几百年来，人们不断在诗歌和绘画中描绘水仙花，它们在不同国家的文化中都占有重要地位。中国水仙属于多花水仙的一种，已有上千年的栽培历史。它们是传统的观赏花卉，并被列为中国十大名花之一。中国水仙美丽、清新、纯净、优雅，具有独特的气质，这使得古代文人墨客为其作诗咏颂，留下了许多脍炙人口的诗篇。
-
-水仙花最适宜在充足的阳光下生长，尽管它们在半阴的环境中也能存活。一般来说，它们对土壤要求不高，但良好的排水性至关重要，因为过湿的环境容易导致根部腐烂。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b0%b4%e4%bb%99%e8%8a%b1&form=hpcapt&filters=HpDate:"20250407_1600" "Bing Wallpaper 2025 4月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250408_SpringDaffodils"&FORM=HPQUIZ "必应主页测验 2025 4月 8")
-[下载480](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_800x480.jpg&rf=LaDigue_800x480.jpg "春天的水仙花在清晨绽放")
-[下载720](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_1280x720.jpg&rf=LaDigue_1280x720.jpg "春天的水仙花在清晨绽放")
-[下载1080](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天的水仙花在清晨绽放")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_UHD.jpg&rf=LaDigue_UHD.jpg "春天的水仙花在清晨绽放")
 
 ---
