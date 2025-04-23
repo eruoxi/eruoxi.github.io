@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月24日：崎岖山峰与野性水域
+#### 阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国（© Wander Photography/Getty Images）
+
+![崎岖山峰与野性水域](https://cn.bing.com/th?id=OHR.KenaiSpires_ZH-CN3045699778_800x480.jpg&rf=LaDigue_800x480.jpg "崎岖山峰与野性水域")
+
+随着国家公园周的持续进行，让我们把目光转向阿拉斯加基奈半岛上的瑰宝——基奈峡湾国家公园。该公园面积超过1,000 平方英里，拥有高耸的峡湾、蜿蜒的河谷和高山地貌。其中超过一半的区域被冰雪覆盖，冰川占据了其面积的 51%。在 20 世纪，公园内的冰川不断消退，为植物和动物的生长腾出了新的土地。从古老的西加云杉到娇嫩的柳兰幼苗，再到覆盖森林地面的茂密苔藓，尽管地势崎岖，基奈峡湾的植物依然繁茂生长。该公园也是多种陆地和海洋哺乳动物的栖息地，包括森林狼、豪猪、加拿大猞猁，以及虎鲸和长须鲸等鲸目动物。这里还栖息着多种鸟类，如白头海雕和皮尔氏游隼。
+
+基奈峡湾国家公园是阿拉斯加最受欢迎的国家公园之一，为游客提供了休闲和冒险兼备的多种活动，包括游船观光、皮划艇、露营、公用小屋、钓鱼、沙滩拾趣、骑行、徒步旅行、越野滑雪、狗拉雪橇、护林员讲解活动、观光飞行和登山等。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e6%8b%89%e6%96%af%e5%8a%a0%e5%9f%ba%e5%a5%88%e5%b3%a1%e6%b9%be%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250423_1600" "Bing Wallpaper 2025 4月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250424_KenaiSpires"&FORM=HPQUIZ "必应主页测验 2025 4月 24")
+[下载480](https://cn.bing.com/th?id=OHR.KenaiSpires_ZH-CN3045699778_800x480.jpg&rf=LaDigue_800x480.jpg "阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.KenaiSpires_ZH-CN3045699778_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.KenaiSpires_ZH-CN3045699778_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KenaiSpires_ZH-CN3045699778_UHD.jpg&rf=LaDigue_UHD.jpg "阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国")
+
+---
 ### 04月23日：波罗的海的魔力
 #### 海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国（© Frank Lukasseck/eStock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LittleFoxes_ZH-CN8622806156_1280x720.jpg&rf=LaDigue_1280x720.jpg "靠近巢穴的红狐幼崽")
 [下载1080](https://cn.bing.com/th?id=OHR.LittleFoxes_ZH-CN8622806156_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "靠近巢穴的红狐幼崽")
 [下载UHD](https://cn.bing.com/th?id=OHR.LittleFoxes_ZH-CN8622806156_UHD.jpg&rf=LaDigue_UHD.jpg "靠近巢穴的红狐幼崽")
-
----
-### 04月09日：在繁星闪耀之前
-#### 纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊（© Sizun Eye/Getty Images）
-
-![在繁星闪耀之前](https://cn.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_800x480.jpg&rf=LaDigue_800x480.jpg "在繁星闪耀之前")
-
-当白昼消退或黎明降临，希腊的纳克索斯岛便笼罩在一片深邃的蓝色光辉之中，沉浸在蓝色时刻的神秘魅力里。在这短暂的时间里，当太阳位于地平线下方，余晖映照，使天空呈现出浓郁的蓝色。
-
-纳克索斯岛的大理石开采可追溯至公元前550年以前。纳克索斯大理石曾被用于古奥林匹亚遗址的屋顶瓦片及雅典卫城的建筑。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%8c%e8%85%8a%e7%ba%b3%e5%85%8b%e7%b4%a2%e6%96%af%e5%b2%9b&form=hpcapt&filters=HpDate:"20250408_1600" "Bing Wallpaper 2025 4月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250409_BlueNaxos"&FORM=HPQUIZ "必应主页测验 2025 4月 9")
-[下载480](https://cn.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_800x480.jpg&rf=LaDigue_800x480.jpg "纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊")
-[下载720](https://cn.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_1280x720.jpg&rf=LaDigue_1280x720.jpg "纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊")
-[下载1080](https://cn.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊")
-[下载UHD](https://cn.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_UHD.jpg&rf=LaDigue_UHD.jpg "纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊")
 
 ---
