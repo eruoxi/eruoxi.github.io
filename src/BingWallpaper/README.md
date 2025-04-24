@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月25日：身着燕尾服的水手们
+#### 麦哲伦企鹅, 志愿者角, 福克兰群岛（© imageBROKER/Matthias Graben/Getty Images）
+
+![身着燕尾服的水手们](https://cn.bing.com/th?id=OHR.MagellanicPenguin_ZH-CN3177950090_800x480.jpg&rf=LaDigue_800x480.jpg "身着燕尾服的水手们")
+
+可爱、笨拙又极具魅力，企鹅在今天成为了焦点。世界企鹅日旨在庆祝这些不会飞的鸟类，同时提高人们对其栖息地的认识。这个节日起源于南极洲罗斯岛上的美国麦克默多站，当时科学家们观察到阿德利企鹅在这个时候开始年度迁徙。受此自然现象的启发，世界企鹅日应运而生，以强调企鹅在生态系统中的作用、它们面临的威胁以及保护栖息地的紧迫性。
+
+麦哲伦企鹅年复一年地与同一只伴侣交配。雄企鹅会重新占据前一年使用过的洞穴，等待与雌企鹅重聚。雌企鹅仅通过叫声就能认出自己的伴侣。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bc%81%e9%b9%85&form=hpcapt&filters=HpDate:"20250424_1600" "Bing Wallpaper 2025 4月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250425_MagellanicPenguin"&FORM=HPQUIZ "必应主页测验 2025 4月 25")
+[下载480](https://cn.bing.com/th?id=OHR.MagellanicPenguin_ZH-CN3177950090_800x480.jpg&rf=LaDigue_800x480.jpg "麦哲伦企鹅, 志愿者角, 福克兰群岛")
+[下载720](https://cn.bing.com/th?id=OHR.MagellanicPenguin_ZH-CN3177950090_1280x720.jpg&rf=LaDigue_1280x720.jpg "麦哲伦企鹅, 志愿者角, 福克兰群岛")
+[下载1080](https://cn.bing.com/th?id=OHR.MagellanicPenguin_ZH-CN3177950090_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "麦哲伦企鹅, 志愿者角, 福克兰群岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.MagellanicPenguin_ZH-CN3177950090_UHD.jpg&rf=LaDigue_UHD.jpg "麦哲伦企鹅, 志愿者角, 福克兰群岛")
+
+---
 ### 04月24日：崎岖山峰与野性水域
 #### 阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国（© Wander Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_1280x720.jpg&rf=LaDigue_1280x720.jpg "郁金香，荷兰")
 [下载1080](https://cn.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郁金香，荷兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_UHD.jpg&rf=LaDigue_UHD.jpg "郁金香，荷兰")
-
----
-### 04月10日：野性本能
-#### 靠近巢穴的红狐幼崽（© WildMedia/Shutterstock）
-
-![野性本能](https://cn.bing.com/th?id=OHR.LittleFoxes_ZH-CN8622806156_800x480.jpg&rf=LaDigue_800x480.jpg "野性本能")
-
-每年4月10日，童年的争吵、玩笑、抢玩具的回忆便浮现脑海。今天是兄弟姐妹日，这是一个感恩那些曾经告状、争夺玩具，却依然是你最坚定支持者的人的日子。尽管兄弟姐妹日尚未成为官方法定节日，但它已在多个国家得到认可。该节日由克劳迪娅·埃瓦特创立，以纪念她已故的兄弟姐妹。自1995 年以来，兄弟姐妹日基金会一直致力于推广这一节日，以庆祝兄弟姐妹之间独特的联系。
-
-红狐能利用地球磁场寻找猎物。它们依靠猎物的影子与声音，精准判断最佳捕猎时机。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a2%e7%8b%90%e5%b9%bc%e5%b4%bd&form=hpcapt&filters=HpDate:"20250409_1600" "Bing Wallpaper 2025 4月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250410_LittleFoxes"&FORM=HPQUIZ "必应主页测验 2025 4月 10")
-[下载480](https://cn.bing.com/th?id=OHR.LittleFoxes_ZH-CN8622806156_800x480.jpg&rf=LaDigue_800x480.jpg "靠近巢穴的红狐幼崽")
-[下载720](https://cn.bing.com/th?id=OHR.LittleFoxes_ZH-CN8622806156_1280x720.jpg&rf=LaDigue_1280x720.jpg "靠近巢穴的红狐幼崽")
-[下载1080](https://cn.bing.com/th?id=OHR.LittleFoxes_ZH-CN8622806156_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "靠近巢穴的红狐幼崽")
-[下载UHD](https://cn.bing.com/th?id=OHR.LittleFoxes_ZH-CN8622806156_UHD.jpg&rf=LaDigue_UHD.jpg "靠近巢穴的红狐幼崽")
 
 ---
