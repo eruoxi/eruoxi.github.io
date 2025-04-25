@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月26日：悬崖、洞穴与清澈的水域
+#### 印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大（© Maurice Prokaziuk/Getty Images）
+
+![悬崖、洞穴与清澈的水域](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_800x480.jpg&rf=LaDigue_800x480.jpg "悬崖、洞穴与清澈的水域")
+
+布鲁斯半岛国家公园是安大略省一段令人叹为观止的尼亚加拉断崖地貌，由时间与水流共同雕琢而成。该公园于 1987 年设立，保护着高耸的石灰岩悬崖、隐秘的洞穴、茂密的森林和未被破坏的湖岸线。作为联合国教科文组织生物圈保护区的一部分，这里是多种适应崎岖地形的野生动物的避难所，比如黑熊、大响尾蛇和白尾鹿。
+
+布鲁斯半岛北部远离大多伦多地区的喧嚣都市，因此被指定为“暗夜星空保护区”。在无云的夜晚，可见银河系中多达 1,500 亿颗星星闪耀其间。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e9%b2%81%e6%96%af%e5%8d%8a%e5%b2%9b%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250425_1600" "Bing Wallpaper 2025 4月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250426_BrucePeninsula"&FORM=HPQUIZ "必应主页测验 2025 4月 26")
+[下载480](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_800x480.jpg&rf=LaDigue_800x480.jpg "印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_1280x720.jpg&rf=LaDigue_1280x720.jpg "印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_UHD.jpg&rf=LaDigue_UHD.jpg "印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大")
+
+---
 ### 04月25日：身着燕尾服的水手们
 #### 麦哲伦企鹅, 志愿者角, 福克兰群岛（© imageBROKER/Matthias Graben/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpaceFlight_ZH-CN0927394503_1280x720.jpg&rf=LaDigue_1280x720.jpg "从国际空间站穹顶俯瞰南太平洋")
 [下载1080](https://cn.bing.com/th?id=OHR.SpaceFlight_ZH-CN0927394503_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从国际空间站穹顶俯瞰南太平洋")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpaceFlight_ZH-CN0927394503_UHD.jpg&rf=LaDigue_UHD.jpg "从国际空间站穹顶俯瞰南太平洋")
-
----
-### 04月11日：盛放的美好时光
-#### 郁金香，荷兰（© 1111IESPDJ/Getty Images）
-
-![盛放的美好时光](https://cn.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_800x480.jpg&rf=LaDigue_800x480.jpg "盛放的美好时光")
-
-从著名的郁金香花田到世界上最大的花卉拍卖市场，荷兰与郁金香的渊源悠久。有趣的是，郁金香的原产地并非荷兰。这些绚丽的花朵最早于 16 世纪末由奥斯曼帝国传入荷兰。到了 17 世纪，郁金香的价值飙升，甚至一颗郁金香球茎的价格曾超过一栋房屋。这一时期被称为“郁金香狂热”，常被视为是最早有记录的金融泡沫之一。1637 年价格崩盘后，许多人一夜破产，但荷兰人对郁金香的喜爱却从未消退。
-
-郁金香的花瓣可食用。其口感因品种和季节而异，类似于生菜或其他沙拉蔬菜。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%83%81%e9%87%91%e9%a6%99&form=hpcapt&filters=HpDate:"20250410_1600" "Bing Wallpaper 2025 4月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250411_TulipsWindmill"&FORM=HPQUIZ "必应主页测验 2025 4月 11")
-[下载480](https://cn.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_800x480.jpg&rf=LaDigue_800x480.jpg "郁金香，荷兰")
-[下载720](https://cn.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_1280x720.jpg&rf=LaDigue_1280x720.jpg "郁金香，荷兰")
-[下载1080](https://cn.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郁金香，荷兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_UHD.jpg&rf=LaDigue_UHD.jpg "郁金香，荷兰")
 
 ---
