@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月27日：就在这里驻足吧
+#### 红木国家公园和州立公园, 加利福尼亚州, 美国（© Bob Pool/Getty Images）
+
+![就在这里驻足吧](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_800x480.jpg&rf=LaDigue_800x480.jpg "就在这里驻足吧")
+
+国家公园周今天落下帷幕，但这些森林已经庆祝大自然数千年了。走进一个树木直插云霄的世界。位于加利福尼亚州红木国家公园和州立公园的红木林，是地球上最高的树木之一，高达超过 370 英尺。州立公园包括红木国家公园、德尔诺特海岸红木州立公园、杰迪戴亚·史密斯红木州立公园和草原溪红木州立公园。有些红木树在玛雅人建造神庙和中国修建长城时就已经存在了。自 1968 年起被保护，这座公园保留了全球近一半现存的原始红木森林。
+
+作为世界上最高树木的家园，这座世界遗产地兼国际生物圈保护区保护了全球近一半的原始红木林，其中包括高度超过 370 英尺的冠军树种，比自由女神像还高五层楼。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a2%e6%9c%a8%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad%e5%92%8c%e5%b7%9e%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250426_1600" "Bing Wallpaper 2025 4月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250427_RedwoodGrove"&FORM=HPQUIZ "必应主页测验 2025 4月 27")
+[下载480](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_800x480.jpg&rf=LaDigue_800x480.jpg "红木国家公园和州立公园, 加利福尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_1280x720.jpg&rf=LaDigue_1280x720.jpg "红木国家公园和州立公园, 加利福尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红木国家公园和州立公园, 加利福尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_UHD.jpg&rf=LaDigue_UHD.jpg "红木国家公园和州立公园, 加利福尼亚州, 美国")
+
+---
 ### 04月26日：悬崖、洞穴与清澈的水域
 #### 印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大（© Maurice Prokaziuk/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ThailandPagodas_ZH-CN1143878296_1280x720.jpg&rf=LaDigue_1280x720.jpg "班克鲁特的唐赛寺，泰国")
 [下载1080](https://cn.bing.com/th?id=OHR.ThailandPagodas_ZH-CN1143878296_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "班克鲁特的唐赛寺，泰国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ThailandPagodas_ZH-CN1143878296_UHD.jpg&rf=LaDigue_UHD.jpg "班克鲁特的唐赛寺，泰国")
-
----
-### 04月12日：改变世界的108分钟
-#### 从国际空间站穹顶俯瞰南太平洋（© NASA）
-
-![改变世界的108分钟](https://cn.bing.com/th?id=OHR.SpaceFlight_ZH-CN0927394503_800x480.jpg&rf=LaDigue_800x480.jpg "改变世界的108分钟")
-
-在人类历史上不久之前，我们迈出了超越地球的第一步。几千年来，人类仰望星空，想象着星辰大海的奥秘。然后，在1961年4月12日，一个人离开了地球，永远改变了历史。那天早上，苏联飞行员尤里·加加林登上了一艘名为“东方1号”的小型球形宇宙飞船。倒计时开始，发动机点火。随着火箭呼啸着冲向天空，他喊道：“出发了！”就这样，地球迎来了首位太空旅行者。
-
-联合国邮政管理局在2011年发行了纪念邮票，以纪念加加林飞行50周年。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e8%bd%bd%e4%ba%ba%e8%88%aa%e5%a4%a9%e6%97%a5&form=hpcapt&filters=HpDate:"20250411_1600" "Bing Wallpaper 2025 4月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250412_SpaceFlight"&FORM=HPQUIZ "必应主页测验 2025 4月 12")
-[下载480](https://cn.bing.com/th?id=OHR.SpaceFlight_ZH-CN0927394503_800x480.jpg&rf=LaDigue_800x480.jpg "从国际空间站穹顶俯瞰南太平洋")
-[下载720](https://cn.bing.com/th?id=OHR.SpaceFlight_ZH-CN0927394503_1280x720.jpg&rf=LaDigue_1280x720.jpg "从国际空间站穹顶俯瞰南太平洋")
-[下载1080](https://cn.bing.com/th?id=OHR.SpaceFlight_ZH-CN0927394503_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从国际空间站穹顶俯瞰南太平洋")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpaceFlight_ZH-CN0927394503_UHD.jpg&rf=LaDigue_UHD.jpg "从国际空间站穹顶俯瞰南太平洋")
 
 ---
