@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月28日：这只黑斑羚正在何处漫游？
+#### 莫雷米野生动物保护区的高角羚，博茨瓦纳（© Paul Souders/Getty Images）
+
+![这只黑斑羚正在何处漫游？](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_800x480.jpg&rf=LaDigue_800x480.jpg "这只黑斑羚正在何处漫游？")
+
+这里是野性主宰之地，大自然按自己的节奏律动。莫雷米禁猎区横跨博茨瓦纳奥卡万戈三角洲的东部，面积达1,900 平方英里。该保护区于 1963 年设立，是非洲首个由当地巴塔瓦纳人（一个原住于南部非洲的班图族裔）创建的自然保护区，旨在防止不受控制的狩猎行为，保护该地区的野生动物。永久性的水源与干燥陆地相结合，使这里成为非洲观察野生动物最理想的地点之一。
+
+黑斑羚与牛椋鸟之间存在共生关系，牛椋鸟以黑斑羚身体某些它自己无法触及部位上的蜱虫为食。黑斑羚是与牛椋鸟相关联的体型最小的有蹄类动物。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%ab%98%e8%a7%92%e7%be%9a&form=hpcapt&filters=HpDate:"20250427_1600" "Bing Wallpaper 2025 4月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250428_OrangeImpala"&FORM=HPQUIZ "必应主页测验 2025 4月 28")
+[下载480](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_800x480.jpg&rf=LaDigue_800x480.jpg "莫雷米野生动物保护区的高角羚，博茨瓦纳")
+[下载720](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_1280x720.jpg&rf=LaDigue_1280x720.jpg "莫雷米野生动物保护区的高角羚，博茨瓦纳")
+[下载1080](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫雷米野生动物保护区的高角羚，博茨瓦纳")
+[下载UHD](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_UHD.jpg&rf=LaDigue_UHD.jpg "莫雷米野生动物保护区的高角羚，博茨瓦纳")
+
+---
 ### 04月27日：就在这里驻足吧
 #### 红木国家公园和州立公园, 加利福尼亚州, 美国（© Bob Pool/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙")
 [下载1080](https://cn.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_UHD.jpg&rf=LaDigue_UHD.jpg "圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙")
-
----
-### 04月13日：让我们一起庆祝宋干节！
-#### 班克鲁特的唐赛寺，泰国（© Ratnakorn Piyasirisorost/Getty Images）
-
-![让我们一起庆祝宋干节！](https://cn.bing.com/th?id=OHR.ThailandPagodas_ZH-CN1143878296_800x480.jpg&rf=LaDigue_800x480.jpg "让我们一起庆祝宋干节！")
-
-新年庆祝不一定是烟花的绽放，有时也可以是一场全国范围的泼水狂欢！泰国的宋干节结合了宗教传统与全民水战，是一年中最热闹的节日。今年宋干节将在4月13日至15日举行，作为泰国传统新年，这一节日深深植根于佛教习俗，强调净化和重新开始。在节日期间，人们会前往寺庙，向僧侣供奉食物，并向佛像和长辈的手上泼洒香薰水以示敬意。与此同时，街道上的节日氛围却截然不同，大街小巷都变成了水战竞技场，无论是本地人还是游客，都会加入这场欢乐的水战，享受节日的欢乐。传统的游行队伍穿梭在小巷中，而在一些地方，“宋干小姐”选美比赛更是成为节日的一大亮点，参赛者身着华丽的泰国传统服饰，吸引众多目光。
-
-2024年，联合国教科文组织正式将宋干节列入人类非物质文化遗产名录。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b3%bc%e6%b0%b4%e8%8a%82&form=hpcapt&filters=HpDate:"20250412_1600" "Bing Wallpaper 2025 4月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250413_ThailandPagodas"&FORM=HPQUIZ "必应主页测验 2025 4月 13")
-[下载480](https://cn.bing.com/th?id=OHR.ThailandPagodas_ZH-CN1143878296_800x480.jpg&rf=LaDigue_800x480.jpg "班克鲁特的唐赛寺，泰国")
-[下载720](https://cn.bing.com/th?id=OHR.ThailandPagodas_ZH-CN1143878296_1280x720.jpg&rf=LaDigue_1280x720.jpg "班克鲁特的唐赛寺，泰国")
-[下载1080](https://cn.bing.com/th?id=OHR.ThailandPagodas_ZH-CN1143878296_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "班克鲁特的唐赛寺，泰国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ThailandPagodas_ZH-CN1143878296_UHD.jpg&rf=LaDigue_UHD.jpg "班克鲁特的唐赛寺，泰国")
 
 ---
