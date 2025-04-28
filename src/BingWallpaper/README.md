@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月29日：几何之美绽放于此
+#### 维朗德里城堡，卢瓦尔河谷，法国（© Mint Images/Getty Images）
+
+![几何之美绽放于此](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_800x480.jpg&rf=LaDigue_800x480.jpg "几何之美绽放于此")
+
+这边的草地确实更绿，尤其是当那一边是维朗德里城堡时。虽然法国卢瓦尔河谷遍布令人惊叹的城堡，但维朗德里城堡却与众不同，它并非以高耸的塔楼或中世纪的雄伟气势取胜，而是以花园闻名。这座城堡建于 16 世纪，由弗朗索瓦一世国王的财政大臣让·勒·布雷顿所建，目的就是为了令人印象深刻。与为战争而建的防御性城堡不同，维朗德里城堡的设计注重舒适，拥有大窗户和开阔、宜人的布局。城堡的花园分布在不同的梯田上。每个梯田有独特的主题。装饰性花园展示了如图所示的几何图案。水景花园则提供宁静的休憩之所，而蔬菜园则将日常作物打造成艺术展示。
+
+1934年，维朗德里城堡被列为历史古迹。和卢瓦尔河谷的其他城堡一样，它也是世界遗产。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%95%e5%9b%bd%e7%bb%b4%e6%9c%97%e5%be%b7%e9%87%8c%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20250428_1600" "Bing Wallpaper 2025 4月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250429_GardensVillandry"&FORM=HPQUIZ "必应主页测验 2025 4月 29")
+[下载480](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_800x480.jpg&rf=LaDigue_800x480.jpg "维朗德里城堡，卢瓦尔河谷，法国")
+[下载720](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_1280x720.jpg&rf=LaDigue_1280x720.jpg "维朗德里城堡，卢瓦尔河谷，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维朗德里城堡，卢瓦尔河谷，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg&rf=LaDigue_UHD.jpg "维朗德里城堡，卢瓦尔河谷，法国")
+
+---
 ### 04月28日：这只黑斑羚正在何处漫游？
 #### 莫雷米野生动物保护区的高角羚，博茨瓦纳（© Paul Souders/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡拉奥拉城堡，格拉纳达，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡拉奥拉城堡，格拉纳达，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_UHD.jpg&rf=LaDigue_UHD.jpg "卡拉奥拉城堡，格拉纳达，西班牙")
-
----
-### 04月14日：追逐开始！
-#### 圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙（© Jordi Chias/Minden Pictures）
-
-![追逐开始！](https://cn.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_800x480.jpg&rf=LaDigue_800x480.jpg "追逐开始！")
-
-今日图片的主角，大西洋斑点海豚，以其身上的斑点而闻名，这些斑点会随着年龄的增长逐渐增多并变得更密集。它们生活在大西洋温带和热带海域，通常成群合作捕食鱼类。速度快、机动性强的它们不仅是高效的猎手，也是海洋中令人惊叹的存在。美国海域也生活着多种海豚，其中包括宽吻海豚、普通海豚、里索海豚和飞旋海豚等。每个物种都在维持海洋生态平衡中发挥着至关重要的作用，这也提醒我们：保护海豚的栖息地刻不容缓。
-
-这种海豚能发出大约十种不同的声波进行交流，包括哨声、嗡嗡声、尖叫声和吠叫声，每种声音都对应着不同的行为模式。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e8%a5%bf%e6%b4%8b%e7%bb%86%e5%90%bb%e6%b5%b7%e8%b1%9a&form=hpcapt&filters=HpDate:"20250413_1600" "Bing Wallpaper 2025 4月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250414_SpottedDolphins"&FORM=HPQUIZ "必应主页测验 2025 4月 14")
-[下载480](https://cn.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_800x480.jpg&rf=LaDigue_800x480.jpg "圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙")
-[下载720](https://cn.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙")
-[下载1080](https://cn.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_UHD.jpg&rf=LaDigue_UHD.jpg "圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙")
 
 ---
