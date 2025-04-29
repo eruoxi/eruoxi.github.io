@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月30日：瀑布声在各国间回响
+#### 从巴拉那州看到的伊瓜苏瀑布, 巴西（© agustavop/Getty Images）
+
+![瀑布声在各国间回响](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_800x480.jpg&rf=LaDigue_800x480.jpg "瀑布声在各国间回响")
+
+伊瓜苏市是一处由大自然雕琢出的奇观，今日图片仅捕捉到其壮丽景色的一角。位于巴拉那州西南角，这片边境地带回荡着瀑布震耳欲聋的轰鸣声，每秒数百万升水以狂野而迷人的姿态倾泻而下。瀑布腾起的水雾在空中绘出道道彩虹，河流的力量将这片土地塑造成一幅仿佛有生命、不断变化的画卷。
+
+关于这座瀑布流传着一个传说：一位神明原计划迎娶一位名叫奈伊皮的美丽女子，但她却与凡人恋人塔罗巴乘独木舟私奔。神明震怒，劈开河流，造就了这片瀑布，并将这对恋人永远定格在坠落之中。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bc%8a%e7%93%9c%e8%8b%8f%e7%80%91%e5%b8%83&form=hpcapt&filters=HpDate:"20250429_1600" "Bing Wallpaper 2025 4月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250430_FozdoIguacu2025"&FORM=HPQUIZ "必应主页测验 2025 4月 30")
+[下载480](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_800x480.jpg&rf=LaDigue_800x480.jpg "从巴拉那州看到的伊瓜苏瀑布, 巴西")
+[下载720](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_1280x720.jpg&rf=LaDigue_1280x720.jpg "从巴拉那州看到的伊瓜苏瀑布, 巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从巴拉那州看到的伊瓜苏瀑布, 巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_UHD.jpg&rf=LaDigue_UHD.jpg "从巴拉那州看到的伊瓜苏瀑布, 巴西")
+
+---
 ### 04月29日：几何之美绽放于此
 #### 维朗德里城堡，卢瓦尔河谷，法国（© Mint Images/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KachinaBridge_ZH-CN3333793502_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡奇纳桥，天然桥国家区，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.KachinaBridge_ZH-CN3333793502_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡奇纳桥，天然桥国家区，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.KachinaBridge_ZH-CN3333793502_UHD.jpg&rf=LaDigue_UHD.jpg "卡奇纳桥，天然桥国家区，犹他州，美国")
-
----
-### 04月15日：梦幻城堡！
-#### 卡拉奥拉城堡，格拉纳达，西班牙（© Ugo Mellone/eStock Photo）
-
-![梦幻城堡！](https://cn.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_800x480.jpg&rf=LaDigue_800x480.jpg "梦幻城堡！")
-
-在瓜迪克斯地区，群山与山谷之间，坐落着拉卡拉奥拉小镇，一座宏伟的文艺复兴时期城堡便矗立于此。这座建筑瑰宝建于16世纪，由第一代塞内特侯爵修建，既具备坚固的军事防御功能，又融入了意大利宫殿的优雅风格，是西班牙最早的文艺复兴建筑之一。
-
-这座城堡位于海拔 1250 米的高处，最近因被选为瑞安·康达尔和乔治·R·R·马丁创作的电视剧《龙之家族》的拍摄地而声名鹊起。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a0%bc%e6%8b%89%e7%ba%b3%e8%be%be&form=hpcapt&filters=HpDate:"20250414_1600" "Bing Wallpaper 2025 4月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250415_CerezoEnFlor"&FORM=HPQUIZ "必应主页测验 2025 4月 15")
-[下载480](https://cn.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_800x480.jpg&rf=LaDigue_800x480.jpg "卡拉奥拉城堡，格拉纳达，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡拉奥拉城堡，格拉纳达，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡拉奥拉城堡，格拉纳达，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_UHD.jpg&rf=LaDigue_UHD.jpg "卡拉奥拉城堡，格拉纳达，西班牙")
 
 ---
