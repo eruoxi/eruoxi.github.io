@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月01日：芬芳的传统
+#### 鸡蛋花，夏威夷，美国（© Miranda Jans/Getty Images）
+
+![芬芳的传统](https://cn.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_800x480.jpg&rf=LaDigue_800x480.jpg "芬芳的传统")
+
+方式纪念这一天，让整个群岛沐浴在花香之中。每年5月1日，夏威夷庆祝“花环节”，这一传统节日旨在弘扬文化、手工技艺，以及无处不在的阿罗哈精神，这种精神被描述为“每个人内心中思想与情感的协调统一”。 自1928年起，这一传统就在夏威夷广为流行。花环：由花朵、叶子或贝壳编织而成的花冠，成为人与人之间联结的象征。节日的灵感来自诗人唐·布兰丁，他提出设立一个专属于夏威夷的标志性花环节日。当地作家格蕾丝·塔沃·沃伦为其赋予口号：“五一劳动节就是夏威夷的花环节”，这一传统由此迅速生根发芽。
+
+花环在夏威夷文化中意义非凡，它象征着难以言说的“阿罗哈”情感。“阿罗哈”一词的含义会随着场合而变化，它既可以代表告别、问候、爱、希望，也可以表达喜悦。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%b8%a1%e8%9b%8b%e8%8a%b1&form=hpcapt&filters=HpDate:"20250430_1600" "Bing Wallpaper 2025 5月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250501_PinkPlumeria"&FORM=HPQUIZ "必应主页测验 2025 5月 1")
+[下载480](https://cn.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_800x480.jpg&rf=LaDigue_800x480.jpg "鸡蛋花，夏威夷，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_1280x720.jpg&rf=LaDigue_1280x720.jpg "鸡蛋花，夏威夷，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸡蛋花，夏威夷，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_UHD.jpg&rf=LaDigue_UHD.jpg "鸡蛋花，夏威夷，美国")
+
+---
 ### 04月30日：瀑布声在各国间回响
 #### 从巴拉那州看到的伊瓜苏瀑布, 巴西（© agustavop/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EcuadorBird_ZH-CN3676173654_1280x720.jpg&rf=LaDigue_1280x720.jpg "安第斯动冠伞鸟，厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.EcuadorBird_ZH-CN3676173654_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安第斯动冠伞鸟，厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.EcuadorBird_ZH-CN3676173654_UHD.jpg&rf=LaDigue_UHD.jpg "安第斯动冠伞鸟，厄瓜多尔")
-
----
-### 04月16日：时光通道
-#### 卡奇纳桥，天然桥国家区，犹他州，美国（© Alan Majchrowicz/Getty Images）
-
-![时光通道](https://cn.bing.com/th?id=OHR.KachinaBridge_ZH-CN3333793502_800x480.jpg&rf=LaDigue_800x480.jpg "时光通道")
-
-在犹他州东南部偏远的峡谷深处，天然桥国家保护区静静地诉说着时间与自然的力量。这里坐落着三座壮丽的天然桥：西帕普桥、卡奇纳桥和欧瓦乔莫桥。这些名字来源于曾在此生活的阿纳萨齐祖先印第安人，向他们的文化遗产致敬。其中，西帕普桥是最大的一座，其巨大的桥洞足以容纳美国国会大厦的圆顶。位于西帕普和欧瓦乔莫之间的卡奇纳桥，以桥基处发现的岩画和壁画而得名。而欧瓦乔莫桥被认为是三座桥中最古老的一座，其纤细的拱形结构表明它可能最终会自然坍塌。
-
-公园内的三座天然桥分别被命名为卡奇纳桥、欧瓦乔莫桥和最大的一座西帕普桥。这些桥梁是由峡谷河床中的流水侵蚀作用历经千万年雕刻而成的。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a9%e7%84%b6%e6%a1%a5%e5%9b%bd%e5%ae%b6%e5%8c%ba&form=hpcapt&filters=HpDate:"20250415_1600" "Bing Wallpaper 2025 4月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250416_KachinaBridge"&FORM=HPQUIZ "必应主页测验 2025 4月 16")
-[下载480](https://cn.bing.com/th?id=OHR.KachinaBridge_ZH-CN3333793502_800x480.jpg&rf=LaDigue_800x480.jpg "卡奇纳桥，天然桥国家区，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.KachinaBridge_ZH-CN3333793502_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡奇纳桥，天然桥国家区，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.KachinaBridge_ZH-CN3333793502_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡奇纳桥，天然桥国家区，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.KachinaBridge_ZH-CN3333793502_UHD.jpg&rf=LaDigue_UHD.jpg "卡奇纳桥，天然桥国家区，犹他州，美国")
 
 ---
