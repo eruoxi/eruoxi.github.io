@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月02日：绿鹭
+#### 维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西（© Gerald Corsi/Getty Images）
+
+![绿鹭](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_800x480.jpg&rf=LaDigue_800x480.jpg "绿鹭")
+
+在巴西郁郁葱葱的潘塔纳尔湿地，一只绿鹭栖息在一片维多利亚王莲的叶面上。这种水鸟，也被称为红树鹭，约16英寸高，是耐心的猎手，擅长埋伏猎物。它会采用聪明的策略，例如投下羽毛或昆虫引诱鱼类上钩。绿鹭常见于南美洲的湿地，也分布于北美、澳大利亚、非洲、亚洲、新几内亚和太平洋岛屿。
+
+绿鹭有时会使用诱饵，它会小心地将一根羽毛或一片树叶投放到水面上，等候前来探查的鱼类。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%bb%bf%e9%b9%ad&form=hpcapt&filters=HpDate:"20250501_1600" "Bing Wallpaper 2025 5月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250502_BrazilHeron"&FORM=HPQUIZ "必应主页测验 2025 5月 2")
+[下载480](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_800x480.jpg&rf=LaDigue_800x480.jpg "维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_1280x720.jpg&rf=LaDigue_1280x720.jpg "维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_UHD.jpg&rf=LaDigue_UHD.jpg "维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西")
+
+---
 ### 05月01日：芬芳的传统
 #### 鸡蛋花，夏威夷，美国（© Miranda Jans/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GoremeTurkey_ZH-CN0255739302_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡帕多西亚格雷梅国家公园上空的热气球，土耳其")
 [下载1080](https://cn.bing.com/th?id=OHR.GoremeTurkey_ZH-CN0255739302_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡帕多西亚格雷梅国家公园上空的热气球，土耳其")
 [下载UHD](https://cn.bing.com/th?id=OHR.GoremeTurkey_ZH-CN0255739302_UHD.jpg&rf=LaDigue_UHD.jpg "卡帕多西亚格雷梅国家公园上空的热气球，土耳其")
-
----
-### 04月17日：双重戏剧
-#### 安第斯动冠伞鸟，厄瓜多尔（© Kit Day/Alamy Stock Photo）
-
-![双重戏剧](https://cn.bing.com/th?id=OHR.EcuadorBird_ZH-CN3676173654_800x480.jpg&rf=LaDigue_800x480.jpg "双重戏剧")
-
-如果鸟类也有红毯盛典，冠伞鸟无疑会是最耀眼的明星。雄性冠伞鸟就像披着一身亮橙红色的戏服，头顶硕大的冠羽几乎遮住了喙。：然而，它们不仅仅是外表出众的“明星”，还是舞技高超的“舞者”。安第斯冠伞鸟和圭亚那冠伞鸟以其戏剧化的求偶舞蹈闻名，堪称鸟类王国中的“吸睛王”。相比之下雌鸟则低调得多，羽毛呈棕褐色，有助于它们隐藏身形。每到繁殖季节，雄鸟会聚集在求偶场，这一热闹非凡的展示舞台上，它们跳跃、鸣叫、摇头晃脑，尽情展现自己的魅力。雌鸟会在一旁观看，挑选出最出色的舞者，交配后便飞走，在岩石表面筑起一个凹形的泥巢。雌鸟通常会产下两枚白色的蛋，孵化期为25至28天，并独自抚养幼鸟。安第斯冠伞鸟主要栖息于安第斯山脉的云雾森林，偏好植被茂密、果实丰富的地区，分布于委内瑞拉、哥伦比亚、厄瓜多尔、秘鲁和玻利维亚。作为食果动物，它们主要以果实为食，并在觅食过程中帮助森林传播种子，对生态系统的维持起到关键作用。此外，它们偶尔也会捕食昆虫和小型脊椎动物。
-
-冠伞鸟是秘鲁的国鸟。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%ae%89%e7%ac%ac%e6%96%af%e5%8a%a8%e5%86%a0%e4%bc%9e%e9%b8%9f&form=hpcapt&filters=HpDate:"20250416_1600" "Bing Wallpaper 2025 4月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250417_EcuadorBird"&FORM=HPQUIZ "必应主页测验 2025 4月 17")
-[下载480](https://cn.bing.com/th?id=OHR.EcuadorBird_ZH-CN3676173654_800x480.jpg&rf=LaDigue_800x480.jpg "安第斯动冠伞鸟，厄瓜多尔")
-[下载720](https://cn.bing.com/th?id=OHR.EcuadorBird_ZH-CN3676173654_1280x720.jpg&rf=LaDigue_1280x720.jpg "安第斯动冠伞鸟，厄瓜多尔")
-[下载1080](https://cn.bing.com/th?id=OHR.EcuadorBird_ZH-CN3676173654_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安第斯动冠伞鸟，厄瓜多尔")
-[下载UHD](https://cn.bing.com/th?id=OHR.EcuadorBird_ZH-CN3676173654_UHD.jpg&rf=LaDigue_UHD.jpg "安第斯动冠伞鸟，厄瓜多尔")
 
 ---
