@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月04日：欢迎来到纳布星球！
+#### 西班牙广场，塞维利亚，西班牙（© Horia Merla/Getty Images）
+
+![欢迎来到纳布星球！](https://cn.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_800x480.jpg&rf=LaDigue_800x480.jpg "欢迎来到纳布星球！")
+
+5月4日是《星球大战》粉丝们的“星球大战日”，这一天旨在致敬由乔治·卢卡斯创造的这一广受喜爱的系列电影。该系列共包含九部电影，统称为“天行者传奇”。 其中一个令人难忘的拍摄地是西班牙塞维利亚的西班牙广场，正如今日图片所展示。这座美丽的广场呈半椭圆形，建筑风格令人惊叹，在影片中被用作纳布星的希德城。参议员阿米达拉抵达纳布星的场景，就是在这里拍摄的，演员包括娜塔莉·波特曼和海登·克里斯滕森。西班牙广场独特的设计，包括中央建筑、塔楼和喷泉，为《星球大战》的世界增添了一抹魔幻色彩。这座历史悠久的广场由安尼巴尔·冈萨雷斯设计，最初是为1929 年举办的伊比利亚-美洲博览会而建造的。
+
+无论你身处西班牙，还是银河系的其他地方，愿原力与你同在！
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%98%9f%e7%90%83%e5%a4%a7%e6%88%98%e6%97%a5&form=hpcapt&filters=HpDate:"20250503_1600" "Bing Wallpaper 2025 5月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250504_SevilleNaboo"&FORM=HPQUIZ "必应主页测验 2025 5月 4")
+[下载480](https://cn.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_800x480.jpg&rf=LaDigue_800x480.jpg "西班牙广场，塞维利亚，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_1280x720.jpg&rf=LaDigue_1280x720.jpg "西班牙广场，塞维利亚，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西班牙广场，塞维利亚，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_UHD.jpg&rf=LaDigue_UHD.jpg "西班牙广场，塞维利亚，西班牙")
+
+---
 ### 05月03日：让我们一起庆祝宇宙
 #### 拱门国家公园双拱门映衬下的银河，犹他州，美国（© Adventure_Photo/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BunnyLove_ZH-CN1145897965_1280x720.jpg&rf=LaDigue_1280x720.jpg "春天里的野生小兔子")
 [下载1080](https://cn.bing.com/th?id=OHR.BunnyLove_ZH-CN1145897965_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天里的野生小兔子")
 [下载UHD](https://cn.bing.com/th?id=OHR.BunnyLove_ZH-CN1145897965_UHD.jpg&rf=LaDigue_UHD.jpg "春天里的野生小兔子")
-
----
-### 04月19日：国家公园周开始了
-#### 锡安国家公园，犹他州，美国（© Simon Dannhauer/Getty Images）
-
-![国家公园周开始了](https://cn.bing.com/th?id=OHR.ZionValley_ZH-CN0611524754_800x480.jpg&rf=LaDigue_800x480.jpg "国家公园周开始了")
-
-穿上你的登山靴——国家公园周开始了！这个为期九天的活动从今天开始，鼓励人们探索并欣赏国家公园的自然美景与文化遗产。这是一个了解这些受保护区域、参与保护工作、并享受壮丽景观的绝佳时机。可以通过参观国家公园、分享这些自然宝藏的信息，来加入这一庆祝活动，同时也感受它们在国家遗产中所扮演的重要角色。
-
-人类在该地区的居住始于大约 8,000 年前，当时由美洲原住民的小型家庭群体组成。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%94%a1%e5%ae%89%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250418_1600" "Bing Wallpaper 2025 4月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250419_ZionValley"&FORM=HPQUIZ "必应主页测验 2025 4月 19")
-[下载480](https://cn.bing.com/th?id=OHR.ZionValley_ZH-CN0611524754_800x480.jpg&rf=LaDigue_800x480.jpg "锡安国家公园，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.ZionValley_ZH-CN0611524754_1280x720.jpg&rf=LaDigue_1280x720.jpg "锡安国家公园，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.ZionValley_ZH-CN0611524754_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "锡安国家公园，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ZionValley_ZH-CN0611524754_UHD.jpg&rf=LaDigue_UHD.jpg "锡安国家公园，犹他州，美国")
 
 ---
