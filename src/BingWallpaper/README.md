@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月05日：秀美壮丽的山河
+#### 日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林（© zhaojiankang/Getty Images）
+
+![秀美壮丽的山河](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_800x480.jpg&rf=LaDigue_800x480.jpg "秀美壮丽的山河")
+
+今天是立夏，标志着我们即将进入夏季，今天图片中壮丽又秀美的山河景色是位于中国桂林的喀斯特山脉景致。桂林喀斯特地貌，位于广西南岭构造带中部，是大陆型塔状岩溶的典型代表，华南地区岩溶演化末期的地貌展现，世界地质遗产地。桂林喀斯特位于南岭构造带中部，以秀美漓江及其支流周边的塔状及锥状岩溶地貌为主要特征，同时发育有许多洞穴。受古生代构造运动的影响，桂林喀斯特形成了独特的岩溶发育盆地。
+
+2024年9月，《桂林喀斯特》入选第二批100个世界地质遗产地名录。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a1%82%e6%9e%97%e5%96%80%e6%96%af%e7%89%b9%e5%b1%b1%e8%84%89&form=hpcapt&filters=HpDate:"20250504_1600" "Bing Wallpaper 2025 5月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250505_BeginningofSummer25Y"&FORM=HPQUIZ "必应主页测验 2025 5月 5")
+[下载480](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_800x480.jpg&rf=LaDigue_800x480.jpg "日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林")
+[下载720](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林")
+[下载1080](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林")
+[下载UHD](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_UHD.jpg&rf=LaDigue_UHD.jpg "日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林")
+
+---
 ### 05月04日：欢迎来到纳布星球！
 #### 西班牙广场，塞维利亚，西班牙（© Horia Merla/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_1280x720.jpg&rf=LaDigue_1280x720.jpg "银河下的约书亚树，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "银河下的约书亚树，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_UHD.jpg&rf=LaDigue_UHD.jpg "银河下的约书亚树，加利福尼亚州，美国")
-
----
-### 04月20日：复活节兔子要来了
-#### 春天里的野生小兔子（© Fiona McAllister Photography/Getty Images）
-
-![复活节兔子要来了](https://cn.bing.com/th?id=OHR.BunnyLove_ZH-CN1145897965_800x480.jpg&rf=LaDigue_800x480.jpg "复活节兔子要来了")
-
-复活节快乐！今天是全世界数十亿基督徒的重要节日，这是一个重生、庆祝与传承传统并存的时刻。复活节，也被称为“逾越节”或“复活主日”，纪念《新约》中所描述的耶稣基督的复活事件。这也是一个充满节日传统的时刻，从日出礼拜到寻找复活节彩蛋活动，当然还有深受大家喜爱的复活节兔子！
-
-复活节的另一个象征是兔子，因为它繁殖能力强，人们将其视为新生命的创造者。此外，百合花是复活节期间主要使用的花卉。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%8d%e6%b4%bb%e8%8a%82%e5%85%94%e5%ad%90&form=hpcapt&filters=HpDate:"20250419_1600" "Bing Wallpaper 2025 4月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250420_BunnyLove"&FORM=HPQUIZ "必应主页测验 2025 4月 20")
-[下载480](https://cn.bing.com/th?id=OHR.BunnyLove_ZH-CN1145897965_800x480.jpg&rf=LaDigue_800x480.jpg "春天里的野生小兔子")
-[下载720](https://cn.bing.com/th?id=OHR.BunnyLove_ZH-CN1145897965_1280x720.jpg&rf=LaDigue_1280x720.jpg "春天里的野生小兔子")
-[下载1080](https://cn.bing.com/th?id=OHR.BunnyLove_ZH-CN1145897965_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天里的野生小兔子")
-[下载UHD](https://cn.bing.com/th?id=OHR.BunnyLove_ZH-CN1145897965_UHD.jpg&rf=LaDigue_UHD.jpg "春天里的野生小兔子")
 
 ---
