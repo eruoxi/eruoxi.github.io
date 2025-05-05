@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月06日：不一般的沙漠之旅
+#### 一架超轻型飞机飞越纳米比亚沙漠（© Burt Johnson/Alamy Stock Photo）
+
+![不一般的沙漠之旅](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_800x480.jpg&rf=LaDigue_800x480.jpg "不一般的沙漠之旅")
+
+想象一下，在轻型飞行器中翱翔于天空，风呼啸而过，俯瞰着如画的风景。下方是世界上最古老的沙漠：纳米布沙漠，在5500万年的风力作用下形成并不断演变。这就是纳米比亚，一片由高耸沙丘、干涸河床和流沙构成的超现实梦幻般的景观。
+
+在大多数富裕国家，超轻型飞行器或轻型飞机如今在全球民用飞机中占据了相当大的比例。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%b6%85%e8%bd%bb%e5%9e%8b%e9%a3%9e%e6%9c%ba&form=hpcapt&filters=HpDate:"20250505_1600" "Bing Wallpaper 2025 5月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250506_FlyoverNamibia"&FORM=HPQUIZ "必应主页测验 2025 5月 6")
+[下载480](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_800x480.jpg&rf=LaDigue_800x480.jpg "一架超轻型飞机飞越纳米比亚沙漠")
+[下载720](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_1280x720.jpg&rf=LaDigue_1280x720.jpg "一架超轻型飞机飞越纳米比亚沙漠")
+[下载1080](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一架超轻型飞机飞越纳米比亚沙漠")
+[下载UHD](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_UHD.jpg&rf=LaDigue_UHD.jpg "一架超轻型飞机飞越纳米比亚沙漠")
+
+---
 ### 05月05日：秀美壮丽的山河
 #### 日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林（© zhaojiankang/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_1280x720.jpg&rf=LaDigue_1280x720.jpg "大棱镜彩泉，黄石国家公园，怀俄明州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大棱镜彩泉，黄石国家公园，怀俄明州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_UHD.jpg&rf=LaDigue_UHD.jpg "大棱镜彩泉，黄石国家公园，怀俄明州，美国")
-
----
-### 04月21日：银河的魔力之下
-#### 银河下的约书亚树，加利福尼亚州，美国（© Chao Zhang/Getty Images）
-
-![银河的魔力之下](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_800x480.jpg&rf=LaDigue_800x480.jpg "银河的魔力之下")
-
-想象一下，站在一片漆黑的天空下，银河像一条发光的丝带横跨天际。这正是“国际暗黑周”希望带给我们的体验。每年四月，在新月周（今年是4 月 21 日至 27 日）期间，人们被邀请关闭灯光，仰望星空。这项活动由高中生詹妮弗·巴洛于2003 年发起，旨在对抗光污染。体验夜空之美的最佳地点之一是位于加利福尼亚州东南部的约书亚树国家公园，这是一个国际黑暗公园。在这里，由于没有人工光源的干扰，游客可以看到我们的祖先曾经看到过的星星。你知道吗？光污染使我们无法看到银河系中的大多数星星。通过减少光污染，我们可以重新与宇宙的美丽和神奇建立联系。
-
-暗夜保护区是受保护的区域，用于防止或减少光污染，保持夜空的黑暗。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a6%e4%b9%a6%e4%ba%9a%e6%a0%91&form=hpcapt&filters=HpDate:"20250420_1600" "Bing Wallpaper 2025 4月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250421_JoshuaStars"&FORM=HPQUIZ "必应主页测验 2025 4月 21")
-[下载480](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_800x480.jpg&rf=LaDigue_800x480.jpg "银河下的约书亚树，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_1280x720.jpg&rf=LaDigue_1280x720.jpg "银河下的约书亚树，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "银河下的约书亚树，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_UHD.jpg&rf=LaDigue_UHD.jpg "银河下的约书亚树，加利福尼亚州，美国")
 
 ---
