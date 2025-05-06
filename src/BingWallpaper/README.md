@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月07日：岩石上的城堡
+#### 邓路斯城堡，安特里姆郡，北爱尔兰（© DieterMeyrl/Getty Images）
+
+![岩石上的城堡](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_800x480.jpg&rf=LaDigue_800x480.jpg "岩石上的城堡")
+
+如图所示的邓路斯城堡，是否让你仿佛置身于《权力的游戏》？那是因为它正是剧中“派克城”——葛雷乔伊家族领地的现实灵感来源。该城堡建于13世纪，坐落于北爱尔兰安特里姆郡，曾是安特里姆·麦克唐纳家族的据点。该家族是苏格兰麦克唐纳氏族的一个分支，在15世纪至17世纪期间在爱尔兰政治中扮演了重要角色。1690年博因河战役后，该家族的势力衰落，由于缺乏资金维护，城堡逐渐荒废成废墟。
+
+2011年，一次重大的考古发掘发现了“邓路斯失落之城”的大量遗迹，该城镇在1641年的爱尔兰起义中被夷为平地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%82%93%e8%b7%af%e6%96%af%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20250506_1600" "Bing Wallpaper 2025 5月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250507_DunluceIreland"&FORM=HPQUIZ "必应主页测验 2025 5月 7")
+[下载480](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_800x480.jpg&rf=LaDigue_800x480.jpg "邓路斯城堡，安特里姆郡，北爱尔兰")
+[下载720](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_1280x720.jpg&rf=LaDigue_1280x720.jpg "邓路斯城堡，安特里姆郡，北爱尔兰")
+[下载1080](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "邓路斯城堡，安特里姆郡，北爱尔兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg&rf=LaDigue_UHD.jpg "邓路斯城堡，安特里姆郡，北爱尔兰")
+
+---
 ### 05月06日：不一般的沙漠之旅
 #### 一架超轻型飞机飞越纳米比亚沙漠（© Burt Johnson/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_1280x720.jpg&rf=LaDigue_1280x720.jpg "海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_UHD.jpg&rf=LaDigue_UHD.jpg "海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国")
-
----
-### 04月22日：我们的能源，我们的星球
-#### 大棱镜彩泉，黄石国家公园，怀俄明州，美国（© Ajith Kumar/Getty Images）
-
-![我们的能源，我们的星球](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_800x480.jpg&rf=LaDigue_800x480.jpg "我们的能源，我们的星球")
-
-在地球日这一天，让我们前往大自然最壮观的地热奇观之一，位于美国怀俄明州黄石国家公园的大棱镜温泉。这是美国最大的温泉，直径达 370 英尺，水温高达 160 华氏度。这一地热奇观由地表下巨大的黄石火山所产生的强大热能驱动。温泉中色彩斑斓的蓝色、绿色、黄色和橙色环带是由生活在富含矿物质的热水中的嗜热微生物（称为嗜热菌）所形成的。
-
-2025年世界地球日的主题是“我们的能源，我们的星球”，呼吁全球团结一致，支持可再生能源，并在2030年前将全球清洁电力的产量提高三倍。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%9c%b0%e7%90%83%e6%97%a5&form=hpcapt&filters=HpDate:"20250421_1600" "Bing Wallpaper 2025 4月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250422_YellowstoneSpring"&FORM=HPQUIZ "必应主页测验 2025 4月 22")
-[下载480](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_800x480.jpg&rf=LaDigue_800x480.jpg "大棱镜彩泉，黄石国家公园，怀俄明州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_1280x720.jpg&rf=LaDigue_1280x720.jpg "大棱镜彩泉，黄石国家公园，怀俄明州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大棱镜彩泉，黄石国家公园，怀俄明州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_UHD.jpg&rf=LaDigue_UHD.jpg "大棱镜彩泉，黄石国家公园，怀俄明州，美国")
 
 ---
