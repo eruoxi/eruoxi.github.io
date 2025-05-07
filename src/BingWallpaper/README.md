@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月08日：值得大声欢呼的一天
+#### Rhyolite附近山谷中的驴子，内华达州，美国（© Moelyn Photos/Getty Images）
+
+![值得大声欢呼的一天](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_800x480.jpg&rf=LaDigue_800x480.jpg "值得大声欢呼的一天")
+
+每年5月8日，驴子们迎来了属于自己的高光时刻——尽管它们可能更喜欢待在阴凉处。世界驴日由来自巴基斯坦的畜牧专家阿卜杜勒·拉齐克·卡卡尔博士设立，旨在庆祝这些勤劳动物的重要贡献。驴子素有倔强之名，但这其实是个误解。它们其实是深思熟虑的动物。与在遇险时可能立即逃跑的马不同，驴子会先停下来评估情况，再决定是否采取行动。从古代的贸易路线到现代的农场，驴子一直是运输与农业的重要角色。在世界许多地方，它们仍然是农村经济的支柱，在车辆无法通行的崎岖地形中负责运送物资。尽管驴子发挥着重要作用，但它们却面临诸多困境。许多驴子承受着过度劳累、虐待，甚至遭到遗弃。
+
+驯化驴如今遍布世界各地，其驯养历史可追溯至公元前4000年之前。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%b4%e5%ad%90&form=hpcapt&filters=HpDate:"20250507_1600" "Bing Wallpaper 2025 5月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250508_RhyoliteDonkeys"&FORM=HPQUIZ "必应主页测验 2025 5月 8")
+[下载480](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_800x480.jpg&rf=LaDigue_800x480.jpg "Rhyolite附近山谷中的驴子，内华达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_1280x720.jpg&rf=LaDigue_1280x720.jpg "Rhyolite附近山谷中的驴子，内华达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Rhyolite附近山谷中的驴子，内华达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_UHD.jpg&rf=LaDigue_UHD.jpg "Rhyolite附近山谷中的驴子，内华达州，美国")
+
+---
 ### 05月07日：岩石上的城堡
 #### 邓路斯城堡，安特里姆郡，北爱尔兰（© DieterMeyrl/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KenaiSpires_ZH-CN3045699778_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.KenaiSpires_ZH-CN3045699778_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.KenaiSpires_ZH-CN3045699778_UHD.jpg&rf=LaDigue_UHD.jpg "阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国")
-
----
-### 04月23日：波罗的海的魔力
-#### 海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国（© Frank Lukasseck/eStock Photo）
-
-![波罗的海的魔力](https://cn.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_800x480.jpg&rf=LaDigue_800x480.jpg "波罗的海的魔力")
-
-沙滩椅最早是在 19 世纪被发明的，用于防风和防止细沙侵扰。即便是在风暴天气下，如今日照片中石瓦尔德码头前的场景，沙滩椅依旧有其特别的魅力。石瓦尔德是一个风景如画的半岛，最初仅通过盐沼和艾希霍尔茨低地与大陆相连。如今，它是追求宁静与自然的度假者的天堂。
-
-在海利根港的海滩上，有超过 900 把沙滩椅可供租用。如果你深深爱上了这种户外家具，甚至还可以买下来——无论是新的还是二手的。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e5%88%a9%e6%a0%b9%e6%b8%af%e6%96%af&form=hpcapt&filters=HpDate:"20250422_1600" "Bing Wallpaper 2025 4月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250423_BeachChairsSteinwarder"&FORM=HPQUIZ "必应主页测验 2025 4月 23")
-[下载480](https://cn.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_800x480.jpg&rf=LaDigue_800x480.jpg "海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国")
-[下载720](https://cn.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_1280x720.jpg&rf=LaDigue_1280x720.jpg "海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_UHD.jpg&rf=LaDigue_UHD.jpg "海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国")
 
 ---
