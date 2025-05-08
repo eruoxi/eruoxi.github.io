@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月09日：融入又突出
+#### 普通变色龙（© Photostock-Israel/SPL/Getty Images）
+
+![融入又突出](https://cn.bing.com/th?id=OHR.CuteChameleon_ZH-CN5029981236_800x480.jpg&rf=LaDigue_800x480.jpg "融入又突出")
+
+上一刻它们融入环境，下一刻却又炫耀起崭新的色彩。变色龙真是色彩世界里的魔法师。但每年5 月 9 日，这些伪装大师却无法躲避聚光灯。国际变色龙日正是为了庆祝它们的变色技能、闪电般的舌头以及奇特的适应能力。全球已发现超过 200 种变色龙，它们生活在各种不同的环境中。不过，它们变色并非只是为了与背景相匹配，而是用于调节体温、吸引配偶以及与同类交流。它们的皮肤中拥有特殊的细胞，包括能反射光线的虹彩细胞，可呈现令人惊叹的视觉效果。有些种类在发怒时会变亮色，而另一些则采用低调色调以避免引人注目。
+
+树栖类变色龙在移动或停留于树木和灌木中时，会用可抓握的尾巴作为额外的锚点，因此它们的尾巴常被称为“第五条肢体”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8f%98%e8%89%b2%e9%be%99&form=hpcapt&filters=HpDate:"20250508_1600" "Bing Wallpaper 2025 5月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250509_CuteChameleon"&FORM=HPQUIZ "必应主页测验 2025 5月 9")
+[下载480](https://cn.bing.com/th?id=OHR.CuteChameleon_ZH-CN5029981236_800x480.jpg&rf=LaDigue_800x480.jpg "普通变色龙")
+[下载720](https://cn.bing.com/th?id=OHR.CuteChameleon_ZH-CN5029981236_1280x720.jpg&rf=LaDigue_1280x720.jpg "普通变色龙")
+[下载1080](https://cn.bing.com/th?id=OHR.CuteChameleon_ZH-CN5029981236_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普通变色龙")
+[下载UHD](https://cn.bing.com/th?id=OHR.CuteChameleon_ZH-CN5029981236_UHD.jpg&rf=LaDigue_UHD.jpg "普通变色龙")
+
+---
 ### 05月08日：值得大声欢呼的一天
 #### Rhyolite附近山谷中的驴子，内华达州，美国（© Moelyn Photos/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MagellanicPenguin_ZH-CN3177950090_1280x720.jpg&rf=LaDigue_1280x720.jpg "麦哲伦企鹅, 志愿者角, 福克兰群岛")
 [下载1080](https://cn.bing.com/th?id=OHR.MagellanicPenguin_ZH-CN3177950090_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "麦哲伦企鹅, 志愿者角, 福克兰群岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.MagellanicPenguin_ZH-CN3177950090_UHD.jpg&rf=LaDigue_UHD.jpg "麦哲伦企鹅, 志愿者角, 福克兰群岛")
-
----
-### 04月24日：崎岖山峰与野性水域
-#### 阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国（© Wander Photography/Getty Images）
-
-![崎岖山峰与野性水域](https://cn.bing.com/th?id=OHR.KenaiSpires_ZH-CN3045699778_800x480.jpg&rf=LaDigue_800x480.jpg "崎岖山峰与野性水域")
-
-随着国家公园周的持续进行，让我们把目光转向阿拉斯加基奈半岛上的瑰宝——基奈峡湾国家公园。该公园面积超过1,000 平方英里，拥有高耸的峡湾、蜿蜒的河谷和高山地貌。其中超过一半的区域被冰雪覆盖，冰川占据了其面积的 51%。在 20 世纪，公园内的冰川不断消退，为植物和动物的生长腾出了新的土地。从古老的西加云杉到娇嫩的柳兰幼苗，再到覆盖森林地面的茂密苔藓，尽管地势崎岖，基奈峡湾的植物依然繁茂生长。该公园也是多种陆地和海洋哺乳动物的栖息地，包括森林狼、豪猪、加拿大猞猁，以及虎鲸和长须鲸等鲸目动物。这里还栖息着多种鸟类，如白头海雕和皮尔氏游隼。
-
-基奈峡湾国家公园是阿拉斯加最受欢迎的国家公园之一，为游客提供了休闲和冒险兼备的多种活动，包括游船观光、皮划艇、露营、公用小屋、钓鱼、沙滩拾趣、骑行、徒步旅行、越野滑雪、狗拉雪橇、护林员讲解活动、观光飞行和登山等。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e6%8b%89%e6%96%af%e5%8a%a0%e5%9f%ba%e5%a5%88%e5%b3%a1%e6%b9%be%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250423_1600" "Bing Wallpaper 2025 4月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250424_KenaiSpires"&FORM=HPQUIZ "必应主页测验 2025 4月 24")
-[下载480](https://cn.bing.com/th?id=OHR.KenaiSpires_ZH-CN3045699778_800x480.jpg&rf=LaDigue_800x480.jpg "阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.KenaiSpires_ZH-CN3045699778_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.KenaiSpires_ZH-CN3045699778_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.KenaiSpires_ZH-CN3045699778_UHD.jpg&rf=LaDigue_UHD.jpg "阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国")
 
 ---
