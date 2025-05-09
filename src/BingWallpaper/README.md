@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月10日：童话烟囱！
+#### 巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙（© Eloi_Omella/Getty Images）
+
+![童话烟囱！](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_800x480.jpg&rf=LaDigue_800x480.jpg "童话烟囱！")
+
+在西班牙纳瓦拉自治区这片独特的半沙漠景观中心，矗立着一座标志性的岩石地貌：卡斯蒂尔德蒂耶拉。它如天然石塔般的轮廓，是风与水共同侵蚀的杰作，也是这一地区的象征。此地已被联合国教科文组织列为生物圈保护区。
+
+巴尔德纳斯雷亚莱斯自然公园分为两大区域：白巴德纳与黑巴德纳，其鲜明的地貌对比将带给你无限惊喜。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e5%b0%94%e5%be%b7%e7%ba%b3%e6%96%af%e9%9b%b7%e4%ba%9a%e5%b0%94%e6%96%af%e8%87%aa%e7%84%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250509_1600" "Bing Wallpaper 2025 5月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250510_Castildetierra"&FORM=HPQUIZ "必应主页测验 2025 5月 10")
+[下载480](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_800x480.jpg&rf=LaDigue_800x480.jpg "巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_UHD.jpg&rf=LaDigue_UHD.jpg "巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙")
+
+---
 ### 05月09日：融入又突出
 #### 普通变色龙（© Photostock-Israel/SPL/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_1280x720.jpg&rf=LaDigue_1280x720.jpg "印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_UHD.jpg&rf=LaDigue_UHD.jpg "印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大")
-
----
-### 04月25日：身着燕尾服的水手们
-#### 麦哲伦企鹅, 志愿者角, 福克兰群岛（© imageBROKER/Matthias Graben/Getty Images）
-
-![身着燕尾服的水手们](https://cn.bing.com/th?id=OHR.MagellanicPenguin_ZH-CN3177950090_800x480.jpg&rf=LaDigue_800x480.jpg "身着燕尾服的水手们")
-
-可爱、笨拙又极具魅力，企鹅在今天成为了焦点。世界企鹅日旨在庆祝这些不会飞的鸟类，同时提高人们对其栖息地的认识。这个节日起源于南极洲罗斯岛上的美国麦克默多站，当时科学家们观察到阿德利企鹅在这个时候开始年度迁徙。受此自然现象的启发，世界企鹅日应运而生，以强调企鹅在生态系统中的作用、它们面临的威胁以及保护栖息地的紧迫性。
-
-麦哲伦企鹅年复一年地与同一只伴侣交配。雄企鹅会重新占据前一年使用过的洞穴，等待与雌企鹅重聚。雌企鹅仅通过叫声就能认出自己的伴侣。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bc%81%e9%b9%85&form=hpcapt&filters=HpDate:"20250424_1600" "Bing Wallpaper 2025 4月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250425_MagellanicPenguin"&FORM=HPQUIZ "必应主页测验 2025 4月 25")
-[下载480](https://cn.bing.com/th?id=OHR.MagellanicPenguin_ZH-CN3177950090_800x480.jpg&rf=LaDigue_800x480.jpg "麦哲伦企鹅, 志愿者角, 福克兰群岛")
-[下载720](https://cn.bing.com/th?id=OHR.MagellanicPenguin_ZH-CN3177950090_1280x720.jpg&rf=LaDigue_1280x720.jpg "麦哲伦企鹅, 志愿者角, 福克兰群岛")
-[下载1080](https://cn.bing.com/th?id=OHR.MagellanicPenguin_ZH-CN3177950090_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "麦哲伦企鹅, 志愿者角, 福克兰群岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.MagellanicPenguin_ZH-CN3177950090_UHD.jpg&rf=LaDigue_UHD.jpg "麦哲伦企鹅, 志愿者角, 福克兰群岛")
 
 ---
