@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月11日：以猫科动物的方式庆祝母爱！
+#### 豹妈妈正在梳理她的幼崽，Jao保护区，博茨瓦纳（© Suzi Eszterhas/Minden Pictures）
+
+![以猫科动物的方式庆祝母爱！](https://cn.bing.com/th?id=OHR.LeopardMother_ZH-CN6134353524_800x480.jpg&rf=LaDigue_800x480.jpg "以猫科动物的方式庆祝母爱！")
+
+从温暖的拥抱到明智的引导，母亲们为我们倾其所有。母亲节是致敬那些塑造我们生命的女性的日子，赞颂母爱、牢不可破的亲子纽带，以及母亲们对社会的深远影响。虽然现代美国版母亲节始于 20 世纪初，但庆祝母亲的传统在多个文化中已存在数百年。社会活动家安娜·贾维斯于 1908 年在西弗吉尼亚州格拉夫顿的安德鲁斯卫理公会教堂主持了首届母亲节礼拜仪式，如今那里已成为国际母亲节活动圣地。
+
+豹子曾广泛分布于欧洲，但在晚更新世末期至全新世初期在该地区灭绝。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%af%8d%e4%ba%b2%e8%8a%82&form=hpcapt&filters=HpDate:"20250510_1600" "Bing Wallpaper 2025 5月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250511_LeopardMother"&FORM=HPQUIZ "必应主页测验 2025 5月 11")
+[下载480](https://cn.bing.com/th?id=OHR.LeopardMother_ZH-CN6134353524_800x480.jpg&rf=LaDigue_800x480.jpg "豹妈妈正在梳理她的幼崽，Jao保护区，博茨瓦纳")
+[下载720](https://cn.bing.com/th?id=OHR.LeopardMother_ZH-CN6134353524_1280x720.jpg&rf=LaDigue_1280x720.jpg "豹妈妈正在梳理她的幼崽，Jao保护区，博茨瓦纳")
+[下载1080](https://cn.bing.com/th?id=OHR.LeopardMother_ZH-CN6134353524_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "豹妈妈正在梳理她的幼崽，Jao保护区，博茨瓦纳")
+[下载UHD](https://cn.bing.com/th?id=OHR.LeopardMother_ZH-CN6134353524_UHD.jpg&rf=LaDigue_UHD.jpg "豹妈妈正在梳理她的幼崽，Jao保护区，博茨瓦纳")
+
+---
 ### 05月10日：童话烟囱！
 #### 巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙（© Eloi_Omella/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_1280x720.jpg&rf=LaDigue_1280x720.jpg "红木国家公园和州立公园, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红木国家公园和州立公园, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_UHD.jpg&rf=LaDigue_UHD.jpg "红木国家公园和州立公园, 加利福尼亚州, 美国")
-
----
-### 04月26日：悬崖、洞穴与清澈的水域
-#### 印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大（© Maurice Prokaziuk/Getty Images）
-
-![悬崖、洞穴与清澈的水域](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_800x480.jpg&rf=LaDigue_800x480.jpg "悬崖、洞穴与清澈的水域")
-
-布鲁斯半岛国家公园是安大略省一段令人叹为观止的尼亚加拉断崖地貌，由时间与水流共同雕琢而成。该公园于 1987 年设立，保护着高耸的石灰岩悬崖、隐秘的洞穴、茂密的森林和未被破坏的湖岸线。作为联合国教科文组织生物圈保护区的一部分，这里是多种适应崎岖地形的野生动物的避难所，比如黑熊、大响尾蛇和白尾鹿。
-
-布鲁斯半岛北部远离大多伦多地区的喧嚣都市，因此被指定为“暗夜星空保护区”。在无云的夜晚，可见银河系中多达 1,500 亿颗星星闪耀其间。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e9%b2%81%e6%96%af%e5%8d%8a%e5%b2%9b%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250425_1600" "Bing Wallpaper 2025 4月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250426_BrucePeninsula"&FORM=HPQUIZ "必应主页测验 2025 4月 26")
-[下载480](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_800x480.jpg&rf=LaDigue_800x480.jpg "印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_1280x720.jpg&rf=LaDigue_1280x720.jpg "印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_UHD.jpg&rf=LaDigue_UHD.jpg "印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大")
 
 ---
