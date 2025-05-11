@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月12日：紫色的波浪
+#### 东京的鸢尾花园, 日本（© M.Arai/Getty Images）
+
+![紫色的波浪](https://cn.bing.com/th?id=OHR.IrisGarden_ZH-CN6226448882_800x480.jpg&rf=LaDigue_800x480.jpg "紫色的波浪")
+
+赏花是日本深受喜爱的传统活动，每个季节都有其独特的自然景观。当最后一片樱花花瓣随风飘落时，东京的庭园便开始迎接下一场花事盛典：鸢尾花季。今日图片展示的是东京的一处鸢尾花园。鸢尾是一类开花植物的属名，拥有已知的310 个物种，以色彩艳丽、花型优美而闻名。该属的名字来源于希腊语“iris”，意为“彩虹”，也是希腊彩虹女神的名字。
+
+据家族传说，在江户时代早期（1603–1867 年），一位嫁入神护氏家族的贵族女子从日本北部遥远的岩出山城带来了最初的鸢尾花。鸢尾花被视为神圣之花，据说具有驱邪避灾之力，因此很可能被种植在主门前，以保佑婚姻幸福美满。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%b8%a2%e5%b0%be%e5%b1%9e%e6%a4%8d%e7%89%a9&form=hpcapt&filters=HpDate:"20250511_1600" "Bing Wallpaper 2025 5月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250512_IrisGarden"&FORM=HPQUIZ "必应主页测验 2025 5月 12")
+[下载480](https://cn.bing.com/th?id=OHR.IrisGarden_ZH-CN6226448882_800x480.jpg&rf=LaDigue_800x480.jpg "东京的鸢尾花园, 日本")
+[下载720](https://cn.bing.com/th?id=OHR.IrisGarden_ZH-CN6226448882_1280x720.jpg&rf=LaDigue_1280x720.jpg "东京的鸢尾花园, 日本")
+[下载1080](https://cn.bing.com/th?id=OHR.IrisGarden_ZH-CN6226448882_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "东京的鸢尾花园, 日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.IrisGarden_ZH-CN6226448882_UHD.jpg&rf=LaDigue_UHD.jpg "东京的鸢尾花园, 日本")
+
+---
 ### 05月11日：以猫科动物的方式庆祝母爱！
 #### 豹妈妈正在梳理她的幼崽，Jao保护区，博茨瓦纳（© Suzi Eszterhas/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_1280x720.jpg&rf=LaDigue_1280x720.jpg "莫雷米野生动物保护区的高角羚，博茨瓦纳")
 [下载1080](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫雷米野生动物保护区的高角羚，博茨瓦纳")
 [下载UHD](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_UHD.jpg&rf=LaDigue_UHD.jpg "莫雷米野生动物保护区的高角羚，博茨瓦纳")
-
----
-### 04月27日：就在这里驻足吧
-#### 红木国家公园和州立公园, 加利福尼亚州, 美国（© Bob Pool/Getty Images）
-
-![就在这里驻足吧](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_800x480.jpg&rf=LaDigue_800x480.jpg "就在这里驻足吧")
-
-国家公园周今天落下帷幕，但这些森林已经庆祝大自然数千年了。走进一个树木直插云霄的世界。位于加利福尼亚州红木国家公园和州立公园的红木林，是地球上最高的树木之一，高达超过 370 英尺。州立公园包括红木国家公园、德尔诺特海岸红木州立公园、杰迪戴亚·史密斯红木州立公园和草原溪红木州立公园。有些红木树在玛雅人建造神庙和中国修建长城时就已经存在了。自 1968 年起被保护，这座公园保留了全球近一半现存的原始红木森林。
-
-作为世界上最高树木的家园，这座世界遗产地兼国际生物圈保护区保护了全球近一半的原始红木林，其中包括高度超过 370 英尺的冠军树种，比自由女神像还高五层楼。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a2%e6%9c%a8%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad%e5%92%8c%e5%b7%9e%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250426_1600" "Bing Wallpaper 2025 4月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250427_RedwoodGrove"&FORM=HPQUIZ "必应主页测验 2025 4月 27")
-[下载480](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_800x480.jpg&rf=LaDigue_800x480.jpg "红木国家公园和州立公园, 加利福尼亚州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_1280x720.jpg&rf=LaDigue_1280x720.jpg "红木国家公园和州立公园, 加利福尼亚州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红木国家公园和州立公园, 加利福尼亚州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_UHD.jpg&rf=LaDigue_UHD.jpg "红木国家公园和州立公园, 加利福尼亚州, 美国")
 
 ---
