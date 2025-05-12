@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月13日：66岁，依然美丽动人
+#### 百内国家公园, 巴塔哥尼亚, 智利（© Marco Bottigelli/Getty Images）
+
+![66岁，依然美丽动人](https://cn.bing.com/th?id=OHR.TorresChile_ZH-CN6319613148_800x480.jpg&rf=LaDigue_800x480.jpg "66岁，依然美丽动人")
+
+在智利最壮丽的自然保护区之一，野生动物自由穿梭，高耸的山峰与古老的冰川共同塑造出这片原始而壮观的土地。百内国家公园于 1959 年的今天正式成立，至今已满 66 岁，面积超过 448,000 英亩。最初它被称为格雷湖国家旅游公园，1970 年更名为百内国家公园，1978 年被联合国教科文组织指定为生物圈保护区。公园中最具标志性的地貌是三座高达 8,000 英尺以上的巨大花岗岩尖峰：百内塔。这些岩柱由岩浆侵入、地壳抬升，以及数百万年的冰川侵蚀共同形成，最终留下了今天令人惊叹的锯齿状山峰。
+
+这座国家公园也是鸟类爱好者的天堂，共有15 种猛禽在此栖息。其中最著名的当属安第斯神鹰。此外，智利火烈鸟、麦哲伦啄木鸟、白天鹅以及麦哲伦鹅等也是这里常见的明星鸟类。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%99%be%e5%86%85%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250512_1600" "Bing Wallpaper 2025 5月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250513_TorresChile"&FORM=HPQUIZ "必应主页测验 2025 5月 13")
+[下载480](https://cn.bing.com/th?id=OHR.TorresChile_ZH-CN6319613148_800x480.jpg&rf=LaDigue_800x480.jpg "百内国家公园, 巴塔哥尼亚, 智利")
+[下载720](https://cn.bing.com/th?id=OHR.TorresChile_ZH-CN6319613148_1280x720.jpg&rf=LaDigue_1280x720.jpg "百内国家公园, 巴塔哥尼亚, 智利")
+[下载1080](https://cn.bing.com/th?id=OHR.TorresChile_ZH-CN6319613148_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "百内国家公园, 巴塔哥尼亚, 智利")
+[下载UHD](https://cn.bing.com/th?id=OHR.TorresChile_ZH-CN6319613148_UHD.jpg&rf=LaDigue_UHD.jpg "百内国家公园, 巴塔哥尼亚, 智利")
+
+---
 ### 05月12日：紫色的波浪
 #### 东京的鸢尾花园, 日本（© M.Arai/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_1280x720.jpg&rf=LaDigue_1280x720.jpg "维朗德里城堡，卢瓦尔河谷，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维朗德里城堡，卢瓦尔河谷，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg&rf=LaDigue_UHD.jpg "维朗德里城堡，卢瓦尔河谷，法国")
-
----
-### 04月28日：这只黑斑羚正在何处漫游？
-#### 莫雷米野生动物保护区的高角羚，博茨瓦纳（© Paul Souders/Getty Images）
-
-![这只黑斑羚正在何处漫游？](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_800x480.jpg&rf=LaDigue_800x480.jpg "这只黑斑羚正在何处漫游？")
-
-这里是野性主宰之地，大自然按自己的节奏律动。莫雷米禁猎区横跨博茨瓦纳奥卡万戈三角洲的东部，面积达1,900 平方英里。该保护区于 1963 年设立，是非洲首个由当地巴塔瓦纳人（一个原住于南部非洲的班图族裔）创建的自然保护区，旨在防止不受控制的狩猎行为，保护该地区的野生动物。永久性的水源与干燥陆地相结合，使这里成为非洲观察野生动物最理想的地点之一。
-
-黑斑羚与牛椋鸟之间存在共生关系，牛椋鸟以黑斑羚身体某些它自己无法触及部位上的蜱虫为食。黑斑羚是与牛椋鸟相关联的体型最小的有蹄类动物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%ab%98%e8%a7%92%e7%be%9a&form=hpcapt&filters=HpDate:"20250427_1600" "Bing Wallpaper 2025 4月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250428_OrangeImpala"&FORM=HPQUIZ "必应主页测验 2025 4月 28")
-[下载480](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_800x480.jpg&rf=LaDigue_800x480.jpg "莫雷米野生动物保护区的高角羚，博茨瓦纳")
-[下载720](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_1280x720.jpg&rf=LaDigue_1280x720.jpg "莫雷米野生动物保护区的高角羚，博茨瓦纳")
-[下载1080](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫雷米野生动物保护区的高角羚，博茨瓦纳")
-[下载UHD](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_UHD.jpg&rf=LaDigue_UHD.jpg "莫雷米野生动物保护区的高角羚，博茨瓦纳")
 
 ---
