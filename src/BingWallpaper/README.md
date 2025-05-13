@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月14日：矿石与传奇
+#### 弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利（© Marco Bottigelli/Getty Images）
+
+![矿石与传奇](https://cn.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_800x480.jpg&rf=LaDigue_800x480.jpg "矿石与传奇")
+
+大多数港口依赖延伸至海岸线的码头与吊车来进行货物装载，而波尔图弗拉维亚则完全反其道而行之。这一工程奇迹将一座石灰岩峭壁变成了撒丁岛矿石产业的门户。苏尔西斯-伊格莱西恩特的采矿历史可以追溯至几千年前，从腓尼基人、古罗马人一直延续到 20 世纪的工业繁荣时期。这里曾大量开采铅、锌、煤、硫磺、重晶石和银等矿产。但运输这些矿物却是一场噩梦：矿石需先用推车运至小船，再从小船转运至大型货船，过程缓慢、成本高昂、效率低下。
+
+波尔图弗拉维亚是一处联合国教科文组织保护的遗址，也是该地区采矿和工业考古之旅的推荐目的地之一。如今，隧道内每天都有导览行程，由曾在此工作的工人或IGEA矿业技术人员亲自讲解。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%bc%97%e6%8b%89%e7%bb%b4%e4%ba%9a%e6%b8%af&form=hpcapt&filters=HpDate:"20250513_1600" "Bing Wallpaper 2025 5月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250514_SardiniaFlavia"&FORM=HPQUIZ "必应主页测验 2025 5月 14")
+[下载480](https://cn.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_800x480.jpg&rf=LaDigue_800x480.jpg "弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利")
+[下载720](https://cn.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_1280x720.jpg&rf=LaDigue_1280x720.jpg "弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_UHD.jpg&rf=LaDigue_UHD.jpg "弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利")
+
+---
 ### 05月13日：66岁，依然美丽动人
 #### 百内国家公园, 巴塔哥尼亚, 智利（© Marco Bottigelli/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_1280x720.jpg&rf=LaDigue_1280x720.jpg "从巴拉那州看到的伊瓜苏瀑布, 巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从巴拉那州看到的伊瓜苏瀑布, 巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_UHD.jpg&rf=LaDigue_UHD.jpg "从巴拉那州看到的伊瓜苏瀑布, 巴西")
-
----
-### 04月29日：几何之美绽放于此
-#### 维朗德里城堡，卢瓦尔河谷，法国（© Mint Images/Getty Images）
-
-![几何之美绽放于此](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_800x480.jpg&rf=LaDigue_800x480.jpg "几何之美绽放于此")
-
-这边的草地确实更绿，尤其是当那一边是维朗德里城堡时。虽然法国卢瓦尔河谷遍布令人惊叹的城堡，但维朗德里城堡却与众不同，它并非以高耸的塔楼或中世纪的雄伟气势取胜，而是以花园闻名。这座城堡建于 16 世纪，由弗朗索瓦一世国王的财政大臣让·勒·布雷顿所建，目的就是为了令人印象深刻。与为战争而建的防御性城堡不同，维朗德里城堡的设计注重舒适，拥有大窗户和开阔、宜人的布局。城堡的花园分布在不同的梯田上。每个梯田有独特的主题。装饰性花园展示了如图所示的几何图案。水景花园则提供宁静的休憩之所，而蔬菜园则将日常作物打造成艺术展示。
-
-1934年，维朗德里城堡被列为历史古迹。和卢瓦尔河谷的其他城堡一样，它也是世界遗产。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b3%95%e5%9b%bd%e7%bb%b4%e6%9c%97%e5%be%b7%e9%87%8c%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20250428_1600" "Bing Wallpaper 2025 4月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250429_GardensVillandry"&FORM=HPQUIZ "必应主页测验 2025 4月 29")
-[下载480](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_800x480.jpg&rf=LaDigue_800x480.jpg "维朗德里城堡，卢瓦尔河谷，法国")
-[下载720](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_1280x720.jpg&rf=LaDigue_1280x720.jpg "维朗德里城堡，卢瓦尔河谷，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维朗德里城堡，卢瓦尔河谷，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg&rf=LaDigue_UHD.jpg "维朗德里城堡，卢瓦尔河谷，法国")
 
 ---
