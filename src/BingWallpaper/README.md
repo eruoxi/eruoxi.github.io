@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月15日：伦敦时间到！
+#### 大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国（© Puthipong Worasaran/Getty Images）
+
+![伦敦时间到！](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_800x480.jpg&rf=LaDigue_800x480.jpg "伦敦时间到！")
+
+伦敦最著名的钟楼其实并不叫“大本钟”，这个名字指的是钟楼内那口重达13.5吨的巨大钟体。自1859年以来，它便为伦敦人报时，钟声响起自如今名为“伊丽莎白塔”的建筑中。2012年，在伊丽莎白二世女王登基60周年之际，这座原本称为“钟楼”的建筑被正式更名为“伊丽莎白塔”。自诞生以来，这座钟仅在维修或特殊情况下才停止运转，如一战和二战期间因轰炸受损。它的四个钟面每个直径达22.5英尺，分针长度达14英尺。钟楼高达316英尺，属于雄伟的威斯敏斯特宫的一部分，也就是英国议会的所在地。
+
+这座钟已成为英国的重要文化象征，尤其在视觉媒体中尤为显著。当影视作品需要展示“英国”这一概念时，通常会选用这座钟楼的画面，前景常伴有红色双层巴士或黑色出租车。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bc%a6%e6%95%a6%e5%a4%a7%e6%9c%ac%e9%92%9f&form=hpcapt&filters=HpDate:"20250514_1600" "Bing Wallpaper 2025 5月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250515_LondonParliament"&FORM=HPQUIZ "必应主页测验 2025 5月 15")
+[下载480](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_800x480.jpg&rf=LaDigue_800x480.jpg "大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国")
+[下载720](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_1280x720.jpg&rf=LaDigue_1280x720.jpg "大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国")
+[下载1080](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_UHD.jpg&rf=LaDigue_UHD.jpg "大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国")
+
+---
 ### 05月14日：矿石与传奇
 #### 弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利（© Marco Bottigelli/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_1280x720.jpg&rf=LaDigue_1280x720.jpg "鸡蛋花，夏威夷，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸡蛋花，夏威夷，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_UHD.jpg&rf=LaDigue_UHD.jpg "鸡蛋花，夏威夷，美国")
-
----
-### 04月30日：瀑布声在各国间回响
-#### 从巴拉那州看到的伊瓜苏瀑布, 巴西（© agustavop/Getty Images）
-
-![瀑布声在各国间回响](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_800x480.jpg&rf=LaDigue_800x480.jpg "瀑布声在各国间回响")
-
-伊瓜苏市是一处由大自然雕琢出的奇观，今日图片仅捕捉到其壮丽景色的一角。位于巴拉那州西南角，这片边境地带回荡着瀑布震耳欲聋的轰鸣声，每秒数百万升水以狂野而迷人的姿态倾泻而下。瀑布腾起的水雾在空中绘出道道彩虹，河流的力量将这片土地塑造成一幅仿佛有生命、不断变化的画卷。
-
-关于这座瀑布流传着一个传说：一位神明原计划迎娶一位名叫奈伊皮的美丽女子，但她却与凡人恋人塔罗巴乘独木舟私奔。神明震怒，劈开河流，造就了这片瀑布，并将这对恋人永远定格在坠落之中。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bc%8a%e7%93%9c%e8%8b%8f%e7%80%91%e5%b8%83&form=hpcapt&filters=HpDate:"20250429_1600" "Bing Wallpaper 2025 4月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250430_FozdoIguacu2025"&FORM=HPQUIZ "必应主页测验 2025 4月 30")
-[下载480](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_800x480.jpg&rf=LaDigue_800x480.jpg "从巴拉那州看到的伊瓜苏瀑布, 巴西")
-[下载720](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_1280x720.jpg&rf=LaDigue_1280x720.jpg "从巴拉那州看到的伊瓜苏瀑布, 巴西")
-[下载1080](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从巴拉那州看到的伊瓜苏瀑布, 巴西")
-[下载UHD](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_UHD.jpg&rf=LaDigue_UHD.jpg "从巴拉那州看到的伊瓜苏瀑布, 巴西")
 
 ---
