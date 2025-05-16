@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月17日：威尼斯式的“甜蜜生活”
+#### 威尼斯潟湖中的三角洲, 意大利（© Dimitri Weber/Amazing Aerial Agency）
+
+![威尼斯式的“甜蜜生活”](https://cn.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_800x480.jpg&rf=LaDigue_800x480.jpg "威尼斯式的“甜蜜生活”")
+
+今天图片中的是意大利威尼斯潟湖三角洲的壮观景色。该潟湖面积超过 212 平方英里，由岛屿、泥滩、运河和沼泽组成，是整个地中海盆地最大的湿地之一。潟湖不仅是一个风景奇观，也是一个充满历史和创新的地方。它形成于上一个冰河时期之后，在西元476年西罗马帝国灭亡前后，成为人们躲避入侵的避难所。在随后的几个世纪里，这些早期的定居者开始建造最终成为标志性城市的威尼斯。
+
+潟湖的水位会发生惊人的变化。其中最著名的潮汐现象被称为“高水位”，通常发生在每年10月至1月之间，届时威尼斯部分地区常遭水患。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%bc%e6%96%af%e6%bd%9f%e6%b9%96&form=hpcapt&filters=HpDate:"20250516_1600" "Bing Wallpaper 2025 5月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250517_VeniceLagoon"&FORM=HPQUIZ "必应主页测验 2025 5月 17")
+[下载480](https://cn.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_800x480.jpg&rf=LaDigue_800x480.jpg "威尼斯潟湖中的三角洲, 意大利")
+[下载720](https://cn.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_1280x720.jpg&rf=LaDigue_1280x720.jpg "威尼斯潟湖中的三角洲, 意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "威尼斯潟湖中的三角洲, 意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_UHD.jpg&rf=LaDigue_UHD.jpg "威尼斯潟湖中的三角洲, 意大利")
+
+---
 ### 05月16日：守护濒危生命的一天
 #### 大绿金刚鹦鹉, 墨西哥（© Ondrej Prosicky/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_1280x720.jpg&rf=LaDigue_1280x720.jpg "拱门国家公园双拱门映衬下的银河，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门国家公园双拱门映衬下的银河，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_UHD.jpg&rf=LaDigue_UHD.jpg "拱门国家公园双拱门映衬下的银河，犹他州，美国")
-
----
-### 05月02日：绿鹭
-#### 维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西（© Gerald Corsi/Getty Images）
-
-![绿鹭](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_800x480.jpg&rf=LaDigue_800x480.jpg "绿鹭")
-
-在巴西郁郁葱葱的潘塔纳尔湿地，一只绿鹭栖息在一片维多利亚王莲的叶面上。这种水鸟，也被称为红树鹭，约16英寸高，是耐心的猎手，擅长埋伏猎物。它会采用聪明的策略，例如投下羽毛或昆虫引诱鱼类上钩。绿鹭常见于南美洲的湿地，也分布于北美、澳大利亚、非洲、亚洲、新几内亚和太平洋岛屿。
-
-绿鹭有时会使用诱饵，它会小心地将一根羽毛或一片树叶投放到水面上，等候前来探查的鱼类。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%bb%bf%e9%b9%ad&form=hpcapt&filters=HpDate:"20250501_1600" "Bing Wallpaper 2025 5月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250502_BrazilHeron"&FORM=HPQUIZ "必应主页测验 2025 5月 2")
-[下载480](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_800x480.jpg&rf=LaDigue_800x480.jpg "维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西")
-[下载720](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_1280x720.jpg&rf=LaDigue_1280x720.jpg "维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西")
-[下载1080](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西")
-[下载UHD](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_UHD.jpg&rf=LaDigue_UHD.jpg "维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西")
 
 ---
