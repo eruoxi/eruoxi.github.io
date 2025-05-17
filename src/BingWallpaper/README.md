@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月18日：图卢兹的暮色
+#### 加龙河对面的圣皮埃尔桥，图卢兹，法国（© Image Professionals GmbH/Alamy）
+
+![图卢兹的暮色](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_800x480.jpg&rf=LaDigue_800x480.jpg "图卢兹的暮色")
+
+夕阳西下，加龙河畔的图卢兹展现出最迷人的景致——圣皮埃尔桥与雄伟的拉格拉夫圆顶倒映在水面上，相映成辉。这座连接粉色之城两岸的桥梁最初建于1849年，后分别在1927年和1987年进行重建，以适应现代需求。
+
+图卢兹拥有三处联合国教科文组织世界遗产：米迪运河（1996年列入，与其他城市共享）、圣瑟南大教堂（欧洲现存最大的罗马式建筑）及圣雅克医院旧址。这两处建筑因其在圣地亚哥-德孔波斯特拉朝圣路线上的重要作用，于1998年被列入世界遗产名录。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%be%e5%8d%a2%e5%85%b9&form=hpcapt&filters=HpDate:"20250517_1600" "Bing Wallpaper 2025 5月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250518_ToulouseBridge"&FORM=HPQUIZ "必应主页测验 2025 5月 18")
+[下载480](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_800x480.jpg&rf=LaDigue_800x480.jpg "加龙河对面的圣皮埃尔桥，图卢兹，法国")
+[下载720](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_1280x720.jpg&rf=LaDigue_1280x720.jpg "加龙河对面的圣皮埃尔桥，图卢兹，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加龙河对面的圣皮埃尔桥，图卢兹，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_UHD.jpg&rf=LaDigue_UHD.jpg "加龙河对面的圣皮埃尔桥，图卢兹，法国")
+
+---
 ### 05月17日：威尼斯式的“甜蜜生活”
 #### 威尼斯潟湖中的三角洲, 意大利（© Dimitri Weber/Amazing Aerial Agency）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_1280x720.jpg&rf=LaDigue_1280x720.jpg "西班牙广场，塞维利亚，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西班牙广场，塞维利亚，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_UHD.jpg&rf=LaDigue_UHD.jpg "西班牙广场，塞维利亚，西班牙")
-
----
-### 05月03日：让我们一起庆祝宇宙
-#### 拱门国家公园双拱门映衬下的银河，犹他州，美国（© Adventure_Photo/Getty Images）
-
-![让我们一起庆祝宇宙](https://cn.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_800x480.jpg&rf=LaDigue_800x480.jpg "让我们一起庆祝宇宙")
-
-你是否曾好奇，通过望远镜看到的土星环是什么样子？又或者，天文学家是如何发现遥远星系的？国际天文日正是探索这些奥秘的绝佳时机！这一年度活动最早于 1973 年发起，其官方主题是：“将天文学带给大众”。 从当地公园到天文俱乐部、博物馆，再到天文台，游客们可以参与望远镜观测、太空讲座，甚至体验模拟月球重力的装置！这一想法起源于加利福尼亚的一位天文学家道格·伯杰。他不再等待人们走进天文台，而是直接把望远镜带到热闹的公共场所。这一招奏效了，人们很快就迷上了仰望星空！如今，世界各地都在庆祝国际天文日，加拿大、瑞典、阿根廷等许多国家都有举办相关活动。今天，就是探索宇宙的好时机。找一架望远镜，一起仰望星空、庆祝宇宙的壮丽吧！
-
-2020年，由于全球新冠疫情，天文联盟取消了线下活动。但如洛厄尔天文台等机构仍举办了线上活动，以延续这一传统。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a9%e6%96%87%e6%97%a5&form=hpcapt&filters=HpDate:"20250502_1600" "Bing Wallpaper 2025 5月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250503_ArchesGalaxy"&FORM=HPQUIZ "必应主页测验 2025 5月 3")
-[下载480](https://cn.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_800x480.jpg&rf=LaDigue_800x480.jpg "拱门国家公园双拱门映衬下的银河，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_1280x720.jpg&rf=LaDigue_1280x720.jpg "拱门国家公园双拱门映衬下的银河，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门国家公园双拱门映衬下的银河，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_UHD.jpg&rf=LaDigue_UHD.jpg "拱门国家公园双拱门映衬下的银河，犹他州，美国")
 
 ---
