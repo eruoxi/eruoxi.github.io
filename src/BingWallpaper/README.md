@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月19日：汉密尔顿山的蜿蜒之路
+#### 汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国（© Jeffrey Lewis/TANDEM Stills + Motion）
+
+![汉密尔顿山的蜿蜒之路](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_800x480.jpg&rf=LaDigue_800x480.jpg "汉密尔顿山的蜿蜒之路")
+
+驾车驶上加州湾区的汉密尔顿山，游客将沉浸于迷人的自然景观与丰富的历史之中。全长19英里的汉密尔顿山公路，是130号州道的一部分。凭借漫长的爬坡路段和稀少的车流量，该道路深受骑行与摩托车爱好者的喜爱。这条公路建于1875年至1876年，最初旨在为世界首个长期有人驻守的山顶天文台“利克天文台”运送建材而修建。在海拔4265英尺的山顶，天气晴朗时，甚至可以远望至优胜美地国家公园或内华达山脉。
+
+汉密尔顿山拥有加州一些最美丽的自然景观，同时也是最脆弱的自然环境之一。这里生长着高大的橡树、珍稀的本地草种，以及遍地盛开的野花。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b1%89%e5%af%86%e5%b0%94%e9%a1%bf%e5%b1%b1&form=hpcapt&filters=HpDate:"20250518_1600" "Bing Wallpaper 2025 5月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250519_MountHamilton"&FORM=HPQUIZ "必应主页测验 2025 5月 19")
+[下载480](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_800x480.jpg&rf=LaDigue_800x480.jpg "汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_1280x720.jpg&rf=LaDigue_1280x720.jpg "汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_UHD.jpg&rf=LaDigue_UHD.jpg "汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国")
+
+---
 ### 05月18日：图卢兹的暮色
 #### 加龙河对面的圣皮埃尔桥，图卢兹，法国（© Image Professionals GmbH/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林")
 [下载1080](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林")
 [下载UHD](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_UHD.jpg&rf=LaDigue_UHD.jpg "日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林")
-
----
-### 05月04日：欢迎来到纳布星球！
-#### 西班牙广场，塞维利亚，西班牙（© Horia Merla/Getty Images）
-
-![欢迎来到纳布星球！](https://cn.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_800x480.jpg&rf=LaDigue_800x480.jpg "欢迎来到纳布星球！")
-
-5月4日是《星球大战》粉丝们的“星球大战日”，这一天旨在致敬由乔治·卢卡斯创造的这一广受喜爱的系列电影。该系列共包含九部电影，统称为“天行者传奇”。 其中一个令人难忘的拍摄地是西班牙塞维利亚的西班牙广场，正如今日图片所展示。这座美丽的广场呈半椭圆形，建筑风格令人惊叹，在影片中被用作纳布星的希德城。参议员阿米达拉抵达纳布星的场景，就是在这里拍摄的，演员包括娜塔莉·波特曼和海登·克里斯滕森。西班牙广场独特的设计，包括中央建筑、塔楼和喷泉，为《星球大战》的世界增添了一抹魔幻色彩。这座历史悠久的广场由安尼巴尔·冈萨雷斯设计，最初是为1929 年举办的伊比利亚-美洲博览会而建造的。
-
-无论你身处西班牙，还是银河系的其他地方，愿原力与你同在！
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%98%9f%e7%90%83%e5%a4%a7%e6%88%98%e6%97%a5&form=hpcapt&filters=HpDate:"20250503_1600" "Bing Wallpaper 2025 5月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250504_SevilleNaboo"&FORM=HPQUIZ "必应主页测验 2025 5月 4")
-[下载480](https://cn.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_800x480.jpg&rf=LaDigue_800x480.jpg "西班牙广场，塞维利亚，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_1280x720.jpg&rf=LaDigue_1280x720.jpg "西班牙广场，塞维利亚，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西班牙广场，塞维利亚，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_UHD.jpg&rf=LaDigue_UHD.jpg "西班牙广场，塞维利亚，西班牙")
 
 ---
