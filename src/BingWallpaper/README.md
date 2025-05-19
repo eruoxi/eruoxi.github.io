@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月20日：小翅膀，大作用
+#### 薰衣草上的蜜蜂（© Anthony Brown/Alamy Stock Photo）
+
+![小翅膀，大作用](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_800x480.jpg&rf=LaDigue_800x480.jpg "小翅膀，大作用")
+
+蜜蜂身躯虽小，但没有它们，你的购物清单可能会少很多。不再有莓果、牛油果，甚至咖啡。蜜蜂与蝴蝶、蝙蝠和蜂鸟一起，为全球近 90% 的野生开花植物和超过 35% 的我们所依赖的农作物授粉。每年5月20日的世界蜜蜂日，正是为了向这些至关重要的传粉者致敬，并纪念现代养蜂业先驱安东·扬沙。扬沙曾称蜜蜂为“最高贵的昆虫”，这一观点如今也得到了科学的证实。
+
+选定每年5月20日作为世界蜜蜂日是因为这一天是现代养蜂业先驱安东·扬沙的生日。扬沙来自斯洛文尼亚的一个养蜂世家，当地的养蜂活动有着悠久的历史传统，是重要的农业活动之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e8%9c%9c%e8%9c%82%e6%97%a5&form=hpcapt&filters=HpDate:"20250519_1600" "Bing Wallpaper 2025 5月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250520_HoneyBeeLavender"&FORM=HPQUIZ "必应主页测验 2025 5月 20")
+[下载480](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_800x480.jpg&rf=LaDigue_800x480.jpg "薰衣草上的蜜蜂")
+[下载720](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_1280x720.jpg&rf=LaDigue_1280x720.jpg "薰衣草上的蜜蜂")
+[下载1080](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "薰衣草上的蜜蜂")
+[下载UHD](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_UHD.jpg&rf=LaDigue_UHD.jpg "薰衣草上的蜜蜂")
+
+---
 ### 05月19日：汉密尔顿山的蜿蜒之路
 #### 汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国（© Jeffrey Lewis/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_1280x720.jpg&rf=LaDigue_1280x720.jpg "一架超轻型飞机飞越纳米比亚沙漠")
 [下载1080](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一架超轻型飞机飞越纳米比亚沙漠")
 [下载UHD](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_UHD.jpg&rf=LaDigue_UHD.jpg "一架超轻型飞机飞越纳米比亚沙漠")
-
----
-### 05月05日：秀美壮丽的山河
-#### 日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林（© zhaojiankang/Getty Images）
-
-![秀美壮丽的山河](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_800x480.jpg&rf=LaDigue_800x480.jpg "秀美壮丽的山河")
-
-今天是立夏，标志着我们即将进入夏季，今天图片中壮丽又秀美的山河景色是位于中国桂林的喀斯特山脉景致。桂林喀斯特地貌，位于广西南岭构造带中部，是大陆型塔状岩溶的典型代表，华南地区岩溶演化末期的地貌展现，世界地质遗产地。桂林喀斯特位于南岭构造带中部，以秀美漓江及其支流周边的塔状及锥状岩溶地貌为主要特征，同时发育有许多洞穴。受古生代构造运动的影响，桂林喀斯特形成了独特的岩溶发育盆地。
-
-2024年9月，《桂林喀斯特》入选第二批100个世界地质遗产地名录。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a1%82%e6%9e%97%e5%96%80%e6%96%af%e7%89%b9%e5%b1%b1%e8%84%89&form=hpcapt&filters=HpDate:"20250504_1600" "Bing Wallpaper 2025 5月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250505_BeginningofSummer25Y"&FORM=HPQUIZ "必应主页测验 2025 5月 5")
-[下载480](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_800x480.jpg&rf=LaDigue_800x480.jpg "日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林")
-[下载720](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林")
-[下载1080](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林")
-[下载UHD](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_UHD.jpg&rf=LaDigue_UHD.jpg "日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林")
 
 ---
