@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月21日：茶歇时光
+#### 杨家塘村茶园，松阳县，中国（© feng xu/Getty Images）
+
+![茶歇时光](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_800x480.jpg&rf=LaDigue_800x480.jpg "茶歇时光")
+
+传说中，茶的故事始于中国古代：一片树叶偶然落入沸水中，开启了这段芳香之旅。几个世纪之后，茶已成为全球消费量第二的饮品（仅次于水）。今天是国际茶日，这是由联合国设立的全球性节日，旨在肯定茶在消除贫困和促进可持续发展方面的重要作用，也向茶产业中的劳动者们致以敬意。
+
+今年，国际茶日的主题是突出妇女在茶产业中的重要作用。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e8%8c%b6%e6%97%a5&form=hpcapt&filters=HpDate:"20250520_1600" "Bing Wallpaper 2025 5月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250521_SongyangTeaGarden"&FORM=HPQUIZ "必应主页测验 2025 5月 21")
+[下载480](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_800x480.jpg&rf=LaDigue_800x480.jpg "杨家塘村茶园，松阳县，中国")
+[下载720](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_1280x720.jpg&rf=LaDigue_1280x720.jpg "杨家塘村茶园，松阳县，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杨家塘村茶园，松阳县，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_UHD.jpg&rf=LaDigue_UHD.jpg "杨家塘村茶园，松阳县，中国")
+
+---
 ### 05月20日：小翅膀，大作用
 #### 薰衣草上的蜜蜂（© Anthony Brown/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_1280x720.jpg&rf=LaDigue_1280x720.jpg "邓路斯城堡，安特里姆郡，北爱尔兰")
 [下载1080](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "邓路斯城堡，安特里姆郡，北爱尔兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg&rf=LaDigue_UHD.jpg "邓路斯城堡，安特里姆郡，北爱尔兰")
-
----
-### 05月06日：不一般的沙漠之旅
-#### 一架超轻型飞机飞越纳米比亚沙漠（© Burt Johnson/Alamy Stock Photo）
-
-![不一般的沙漠之旅](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_800x480.jpg&rf=LaDigue_800x480.jpg "不一般的沙漠之旅")
-
-想象一下，在轻型飞行器中翱翔于天空，风呼啸而过，俯瞰着如画的风景。下方是世界上最古老的沙漠：纳米布沙漠，在5500万年的风力作用下形成并不断演变。这就是纳米比亚，一片由高耸沙丘、干涸河床和流沙构成的超现实梦幻般的景观。
-
-在大多数富裕国家，超轻型飞行器或轻型飞机如今在全球民用飞机中占据了相当大的比例。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%b6%85%e8%bd%bb%e5%9e%8b%e9%a3%9e%e6%9c%ba&form=hpcapt&filters=HpDate:"20250505_1600" "Bing Wallpaper 2025 5月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250506_FlyoverNamibia"&FORM=HPQUIZ "必应主页测验 2025 5月 6")
-[下载480](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_800x480.jpg&rf=LaDigue_800x480.jpg "一架超轻型飞机飞越纳米比亚沙漠")
-[下载720](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_1280x720.jpg&rf=LaDigue_1280x720.jpg "一架超轻型飞机飞越纳米比亚沙漠")
-[下载1080](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一架超轻型飞机飞越纳米比亚沙漠")
-[下载UHD](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_UHD.jpg&rf=LaDigue_UHD.jpg "一架超轻型飞机飞越纳米比亚沙漠")
 
 ---
