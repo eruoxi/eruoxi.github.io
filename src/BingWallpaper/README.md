@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月22日：猴面包树大道
+#### 日落时分的猴面包树，猴面包树大道，马达加斯加（© Framalicious/Shutterstock）
+
+![猴面包树大道](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_800x480.jpg&rf=LaDigue_800x480.jpg "猴面包树大道")
+
+从微小的细菌到高大的树木，地球上的生命彼此相互关联。国际生物多样性日旨在庆祝这一维系地球繁荣的生命之网。生物多样性与日常生活息息相关，涵盖可持续农业、清洁用水、气候行动以及灾害防范等诸多领域。生物多样性的减少会增加动物传染病传播的风险（包括动物传染给人类的疾病）。相反，保护生物多样性则有助于增强我们预防和应对大流行病等健康危机的能力。联合国深知生物多样性对当前和未来世代的重要意义，因此每年都设立这个纪念日，提高公众意识并推动保护行动。
+
+一些猴面包树品种能提供纤维、染料和燃料。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e7%94%9f%e7%89%a9%e5%a4%9a%e6%a0%b7%e6%80%a7%e6%97%a5&form=hpcapt&filters=HpDate:"20250521_1600" "Bing Wallpaper 2025 5月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250522_BaobabAvenue"&FORM=HPQUIZ "必应主页测验 2025 5月 22")
+[下载480](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_800x480.jpg&rf=LaDigue_800x480.jpg "日落时分的猴面包树，猴面包树大道，马达加斯加")
+[下载720](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时分的猴面包树，猴面包树大道，马达加斯加")
+[下载1080](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时分的猴面包树，猴面包树大道，马达加斯加")
+[下载UHD](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_UHD.jpg&rf=LaDigue_UHD.jpg "日落时分的猴面包树，猴面包树大道，马达加斯加")
+
+---
 ### 05月21日：茶歇时光
 #### 杨家塘村茶园，松阳县，中国（© feng xu/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_1280x720.jpg&rf=LaDigue_1280x720.jpg "Rhyolite附近山谷中的驴子，内华达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Rhyolite附近山谷中的驴子，内华达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_UHD.jpg&rf=LaDigue_UHD.jpg "Rhyolite附近山谷中的驴子，内华达州，美国")
-
----
-### 05月07日：岩石上的城堡
-#### 邓路斯城堡，安特里姆郡，北爱尔兰（© DieterMeyrl/Getty Images）
-
-![岩石上的城堡](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_800x480.jpg&rf=LaDigue_800x480.jpg "岩石上的城堡")
-
-如图所示的邓路斯城堡，是否让你仿佛置身于《权力的游戏》？那是因为它正是剧中“派克城”——葛雷乔伊家族领地的现实灵感来源。该城堡建于13世纪，坐落于北爱尔兰安特里姆郡，曾是安特里姆·麦克唐纳家族的据点。该家族是苏格兰麦克唐纳氏族的一个分支，在15世纪至17世纪期间在爱尔兰政治中扮演了重要角色。1690年博因河战役后，该家族的势力衰落，由于缺乏资金维护，城堡逐渐荒废成废墟。
-
-2011年，一次重大的考古发掘发现了“邓路斯失落之城”的大量遗迹，该城镇在1641年的爱尔兰起义中被夷为平地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%82%93%e8%b7%af%e6%96%af%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20250506_1600" "Bing Wallpaper 2025 5月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250507_DunluceIreland"&FORM=HPQUIZ "必应主页测验 2025 5月 7")
-[下载480](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_800x480.jpg&rf=LaDigue_800x480.jpg "邓路斯城堡，安特里姆郡，北爱尔兰")
-[下载720](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_1280x720.jpg&rf=LaDigue_1280x720.jpg "邓路斯城堡，安特里姆郡，北爱尔兰")
-[下载1080](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "邓路斯城堡，安特里姆郡，北爱尔兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg&rf=LaDigue_UHD.jpg "邓路斯城堡，安特里姆郡，北爱尔兰")
 
 ---
