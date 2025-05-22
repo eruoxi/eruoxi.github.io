@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月23日：为龟喝彩！
+#### 停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔（© Westend61/Getty Images）
+
+![为龟喝彩！](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_800x480.jpg&rf=LaDigue_800x480.jpg "为龟喝彩！")
+
+今天是世界海龟日成立的25周年纪念日。海龟和陆龟在多种环境中生存，被人们视为智慧与坚韧的象征。所有的陆龟都是海龟，但并非所有海龟都是陆龟。海龟体型较小，适合水中生活，而陆龟体型较大、较重，适应陆地生活。美国龟类救援组织（ATR）在每年5月23日设立世界海龟日，旨在提高公众保护龟类的意识。该组织已帮助约4000只海龟和陆龟进行康复、救助和重新安置，同时致力于保护它们及其逐渐消失的栖息地。
+
+根据种类的不同，海龟可分为草食性、肉食性和杂食性。它们的食物范围涵盖了植物、水果、昆虫和鱼类。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b5%b7%e9%be%9f%e6%97%a5&form=hpcapt&filters=HpDate:"20250522_1600" "Bing Wallpaper 2025 5月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250523_ButterflyTurtle"&FORM=HPQUIZ "必应主页测验 2025 5月 23")
+[下载480](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_800x480.jpg&rf=LaDigue_800x480.jpg "停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔")
+[下载720](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_1280x720.jpg&rf=LaDigue_1280x720.jpg "停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔")
+[下载1080](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_UHD.jpg&rf=LaDigue_UHD.jpg "停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔")
+
+---
 ### 05月22日：猴面包树大道
 #### 日落时分的猴面包树，猴面包树大道，马达加斯加（© Framalicious/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CuteChameleon_ZH-CN5029981236_1280x720.jpg&rf=LaDigue_1280x720.jpg "普通变色龙")
 [下载1080](https://cn.bing.com/th?id=OHR.CuteChameleon_ZH-CN5029981236_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普通变色龙")
 [下载UHD](https://cn.bing.com/th?id=OHR.CuteChameleon_ZH-CN5029981236_UHD.jpg&rf=LaDigue_UHD.jpg "普通变色龙")
-
----
-### 05月08日：值得大声欢呼的一天
-#### Rhyolite附近山谷中的驴子，内华达州，美国（© Moelyn Photos/Getty Images）
-
-![值得大声欢呼的一天](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_800x480.jpg&rf=LaDigue_800x480.jpg "值得大声欢呼的一天")
-
-每年5月8日，驴子们迎来了属于自己的高光时刻——尽管它们可能更喜欢待在阴凉处。世界驴日由来自巴基斯坦的畜牧专家阿卜杜勒·拉齐克·卡卡尔博士设立，旨在庆祝这些勤劳动物的重要贡献。驴子素有倔强之名，但这其实是个误解。它们其实是深思熟虑的动物。与在遇险时可能立即逃跑的马不同，驴子会先停下来评估情况，再决定是否采取行动。从古代的贸易路线到现代的农场，驴子一直是运输与农业的重要角色。在世界许多地方，它们仍然是农村经济的支柱，在车辆无法通行的崎岖地形中负责运送物资。尽管驴子发挥着重要作用，但它们却面临诸多困境。许多驴子承受着过度劳累、虐待，甚至遭到遗弃。
-
-驯化驴如今遍布世界各地，其驯养历史可追溯至公元前4000年之前。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%b4%e5%ad%90&form=hpcapt&filters=HpDate:"20250507_1600" "Bing Wallpaper 2025 5月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250508_RhyoliteDonkeys"&FORM=HPQUIZ "必应主页测验 2025 5月 8")
-[下载480](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_800x480.jpg&rf=LaDigue_800x480.jpg "Rhyolite附近山谷中的驴子，内华达州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_1280x720.jpg&rf=LaDigue_1280x720.jpg "Rhyolite附近山谷中的驴子，内华达州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Rhyolite附近山谷中的驴子，内华达州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_UHD.jpg&rf=LaDigue_UHD.jpg "Rhyolite附近山谷中的驴子，内华达州，美国")
 
 ---
