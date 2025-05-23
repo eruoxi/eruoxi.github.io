@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月24日：欧洲的野性之美
+#### 挪威尤通黑门山国家公园（© Marisa Estivill/Shutterstock）
+
+![欧洲的野性之美](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_800x480.jpg&rf=LaDigue_800x480.jpg "欧洲的野性之美")
+
+今天是“欧洲公园日”，旨在庆祝那些塑造各国自然特性的国家公园和保护区。该纪念日由欧洲公园联盟于1999年创立，以纪念1909年在瑞典建立的九座欧洲最早的国家公园。该节日旨在推动保护自然栖息地、野生动植物及文化遗产的行动，同时鼓励可持续旅游与户外活动。
+
+2020年2月，“冰之秘密”项目的研究人员在挪威南部尤通黑门山脉，因气候变化而逐渐消融的冰川中，发现了一支距今1,500年来自日耳曼铁器时代的维京箭头。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e6%b4%b2%e5%85%ac%e5%9b%ad%e6%97%a5&form=hpcapt&filters=HpDate:"20250523_1600" "Bing Wallpaper 2025 5月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250524_JotunheimenPark"&FORM=HPQUIZ "必应主页测验 2025 5月 24")
+[下载480](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_800x480.jpg&rf=LaDigue_800x480.jpg "挪威尤通黑门山国家公园")
+[下载720](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_1280x720.jpg&rf=LaDigue_1280x720.jpg "挪威尤通黑门山国家公园")
+[下载1080](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "挪威尤通黑门山国家公园")
+[下载UHD](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_UHD.jpg&rf=LaDigue_UHD.jpg "挪威尤通黑门山国家公园")
+
+---
 ### 05月23日：为龟喝彩！
 #### 停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔（© Westend61/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_UHD.jpg&rf=LaDigue_UHD.jpg "巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙")
-
----
-### 05月09日：融入又突出
-#### 普通变色龙（© Photostock-Israel/SPL/Getty Images）
-
-![融入又突出](https://cn.bing.com/th?id=OHR.CuteChameleon_ZH-CN5029981236_800x480.jpg&rf=LaDigue_800x480.jpg "融入又突出")
-
-上一刻它们融入环境，下一刻却又炫耀起崭新的色彩。变色龙真是色彩世界里的魔法师。但每年5 月 9 日，这些伪装大师却无法躲避聚光灯。国际变色龙日正是为了庆祝它们的变色技能、闪电般的舌头以及奇特的适应能力。全球已发现超过 200 种变色龙，它们生活在各种不同的环境中。不过，它们变色并非只是为了与背景相匹配，而是用于调节体温、吸引配偶以及与同类交流。它们的皮肤中拥有特殊的细胞，包括能反射光线的虹彩细胞，可呈现令人惊叹的视觉效果。有些种类在发怒时会变亮色，而另一些则采用低调色调以避免引人注目。
-
-树栖类变色龙在移动或停留于树木和灌木中时，会用可抓握的尾巴作为额外的锚点，因此它们的尾巴常被称为“第五条肢体”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8f%98%e8%89%b2%e9%be%99&form=hpcapt&filters=HpDate:"20250508_1600" "Bing Wallpaper 2025 5月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250509_CuteChameleon"&FORM=HPQUIZ "必应主页测验 2025 5月 9")
-[下载480](https://cn.bing.com/th?id=OHR.CuteChameleon_ZH-CN5029981236_800x480.jpg&rf=LaDigue_800x480.jpg "普通变色龙")
-[下载720](https://cn.bing.com/th?id=OHR.CuteChameleon_ZH-CN5029981236_1280x720.jpg&rf=LaDigue_1280x720.jpg "普通变色龙")
-[下载1080](https://cn.bing.com/th?id=OHR.CuteChameleon_ZH-CN5029981236_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普通变色龙")
-[下载UHD](https://cn.bing.com/th?id=OHR.CuteChameleon_ZH-CN5029981236_UHD.jpg&rf=LaDigue_UHD.jpg "普通变色龙")
 
 ---
