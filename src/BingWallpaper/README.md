@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月25日：绽放于你所在之地
+#### 布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大（© 2009fotofriends/Shutterstock）
+
+![绽放于你所在之地](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_800x480.jpg&rf=LaDigue_800x480.jpg "绽放于你所在之地")
+
+一个多世纪前，这里还是一片荒废的采石场，如今每年春季则变成了色彩斑斓的花海。位于加拿大不列颠哥伦比亚省布伦特伍德湾的布查特花园，展示了如何将缤纷花卉演绎为盛宴。春季时节，郁金香的香气弥漫小径，沿途色彩斑斓，每一个转角都有新花绽放。然而，这里并非一直如此美丽。20世纪初，罗伯特·皮姆·布查特曾在此经营石灰石采石场。1912年，他的妻子珍妮识别出废弃矿坑的潜力，开始在坑内种植花卉。如今，布查特花园占地55英亩，种植有900多种植物，每年春天近30万株球茎花卉竞相绽放。
+
+1982年，布查特花园被选为佛罗里达州奥兰多卡特中心加拿大馆花园的设计灵感来源。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e6%9f%a5%e7%89%b9%e8%8a%b1%e5%9b%ad&form=hpcapt&filters=HpDate:"20250524_1600" "Bing Wallpaper 2025 5月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250525_ButchartFlowers"&FORM=HPQUIZ "必应主页测验 2025 5月 25")
+[下载480](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_800x480.jpg&rf=LaDigue_800x480.jpg "布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_1280x720.jpg&rf=LaDigue_1280x720.jpg "布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_UHD.jpg&rf=LaDigue_UHD.jpg "布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大")
+
+---
 ### 05月24日：欧洲的野性之美
 #### 挪威尤通黑门山国家公园（© Marisa Estivill/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LeopardMother_ZH-CN6134353524_1280x720.jpg&rf=LaDigue_1280x720.jpg "豹妈妈正在梳理她的幼崽，Jao保护区，博茨瓦纳")
 [下载1080](https://cn.bing.com/th?id=OHR.LeopardMother_ZH-CN6134353524_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "豹妈妈正在梳理她的幼崽，Jao保护区，博茨瓦纳")
 [下载UHD](https://cn.bing.com/th?id=OHR.LeopardMother_ZH-CN6134353524_UHD.jpg&rf=LaDigue_UHD.jpg "豹妈妈正在梳理她的幼崽，Jao保护区，博茨瓦纳")
-
----
-### 05月10日：童话烟囱！
-#### 巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙（© Eloi_Omella/Getty Images）
-
-![童话烟囱！](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_800x480.jpg&rf=LaDigue_800x480.jpg "童话烟囱！")
-
-在西班牙纳瓦拉自治区这片独特的半沙漠景观中心，矗立着一座标志性的岩石地貌：卡斯蒂尔德蒂耶拉。它如天然石塔般的轮廓，是风与水共同侵蚀的杰作，也是这一地区的象征。此地已被联合国教科文组织列为生物圈保护区。
-
-巴尔德纳斯雷亚莱斯自然公园分为两大区域：白巴德纳与黑巴德纳，其鲜明的地貌对比将带给你无限惊喜。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e5%b0%94%e5%be%b7%e7%ba%b3%e6%96%af%e9%9b%b7%e4%ba%9a%e5%b0%94%e6%96%af%e8%87%aa%e7%84%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250509_1600" "Bing Wallpaper 2025 5月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250510_Castildetierra"&FORM=HPQUIZ "必应主页测验 2025 5月 10")
-[下载480](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_800x480.jpg&rf=LaDigue_800x480.jpg "巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_UHD.jpg&rf=LaDigue_UHD.jpg "巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙")
 
 ---
