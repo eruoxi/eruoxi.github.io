@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月27日：一处海滨奇观
+#### 梦娜维尔岩池，悉尼，澳大利亚（© jamenpercy/Getty Images）
+
+![一处海滨奇观](https://cn.bing.com/th?id=OHR.MonaValePool_ZH-CN7968271596_800x480.jpg&rf=LaDigue_800x480.jpg "一处海滨奇观")
+
+若你曾向往在海洋中畅游，却又不愿吞入口中的咸水，那么澳大利亚悉尼的莫纳维尔岩池无疑是一处理想选择。该泳池可谓水域中的一处悖论：池外波涛汹涌，而池内则水面平静、适宜游泳。岩池位于贝森海滩与莫纳维尔海滩之间，其形态更近似天然奇观而非典型人造泳池。这座泳池建于20世纪30年代的大萧条时期，作为失业救济工程的一部分，由工人于天然岩架上凿建而成。历经多次改建与升级，如今该泳池长度达30米，旁侧还设有一座较小的儿童泳池。二战期间，大批驻扎于附近的士兵也常前来此地游泳。泳池全年免费开放，定期由市政工作人员与潮汐共同清洁。因此，若你计划造访悉尼，不妨亲身体验这一海浪与池壁交汇之处，感受别具一格的海滨魅力。
+
+莫纳维尔实际上由两片独立的海滩组成，中间由一块宽广的海洋岩石平台所分隔。海浪沿平台南缘涌入一条沟壑，在此形成平稳而强劲的破浪现象。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8e%ab%e7%ba%b3%e7%bb%b4%e5%b0%94%e5%b2%a9%e6%b1%a0&form=hpcapt&filters=HpDate:"20250526_1600" "Bing Wallpaper 2025 5月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250527_MonaValePool"&FORM=HPQUIZ "必应主页测验 2025 5月 27")
+[下载480](https://cn.bing.com/th?id=OHR.MonaValePool_ZH-CN7968271596_800x480.jpg&rf=LaDigue_800x480.jpg "梦娜维尔岩池，悉尼，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.MonaValePool_ZH-CN7968271596_1280x720.jpg&rf=LaDigue_1280x720.jpg "梦娜维尔岩池，悉尼，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.MonaValePool_ZH-CN7968271596_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梦娜维尔岩池，悉尼，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.MonaValePool_ZH-CN7968271596_UHD.jpg&rf=LaDigue_UHD.jpg "梦娜维尔岩池，悉尼，澳大利亚")
+
+---
 ### 05月26日：山间奔驰
 #### 沿着岚山保津川行驶的火车，京都，日本（© Alvin Huang/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TorresChile_ZH-CN6319613148_1280x720.jpg&rf=LaDigue_1280x720.jpg "百内国家公园, 巴塔哥尼亚, 智利")
 [下载1080](https://cn.bing.com/th?id=OHR.TorresChile_ZH-CN6319613148_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "百内国家公园, 巴塔哥尼亚, 智利")
 [下载UHD](https://cn.bing.com/th?id=OHR.TorresChile_ZH-CN6319613148_UHD.jpg&rf=LaDigue_UHD.jpg "百内国家公园, 巴塔哥尼亚, 智利")
-
----
-### 05月12日：紫色的波浪
-#### 东京的鸢尾花园, 日本（© M.Arai/Getty Images）
-
-![紫色的波浪](https://cn.bing.com/th?id=OHR.IrisGarden_ZH-CN6226448882_800x480.jpg&rf=LaDigue_800x480.jpg "紫色的波浪")
-
-赏花是日本深受喜爱的传统活动，每个季节都有其独特的自然景观。当最后一片樱花花瓣随风飘落时，东京的庭园便开始迎接下一场花事盛典：鸢尾花季。今日图片展示的是东京的一处鸢尾花园。鸢尾是一类开花植物的属名，拥有已知的310 个物种，以色彩艳丽、花型优美而闻名。该属的名字来源于希腊语“iris”，意为“彩虹”，也是希腊彩虹女神的名字。
-
-据家族传说，在江户时代早期（1603–1867 年），一位嫁入神护氏家族的贵族女子从日本北部遥远的岩出山城带来了最初的鸢尾花。鸢尾花被视为神圣之花，据说具有驱邪避灾之力，因此很可能被种植在主门前，以保佑婚姻幸福美满。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%b8%a2%e5%b0%be%e5%b1%9e%e6%a4%8d%e7%89%a9&form=hpcapt&filters=HpDate:"20250511_1600" "Bing Wallpaper 2025 5月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250512_IrisGarden"&FORM=HPQUIZ "必应主页测验 2025 5月 12")
-[下载480](https://cn.bing.com/th?id=OHR.IrisGarden_ZH-CN6226448882_800x480.jpg&rf=LaDigue_800x480.jpg "东京的鸢尾花园, 日本")
-[下载720](https://cn.bing.com/th?id=OHR.IrisGarden_ZH-CN6226448882_1280x720.jpg&rf=LaDigue_1280x720.jpg "东京的鸢尾花园, 日本")
-[下载1080](https://cn.bing.com/th?id=OHR.IrisGarden_ZH-CN6226448882_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "东京的鸢尾花园, 日本")
-[下载UHD](https://cn.bing.com/th?id=OHR.IrisGarden_ZH-CN6226448882_UHD.jpg&rf=LaDigue_UHD.jpg "东京的鸢尾花园, 日本")
 
 ---
