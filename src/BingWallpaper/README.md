@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月28日：海獭很重要
+#### 一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国（© Gerry Ellis/Minden Pictures）
+
+![海獭很重要](https://cn.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_800x480.jpg&rf=LaDigue_800x480.jpg "海獭很重要")
+
+它们在水中穿梭如同毛茸茸的鱼雷，在河岸上翻滚仿佛孩童在游乐场嬉戏，甚至在休息时也会彼此牵手。海獭是大自然中极具玩性的小动物，然而它们的未来并非一片光明。栖息地破坏、污染以及非法野生动物贸易正对多个水獭物种构成严重威胁。然而，这种情况并非不可逆转。每年五月最后一个星期三为“世界海獭日”，这一纪念日旨在提升公众对海獭所面临威胁的认识，并鼓励人们采取行动，共同保护它们赖以生存的野外栖息地。
+
+海獭生性好动，似乎会纯粹为了娱乐而进行各类行为，例如制造水滑梯并从上方滑入水中。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e7%8d%ad&form=hpcapt&filters=HpDate:"20250527_1600" "Bing Wallpaper 2025 5月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250528_KelpOtter"&FORM=HPQUIZ "必应主页测验 2025 5月 28")
+[下载480](https://cn.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_800x480.jpg&rf=LaDigue_800x480.jpg "一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国")
+[下载720](https://cn.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_UHD.jpg&rf=LaDigue_UHD.jpg "一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国")
+
+---
 ### 05月27日：一处海滨奇观
 #### 梦娜维尔岩池，悉尼，澳大利亚（© jamenpercy/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_1280x720.jpg&rf=LaDigue_1280x720.jpg "弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_UHD.jpg&rf=LaDigue_UHD.jpg "弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利")
-
----
-### 05月13日：66岁，依然美丽动人
-#### 百内国家公园, 巴塔哥尼亚, 智利（© Marco Bottigelli/Getty Images）
-
-![66岁，依然美丽动人](https://cn.bing.com/th?id=OHR.TorresChile_ZH-CN6319613148_800x480.jpg&rf=LaDigue_800x480.jpg "66岁，依然美丽动人")
-
-在智利最壮丽的自然保护区之一，野生动物自由穿梭，高耸的山峰与古老的冰川共同塑造出这片原始而壮观的土地。百内国家公园于 1959 年的今天正式成立，至今已满 66 岁，面积超过 448,000 英亩。最初它被称为格雷湖国家旅游公园，1970 年更名为百内国家公园，1978 年被联合国教科文组织指定为生物圈保护区。公园中最具标志性的地貌是三座高达 8,000 英尺以上的巨大花岗岩尖峰：百内塔。这些岩柱由岩浆侵入、地壳抬升，以及数百万年的冰川侵蚀共同形成，最终留下了今天令人惊叹的锯齿状山峰。
-
-这座国家公园也是鸟类爱好者的天堂，共有15 种猛禽在此栖息。其中最著名的当属安第斯神鹰。此外，智利火烈鸟、麦哲伦啄木鸟、白天鹅以及麦哲伦鹅等也是这里常见的明星鸟类。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%99%be%e5%86%85%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250512_1600" "Bing Wallpaper 2025 5月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250513_TorresChile"&FORM=HPQUIZ "必应主页测验 2025 5月 13")
-[下载480](https://cn.bing.com/th?id=OHR.TorresChile_ZH-CN6319613148_800x480.jpg&rf=LaDigue_800x480.jpg "百内国家公园, 巴塔哥尼亚, 智利")
-[下载720](https://cn.bing.com/th?id=OHR.TorresChile_ZH-CN6319613148_1280x720.jpg&rf=LaDigue_1280x720.jpg "百内国家公园, 巴塔哥尼亚, 智利")
-[下载1080](https://cn.bing.com/th?id=OHR.TorresChile_ZH-CN6319613148_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "百内国家公园, 巴塔哥尼亚, 智利")
-[下载UHD](https://cn.bing.com/th?id=OHR.TorresChile_ZH-CN6319613148_UHD.jpg&rf=LaDigue_UHD.jpg "百内国家公园, 巴塔哥尼亚, 智利")
 
 ---
