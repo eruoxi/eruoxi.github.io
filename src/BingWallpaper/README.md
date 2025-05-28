@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月29日：穿越数个世纪的流淌
+#### 米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙（© Eloi_Omella/Getty Images）
+
+![穿越数个世纪的流淌](https://cn.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_800x480.jpg&rf=LaDigue_800x480.jpg "穿越数个世纪的流淌")
+
+在某些城镇中，现代化占据主导地位，而西班牙的米拉韦特村则似乎有意维持其历史原貌。这座位于加泰罗尼亚的村落依傍埃布罗河畔的悬崖而建，至今保留着鲜活的中世纪风貌。一座古堡仍俯瞰全境，陶艺匠人如同停留于14世纪，而当地的渡船至今仍未引入现代机动化技术。欢迎来到这座连河水都显得格外悠然的村庄。作为西班牙最长的河流，埃布罗河蜿蜒流淌，承载着伊比利亚人、罗马人、摩尔人与圣殿骑士的历史。历史上，当地居民依赖河水进行贸易、运输与防御。时至今日，游客仍可见皮划艇和渡船缓缓穿行其间，沿着曾为十字军战士所行的水道悠然漂流。
+
+米拉韦特的埃布罗河沿岸风光旖旎，自然环境宛如一处令人惊叹的绿洲，这里仍保留着该地区最后一个原始渡口。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e7%b1%b3%e6%8b%89%e9%9f%a6%e7%89%b9&form=hpcapt&filters=HpDate:"20250528_1600" "Bing Wallpaper 2025 5月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250529_MiravetSpain"&FORM=HPQUIZ "必应主页测验 2025 5月 29")
+[下载480](https://cn.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_800x480.jpg&rf=LaDigue_800x480.jpg "米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_1280x720.jpg&rf=LaDigue_1280x720.jpg "米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_UHD.jpg&rf=LaDigue_UHD.jpg "米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙")
+
+---
 ### 05月28日：海獭很重要
 #### 一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国（© Gerry Ellis/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_1280x720.jpg&rf=LaDigue_1280x720.jpg "大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国")
 [下载1080](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_UHD.jpg&rf=LaDigue_UHD.jpg "大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国")
-
----
-### 05月14日：矿石与传奇
-#### 弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利（© Marco Bottigelli/Getty Images）
-
-![矿石与传奇](https://cn.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_800x480.jpg&rf=LaDigue_800x480.jpg "矿石与传奇")
-
-大多数港口依赖延伸至海岸线的码头与吊车来进行货物装载，而波尔图弗拉维亚则完全反其道而行之。这一工程奇迹将一座石灰岩峭壁变成了撒丁岛矿石产业的门户。苏尔西斯-伊格莱西恩特的采矿历史可以追溯至几千年前，从腓尼基人、古罗马人一直延续到 20 世纪的工业繁荣时期。这里曾大量开采铅、锌、煤、硫磺、重晶石和银等矿产。但运输这些矿物却是一场噩梦：矿石需先用推车运至小船，再从小船转运至大型货船，过程缓慢、成本高昂、效率低下。
-
-波尔图弗拉维亚是一处联合国教科文组织保护的遗址，也是该地区采矿和工业考古之旅的推荐目的地之一。如今，隧道内每天都有导览行程，由曾在此工作的工人或IGEA矿业技术人员亲自讲解。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%bc%97%e6%8b%89%e7%bb%b4%e4%ba%9a%e6%b8%af&form=hpcapt&filters=HpDate:"20250513_1600" "Bing Wallpaper 2025 5月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250514_SardiniaFlavia"&FORM=HPQUIZ "必应主页测验 2025 5月 14")
-[下载480](https://cn.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_800x480.jpg&rf=LaDigue_800x480.jpg "弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利")
-[下载720](https://cn.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_1280x720.jpg&rf=LaDigue_1280x720.jpg "弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_UHD.jpg&rf=LaDigue_UHD.jpg "弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利")
 
 ---
