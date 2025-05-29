@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月30日：流经烟雾弥漫之地
+#### 小鸽子河，大雾山国家公园，田纳西州, 美国（© GreenStock/Getty Images）
+
+![流经烟雾弥漫之地](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_800x480.jpg&rf=LaDigue_800x480.jpg "流经烟雾弥漫之地")
+
+若不留神，便可能错过它，直到耳边传来潺潺水声、鳟鱼跃水的扑通声，或远处徒步者的欢笑声。这便是小鸽子河，蜿蜒穿越美国田纳西州的大烟山国家公园。在漂流活动与飞蝇钓兴起之前，这条河曾是当地原住民与早期定居者赖以生存的重要资源。切罗基族曾在此捕鱼，定居者沿河建起磨坊，盖特林堡、鸽子谷等城镇亦因河而兴。河名“小鸽子”源于曾栖息于此的旅鸽，尽管这一物种已于20世纪初灭绝，这一命名仍是对自然历史的纪念。
+
+尽管名称相近，小鸽子河并非附近鸽子河的支流。鸽子河在道格拉斯大坝上游汇入法国宽河，并流入该水库。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e9%9b%be%e5%b1%b1%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250529_1600" "Bing Wallpaper 2025 5月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250530_LittlePigeonRiver"&FORM=HPQUIZ "必应主页测验 2025 5月 30")
+[下载480](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_800x480.jpg&rf=LaDigue_800x480.jpg "小鸽子河，大雾山国家公园，田纳西州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_1280x720.jpg&rf=LaDigue_1280x720.jpg "小鸽子河，大雾山国家公园，田纳西州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "小鸽子河，大雾山国家公园，田纳西州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_UHD.jpg&rf=LaDigue_UHD.jpg "小鸽子河，大雾山国家公园，田纳西州, 美国")
+
+---
 ### 05月29日：穿越数个世纪的流淌
 #### 米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙（© Eloi_Omella/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GreenMacaw_ZH-CN3451340204_1280x720.jpg&rf=LaDigue_1280x720.jpg "大绿金刚鹦鹉, 墨西哥")
 [下载1080](https://cn.bing.com/th?id=OHR.GreenMacaw_ZH-CN3451340204_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大绿金刚鹦鹉, 墨西哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.GreenMacaw_ZH-CN3451340204_UHD.jpg&rf=LaDigue_UHD.jpg "大绿金刚鹦鹉, 墨西哥")
-
----
-### 05月15日：伦敦时间到！
-#### 大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国（© Puthipong Worasaran/Getty Images）
-
-![伦敦时间到！](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_800x480.jpg&rf=LaDigue_800x480.jpg "伦敦时间到！")
-
-伦敦最著名的钟楼其实并不叫“大本钟”，这个名字指的是钟楼内那口重达13.5吨的巨大钟体。自1859年以来，它便为伦敦人报时，钟声响起自如今名为“伊丽莎白塔”的建筑中。2012年，在伊丽莎白二世女王登基60周年之际，这座原本称为“钟楼”的建筑被正式更名为“伊丽莎白塔”。自诞生以来，这座钟仅在维修或特殊情况下才停止运转，如一战和二战期间因轰炸受损。它的四个钟面每个直径达22.5英尺，分针长度达14英尺。钟楼高达316英尺，属于雄伟的威斯敏斯特宫的一部分，也就是英国议会的所在地。
-
-这座钟已成为英国的重要文化象征，尤其在视觉媒体中尤为显著。当影视作品需要展示“英国”这一概念时，通常会选用这座钟楼的画面，前景常伴有红色双层巴士或黑色出租车。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bc%a6%e6%95%a6%e5%a4%a7%e6%9c%ac%e9%92%9f&form=hpcapt&filters=HpDate:"20250514_1600" "Bing Wallpaper 2025 5月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250515_LondonParliament"&FORM=HPQUIZ "必应主页测验 2025 5月 15")
-[下载480](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_800x480.jpg&rf=LaDigue_800x480.jpg "大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国")
-[下载720](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_1280x720.jpg&rf=LaDigue_1280x720.jpg "大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国")
-[下载1080](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_UHD.jpg&rf=LaDigue_UHD.jpg "大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国")
 
 ---
