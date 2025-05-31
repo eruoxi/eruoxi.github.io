@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月01日：海底世界
+#### 格朗特尔岛附近的堡礁，法属新喀里多尼亚（© Karsten Wrobel/Getty Images）
+
+![海底世界](https://cn.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_800x480.jpg&rf=LaDigue_800x480.jpg "海底世界")
+
+“海底的世界比陆地上的任何地方都要美好。” 迪士尼动画电影《小美人鱼》中，赛巴斯汀曾这样对爱丽儿说道。然而，我们是否真的为保护这一海底世界做得足够多？6月1日是世界珊瑚礁意识日，这是一个唤起人们关注珊瑚礁生态系统之美及其脆弱性的日子。一个壮丽的范例是新喀里多尼亚的大堡礁，它环绕着新喀里多尼亚最大的岛屿格兰德特尔岛。这条珊瑚礁长达930多英里，是世界上最长的连续堡礁之一。其广阔的9,300平方英里泻湖孕育着2300多种鱼类、濒危的儒艮、绿海龟以及迁徙的座头鲸。
+
+珊瑚礁最早出现在约4.85亿年前的奥陶纪早期，取代了寒武纪时期的微生物礁和海绵礁。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%8f%8a%e7%91%9a%e7%a4%81%e4%bf%9d%e6%8a%a4%e6%97%a5&form=hpcapt&filters=HpDate:"20250531_1600" "Bing Wallpaper 2025 6月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250601_GrandeTerreReef"&FORM=HPQUIZ "必应主页测验 2025 6月 1")
+[下载480](https://cn.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_800x480.jpg&rf=LaDigue_800x480.jpg "格朗特尔岛附近的堡礁，法属新喀里多尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_1280x720.jpg&rf=LaDigue_1280x720.jpg "格朗特尔岛附近的堡礁，法属新喀里多尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格朗特尔岛附近的堡礁，法属新喀里多尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_UHD.jpg&rf=LaDigue_UHD.jpg "格朗特尔岛附近的堡礁，法属新喀里多尼亚")
+
+---
 ### 05月31日：充满节日氛围节装饰
 #### 用彩色丝线串成的香囊，端午节前夕的庙会上，吉林省吉林市，中国（© Visual China Group/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_1280x720.jpg&rf=LaDigue_1280x720.jpg "加龙河对面的圣皮埃尔桥，图卢兹，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加龙河对面的圣皮埃尔桥，图卢兹，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_UHD.jpg&rf=LaDigue_UHD.jpg "加龙河对面的圣皮埃尔桥，图卢兹，法国")
-
----
-### 05月17日：威尼斯式的“甜蜜生活”
-#### 威尼斯潟湖中的三角洲, 意大利（© Dimitri Weber/Amazing Aerial Agency）
-
-![威尼斯式的“甜蜜生活”](https://cn.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_800x480.jpg&rf=LaDigue_800x480.jpg "威尼斯式的“甜蜜生活”")
-
-今天图片中的是意大利威尼斯潟湖三角洲的壮观景色。该潟湖面积超过 212 平方英里，由岛屿、泥滩、运河和沼泽组成，是整个地中海盆地最大的湿地之一。潟湖不仅是一个风景奇观，也是一个充满历史和创新的地方。它形成于上一个冰河时期之后，在西元476年西罗马帝国灭亡前后，成为人们躲避入侵的避难所。在随后的几个世纪里，这些早期的定居者开始建造最终成为标志性城市的威尼斯。
-
-潟湖的水位会发生惊人的变化。其中最著名的潮汐现象被称为“高水位”，通常发生在每年10月至1月之间，届时威尼斯部分地区常遭水患。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%bc%e6%96%af%e6%bd%9f%e6%b9%96&form=hpcapt&filters=HpDate:"20250516_1600" "Bing Wallpaper 2025 5月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250517_VeniceLagoon"&FORM=HPQUIZ "必应主页测验 2025 5月 17")
-[下载480](https://cn.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_800x480.jpg&rf=LaDigue_800x480.jpg "威尼斯潟湖中的三角洲, 意大利")
-[下载720](https://cn.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_1280x720.jpg&rf=LaDigue_1280x720.jpg "威尼斯潟湖中的三角洲, 意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "威尼斯潟湖中的三角洲, 意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_UHD.jpg&rf=LaDigue_UHD.jpg "威尼斯潟湖中的三角洲, 意大利")
 
 ---
