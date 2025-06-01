@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月02日：花的力量
+#### 一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约（© Marianne A. Campolongo/Alamy）
+
+![花的力量](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_800x480.jpg&rf=LaDigue_800x480.jpg "花的力量")
+
+今日图片中展示的是一只灰蝶，它以迅速、跳跃式的飞行方式而闻名，正停驻在一朵鲜艳的紫锥菊上，亦称松果菊。紫锥菊原产于北美，以其耐寒的花朵和独特的刺状花心而广受园艺爱好者和传粉昆虫的喜爱。
+
+研究表明，仅仅观赏花园就能降低血压和减轻压力。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%b4%ab%e9%94%a5%e8%8f%8a&form=hpcapt&filters=HpDate:"20250601_1600" "Bing Wallpaper 2025 6月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250602_EchinaceaButterfly"&FORM=HPQUIZ "必应主页测验 2025 6月 2")
+[下载480](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_800x480.jpg&rf=LaDigue_800x480.jpg "一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约")
+[下载720](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约")
+[下载1080](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约")
+[下载UHD](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_UHD.jpg&rf=LaDigue_UHD.jpg "一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约")
+
+---
 ### 06月01日：海底世界
 #### 格朗特尔岛附近的堡礁，法属新喀里多尼亚（© Karsten Wrobel/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_1280x720.jpg&rf=LaDigue_1280x720.jpg "汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_UHD.jpg&rf=LaDigue_UHD.jpg "汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国")
-
----
-### 05月18日：图卢兹的暮色
-#### 加龙河对面的圣皮埃尔桥，图卢兹，法国（© Image Professionals GmbH/Alamy）
-
-![图卢兹的暮色](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_800x480.jpg&rf=LaDigue_800x480.jpg "图卢兹的暮色")
-
-夕阳西下，加龙河畔的图卢兹展现出最迷人的景致——圣皮埃尔桥与雄伟的拉格拉夫圆顶倒映在水面上，相映成辉。这座连接粉色之城两岸的桥梁最初建于1849年，后分别在1927年和1987年进行重建，以适应现代需求。
-
-图卢兹拥有三处联合国教科文组织世界遗产：米迪运河（1996年列入，与其他城市共享）、圣瑟南大教堂（欧洲现存最大的罗马式建筑）及圣雅克医院旧址。这两处建筑因其在圣地亚哥-德孔波斯特拉朝圣路线上的重要作用，于1998年被列入世界遗产名录。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%be%e5%8d%a2%e5%85%b9&form=hpcapt&filters=HpDate:"20250517_1600" "Bing Wallpaper 2025 5月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250518_ToulouseBridge"&FORM=HPQUIZ "必应主页测验 2025 5月 18")
-[下载480](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_800x480.jpg&rf=LaDigue_800x480.jpg "加龙河对面的圣皮埃尔桥，图卢兹，法国")
-[下载720](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_1280x720.jpg&rf=LaDigue_1280x720.jpg "加龙河对面的圣皮埃尔桥，图卢兹，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加龙河对面的圣皮埃尔桥，图卢兹，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_UHD.jpg&rf=LaDigue_UHD.jpg "加龙河对面的圣皮埃尔桥，图卢兹，法国")
 
 ---
