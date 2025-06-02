@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月03日：为快乐而刹车
+#### 乌得勒支桥上的自行车，荷兰（© George Pachantouris/Getty Images）
+
+![为快乐而刹车](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_800x480.jpg&rf=LaDigue_800x480.jpg "为快乐而刹车")
+
+两个轮子，无需燃料，却承载着深远的意义：骑行不仅经济、环保，更对地球友好。如此简单的一项活动，便能显著改善健康状况。将汽车出行替换为骑行，是保持活力的便捷方式。此外，骑行有助于减少污染、缓解交通拥堵，并为无驾照者提供一种经济实惠的交通选择。正因其多重益处，联合国将每年6月3日设立为“世界自行车日”，以庆祝这种双轮工具所承载的全部价值。
+
+尽管“bike”和“cycle”这两个词在大多数情况下可以互换使用，均指代两轮交通工具，但它们在世界各地的具体用法仍略有不同。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e8%87%aa%e8%a1%8c%e8%bd%a6%e6%97%a5&form=hpcapt&filters=HpDate:"20250602_1600" "Bing Wallpaper 2025 6月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250603_BicyclesUtrecht"&FORM=HPQUIZ "必应主页测验 2025 6月 3")
+[下载480](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_800x480.jpg&rf=LaDigue_800x480.jpg "乌得勒支桥上的自行车，荷兰")
+[下载720](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌得勒支桥上的自行车，荷兰")
+[下载1080](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌得勒支桥上的自行车，荷兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_UHD.jpg&rf=LaDigue_UHD.jpg "乌得勒支桥上的自行车，荷兰")
+
+---
 ### 06月02日：花的力量
 #### 一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约（© Marianne A. Campolongo/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_1280x720.jpg&rf=LaDigue_1280x720.jpg "薰衣草上的蜜蜂")
 [下载1080](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "薰衣草上的蜜蜂")
 [下载UHD](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_UHD.jpg&rf=LaDigue_UHD.jpg "薰衣草上的蜜蜂")
-
----
-### 05月19日：汉密尔顿山的蜿蜒之路
-#### 汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国（© Jeffrey Lewis/TANDEM Stills + Motion）
-
-![汉密尔顿山的蜿蜒之路](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_800x480.jpg&rf=LaDigue_800x480.jpg "汉密尔顿山的蜿蜒之路")
-
-驾车驶上加州湾区的汉密尔顿山，游客将沉浸于迷人的自然景观与丰富的历史之中。全长19英里的汉密尔顿山公路，是130号州道的一部分。凭借漫长的爬坡路段和稀少的车流量，该道路深受骑行与摩托车爱好者的喜爱。这条公路建于1875年至1876年，最初旨在为世界首个长期有人驻守的山顶天文台“利克天文台”运送建材而修建。在海拔4265英尺的山顶，天气晴朗时，甚至可以远望至优胜美地国家公园或内华达山脉。
-
-汉密尔顿山拥有加州一些最美丽的自然景观，同时也是最脆弱的自然环境之一。这里生长着高大的橡树、珍稀的本地草种，以及遍地盛开的野花。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b1%89%e5%af%86%e5%b0%94%e9%a1%bf%e5%b1%b1&form=hpcapt&filters=HpDate:"20250518_1600" "Bing Wallpaper 2025 5月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250519_MountHamilton"&FORM=HPQUIZ "必应主页测验 2025 5月 19")
-[下载480](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_800x480.jpg&rf=LaDigue_800x480.jpg "汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_1280x720.jpg&rf=LaDigue_1280x720.jpg "汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_UHD.jpg&rf=LaDigue_UHD.jpg "汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国")
 
 ---
