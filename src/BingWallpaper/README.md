@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月04日：卡拉卢纳海滩, 撒丁岛, 意大利
+#### 卡拉卢纳海滩, 撒丁岛, 意大利（© guenterguni/Getty Images）
+
+![卡拉卢纳海滩, 撒丁岛, 意大利](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_800x480.jpg&rf=LaDigue_800x480.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
+
+意大利撒丁岛以其崎岖的悬崖、隐秘的海滩以及层层叠叠的蓝色海水，堪称地中海的一颗明珠。全岛海岸线长度超过1100英里。尽管岛上自然河流稀少，其中提尔索河为最长河流，撒丁岛通过水利工程建设了54座人工湖与水坝。其中最重要的两座为奥莫代奥湖与科吉纳斯湖，分别为当地的重要水源及电力供应地。
+
+因其非凡的美丽与野性魅力，卡拉卢纳海滩曾被选为意大利经典电影《踩过界》的拍摄地，同时也是由国际巨星麦当娜主演的同名电影翻拍版的取景地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%92%92%e4%b8%81%e5%b2%9b&form=hpcapt&filters=HpDate:"20250603_1600" "Bing Wallpaper 2025 6月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250604_CalaLuna"&FORM=HPQUIZ "必应主页测验 2025 6月 4")
+[下载480](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_800x480.jpg&rf=LaDigue_800x480.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
+[下载720](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_UHD.jpg&rf=LaDigue_UHD.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
+
+---
 ### 06月03日：为快乐而刹车
 #### 乌得勒支桥上的自行车，荷兰（© George Pachantouris/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_1280x720.jpg&rf=LaDigue_1280x720.jpg "杨家塘村茶园，松阳县，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杨家塘村茶园，松阳县，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_UHD.jpg&rf=LaDigue_UHD.jpg "杨家塘村茶园，松阳县，中国")
-
----
-### 05月20日：小翅膀，大作用
-#### 薰衣草上的蜜蜂（© Anthony Brown/Alamy Stock Photo）
-
-![小翅膀，大作用](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_800x480.jpg&rf=LaDigue_800x480.jpg "小翅膀，大作用")
-
-蜜蜂身躯虽小，但没有它们，你的购物清单可能会少很多。不再有莓果、牛油果，甚至咖啡。蜜蜂与蝴蝶、蝙蝠和蜂鸟一起，为全球近 90% 的野生开花植物和超过 35% 的我们所依赖的农作物授粉。每年5月20日的世界蜜蜂日，正是为了向这些至关重要的传粉者致敬，并纪念现代养蜂业先驱安东·扬沙。扬沙曾称蜜蜂为“最高贵的昆虫”，这一观点如今也得到了科学的证实。
-
-选定每年5月20日作为世界蜜蜂日是因为这一天是现代养蜂业先驱安东·扬沙的生日。扬沙来自斯洛文尼亚的一个养蜂世家，当地的养蜂活动有着悠久的历史传统，是重要的农业活动之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e8%9c%9c%e8%9c%82%e6%97%a5&form=hpcapt&filters=HpDate:"20250519_1600" "Bing Wallpaper 2025 5月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250520_HoneyBeeLavender"&FORM=HPQUIZ "必应主页测验 2025 5月 20")
-[下载480](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_800x480.jpg&rf=LaDigue_800x480.jpg "薰衣草上的蜜蜂")
-[下载720](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_1280x720.jpg&rf=LaDigue_1280x720.jpg "薰衣草上的蜜蜂")
-[下载1080](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "薰衣草上的蜜蜂")
-[下载UHD](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_UHD.jpg&rf=LaDigue_UHD.jpg "薰衣草上的蜜蜂")
 
 ---
