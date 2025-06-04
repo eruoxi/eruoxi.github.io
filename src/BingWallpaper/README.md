@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月05日：隐藏的美景
+#### 福玛萨瀑布，迪亚曼蒂纳，巴西（© Pulsar Images/Alamy）
+
+![隐藏的美景](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_800x480.jpg&rf=LaDigue_800x480.jpg "隐藏的美景")
+
+今日图片带我们走近迪亚曼蒂纳高地国家公园中最壮观、却极少有人踏足的瀑布之一福玛萨瀑布。该瀑布位于巴伊亚州，垂直落差约为100米。通往瀑布的小径始于巴伊绍村，由于地形陡峭，被评为高难度路线。
+
+环绕迪亚曼蒂纳高地国家公园的城镇，遍布殖民时期的建筑，体现出当时的建筑风格，也清晰地提醒人们钻石时代曾带来的繁荣，正是这段时期促使巴西在20世纪初成为全球最大的钻石生产国。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%bf%aa%e4%ba%9a%e6%9b%bc%e8%92%82%e7%ba%b3%e9%ab%98%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250604_1600" "Bing Wallpaper 2025 6月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250605_FumacinhaBahia"&FORM=HPQUIZ "必应主页测验 2025 6月 5")
+[下载480](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_800x480.jpg&rf=LaDigue_800x480.jpg "福玛萨瀑布，迪亚曼蒂纳，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_1280x720.jpg&rf=LaDigue_1280x720.jpg "福玛萨瀑布，迪亚曼蒂纳，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "福玛萨瀑布，迪亚曼蒂纳，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_UHD.jpg&rf=LaDigue_UHD.jpg "福玛萨瀑布，迪亚曼蒂纳，巴西")
+
+---
 ### 06月04日：卡拉卢纳海滩, 撒丁岛, 意大利
 #### 卡拉卢纳海滩, 撒丁岛, 意大利（© guenterguni/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时分的猴面包树，猴面包树大道，马达加斯加")
 [下载1080](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时分的猴面包树，猴面包树大道，马达加斯加")
 [下载UHD](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_UHD.jpg&rf=LaDigue_UHD.jpg "日落时分的猴面包树，猴面包树大道，马达加斯加")
-
----
-### 05月21日：茶歇时光
-#### 杨家塘村茶园，松阳县，中国（© feng xu/Getty Images）
-
-![茶歇时光](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_800x480.jpg&rf=LaDigue_800x480.jpg "茶歇时光")
-
-传说中，茶的故事始于中国古代：一片树叶偶然落入沸水中，开启了这段芳香之旅。几个世纪之后，茶已成为全球消费量第二的饮品（仅次于水）。今天是国际茶日，这是由联合国设立的全球性节日，旨在肯定茶在消除贫困和促进可持续发展方面的重要作用，也向茶产业中的劳动者们致以敬意。
-
-今年，国际茶日的主题是突出妇女在茶产业中的重要作用。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e8%8c%b6%e6%97%a5&form=hpcapt&filters=HpDate:"20250520_1600" "Bing Wallpaper 2025 5月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250521_SongyangTeaGarden"&FORM=HPQUIZ "必应主页测验 2025 5月 21")
-[下载480](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_800x480.jpg&rf=LaDigue_800x480.jpg "杨家塘村茶园，松阳县，中国")
-[下载720](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_1280x720.jpg&rf=LaDigue_1280x720.jpg "杨家塘村茶园，松阳县，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杨家塘村茶园，松阳县，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_UHD.jpg&rf=LaDigue_UHD.jpg "杨家塘村茶园，松阳县，中国")
 
 ---
