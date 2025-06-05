@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月06日：诺曼底登陆日的转折点
+#### 诺曼底的阿罗芒什莱班 , 法国（© Horia Merla/Getty Images）
+
+![诺曼底登陆日的转折点](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_800x480.jpg&rf=LaDigue_800x480.jpg "诺曼底登陆日的转折点")
+
+今天是诺曼底登陆日的81周年纪念日，也是我们缅怀现代史上最具决定性的时刻之一。1944年6月6日，超过15.6万名盟军部队在法国诺曼底海滩登陆，发起了代号“霸王行动”的军事进攻，也就是我们熟知的D日。这场复杂的突袭整合了空中、海上与陆地部队，是解放西欧摆脱纳粹控制战役的开始。
+
+今天，阿罗芒什主要是一个旅游城镇。由于地理位置优越，适合参观所有战役遗址和战争公墓，阿罗芒什还设有一个博物馆，介绍有关“霸王行动”，尤其是“桑树港”的内容。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%af%ba%e6%9b%bc%e5%ba%95%e7%99%bb%e9%99%86&form=hpcapt&filters=HpDate:"20250605_1600" "Bing Wallpaper 2025 6月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250606_NormandyBeach"&FORM=HPQUIZ "必应主页测验 2025 6月 6")
+[下载480](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_800x480.jpg&rf=LaDigue_800x480.jpg "诺曼底的阿罗芒什莱班 , 法国")
+[下载720](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_1280x720.jpg&rf=LaDigue_1280x720.jpg "诺曼底的阿罗芒什莱班 , 法国")
+[下载1080](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "诺曼底的阿罗芒什莱班 , 法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_UHD.jpg&rf=LaDigue_UHD.jpg "诺曼底的阿罗芒什莱班 , 法国")
+
+---
 ### 06月05日：隐藏的美景
 #### 福玛萨瀑布，迪亚曼蒂纳，巴西（© Pulsar Images/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_1280x720.jpg&rf=LaDigue_1280x720.jpg "停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_UHD.jpg&rf=LaDigue_UHD.jpg "停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔")
-
----
-### 05月22日：猴面包树大道
-#### 日落时分的猴面包树，猴面包树大道，马达加斯加（© Framalicious/Shutterstock）
-
-![猴面包树大道](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_800x480.jpg&rf=LaDigue_800x480.jpg "猴面包树大道")
-
-从微小的细菌到高大的树木，地球上的生命彼此相互关联。国际生物多样性日旨在庆祝这一维系地球繁荣的生命之网。生物多样性与日常生活息息相关，涵盖可持续农业、清洁用水、气候行动以及灾害防范等诸多领域。生物多样性的减少会增加动物传染病传播的风险（包括动物传染给人类的疾病）。相反，保护生物多样性则有助于增强我们预防和应对大流行病等健康危机的能力。联合国深知生物多样性对当前和未来世代的重要意义，因此每年都设立这个纪念日，提高公众意识并推动保护行动。
-
-一些猴面包树品种能提供纤维、染料和燃料。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e7%94%9f%e7%89%a9%e5%a4%9a%e6%a0%b7%e6%80%a7%e6%97%a5&form=hpcapt&filters=HpDate:"20250521_1600" "Bing Wallpaper 2025 5月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250522_BaobabAvenue"&FORM=HPQUIZ "必应主页测验 2025 5月 22")
-[下载480](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_800x480.jpg&rf=LaDigue_800x480.jpg "日落时分的猴面包树，猴面包树大道，马达加斯加")
-[下载720](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时分的猴面包树，猴面包树大道，马达加斯加")
-[下载1080](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时分的猴面包树，猴面包树大道，马达加斯加")
-[下载UHD](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_UHD.jpg&rf=LaDigue_UHD.jpg "日落时分的猴面包树，猴面包树大道，马达加斯加")
 
 ---
