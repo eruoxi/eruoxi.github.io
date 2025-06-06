@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月07日：走上高远之路
+#### 松山顶峰, 洛杉矶国家森林公园, 加利福尼亚州, 美国（© Matthew Kuhns/TANDEM Stills + Motion）
+
+![走上高远之路](https://cn.bing.com/th?id=OHR.PacificCrestTrail_ZH-CN9582395021_800x480.jpg&rf=LaDigue_800x480.jpg "走上高远之路")
+
+森林步道不仅仅是一条欣赏大自然的路径，它们将人们与自然和冒险联系在一起。如今日图片所示的是位于加利福尼亚州的洛杉矶国家森林的步道。此地拥有高耸的松树、崎岖的山脊，并包含著名的太平洋山脊步道（PCT）的一段。该步道全长超过2600英里，从墨西哥延伸至加拿大，是许多徒步爱好者心中的终极梦想。太平洋山脊步道于1968年被指定为国家风景步道，穿越7座国家公园和25个国家森林，是领略美国西部壮丽风光的独特方式。不过，想要体验它的魅力，并不需要走完全程。在加州南部，该步道穿越圣盖博山脉的部分便可带来壮观景色和充满成就感的一日徒步体验。
+
+国家步道日的历史可以追溯至五十多年前。最初，美国尚未建立统一的官方步道体系。直到1968年10月，林登·约翰逊总统签署《国家步道法》，才正式建立起供公众旅游与休闲的国家步道网络。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e5%ae%b6%e6%ad%a5%e9%81%93%e6%97%a5&form=hpcapt&filters=HpDate:"20250606_1600" "Bing Wallpaper 2025 6月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250607_PacificCrestTrail"&FORM=HPQUIZ "必应主页测验 2025 6月 7")
+[下载480](https://cn.bing.com/th?id=OHR.PacificCrestTrail_ZH-CN9582395021_800x480.jpg&rf=LaDigue_800x480.jpg "松山顶峰, 洛杉矶国家森林公园, 加利福尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.PacificCrestTrail_ZH-CN9582395021_1280x720.jpg&rf=LaDigue_1280x720.jpg "松山顶峰, 洛杉矶国家森林公园, 加利福尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PacificCrestTrail_ZH-CN9582395021_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "松山顶峰, 洛杉矶国家森林公园, 加利福尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PacificCrestTrail_ZH-CN9582395021_UHD.jpg&rf=LaDigue_UHD.jpg "松山顶峰, 洛杉矶国家森林公园, 加利福尼亚州, 美国")
+
+---
 ### 06月06日：诺曼底登陆日的转折点
 #### 诺曼底的阿罗芒什莱班 , 法国（© Horia Merla/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_1280x720.jpg&rf=LaDigue_1280x720.jpg "挪威尤通黑门山国家公园")
 [下载1080](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "挪威尤通黑门山国家公园")
 [下载UHD](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_UHD.jpg&rf=LaDigue_UHD.jpg "挪威尤通黑门山国家公园")
-
----
-### 05月23日：为龟喝彩！
-#### 停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔（© Westend61/Getty Images）
-
-![为龟喝彩！](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_800x480.jpg&rf=LaDigue_800x480.jpg "为龟喝彩！")
-
-今天是世界海龟日成立的25周年纪念日。海龟和陆龟在多种环境中生存，被人们视为智慧与坚韧的象征。所有的陆龟都是海龟，但并非所有海龟都是陆龟。海龟体型较小，适合水中生活，而陆龟体型较大、较重，适应陆地生活。美国龟类救援组织（ATR）在每年5月23日设立世界海龟日，旨在提高公众保护龟类的意识。该组织已帮助约4000只海龟和陆龟进行康复、救助和重新安置，同时致力于保护它们及其逐渐消失的栖息地。
-
-根据种类的不同，海龟可分为草食性、肉食性和杂食性。它们的食物范围涵盖了植物、水果、昆虫和鱼类。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b5%b7%e9%be%9f%e6%97%a5&form=hpcapt&filters=HpDate:"20250522_1600" "Bing Wallpaper 2025 5月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250523_ButterflyTurtle"&FORM=HPQUIZ "必应主页测验 2025 5月 23")
-[下载480](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_800x480.jpg&rf=LaDigue_800x480.jpg "停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔")
-[下载720](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_1280x720.jpg&rf=LaDigue_1280x720.jpg "停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔")
-[下载1080](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔")
-[下载UHD](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_UHD.jpg&rf=LaDigue_UHD.jpg "停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔")
 
 ---
