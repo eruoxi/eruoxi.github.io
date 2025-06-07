@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月08日：来自彼岸的问候
+#### 北海狮, 温哥华岛, 不列颠哥伦比亚省, 加拿大（© Steve Woods Photography/Getty Images）
+
+![来自彼岸的问候](https://cn.bing.com/th?id=OHR.StellarSeaLions_ZH-CN2859514359_800x480.jpg&rf=LaDigue_800x480.jpg "来自彼岸的问候")
+
+如今日图片所示，在加拿大温哥华岛海岸，北海狮在寒冷的海域中自由穿梭。这些大型海洋哺乳动物雌性平均体重约580磅，雄性则可达约1200磅。雄性北海狮体型更为庞大，具响亮的吼声、粗壮的颈部和平坦的鼻梁，是其显著特征。它们通过深沉的声音进行交流，声音形式包括打嗝声、低吼和喷气声，用于警示或水下沟通。雄性通过巨大的咆哮声来捍卫领地，而母子之间则会使用特有的呼叫方式在嘈杂的栖息地中识别彼此。尽管体型庞大，北海狮仍是虎鲸和大型鲨鱼的猎物之一。目前该物种被列为“近危”，在阿拉斯加部分海域，其种群数量正在下降。持续的海洋保护行动为它们以及众多其他海洋哺乳动物的生存提供了重要支持。
+
+“太平洋”这个名字源自拉丁语Tepre Pacificum，意为“平静的大海”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b5%b7%e6%b4%8b%e6%97%a5&form=hpcapt&filters=HpDate:"20250607_1600" "Bing Wallpaper 2025 6月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250608_StellarSeaLions"&FORM=HPQUIZ "必应主页测验 2025 6月 8")
+[下载480](https://cn.bing.com/th?id=OHR.StellarSeaLions_ZH-CN2859514359_800x480.jpg&rf=LaDigue_800x480.jpg "北海狮, 温哥华岛, 不列颠哥伦比亚省, 加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.StellarSeaLions_ZH-CN2859514359_1280x720.jpg&rf=LaDigue_1280x720.jpg "北海狮, 温哥华岛, 不列颠哥伦比亚省, 加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.StellarSeaLions_ZH-CN2859514359_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北海狮, 温哥华岛, 不列颠哥伦比亚省, 加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.StellarSeaLions_ZH-CN2859514359_UHD.jpg&rf=LaDigue_UHD.jpg "北海狮, 温哥华岛, 不列颠哥伦比亚省, 加拿大")
+
+---
 ### 06月07日：走上高远之路
 #### 松山顶峰, 洛杉矶国家森林公园, 加利福尼亚州, 美国（© Matthew Kuhns/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_1280x720.jpg&rf=LaDigue_1280x720.jpg "布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_UHD.jpg&rf=LaDigue_UHD.jpg "布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大")
-
----
-### 05月24日：欧洲的野性之美
-#### 挪威尤通黑门山国家公园（© Marisa Estivill/Shutterstock）
-
-![欧洲的野性之美](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_800x480.jpg&rf=LaDigue_800x480.jpg "欧洲的野性之美")
-
-今天是“欧洲公园日”，旨在庆祝那些塑造各国自然特性的国家公园和保护区。该纪念日由欧洲公园联盟于1999年创立，以纪念1909年在瑞典建立的九座欧洲最早的国家公园。该节日旨在推动保护自然栖息地、野生动植物及文化遗产的行动，同时鼓励可持续旅游与户外活动。
-
-2020年2月，“冰之秘密”项目的研究人员在挪威南部尤通黑门山脉，因气候变化而逐渐消融的冰川中，发现了一支距今1,500年来自日耳曼铁器时代的维京箭头。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e6%b4%b2%e5%85%ac%e5%9b%ad%e6%97%a5&form=hpcapt&filters=HpDate:"20250523_1600" "Bing Wallpaper 2025 5月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250524_JotunheimenPark"&FORM=HPQUIZ "必应主页测验 2025 5月 24")
-[下载480](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_800x480.jpg&rf=LaDigue_800x480.jpg "挪威尤通黑门山国家公园")
-[下载720](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_1280x720.jpg&rf=LaDigue_1280x720.jpg "挪威尤通黑门山国家公园")
-[下载1080](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "挪威尤通黑门山国家公园")
-[下载UHD](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_UHD.jpg&rf=LaDigue_UHD.jpg "挪威尤通黑门山国家公园")
 
 ---
