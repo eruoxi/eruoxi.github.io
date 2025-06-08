@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月09日：探索君临城
+#### 达尔马提亚的杜布罗夫尼克古城，克罗地亚（© bluejayphoto/Getty Images）
+
+![探索君临城](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_ZH-CN2981648854_800x480.jpg&rf=LaDigue_800x480.jpg "探索君临城")
+
+有些城市仿佛将历史穿戴在身上，杜布罗夫尼克便是其中之一。这座城市曾为独立的拉古萨共和国，在14世纪至19世纪间是亚得里亚海沿岸的重要海上强国与贸易中心。它位于克罗地亚达尔马提亚南部，靠近亚得里亚海，城市的繁荣得益于其娴熟的外交策略与卓越的航海技术。杜布罗夫尼克城墙建于13世纪至17世纪，全长超过1.2英里，配有塔楼、堡垒及防御工事，至今仍然巍然屹立。如今城墙的布局延续自1292年，当年城市在威尼斯统治下经历了一场大火并重建。
+
+克罗地亚杜布罗夫尼克古城曾出现在1993年与2002年发行的克罗地亚50库纳纸币的背面。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%9d%9c%e5%b8%83%e7%bd%97%e5%a4%ab%e5%b0%bc%e5%85%8b&form=hpcapt&filters=HpDate:"20250608_1600" "Bing Wallpaper 2025 6月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250609_DubrovnikTwilight"&FORM=HPQUIZ "必应主页测验 2025 6月 9")
+[下载480](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_ZH-CN2981648854_800x480.jpg&rf=LaDigue_800x480.jpg "达尔马提亚的杜布罗夫尼克古城，克罗地亚")
+[下载720](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_ZH-CN2981648854_1280x720.jpg&rf=LaDigue_1280x720.jpg "达尔马提亚的杜布罗夫尼克古城，克罗地亚")
+[下载1080](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_ZH-CN2981648854_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "达尔马提亚的杜布罗夫尼克古城，克罗地亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_ZH-CN2981648854_UHD.jpg&rf=LaDigue_UHD.jpg "达尔马提亚的杜布罗夫尼克古城，克罗地亚")
+
+---
 ### 06月08日：来自彼岸的问候
 #### 北海狮, 温哥华岛, 不列颠哥伦比亚省, 加拿大（© Steve Woods Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Arashiyama2025_ZH-CN7836747321_1280x720.jpg&rf=LaDigue_1280x720.jpg "沿着岚山保津川行驶的火车，京都，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.Arashiyama2025_ZH-CN7836747321_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沿着岚山保津川行驶的火车，京都，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.Arashiyama2025_ZH-CN7836747321_UHD.jpg&rf=LaDigue_UHD.jpg "沿着岚山保津川行驶的火车，京都，日本")
-
----
-### 05月25日：绽放于你所在之地
-#### 布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大（© 2009fotofriends/Shutterstock）
-
-![绽放于你所在之地](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_800x480.jpg&rf=LaDigue_800x480.jpg "绽放于你所在之地")
-
-一个多世纪前，这里还是一片荒废的采石场，如今每年春季则变成了色彩斑斓的花海。位于加拿大不列颠哥伦比亚省布伦特伍德湾的布查特花园，展示了如何将缤纷花卉演绎为盛宴。春季时节，郁金香的香气弥漫小径，沿途色彩斑斓，每一个转角都有新花绽放。然而，这里并非一直如此美丽。20世纪初，罗伯特·皮姆·布查特曾在此经营石灰石采石场。1912年，他的妻子珍妮识别出废弃矿坑的潜力，开始在坑内种植花卉。如今，布查特花园占地55英亩，种植有900多种植物，每年春天近30万株球茎花卉竞相绽放。
-
-1982年，布查特花园被选为佛罗里达州奥兰多卡特中心加拿大馆花园的设计灵感来源。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e6%9f%a5%e7%89%b9%e8%8a%b1%e5%9b%ad&form=hpcapt&filters=HpDate:"20250524_1600" "Bing Wallpaper 2025 5月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250525_ButchartFlowers"&FORM=HPQUIZ "必应主页测验 2025 5月 25")
-[下载480](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_800x480.jpg&rf=LaDigue_800x480.jpg "布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_1280x720.jpg&rf=LaDigue_1280x720.jpg "布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_UHD.jpg&rf=LaDigue_UHD.jpg "布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大")
 
 ---
