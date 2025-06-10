@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月11日：潮汐间的芭蕾
+#### 大红鹳，吕德里茨，纳米比亚（© Karine Aigner/TANDEM Stills + Motion）
+
+![潮汐间的芭蕾](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_800x480.jpg&rf=LaDigue_800x480.jpg "潮汐间的芭蕾")
+
+在纳米比亚吕德里茨，这些鸟类并非过客，而是真正“站稳脚跟”的居民，字面意义上，仅用一条腿支撑。它们便是大红鹳，为南大西洋沿岸狂风席卷的纳米比亚海岸增添了一抹亮丽的粉色。作为所有鹳类中体型最大的一种，大红鹳毫不吝啬地展示自身风采：身高可达59英寸，具有匙状弯曲喙和修长的双腿，极具辨识度。
+
+成年大红鹳几乎没有天敌。然而，其蛋和雏鸟仍可能遭受猛禽、乌鸦、海鸥和白鹳的捕食。据估计，约一半的大红鹳蛋和雏鸟都被黄脚银鸥所捕食。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e7%ba%a2%e9%b9%b3&form=hpcapt&filters=HpDate:"20250610_1600" "Bing Wallpaper 2025 6月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250611_FlamingosNamibia"&FORM=HPQUIZ "必应主页测验 2025 6月 11")
+[下载480](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_800x480.jpg&rf=LaDigue_800x480.jpg "大红鹳，吕德里茨，纳米比亚")
+[下载720](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_1280x720.jpg&rf=LaDigue_1280x720.jpg "大红鹳，吕德里茨，纳米比亚")
+[下载1080](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大红鹳，吕德里茨，纳米比亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_UHD.jpg&rf=LaDigue_UHD.jpg "大红鹳，吕德里茨，纳米比亚")
+
+---
 ### 06月10日：草之河流
 #### 大沼泽地国家公园的鸟瞰图，佛罗里达州，美国（© Robert DelVecchio - OcuDrone/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_UHD.jpg&rf=LaDigue_UHD.jpg "一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国")
-
----
-### 05月27日：一处海滨奇观
-#### 梦娜维尔岩池，悉尼，澳大利亚（© jamenpercy/Getty Images）
-
-![一处海滨奇观](https://cn.bing.com/th?id=OHR.MonaValePool_ZH-CN7968271596_800x480.jpg&rf=LaDigue_800x480.jpg "一处海滨奇观")
-
-若你曾向往在海洋中畅游，却又不愿吞入口中的咸水，那么澳大利亚悉尼的莫纳维尔岩池无疑是一处理想选择。该泳池可谓水域中的一处悖论：池外波涛汹涌，而池内则水面平静、适宜游泳。岩池位于贝森海滩与莫纳维尔海滩之间，其形态更近似天然奇观而非典型人造泳池。这座泳池建于20世纪30年代的大萧条时期，作为失业救济工程的一部分，由工人于天然岩架上凿建而成。历经多次改建与升级，如今该泳池长度达30米，旁侧还设有一座较小的儿童泳池。二战期间，大批驻扎于附近的士兵也常前来此地游泳。泳池全年免费开放，定期由市政工作人员与潮汐共同清洁。因此，若你计划造访悉尼，不妨亲身体验这一海浪与池壁交汇之处，感受别具一格的海滨魅力。
-
-莫纳维尔实际上由两片独立的海滩组成，中间由一块宽广的海洋岩石平台所分隔。海浪沿平台南缘涌入一条沟壑，在此形成平稳而强劲的破浪现象。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8e%ab%e7%ba%b3%e7%bb%b4%e5%b0%94%e5%b2%a9%e6%b1%a0&form=hpcapt&filters=HpDate:"20250526_1600" "Bing Wallpaper 2025 5月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250527_MonaValePool"&FORM=HPQUIZ "必应主页测验 2025 5月 27")
-[下载480](https://cn.bing.com/th?id=OHR.MonaValePool_ZH-CN7968271596_800x480.jpg&rf=LaDigue_800x480.jpg "梦娜维尔岩池，悉尼，澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.MonaValePool_ZH-CN7968271596_1280x720.jpg&rf=LaDigue_1280x720.jpg "梦娜维尔岩池，悉尼，澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.MonaValePool_ZH-CN7968271596_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梦娜维尔岩池，悉尼，澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.MonaValePool_ZH-CN7968271596_UHD.jpg&rf=LaDigue_UHD.jpg "梦娜维尔岩池，悉尼，澳大利亚")
 
 ---
