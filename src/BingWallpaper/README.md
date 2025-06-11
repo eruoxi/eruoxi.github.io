@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月12日：星空、岩石与孤寂
+#### 奇索斯山脉，大弯国家公园，德克萨斯州，美国（© Dean Fikar/Getty Images）
+
+![星空、岩石与孤寂](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_800x480.jpg&rf=LaDigue_800x480.jpg "星空、岩石与孤寂")
+
+人们常说：“德州的一切都更大。”而大弯国家公园正是对这句话的最佳注解。这片占地801,163英亩的广袤区域，最初属于墨西哥领土，1848年并入美国。自20世纪30年代起，该地区的自然景观便受到保护，并于1944年6月12日正式被指定为国家公园。大弯国家公园是美国最偏远、游客最少的国家公园之一。它并非由单一地貌构成，而是三种景观的综合体：奇瓦瓦沙漠、奇索斯山脉和格兰德河。公园地处美墨边境，其历史也体现出文化交融的特征：原住民、西班牙探险者、牧场主、矿工和游客皆曾在此留下足迹。岩画、历史遗迹和古道见证了这片土地在成为国家公园之前就已拥有深厚历史。
+
+大弯国家公园内拥有多个温泉，其中包括位于温泉历史区内的主要温泉。该温泉常被称为“博卡迪拉斯温泉”或“兰福德温泉”，已被列入国家史迹名录。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e5%bc%af%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250611_1600" "Bing Wallpaper 2025 6月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250612_BigBendChisos"&FORM=HPQUIZ "必应主页测验 2025 6月 12")
+[下载480](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_800x480.jpg&rf=LaDigue_800x480.jpg "奇索斯山脉，大弯国家公园，德克萨斯州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_1280x720.jpg&rf=LaDigue_1280x720.jpg "奇索斯山脉，大弯国家公园，德克萨斯州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奇索斯山脉，大弯国家公园，德克萨斯州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_UHD.jpg&rf=LaDigue_UHD.jpg "奇索斯山脉，大弯国家公园，德克萨斯州，美国")
+
+---
 ### 06月11日：潮汐间的芭蕾
 #### 大红鹳，吕德里茨，纳米比亚（© Karine Aigner/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_1280x720.jpg&rf=LaDigue_1280x720.jpg "米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_UHD.jpg&rf=LaDigue_UHD.jpg "米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙")
-
----
-### 05月28日：海獭很重要
-#### 一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国（© Gerry Ellis/Minden Pictures）
-
-![海獭很重要](https://cn.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_800x480.jpg&rf=LaDigue_800x480.jpg "海獭很重要")
-
-它们在水中穿梭如同毛茸茸的鱼雷，在河岸上翻滚仿佛孩童在游乐场嬉戏，甚至在休息时也会彼此牵手。海獭是大自然中极具玩性的小动物，然而它们的未来并非一片光明。栖息地破坏、污染以及非法野生动物贸易正对多个水獭物种构成严重威胁。然而，这种情况并非不可逆转。每年五月最后一个星期三为“世界海獭日”，这一纪念日旨在提升公众对海獭所面临威胁的认识，并鼓励人们采取行动，共同保护它们赖以生存的野外栖息地。
-
-海獭生性好动，似乎会纯粹为了娱乐而进行各类行为，例如制造水滑梯并从上方滑入水中。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e7%8d%ad&form=hpcapt&filters=HpDate:"20250527_1600" "Bing Wallpaper 2025 5月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250528_KelpOtter"&FORM=HPQUIZ "必应主页测验 2025 5月 28")
-[下载480](https://cn.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_800x480.jpg&rf=LaDigue_800x480.jpg "一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国")
-[下载720](https://cn.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_UHD.jpg&rf=LaDigue_UHD.jpg "一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国")
 
 ---
