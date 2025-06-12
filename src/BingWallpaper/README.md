@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月13日：海洋的隐秘心跳
+#### 维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙（© ARoxo/Getty Images）
+
+![海洋的隐秘心跳](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_800x480.jpg&rf=LaDigue_800x480.jpg "海洋的隐秘心跳")
+
+位于葡萄牙亚速尔群岛圣米格尔岛附近的维拉弗兰卡岛，是一座无人居住的绿色火山岛，静静地坐落在弗兰卡村镇的南侧。尽管今日宁静怡人，这座小岛却拥有悠久而多变的历史。早在1537年，文献中便有定居者向西扩展至此的记载，使维拉弗兰卡岛正式登上历史舞台。它曾先后作为军事要塞、避风港、葡萄园种植地，乃至观鲸瞭望台。
+
+尽管这座小岛仅覆盖着一层薄薄的土壤，但历史上其海拔最高处曾被用于葡萄种植，如今，废弃葡萄园的痕迹仍清晰可辨。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%bb%b4%e6%8b%89%e5%bc%97%e5%85%b0%e5%8d%a1%e5%b2%9b&form=hpcapt&filters=HpDate:"20250612_1600" "Bing Wallpaper 2025 6月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250613_SanMiguelAzores"&FORM=HPQUIZ "必应主页测验 2025 6月 13")
+[下载480](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_800x480.jpg&rf=LaDigue_800x480.jpg "维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙")
+[下载720](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_1280x720.jpg&rf=LaDigue_1280x720.jpg "维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙")
+[下载1080](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_UHD.jpg&rf=LaDigue_UHD.jpg "维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙")
+
+---
 ### 06月12日：星空、岩石与孤寂
 #### 奇索斯山脉，大弯国家公园，德克萨斯州，美国（© Dean Fikar/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_1280x720.jpg&rf=LaDigue_1280x720.jpg "小鸽子河，大雾山国家公园，田纳西州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "小鸽子河，大雾山国家公园，田纳西州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_UHD.jpg&rf=LaDigue_UHD.jpg "小鸽子河，大雾山国家公园，田纳西州, 美国")
-
----
-### 05月29日：穿越数个世纪的流淌
-#### 米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙（© Eloi_Omella/Getty Images）
-
-![穿越数个世纪的流淌](https://cn.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_800x480.jpg&rf=LaDigue_800x480.jpg "穿越数个世纪的流淌")
-
-在某些城镇中，现代化占据主导地位，而西班牙的米拉韦特村则似乎有意维持其历史原貌。这座位于加泰罗尼亚的村落依傍埃布罗河畔的悬崖而建，至今保留着鲜活的中世纪风貌。一座古堡仍俯瞰全境，陶艺匠人如同停留于14世纪，而当地的渡船至今仍未引入现代机动化技术。欢迎来到这座连河水都显得格外悠然的村庄。作为西班牙最长的河流，埃布罗河蜿蜒流淌，承载着伊比利亚人、罗马人、摩尔人与圣殿骑士的历史。历史上，当地居民依赖河水进行贸易、运输与防御。时至今日，游客仍可见皮划艇和渡船缓缓穿行其间，沿着曾为十字军战士所行的水道悠然漂流。
-
-米拉韦特的埃布罗河沿岸风光旖旎，自然环境宛如一处令人惊叹的绿洲，这里仍保留着该地区最后一个原始渡口。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e7%b1%b3%e6%8b%89%e9%9f%a6%e7%89%b9&form=hpcapt&filters=HpDate:"20250528_1600" "Bing Wallpaper 2025 5月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250529_MiravetSpain"&FORM=HPQUIZ "必应主页测验 2025 5月 29")
-[下载480](https://cn.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_800x480.jpg&rf=LaDigue_800x480.jpg "米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_1280x720.jpg&rf=LaDigue_1280x720.jpg "米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_UHD.jpg&rf=LaDigue_UHD.jpg "米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙")
 
 ---
