@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月14日：静谧之声
+#### 五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区（© usabin/Getty Images）
+
+![静谧之声](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_800x480.jpg&rf=LaDigue_800x480.jpg "静谧之声")
+
+五塔峰坐落于意大利威尼托大区贝卢诺省的多洛米蒂山脉腹地，仿佛天然雕塑般矗立，是夏季避暑、远离海滩与城市喧嚣的理想之选。每一座岩塔皆承载着独特的历史与自然故事：从古文明的遗迹，到徒步与登山者的足迹，再到第一次世界大战时期的军事要地。这些塔峰在战时曾扮演战略要塞的角色，如今游客仍可探访战壕遗址与战争留下的痕迹。然而，自然的力量终将超越人类历史：茂密松林、芳草牧场与山间溪流共同构成了一幅宁静和谐的生态图景，晴朗的天空与繁花草甸相映成趣，伴随着阵阵鸟鸣，为前行的每一步增添生机。
+
+这几座岩塔因具备多样化的攀登路线等级，成为攀岩爱好者的重要目的地，适合不同水平的攀岩者挑战。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%9a%e6%b4%9b%e7%b1%b3%e8%92%82%e5%b1%b1%e8%84%89%e4%ba%94%e5%a1%94%e5%b3%b0&form=hpcapt&filters=HpDate:"20250613_1600" "Bing Wallpaper 2025 6月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250614_DolomitiEstate"&FORM=HPQUIZ "必应主页测验 2025 6月 14")
+[下载480](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_800x480.jpg&rf=LaDigue_800x480.jpg "五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区")
+[下载720](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1280x720.jpg&rf=LaDigue_1280x720.jpg "五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区")
+[下载1080](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区")
+[下载UHD](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&rf=LaDigue_UHD.jpg "五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区")
+
+---
 ### 06月13日：海洋的隐秘心跳
 #### 维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙（© ARoxo/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DuanwuFestivalY25_ZH-CN7343005503_1280x720.jpg&rf=LaDigue_1280x720.jpg "用彩色丝线串成的香囊，端午节前夕的庙会上，吉林省吉林市，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.DuanwuFestivalY25_ZH-CN7343005503_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "用彩色丝线串成的香囊，端午节前夕的庙会上，吉林省吉林市，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.DuanwuFestivalY25_ZH-CN7343005503_UHD.jpg&rf=LaDigue_UHD.jpg "用彩色丝线串成的香囊，端午节前夕的庙会上，吉林省吉林市，中国")
-
----
-### 05月30日：流经烟雾弥漫之地
-#### 小鸽子河，大雾山国家公园，田纳西州, 美国（© GreenStock/Getty Images）
-
-![流经烟雾弥漫之地](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_800x480.jpg&rf=LaDigue_800x480.jpg "流经烟雾弥漫之地")
-
-若不留神，便可能错过它，直到耳边传来潺潺水声、鳟鱼跃水的扑通声，或远处徒步者的欢笑声。这便是小鸽子河，蜿蜒穿越美国田纳西州的大烟山国家公园。在漂流活动与飞蝇钓兴起之前，这条河曾是当地原住民与早期定居者赖以生存的重要资源。切罗基族曾在此捕鱼，定居者沿河建起磨坊，盖特林堡、鸽子谷等城镇亦因河而兴。河名“小鸽子”源于曾栖息于此的旅鸽，尽管这一物种已于20世纪初灭绝，这一命名仍是对自然历史的纪念。
-
-尽管名称相近，小鸽子河并非附近鸽子河的支流。鸽子河在道格拉斯大坝上游汇入法国宽河，并流入该水库。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e9%9b%be%e5%b1%b1%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250529_1600" "Bing Wallpaper 2025 5月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250530_LittlePigeonRiver"&FORM=HPQUIZ "必应主页测验 2025 5月 30")
-[下载480](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_800x480.jpg&rf=LaDigue_800x480.jpg "小鸽子河，大雾山国家公园，田纳西州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_1280x720.jpg&rf=LaDigue_1280x720.jpg "小鸽子河，大雾山国家公园，田纳西州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "小鸽子河，大雾山国家公园，田纳西州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_UHD.jpg&rf=LaDigue_UHD.jpg "小鸽子河，大雾山国家公园，田纳西州, 美国")
 
 ---
