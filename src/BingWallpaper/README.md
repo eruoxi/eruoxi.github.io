@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月15日：羽翼下的父爱
+#### 雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利（© Ignacio Yufera/Minden Pictures）
+
+![羽翼下的父爱](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_800x480.jpg&rf=LaDigue_800x480.jpg "羽翼下的父爱")
+
+早在领带和贺卡成为父亲节的象征之前，这一节日的诞生源于一位女儿的悼念之情与不懈坚持。1907年，格雷斯·克莱顿因父亲在蒙农加哈矿难中遇难，提议举行一次纪念仪式，以缅怀事故中逝去的众多父亲。虽然当时并未广泛引起共鸣，但在1909年，索诺拉·斯马特·多德在华盛顿州斯波坎重新点燃了这一提议的火种。她希望纪念自己的父亲，一位在南北战争后独自抚养六个孩子的退伍军人。她的努力最终促成了我们今日所熟知的父亲节传统。
+
+小美洲鸵通常性情温和，少有鸣叫。唯有雏鸟会发出哀鸣，而雄鸟在求偶时则以低沉的轰鸣声吸引异性。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%88%b6%e4%ba%b2%e8%8a%82&form=hpcapt&filters=HpDate:"20250614_1600" "Bing Wallpaper 2025 6月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250615_RheaDad"&FORM=HPQUIZ "必应主页测验 2025 6月 15")
+[下载480](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_800x480.jpg&rf=LaDigue_800x480.jpg "雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利")
+[下载720](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_1280x720.jpg&rf=LaDigue_1280x720.jpg "雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利")
+[下载1080](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利")
+[下载UHD](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_UHD.jpg&rf=LaDigue_UHD.jpg "雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利")
+
+---
 ### 06月14日：静谧之声
 #### 五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区（© usabin/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_1280x720.jpg&rf=LaDigue_1280x720.jpg "格朗特尔岛附近的堡礁，法属新喀里多尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格朗特尔岛附近的堡礁，法属新喀里多尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_UHD.jpg&rf=LaDigue_UHD.jpg "格朗特尔岛附近的堡礁，法属新喀里多尼亚")
-
----
-### 05月31日：充满节日氛围节装饰
-#### 用彩色丝线串成的香囊，端午节前夕的庙会上，吉林省吉林市，中国（© Visual China Group/Getty Images）
-
-![充满节日氛围节装饰](https://cn.bing.com/th?id=OHR.DuanwuFestivalY25_ZH-CN7343005503_800x480.jpg&rf=LaDigue_800x480.jpg "充满节日氛围节装饰")
-
-端午节，是中国四大传统节日之一，端午节除了吃粽子，还有许多富有特色的民间习俗，比如今天图片中的彩色丝线串成的香囊。这是在吉林市的端午节前夕就开始的庙会上售卖的。
-
-端午节祝福语说 “快乐 ”还是说 “安康 ”的讨论，从根本上说，是对端午节文化传统意义的探索，也是人们对未来生活的美好期盼。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ab%af%e5%8d%88%e8%8a%82&form=hpcapt&filters=HpDate:"20250530_1600" "Bing Wallpaper 2025 5月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250531_DuanwuFestivalY25"&FORM=HPQUIZ "必应主页测验 2025 5月 31")
-[下载480](https://cn.bing.com/th?id=OHR.DuanwuFestivalY25_ZH-CN7343005503_800x480.jpg&rf=LaDigue_800x480.jpg "用彩色丝线串成的香囊，端午节前夕的庙会上，吉林省吉林市，中国")
-[下载720](https://cn.bing.com/th?id=OHR.DuanwuFestivalY25_ZH-CN7343005503_1280x720.jpg&rf=LaDigue_1280x720.jpg "用彩色丝线串成的香囊，端午节前夕的庙会上，吉林省吉林市，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.DuanwuFestivalY25_ZH-CN7343005503_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "用彩色丝线串成的香囊，端午节前夕的庙会上，吉林省吉林市，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.DuanwuFestivalY25_ZH-CN7343005503_UHD.jpg&rf=LaDigue_UHD.jpg "用彩色丝线串成的香囊，端午节前夕的庙会上，吉林省吉林市，中国")
 
 ---
