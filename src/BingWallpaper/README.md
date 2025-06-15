@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月16日：远古泳者的现代困境
+#### 海龟，费尔南多·迪诺罗尼亚群岛，巴西（© João Vianna/Getty Images）
+
+![远古泳者的现代困境](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_800x480.jpg&rf=LaDigue_800x480.jpg "远古泳者的现代困境")
+
+它们天生“头戴钢盔”，以从容节奏穿梭海洋，丝毫不受人类时间表的影响。以今日图片中拍摄于巴西费尔南多·迪诺罗尼亚群岛的海龟为例：这类生物早在霸王龙出现之前就已在地球的海洋中悠游。6月16日是“世界海龟日”，旨在唤起人们对这一古老物种及其在维持海洋生态平衡中所发挥作用的关注。该日期之所以被选定，是为纪念被誉为“海龟保护之父”的美国自然保护主义者阿奇·卡尔的生日。他的研究与倡导为现代海龟行为学研究和保护实践奠定了坚实基础。
+
+2001年，联合国教科文组织将这里列为世界遗产地，理由是其对金枪鱼、鲨鱼、海龟和海洋哺乳动物的重要觅食地位。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e9%be%9f&form=hpcapt&filters=HpDate:"20250615_1600" "Bing Wallpaper 2025 6月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250616_SeaTurtleBrazil"&FORM=HPQUIZ "必应主页测验 2025 6月 16")
+[下载480](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_800x480.jpg&rf=LaDigue_800x480.jpg "海龟，费尔南多·迪诺罗尼亚群岛，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_1280x720.jpg&rf=LaDigue_1280x720.jpg "海龟，费尔南多·迪诺罗尼亚群岛，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海龟，费尔南多·迪诺罗尼亚群岛，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_UHD.jpg&rf=LaDigue_UHD.jpg "海龟，费尔南多·迪诺罗尼亚群岛，巴西")
+
+---
 ### 06月15日：羽翼下的父爱
 #### 雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利（© Ignacio Yufera/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约")
 [下载1080](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约")
 [下载UHD](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_UHD.jpg&rf=LaDigue_UHD.jpg "一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约")
-
----
-### 06月01日：海底世界
-#### 格朗特尔岛附近的堡礁，法属新喀里多尼亚（© Karsten Wrobel/Getty Images）
-
-![海底世界](https://cn.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_800x480.jpg&rf=LaDigue_800x480.jpg "海底世界")
-
-“海底的世界比陆地上的任何地方都要美好。” 迪士尼动画电影《小美人鱼》中，赛巴斯汀曾这样对爱丽儿说道。然而，我们是否真的为保护这一海底世界做得足够多？6月1日是世界珊瑚礁意识日，这是一个唤起人们关注珊瑚礁生态系统之美及其脆弱性的日子。一个壮丽的范例是新喀里多尼亚的大堡礁，它环绕着新喀里多尼亚最大的岛屿格兰德特尔岛。这条珊瑚礁长达930多英里，是世界上最长的连续堡礁之一。其广阔的9,300平方英里泻湖孕育着2300多种鱼类、濒危的儒艮、绿海龟以及迁徙的座头鲸。
-
-珊瑚礁最早出现在约4.85亿年前的奥陶纪早期，取代了寒武纪时期的微生物礁和海绵礁。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%8f%8a%e7%91%9a%e7%a4%81%e4%bf%9d%e6%8a%a4%e6%97%a5&form=hpcapt&filters=HpDate:"20250531_1600" "Bing Wallpaper 2025 6月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250601_GrandeTerreReef"&FORM=HPQUIZ "必应主页测验 2025 6月 1")
-[下载480](https://cn.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_800x480.jpg&rf=LaDigue_800x480.jpg "格朗特尔岛附近的堡礁，法属新喀里多尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_1280x720.jpg&rf=LaDigue_1280x720.jpg "格朗特尔岛附近的堡礁，法属新喀里多尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格朗特尔岛附近的堡礁，法属新喀里多尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_UHD.jpg&rf=LaDigue_UHD.jpg "格朗特尔岛附近的堡礁，法属新喀里多尼亚")
 
 ---
