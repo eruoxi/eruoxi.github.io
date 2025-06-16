@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月17日：海岸静谧，野性依旧
+#### 坎伯兰岛国家海岸的海滨森林，乔治亚州，美国（© Chris Moore/TANDEM Stills + Motion）
+
+![海岸静谧，野性依旧](https://cn.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_800x480.jpg&rf=LaDigue_800x480.jpg "海岸静谧，野性依旧")
+
+在你踏上沙滩之前，便能听见海风中树叶的沙沙声、扭曲树干的嘎吱响，以及仿佛来自古老世界的低语。欢迎来到乔治亚州大西洋海岸最南端坎伯兰岛国家海岸的海滨森林。面对盐雾、沙土与飓风的挑战，这里的树木依旧坚定屹立。南方红橡树弯而不折，锯叶棕榈如同绿叶护卫般贴地而生，西班牙苔藓则似大自然的流苏垂挂于树枝之上。这片海洋森林是美国现存最完整的此类稀有生态系统之一。得益于坎伯兰岛被划定为国家海岸，其生态得以避免其他海岸地区常见的城市化侵蚀。
+
+坎伯兰岛国家海滨拥有丰富多样的海岸动植物群。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9d%8e%e4%bc%af%e5%85%b0%e5%b2%9b%e5%9b%bd%e5%ae%b6%e6%b5%b7%e5%b2%b8&form=hpcapt&filters=HpDate:"20250616_1600" "Bing Wallpaper 2025 6月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250617_CumberlandOaks"&FORM=HPQUIZ "必应主页测验 2025 6月 17")
+[下载480](https://cn.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_800x480.jpg&rf=LaDigue_800x480.jpg "坎伯兰岛国家海岸的海滨森林，乔治亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_1280x720.jpg&rf=LaDigue_1280x720.jpg "坎伯兰岛国家海岸的海滨森林，乔治亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "坎伯兰岛国家海岸的海滨森林，乔治亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_UHD.jpg&rf=LaDigue_UHD.jpg "坎伯兰岛国家海岸的海滨森林，乔治亚州，美国")
+
+---
 ### 06月16日：远古泳者的现代困境
 #### 海龟，费尔南多·迪诺罗尼亚群岛，巴西（© João Vianna/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌得勒支桥上的自行车，荷兰")
 [下载1080](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌得勒支桥上的自行车，荷兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_UHD.jpg&rf=LaDigue_UHD.jpg "乌得勒支桥上的自行车，荷兰")
-
----
-### 06月02日：花的力量
-#### 一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约（© Marianne A. Campolongo/Alamy）
-
-![花的力量](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_800x480.jpg&rf=LaDigue_800x480.jpg "花的力量")
-
-今日图片中展示的是一只灰蝶，它以迅速、跳跃式的飞行方式而闻名，正停驻在一朵鲜艳的紫锥菊上，亦称松果菊。紫锥菊原产于北美，以其耐寒的花朵和独特的刺状花心而广受园艺爱好者和传粉昆虫的喜爱。
-
-研究表明，仅仅观赏花园就能降低血压和减轻压力。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%b4%ab%e9%94%a5%e8%8f%8a&form=hpcapt&filters=HpDate:"20250601_1600" "Bing Wallpaper 2025 6月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250602_EchinaceaButterfly"&FORM=HPQUIZ "必应主页测验 2025 6月 2")
-[下载480](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_800x480.jpg&rf=LaDigue_800x480.jpg "一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约")
-[下载720](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约")
-[下载1080](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约")
-[下载UHD](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_UHD.jpg&rf=LaDigue_UHD.jpg "一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约")
 
 ---
