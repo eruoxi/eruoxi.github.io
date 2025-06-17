@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月18日：让授粉游戏开始吧！
+#### 红花石蒜上的柑橘凤蝶（© lzh/Getty Images）
+
+![让授粉游戏开始吧！](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_800x480.jpg&rf=LaDigue_800x480.jpg "让授粉游戏开始吧！")
+
+传粉者周正在如火如荼地展开！今年的庆祝时间为6月16日至22日，旨在关注那些为近90%开花植物完成授粉过程的重要传粉者，包括我们日常喜爱的水果、蔬菜和坚果等作物的“幕后功臣”。今日图片展示的是一只亚洲凤蝶，它正优雅地停驻在一朵鲜红的彼岸花上。亚洲凤蝶广泛分布于东北亚地区，甚至扩展至夏威夷部分区域。这类蝴蝶具有敏锐的色觉，擅长寻找花朵，尤其偏爱柑橘类植物。尽管该物种当前种群稳定、不被列为受威胁物种，它在自然授粉过程中的作用仍不可或缺。
+
+授粉者不止有蜜蜂，还有蝴蝶、鸟类、蝙蝠、风、水，甚至某些植物也能完成自花授粉！
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%9f%91%e6%a9%98%e5%87%a4%e8%9d%b6&form=hpcapt&filters=HpDate:"20250617_1600" "Bing Wallpaper 2025 6月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250618_AsianSwallowtail"&FORM=HPQUIZ "必应主页测验 2025 6月 18")
+[下载480](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_800x480.jpg&rf=LaDigue_800x480.jpg "红花石蒜上的柑橘凤蝶")
+[下载720](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_1280x720.jpg&rf=LaDigue_1280x720.jpg "红花石蒜上的柑橘凤蝶")
+[下载1080](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红花石蒜上的柑橘凤蝶")
+[下载UHD](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_UHD.jpg&rf=LaDigue_UHD.jpg "红花石蒜上的柑橘凤蝶")
+
+---
 ### 06月17日：海岸静谧，野性依旧
 #### 坎伯兰岛国家海岸的海滨森林，乔治亚州，美国（© Chris Moore/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_UHD.jpg&rf=LaDigue_UHD.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
-
----
-### 06月03日：为快乐而刹车
-#### 乌得勒支桥上的自行车，荷兰（© George Pachantouris/Getty Images）
-
-![为快乐而刹车](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_800x480.jpg&rf=LaDigue_800x480.jpg "为快乐而刹车")
-
-两个轮子，无需燃料，却承载着深远的意义：骑行不仅经济、环保，更对地球友好。如此简单的一项活动，便能显著改善健康状况。将汽车出行替换为骑行，是保持活力的便捷方式。此外，骑行有助于减少污染、缓解交通拥堵，并为无驾照者提供一种经济实惠的交通选择。正因其多重益处，联合国将每年6月3日设立为“世界自行车日”，以庆祝这种双轮工具所承载的全部价值。
-
-尽管“bike”和“cycle”这两个词在大多数情况下可以互换使用，均指代两轮交通工具，但它们在世界各地的具体用法仍略有不同。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e8%87%aa%e8%a1%8c%e8%bd%a6%e6%97%a5&form=hpcapt&filters=HpDate:"20250602_1600" "Bing Wallpaper 2025 6月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250603_BicyclesUtrecht"&FORM=HPQUIZ "必应主页测验 2025 6月 3")
-[下载480](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_800x480.jpg&rf=LaDigue_800x480.jpg "乌得勒支桥上的自行车，荷兰")
-[下载720](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌得勒支桥上的自行车，荷兰")
-[下载1080](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌得勒支桥上的自行车，荷兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_UHD.jpg&rf=LaDigue_UHD.jpg "乌得勒支桥上的自行车，荷兰")
 
 ---
