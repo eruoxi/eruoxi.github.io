@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月19日：潮汐与时间交汇之地
+#### 圣卡塔琳娜州的海滩, 巴西（© CaioCarvalhoPhotography/Getty Images）
+
+![潮汐与时间交汇之地](https://cn.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_800x480.jpg&rf=LaDigue_800x480.jpg "潮汐与时间交汇之地")
+
+圣卡塔琳娜州位于巴西南部，其海岸线沿大西洋延展超过560公里，是一处汇聚历史演进与人类活动的多元文化地带。在欧洲航海者首次抵达前，图皮瓜拉尼族等原住民族群已在此定居，依赖捕鱼与农业生计，并与自然环境建立了密切联系。1529年，随着航海探险的发展，该地区被绘入地图，“圣卡塔琳娜”一名首次出现在世界地理文献中。
+
+在拉古纳，宽吻海豚群体会协助渔民捕鱼，将鱼群驱赶至岸边；当其中一只海豚以翻身动作示意，便成为渔民撒网的信号。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e8%a5%bf%e5%9c%a3%e5%8d%a1%e5%a1%94%e7%90%b3%e5%a8%9c%e5%b7%9e&form=hpcapt&filters=HpDate:"20250618_1600" "Bing Wallpaper 2025 6月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250619_WinterBegins"&FORM=HPQUIZ "必应主页测验 2025 6月 19")
+[下载480](https://cn.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_800x480.jpg&rf=LaDigue_800x480.jpg "圣卡塔琳娜州的海滩, 巴西")
+[下载720](https://cn.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣卡塔琳娜州的海滩, 巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣卡塔琳娜州的海滩, 巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_UHD.jpg&rf=LaDigue_UHD.jpg "圣卡塔琳娜州的海滩, 巴西")
+
+---
 ### 06月18日：让授粉游戏开始吧！
 #### 红花石蒜上的柑橘凤蝶（© lzh/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_1280x720.jpg&rf=LaDigue_1280x720.jpg "福玛萨瀑布，迪亚曼蒂纳，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "福玛萨瀑布，迪亚曼蒂纳，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_UHD.jpg&rf=LaDigue_UHD.jpg "福玛萨瀑布，迪亚曼蒂纳，巴西")
-
----
-### 06月04日：卡拉卢纳海滩, 撒丁岛, 意大利
-#### 卡拉卢纳海滩, 撒丁岛, 意大利（© guenterguni/Getty Images）
-
-![卡拉卢纳海滩, 撒丁岛, 意大利](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_800x480.jpg&rf=LaDigue_800x480.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
-
-意大利撒丁岛以其崎岖的悬崖、隐秘的海滩以及层层叠叠的蓝色海水，堪称地中海的一颗明珠。全岛海岸线长度超过1100英里。尽管岛上自然河流稀少，其中提尔索河为最长河流，撒丁岛通过水利工程建设了54座人工湖与水坝。其中最重要的两座为奥莫代奥湖与科吉纳斯湖，分别为当地的重要水源及电力供应地。
-
-因其非凡的美丽与野性魅力，卡拉卢纳海滩曾被选为意大利经典电影《踩过界》的拍摄地，同时也是由国际巨星麦当娜主演的同名电影翻拍版的取景地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%92%92%e4%b8%81%e5%b2%9b&form=hpcapt&filters=HpDate:"20250603_1600" "Bing Wallpaper 2025 6月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250604_CalaLuna"&FORM=HPQUIZ "必应主页测验 2025 6月 4")
-[下载480](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_800x480.jpg&rf=LaDigue_800x480.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
-[下载720](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_UHD.jpg&rf=LaDigue_UHD.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
 
 ---
