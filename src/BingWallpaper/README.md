@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月20日：寻找斑点
+#### 一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚（© Alberto Cassani/Getty Images）
+
+![寻找斑点](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_800x480.jpg&rf=LaDigue_800x480.jpg "寻找斑点")
+
+今天我们介绍的是生活于塞伦盖蒂地区的马赛长颈鹿。它们以独特的锯齿状斑点而闻名，是东非的本土物种。除了肯尼亚和乌干达，马赛长颈鹿还广泛分布于坦桑尼亚辽阔的塞伦盖蒂平原。“塞伦盖蒂”一词源自马赛语“seringit”，意为“无边无际的平原”。如今日图片所示，一对母子马赛长颈鹿在这片壮阔的景色中彼此依偎，画面温馨动人。据估计，目前全球野生长颈鹿仅存约117000头，现在正是采取行动的关键时刻。通过支持“世界长颈鹿日”， 你可以为保护这些奇特生物及其自然栖息地贡献力量。加入这一年度庆祝活动，为地球上最高的陆生动物带来切实的改变。
+
+马赛长颈鹿在奔跑时，时速最高可达近64公里（40英里）。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e8%b5%9b%e9%95%bf%e9%a2%88%e9%b9%bf&form=hpcapt&filters=HpDate:"20250619_1600" "Bing Wallpaper 2025 6月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250620_SerengetiGiraffe"&FORM=HPQUIZ "必应主页测验 2025 6月 20")
+[下载480](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_800x480.jpg&rf=LaDigue_800x480.jpg "一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_UHD.jpg&rf=LaDigue_UHD.jpg "一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚")
+
+---
 ### 06月19日：潮汐与时间交汇之地
 #### 圣卡塔琳娜州的海滩, 巴西（© CaioCarvalhoPhotography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_1280x720.jpg&rf=LaDigue_1280x720.jpg "诺曼底的阿罗芒什莱班 , 法国")
 [下载1080](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "诺曼底的阿罗芒什莱班 , 法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_UHD.jpg&rf=LaDigue_UHD.jpg "诺曼底的阿罗芒什莱班 , 法国")
-
----
-### 06月05日：隐藏的美景
-#### 福玛萨瀑布，迪亚曼蒂纳，巴西（© Pulsar Images/Alamy）
-
-![隐藏的美景](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_800x480.jpg&rf=LaDigue_800x480.jpg "隐藏的美景")
-
-今日图片带我们走近迪亚曼蒂纳高地国家公园中最壮观、却极少有人踏足的瀑布之一福玛萨瀑布。该瀑布位于巴伊亚州，垂直落差约为100米。通往瀑布的小径始于巴伊绍村，由于地形陡峭，被评为高难度路线。
-
-环绕迪亚曼蒂纳高地国家公园的城镇，遍布殖民时期的建筑，体现出当时的建筑风格，也清晰地提醒人们钻石时代曾带来的繁荣，正是这段时期促使巴西在20世纪初成为全球最大的钻石生产国。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%bf%aa%e4%ba%9a%e6%9b%bc%e8%92%82%e7%ba%b3%e9%ab%98%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250604_1600" "Bing Wallpaper 2025 6月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250605_FumacinhaBahia"&FORM=HPQUIZ "必应主页测验 2025 6月 5")
-[下载480](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_800x480.jpg&rf=LaDigue_800x480.jpg "福玛萨瀑布，迪亚曼蒂纳，巴西")
-[下载720](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_1280x720.jpg&rf=LaDigue_1280x720.jpg "福玛萨瀑布，迪亚曼蒂纳，巴西")
-[下载1080](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "福玛萨瀑布，迪亚曼蒂纳，巴西")
-[下载UHD](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_UHD.jpg&rf=LaDigue_UHD.jpg "福玛萨瀑布，迪亚曼蒂纳，巴西")
 
 ---
