@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月21日：此花端合在瑶池
+#### 雾中莲花，中国佛山（© huoguangliang/Getty Images）
+
+![此花端合在瑶池](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_800x480.jpg&rf=LaDigue_800x480.jpg "此花端合在瑶池")
+
+夏至既是二十四节气之一，“夏至”是盛夏的起点，这个季节也是荷花盛开的季节。今天图片中的美景位于广东佛山地区的盛开的荷花。晨曦在水面上织就一层丝丝薄纱。漫步岸边，仿佛置身于云雾缭绕的仙境，每一次呼吸都模糊了虚实的界限。这便是“朦胧”的精髓——这种诗意的朦胧感曾深深触动过中国古代文人，激发出无数颂扬莲花空灵之美的诗句。
+
+荷花全身皆宝，藕和莲子能食用，莲子、根茎、藕节、荷叶、花及种子的胚芽等都可入药。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e7%9a%84%e8%8d%b7%e8%8a%b1&form=hpcapt&filters=HpDate:"20250620_1600" "Bing Wallpaper 2025 6月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250621_SummerSolsticeY25"&FORM=HPQUIZ "必应主页测验 2025 6月 21")
+[下载480](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_800x480.jpg&rf=LaDigue_800x480.jpg "雾中莲花，中国佛山")
+[下载720](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_1280x720.jpg&rf=LaDigue_1280x720.jpg "雾中莲花，中国佛山")
+[下载1080](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雾中莲花，中国佛山")
+[下载UHD](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_UHD.jpg&rf=LaDigue_UHD.jpg "雾中莲花，中国佛山")
+
+---
 ### 06月20日：寻找斑点
 #### 一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚（© Alberto Cassani/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PacificCrestTrail_ZH-CN9582395021_1280x720.jpg&rf=LaDigue_1280x720.jpg "松山顶峰, 洛杉矶国家森林公园, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PacificCrestTrail_ZH-CN9582395021_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "松山顶峰, 洛杉矶国家森林公园, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PacificCrestTrail_ZH-CN9582395021_UHD.jpg&rf=LaDigue_UHD.jpg "松山顶峰, 洛杉矶国家森林公园, 加利福尼亚州, 美国")
-
----
-### 06月06日：诺曼底登陆日的转折点
-#### 诺曼底的阿罗芒什莱班 , 法国（© Horia Merla/Getty Images）
-
-![诺曼底登陆日的转折点](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_800x480.jpg&rf=LaDigue_800x480.jpg "诺曼底登陆日的转折点")
-
-今天是诺曼底登陆日的81周年纪念日，也是我们缅怀现代史上最具决定性的时刻之一。1944年6月6日，超过15.6万名盟军部队在法国诺曼底海滩登陆，发起了代号“霸王行动”的军事进攻，也就是我们熟知的D日。这场复杂的突袭整合了空中、海上与陆地部队，是解放西欧摆脱纳粹控制战役的开始。
-
-今天，阿罗芒什主要是一个旅游城镇。由于地理位置优越，适合参观所有战役遗址和战争公墓，阿罗芒什还设有一个博物馆，介绍有关“霸王行动”，尤其是“桑树港”的内容。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%af%ba%e6%9b%bc%e5%ba%95%e7%99%bb%e9%99%86&form=hpcapt&filters=HpDate:"20250605_1600" "Bing Wallpaper 2025 6月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250606_NormandyBeach"&FORM=HPQUIZ "必应主页测验 2025 6月 6")
-[下载480](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_800x480.jpg&rf=LaDigue_800x480.jpg "诺曼底的阿罗芒什莱班 , 法国")
-[下载720](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_1280x720.jpg&rf=LaDigue_1280x720.jpg "诺曼底的阿罗芒什莱班 , 法国")
-[下载1080](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "诺曼底的阿罗芒什莱班 , 法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_UHD.jpg&rf=LaDigue_UHD.jpg "诺曼底的阿罗芒什莱班 , 法国")
 
 ---
