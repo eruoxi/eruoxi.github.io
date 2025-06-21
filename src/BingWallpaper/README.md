@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月22日：一路丛林
+#### 亚马逊雨林，厄瓜多尔（© Mark Fox/Getty Images）
+
+![一路丛林](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_800x480.jpg&rf=LaDigue_800x480.jpg "一路丛林")
+
+“世界雨林日”不仅是日历上的一个纪念日，更是一项行动号召。该节日由非营利环保组织“雨林伙伴关系”于2017年设立，旨在提升公众对雨林重要性的认识，并推动全球范围内的保护工作。在美国，人们通过社区植树、学校项目以及社交媒体活动参与纪念，宣传雨林保护的成功案例。许多植物园会举办特别展览，而环保组织则发起筹款挑战，以支持实地保护项目。
+
+亚马逊雨林绝非人迹罕至，约有三千万人生活在该流域之中。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8e%84%e7%93%9c%e5%a4%9a%e5%b0%94%e7%9a%84%e4%ba%9a%e9%a9%ac%e9%80%8a%e9%9b%a8%e6%9e%97&form=hpcapt&filters=HpDate:"20250621_1600" "Bing Wallpaper 2025 6月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250622_AmazonEcuador"&FORM=HPQUIZ "必应主页测验 2025 6月 22")
+[下载480](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_800x480.jpg&rf=LaDigue_800x480.jpg "亚马逊雨林，厄瓜多尔")
+[下载720](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_1280x720.jpg&rf=LaDigue_1280x720.jpg "亚马逊雨林，厄瓜多尔")
+[下载1080](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亚马逊雨林，厄瓜多尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_UHD.jpg&rf=LaDigue_UHD.jpg "亚马逊雨林，厄瓜多尔")
+
+---
 ### 06月21日：此花端合在瑶池
 #### 雾中莲花，中国佛山（© huoguangliang/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.StellarSeaLions_ZH-CN2859514359_1280x720.jpg&rf=LaDigue_1280x720.jpg "北海狮, 温哥华岛, 不列颠哥伦比亚省, 加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.StellarSeaLions_ZH-CN2859514359_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北海狮, 温哥华岛, 不列颠哥伦比亚省, 加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.StellarSeaLions_ZH-CN2859514359_UHD.jpg&rf=LaDigue_UHD.jpg "北海狮, 温哥华岛, 不列颠哥伦比亚省, 加拿大")
-
----
-### 06月07日：走上高远之路
-#### 松山顶峰, 洛杉矶国家森林公园, 加利福尼亚州, 美国（© Matthew Kuhns/TANDEM Stills + Motion）
-
-![走上高远之路](https://cn.bing.com/th?id=OHR.PacificCrestTrail_ZH-CN9582395021_800x480.jpg&rf=LaDigue_800x480.jpg "走上高远之路")
-
-森林步道不仅仅是一条欣赏大自然的路径，它们将人们与自然和冒险联系在一起。如今日图片所示的是位于加利福尼亚州的洛杉矶国家森林的步道。此地拥有高耸的松树、崎岖的山脊，并包含著名的太平洋山脊步道（PCT）的一段。该步道全长超过2600英里，从墨西哥延伸至加拿大，是许多徒步爱好者心中的终极梦想。太平洋山脊步道于1968年被指定为国家风景步道，穿越7座国家公园和25个国家森林，是领略美国西部壮丽风光的独特方式。不过，想要体验它的魅力，并不需要走完全程。在加州南部，该步道穿越圣盖博山脉的部分便可带来壮观景色和充满成就感的一日徒步体验。
-
-国家步道日的历史可以追溯至五十多年前。最初，美国尚未建立统一的官方步道体系。直到1968年10月，林登·约翰逊总统签署《国家步道法》，才正式建立起供公众旅游与休闲的国家步道网络。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e5%ae%b6%e6%ad%a5%e9%81%93%e6%97%a5&form=hpcapt&filters=HpDate:"20250606_1600" "Bing Wallpaper 2025 6月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250607_PacificCrestTrail"&FORM=HPQUIZ "必应主页测验 2025 6月 7")
-[下载480](https://cn.bing.com/th?id=OHR.PacificCrestTrail_ZH-CN9582395021_800x480.jpg&rf=LaDigue_800x480.jpg "松山顶峰, 洛杉矶国家森林公园, 加利福尼亚州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.PacificCrestTrail_ZH-CN9582395021_1280x720.jpg&rf=LaDigue_1280x720.jpg "松山顶峰, 洛杉矶国家森林公园, 加利福尼亚州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.PacificCrestTrail_ZH-CN9582395021_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "松山顶峰, 洛杉矶国家森林公园, 加利福尼亚州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PacificCrestTrail_ZH-CN9582395021_UHD.jpg&rf=LaDigue_UHD.jpg "松山顶峰, 洛杉矶国家森林公园, 加利福尼亚州, 美国")
 
 ---
