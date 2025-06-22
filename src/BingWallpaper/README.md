@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月23日：从废墟中重生
+#### 德累斯顿易北河谷, 德国（© Sean Pavone/Getty Images）
+
+![从废墟中重生](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_800x480.jpg&rf=LaDigue_800x480.jpg "从废墟中重生")
+
+柏林充满活力，慕尼黑以啤酒闻名，那么德累斯顿则诉说着历史与重生的故事。这座位于德国萨克森州的城市，曾被誉为“易北河上的佛罗伦萨”。然而，在1945年第二次世界大战期间，城市几乎被彻底摧毁。自那以后，它经历了浴火重生，如今成为一座融合现代艺术博物馆、巴洛克建筑与河畔风光的文化城市。德累斯顿最古老的建筑群主要分布在老城区与新城区两大区域。周边街区最初由萨克森王室在18世纪至19世纪间规划，并以历代君主命名，例如腓特烈城和阿尔贝特城。
+
+易北河上有多条渡轮航线运营，既有载客渡轮，也有可搭载车辆的渡轮。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%be%b7%e7%b4%af%e6%96%af%e9%a1%bf&form=hpcapt&filters=HpDate:"20250622_1600" "Bing Wallpaper 2025 6月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250623_DresdenElbe"&FORM=HPQUIZ "必应主页测验 2025 6月 23")
+[下载480](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_800x480.jpg&rf=LaDigue_800x480.jpg "德累斯顿易北河谷, 德国")
+[下载720](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_1280x720.jpg&rf=LaDigue_1280x720.jpg "德累斯顿易北河谷, 德国")
+[下载1080](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "德累斯顿易北河谷, 德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_UHD.jpg&rf=LaDigue_UHD.jpg "德累斯顿易北河谷, 德国")
+
+---
 ### 06月22日：一路丛林
 #### 亚马逊雨林，厄瓜多尔（© Mark Fox/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_ZH-CN2981648854_1280x720.jpg&rf=LaDigue_1280x720.jpg "达尔马提亚的杜布罗夫尼克古城，克罗地亚")
 [下载1080](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_ZH-CN2981648854_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "达尔马提亚的杜布罗夫尼克古城，克罗地亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_ZH-CN2981648854_UHD.jpg&rf=LaDigue_UHD.jpg "达尔马提亚的杜布罗夫尼克古城，克罗地亚")
-
----
-### 06月08日：来自彼岸的问候
-#### 北海狮, 温哥华岛, 不列颠哥伦比亚省, 加拿大（© Steve Woods Photography/Getty Images）
-
-![来自彼岸的问候](https://cn.bing.com/th?id=OHR.StellarSeaLions_ZH-CN2859514359_800x480.jpg&rf=LaDigue_800x480.jpg "来自彼岸的问候")
-
-如今日图片所示，在加拿大温哥华岛海岸，北海狮在寒冷的海域中自由穿梭。这些大型海洋哺乳动物雌性平均体重约580磅，雄性则可达约1200磅。雄性北海狮体型更为庞大，具响亮的吼声、粗壮的颈部和平坦的鼻梁，是其显著特征。它们通过深沉的声音进行交流，声音形式包括打嗝声、低吼和喷气声，用于警示或水下沟通。雄性通过巨大的咆哮声来捍卫领地，而母子之间则会使用特有的呼叫方式在嘈杂的栖息地中识别彼此。尽管体型庞大，北海狮仍是虎鲸和大型鲨鱼的猎物之一。目前该物种被列为“近危”，在阿拉斯加部分海域，其种群数量正在下降。持续的海洋保护行动为它们以及众多其他海洋哺乳动物的生存提供了重要支持。
-
-“太平洋”这个名字源自拉丁语Tepre Pacificum，意为“平静的大海”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b5%b7%e6%b4%8b%e6%97%a5&form=hpcapt&filters=HpDate:"20250607_1600" "Bing Wallpaper 2025 6月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250608_StellarSeaLions"&FORM=HPQUIZ "必应主页测验 2025 6月 8")
-[下载480](https://cn.bing.com/th?id=OHR.StellarSeaLions_ZH-CN2859514359_800x480.jpg&rf=LaDigue_800x480.jpg "北海狮, 温哥华岛, 不列颠哥伦比亚省, 加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.StellarSeaLions_ZH-CN2859514359_1280x720.jpg&rf=LaDigue_1280x720.jpg "北海狮, 温哥华岛, 不列颠哥伦比亚省, 加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.StellarSeaLions_ZH-CN2859514359_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北海狮, 温哥华岛, 不列颠哥伦比亚省, 加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.StellarSeaLions_ZH-CN2859514359_UHD.jpg&rf=LaDigue_UHD.jpg "北海狮, 温哥华岛, 不列颠哥伦比亚省, 加拿大")
 
 ---
