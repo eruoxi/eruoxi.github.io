@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月24日：大自然的耐心之作
+#### 精致拱门, 拱门国家公园, 犹他州, 美国（© mmac72/Getty Images）
+
+![大自然的耐心之作](https://cn.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的耐心之作")
+
+这片景观并非一朝一夕形成，而是大自然历经漫长岁月的雕琢之作。你在美国犹他州拱门国家公园所见的一切，是3亿多年间地壳抬升、风化与侵蚀共同作用的结果。这些天然拱门最初由古海洋遗留下的盐层构成，在时间推移中，砂岩层开裂、位移并不断风化，最终形成了超过2000座天然拱门。这些地貌主要由恩特拉达砂岩与纳瓦霍砂岩构成。该地区于1929年被认定为国家纪念地，并于1971年正式升格为国家公园。
+
+在这座公园内，游客可以进行露营、在指定小径徒步旅行、背包探险、峡谷穿越、攀岩、骑行，以及在现有的铺砌和未铺砌道路上驾车游览等活动。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8a%b9%e4%bb%96%e5%b7%9e%e6%8b%b1%e9%97%a8%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad%e7%b2%be%e8%87%b4%e6%8b%b1%e9%97%a8&form=hpcapt&filters=HpDate:"20250623_1600" "Bing Wallpaper 2025 6月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250624_DelicateArch"&FORM=HPQUIZ "必应主页测验 2025 6月 24")
+[下载480](https://cn.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_800x480.jpg&rf=LaDigue_800x480.jpg "精致拱门, 拱门国家公园, 犹他州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_1280x720.jpg&rf=LaDigue_1280x720.jpg "精致拱门, 拱门国家公园, 犹他州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "精致拱门, 拱门国家公园, 犹他州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_UHD.jpg&rf=LaDigue_UHD.jpg "精致拱门, 拱门国家公园, 犹他州, 美国")
+
+---
 ### 06月23日：从废墟中重生
 #### 德累斯顿易北河谷, 德国（© Sean Pavone/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_1280x720.jpg&rf=LaDigue_1280x720.jpg "大沼泽地国家公园的鸟瞰图，佛罗里达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大沼泽地国家公园的鸟瞰图，佛罗里达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_UHD.jpg&rf=LaDigue_UHD.jpg "大沼泽地国家公园的鸟瞰图，佛罗里达州，美国")
-
----
-### 06月09日：探索君临城
-#### 达尔马提亚的杜布罗夫尼克古城，克罗地亚（© bluejayphoto/Getty Images）
-
-![探索君临城](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_ZH-CN2981648854_800x480.jpg&rf=LaDigue_800x480.jpg "探索君临城")
-
-有些城市仿佛将历史穿戴在身上，杜布罗夫尼克便是其中之一。这座城市曾为独立的拉古萨共和国，在14世纪至19世纪间是亚得里亚海沿岸的重要海上强国与贸易中心。它位于克罗地亚达尔马提亚南部，靠近亚得里亚海，城市的繁荣得益于其娴熟的外交策略与卓越的航海技术。杜布罗夫尼克城墙建于13世纪至17世纪，全长超过1.2英里，配有塔楼、堡垒及防御工事，至今仍然巍然屹立。如今城墙的布局延续自1292年，当年城市在威尼斯统治下经历了一场大火并重建。
-
-克罗地亚杜布罗夫尼克古城曾出现在1993年与2002年发行的克罗地亚50库纳纸币的背面。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9d%9c%e5%b8%83%e7%bd%97%e5%a4%ab%e5%b0%bc%e5%85%8b&form=hpcapt&filters=HpDate:"20250608_1600" "Bing Wallpaper 2025 6月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250609_DubrovnikTwilight"&FORM=HPQUIZ "必应主页测验 2025 6月 9")
-[下载480](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_ZH-CN2981648854_800x480.jpg&rf=LaDigue_800x480.jpg "达尔马提亚的杜布罗夫尼克古城，克罗地亚")
-[下载720](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_ZH-CN2981648854_1280x720.jpg&rf=LaDigue_1280x720.jpg "达尔马提亚的杜布罗夫尼克古城，克罗地亚")
-[下载1080](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_ZH-CN2981648854_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "达尔马提亚的杜布罗夫尼克古城，克罗地亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_ZH-CN2981648854_UHD.jpg&rf=LaDigue_UHD.jpg "达尔马提亚的杜布罗夫尼克古城，克罗地亚")
 
 ---
