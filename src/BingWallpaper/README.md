@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月25日：这里举办的是哪个音乐节？
+#### 格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰（© Gavin Hellier/Getty Images）
+
+![这里举办的是哪个音乐节？](https://cn.bing.com/th?id=OHR.GlastonburyScenic_ZH-CN9162571249_800x480.jpg&rf=LaDigue_800x480.jpg "这里举办的是哪个音乐节？")
+
+当阳光洒落在英格兰萨默塞特郡起伏的山丘上，格拉斯顿伯里音乐节便随之揭幕。这一音乐盛会最初的门票仅为1英镑，如今已发展为全球最具影响力的文化活动之一，每年吸引超过20万人参与。音乐节深植于嬉皮文化、20世纪60年代的反主流运动与自由音乐节的理念之中，这些价值观正是其诞生的基石。从大卫·鲍伊和艾尔顿·约翰，到金属乐队和比莉·艾利什，这个舞台承载了无数定义时代的经典演出。今年的格拉斯顿伯里音乐节从今天开始，持续至6月29日，主打阵容包括The 1975、尼尔·杨与奥利维亚·罗德里戈等。俯瞰整个音乐节现场的，是如今日图片所示的格拉斯顿伯里托尔山丘。山顶耸立着14世纪的圣迈克尔教堂塔楼。托尔山被视为传说中亚瑟王的阿瓦隆王国所在地，并与古老的精神传统息息相关，成为历史与神话交汇之地。
+
+2025年1月，据报道截至2024年3月，格拉斯顿伯里音乐节税前利润翻倍，达到590万英镑，并在同期向慈善机构捐赠了520万英镑。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a0%bc%e6%8b%89%e6%96%af%e9%a1%bf%e4%bc%af%e9%87%8c%e9%9f%b3%e4%b9%90%e8%8a%82&form=hpcapt&filters=HpDate:"20250624_1600" "Bing Wallpaper 2025 6月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250625_GlastonburyScenic"&FORM=HPQUIZ "必应主页测验 2025 6月 25")
+[下载480](https://cn.bing.com/th?id=OHR.GlastonburyScenic_ZH-CN9162571249_800x480.jpg&rf=LaDigue_800x480.jpg "格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.GlastonburyScenic_ZH-CN9162571249_1280x720.jpg&rf=LaDigue_1280x720.jpg "格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.GlastonburyScenic_ZH-CN9162571249_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.GlastonburyScenic_ZH-CN9162571249_UHD.jpg&rf=LaDigue_UHD.jpg "格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰")
+
+---
 ### 06月24日：大自然的耐心之作
 #### 精致拱门, 拱门国家公园, 犹他州, 美国（© mmac72/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_1280x720.jpg&rf=LaDigue_1280x720.jpg "大红鹳，吕德里茨，纳米比亚")
 [下载1080](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大红鹳，吕德里茨，纳米比亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_UHD.jpg&rf=LaDigue_UHD.jpg "大红鹳，吕德里茨，纳米比亚")
-
----
-### 06月10日：草之河流
-#### 大沼泽地国家公园的鸟瞰图，佛罗里达州，美国（© Robert DelVecchio - OcuDrone/Getty Images）
-
-![草之河流](https://cn.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_800x480.jpg&rf=LaDigue_800x480.jpg "草之河流")
-
-我们是否曾设想，从高空俯瞰自身在这片广袤水域中的倒影？佛罗里达州的大沼泽地国家公园是美国最大的热带荒野，面积超过150万英亩。它保护了原始大沼泽地的南部20%，栖息着众多珍稀和濒危物种，包括佛罗里达美洲豹、美洲鳄以及西印度海牛。大沼泽地国家公园被称为“草之河”，其独特的生态系统由从奥基乔比湖缓慢流向佛罗里达湾的河流供养，是热带涉禽的重要繁殖地。这座国家公园不仅是美国的自然瑰宝，也具有重要的国际价值。它被联合国教科文组织列为世界遗产、国际生物圈保护区以及国际重要湿地。
-
-佛罗里达州大沼泽地国家公园的部分区域非常适合在南佛罗里达进行暗夜星空观测。最佳观测点位于大沼泽地偏远的南部和西部地区，例如弗拉明戈和万岛。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bd%9b%e7%bd%97%e9%87%8c%e8%be%be%e5%b7%9e%e5%a4%a7%e6%b2%bc%e6%b3%bd%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250609_1600" "Bing Wallpaper 2025 6月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250610_AerialEverglades"&FORM=HPQUIZ "必应主页测验 2025 6月 10")
-[下载480](https://cn.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_800x480.jpg&rf=LaDigue_800x480.jpg "大沼泽地国家公园的鸟瞰图，佛罗里达州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_1280x720.jpg&rf=LaDigue_1280x720.jpg "大沼泽地国家公园的鸟瞰图，佛罗里达州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大沼泽地国家公园的鸟瞰图，佛罗里达州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_UHD.jpg&rf=LaDigue_UHD.jpg "大沼泽地国家公园的鸟瞰图，佛罗里达州，美国")
 
 ---
