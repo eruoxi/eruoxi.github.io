@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月26日：海岸线附近的“马戏”
+#### 马头岩上空的银河, 新南威尔士州, 澳大利亚（© Philip Thurston/Getty Images）
+
+![海岸线附近的“马戏”](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_800x480.jpg&rf=LaDigue_800x480.jpg "海岸线附近的“马戏”")
+
+人们常说：“你可以牵马到水边，却无法强迫它饮水。”当然，马头岩除外。这块岩石屹立于澳大利亚新南威尔士州伯马吉附近的蓝宝石海岸。如今日图片所示，这块古老的岩石宛如大自然亲手雕刻的一匹神话中的骏马，永远在低头畅饮海水。据估计，马头岩已有5亿年历史，其酷似一匹弯颈饮水的马，这正是风蚀与海浪侵蚀共同作用的结果。作为该地区最古老且最具象征意义的地质地标之一，马头岩全年吸引着徒步旅行者、摄影师与自然爱好者前来观赏。最佳观景点位于骆驼岩与穆鲁纳角之间的高地步道，而更富冒险精神的访客则可在退潮时，从骆驼岩冲浪海滩绕行至此。
+
+1880年，政府地质学家拉蒙特·杨与另外四人在从伯马吉出海途中神秘失踪，该海湾的命名正与这起事件有关。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%be%b3%e5%a4%a7%e5%88%a9%e4%ba%9a%e9%a9%ac%e5%a4%b4%e5%b2%a9&form=hpcapt&filters=HpDate:"20250625_1600" "Bing Wallpaper 2025 6月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250626_HorseheadRock"&FORM=HPQUIZ "必应主页测验 2025 6月 26")
+[下载480](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_800x480.jpg&rf=LaDigue_800x480.jpg "马头岩上空的银河, 新南威尔士州, 澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_1280x720.jpg&rf=LaDigue_1280x720.jpg "马头岩上空的银河, 新南威尔士州, 澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马头岩上空的银河, 新南威尔士州, 澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_UHD.jpg&rf=LaDigue_UHD.jpg "马头岩上空的银河, 新南威尔士州, 澳大利亚")
+
+---
 ### 06月25日：这里举办的是哪个音乐节？
 #### 格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰（© Gavin Hellier/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_1280x720.jpg&rf=LaDigue_1280x720.jpg "奇索斯山脉，大弯国家公园，德克萨斯州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奇索斯山脉，大弯国家公园，德克萨斯州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_UHD.jpg&rf=LaDigue_UHD.jpg "奇索斯山脉，大弯国家公园，德克萨斯州，美国")
-
----
-### 06月11日：潮汐间的芭蕾
-#### 大红鹳，吕德里茨，纳米比亚（© Karine Aigner/TANDEM Stills + Motion）
-
-![潮汐间的芭蕾](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_800x480.jpg&rf=LaDigue_800x480.jpg "潮汐间的芭蕾")
-
-在纳米比亚吕德里茨，这些鸟类并非过客，而是真正“站稳脚跟”的居民，字面意义上，仅用一条腿支撑。它们便是大红鹳，为南大西洋沿岸狂风席卷的纳米比亚海岸增添了一抹亮丽的粉色。作为所有鹳类中体型最大的一种，大红鹳毫不吝啬地展示自身风采：身高可达59英寸，具有匙状弯曲喙和修长的双腿，极具辨识度。
-
-成年大红鹳几乎没有天敌。然而，其蛋和雏鸟仍可能遭受猛禽、乌鸦、海鸥和白鹳的捕食。据估计，约一半的大红鹳蛋和雏鸟都被黄脚银鸥所捕食。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e7%ba%a2%e9%b9%b3&form=hpcapt&filters=HpDate:"20250610_1600" "Bing Wallpaper 2025 6月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250611_FlamingosNamibia"&FORM=HPQUIZ "必应主页测验 2025 6月 11")
-[下载480](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_800x480.jpg&rf=LaDigue_800x480.jpg "大红鹳，吕德里茨，纳米比亚")
-[下载720](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_1280x720.jpg&rf=LaDigue_1280x720.jpg "大红鹳，吕德里茨，纳米比亚")
-[下载1080](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大红鹳，吕德里茨，纳米比亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_UHD.jpg&rf=LaDigue_UHD.jpg "大红鹳，吕德里茨，纳米比亚")
 
 ---
