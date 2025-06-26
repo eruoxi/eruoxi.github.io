@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月27日：古冰川遗迹之地
+#### Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典（© Sven Halling/DEEPOL/plainpicture）
+
+![古冰川遗迹之地](https://cn.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_800x480.jpg&rf=LaDigue_800x480.jpg "古冰川遗迹之地")
+
+克努特霍德斯莫森自然保护区位于瑞典海勒福什市附近，占地近250英亩。这片宁静的绿洲拥有环形木栈道，穿越沼泽地带，沿途分布着多个小湖泊、沙丘、湿地与松林。其中部分路段无障碍设计，适合轮椅和婴儿车通行。
+
+最佳造访时间为每年4月至5月。若运气不错，你甚至可能在步道旁发现鸟巢。请注意：在4月1日至7月15日的鸟类繁殖期内，请务必留在步道上，以避免惊扰野生鸟类。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e5%8b%92%e7%a6%8f%e4%bb%80%e5%b8%82&form=hpcapt&filters=HpDate:"20250626_1600" "Bing Wallpaper 2025 6月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250627_SwedenReserve"&FORM=HPQUIZ "必应主页测验 2025 6月 27")
+[下载480](https://cn.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_800x480.jpg&rf=LaDigue_800x480.jpg "Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典")
+[下载720](https://cn.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_1280x720.jpg&rf=LaDigue_1280x720.jpg "Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典")
+[下载1080](https://cn.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典")
+[下载UHD](https://cn.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_UHD.jpg&rf=LaDigue_UHD.jpg "Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典")
+
+---
 ### 06月26日：海岸线附近的“马戏”
 #### 马头岩上空的银河, 新南威尔士州, 澳大利亚（© Philip Thurston/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_1280x720.jpg&rf=LaDigue_1280x720.jpg "维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙")
 [下载1080](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_UHD.jpg&rf=LaDigue_UHD.jpg "维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙")
-
----
-### 06月12日：星空、岩石与孤寂
-#### 奇索斯山脉，大弯国家公园，德克萨斯州，美国（© Dean Fikar/Getty Images）
-
-![星空、岩石与孤寂](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_800x480.jpg&rf=LaDigue_800x480.jpg "星空、岩石与孤寂")
-
-人们常说：“德州的一切都更大。”而大弯国家公园正是对这句话的最佳注解。这片占地801,163英亩的广袤区域，最初属于墨西哥领土，1848年并入美国。自20世纪30年代起，该地区的自然景观便受到保护，并于1944年6月12日正式被指定为国家公园。大弯国家公园是美国最偏远、游客最少的国家公园之一。它并非由单一地貌构成，而是三种景观的综合体：奇瓦瓦沙漠、奇索斯山脉和格兰德河。公园地处美墨边境，其历史也体现出文化交融的特征：原住民、西班牙探险者、牧场主、矿工和游客皆曾在此留下足迹。岩画、历史遗迹和古道见证了这片土地在成为国家公园之前就已拥有深厚历史。
-
-大弯国家公园内拥有多个温泉，其中包括位于温泉历史区内的主要温泉。该温泉常被称为“博卡迪拉斯温泉”或“兰福德温泉”，已被列入国家史迹名录。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e5%bc%af%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250611_1600" "Bing Wallpaper 2025 6月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250612_BigBendChisos"&FORM=HPQUIZ "必应主页测验 2025 6月 12")
-[下载480](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_800x480.jpg&rf=LaDigue_800x480.jpg "奇索斯山脉，大弯国家公园，德克萨斯州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_1280x720.jpg&rf=LaDigue_1280x720.jpg "奇索斯山脉，大弯国家公园，德克萨斯州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奇索斯山脉，大弯国家公园，德克萨斯州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_UHD.jpg&rf=LaDigue_UHD.jpg "奇索斯山脉，大弯国家公园，德克萨斯州，美国")
 
 ---
