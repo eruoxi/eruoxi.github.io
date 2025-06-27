@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月28日：从实用建筑到地标象征
+#### 曼海姆水塔, 德国（© no limit pictures/Getty Images）
+
+![从实用建筑到地标象征](https://cn.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_800x480.jpg&rf=LaDigue_800x480.jpg "从实用建筑到地标象征")
+
+位于曼海姆市中心的这座水塔，正是今日图像中所展示的主体。它不仅仅是一座功能性建筑，更是曼海姆的文化象征。该塔由著名建筑师古斯塔夫·哈姆胡伯设计，他后来还参与了柏林国会大厦的建设。水塔建于1886至1889年之间，高达60米，最初作为城市饮用水的蓄水塔，储水容量可达200万升。如今，它不仅是一处旅游打卡地，也常用作文化活动与市民休闲的重要场所，象征着曼海姆在保留传统的同时拥抱现代化的城市精神。
+
+凭借其巴洛克风格的设计与核心地理位置，曼海姆水塔已成为这座城市最具代表性的标志性建筑。这座塔坐落于弗里德里希广场以新艺术风格闻名的宏伟景观花园中央，四周环绕着喷泉与精美的花卉布景，呈现出一幅赏心悦目的城市画卷。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%9b%bc%e6%b5%b7%e5%a7%86%e6%b0%b4%e5%a1%94&form=hpcapt&filters=HpDate:"20250627_1600" "Bing Wallpaper 2025 6月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250628_WatertowerMannheim"&FORM=HPQUIZ "必应主页测验 2025 6月 28")
+[下载480](https://cn.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_800x480.jpg&rf=LaDigue_800x480.jpg "曼海姆水塔, 德国")
+[下载720](https://cn.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_1280x720.jpg&rf=LaDigue_1280x720.jpg "曼海姆水塔, 德国")
+[下载1080](https://cn.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼海姆水塔, 德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_UHD.jpg&rf=LaDigue_UHD.jpg "曼海姆水塔, 德国")
+
+---
 ### 06月27日：古冰川遗迹之地
 #### Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典（© Sven Halling/DEEPOL/plainpicture）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1280x720.jpg&rf=LaDigue_1280x720.jpg "五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区")
 [下载1080](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区")
 [下载UHD](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&rf=LaDigue_UHD.jpg "五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区")
-
----
-### 06月13日：海洋的隐秘心跳
-#### 维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙（© ARoxo/Getty Images）
-
-![海洋的隐秘心跳](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_800x480.jpg&rf=LaDigue_800x480.jpg "海洋的隐秘心跳")
-
-位于葡萄牙亚速尔群岛圣米格尔岛附近的维拉弗兰卡岛，是一座无人居住的绿色火山岛，静静地坐落在弗兰卡村镇的南侧。尽管今日宁静怡人，这座小岛却拥有悠久而多变的历史。早在1537年，文献中便有定居者向西扩展至此的记载，使维拉弗兰卡岛正式登上历史舞台。它曾先后作为军事要塞、避风港、葡萄园种植地，乃至观鲸瞭望台。
-
-尽管这座小岛仅覆盖着一层薄薄的土壤，但历史上其海拔最高处曾被用于葡萄种植，如今，废弃葡萄园的痕迹仍清晰可辨。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%bb%b4%e6%8b%89%e5%bc%97%e5%85%b0%e5%8d%a1%e5%b2%9b&form=hpcapt&filters=HpDate:"20250612_1600" "Bing Wallpaper 2025 6月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250613_SanMiguelAzores"&FORM=HPQUIZ "必应主页测验 2025 6月 13")
-[下载480](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_800x480.jpg&rf=LaDigue_800x480.jpg "维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙")
-[下载720](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_1280x720.jpg&rf=LaDigue_1280x720.jpg "维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙")
-[下载1080](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_UHD.jpg&rf=LaDigue_UHD.jpg "维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙")
 
 ---
