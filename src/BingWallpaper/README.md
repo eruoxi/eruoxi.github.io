@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月29日：哪里让历史变得“辛辣”
+#### Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚（© fabio lamanna/Alamy Stock Photo）
+
+![哪里让历史变得“辛辣”](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_800x480.jpg&rf=LaDigue_800x480.jpg "哪里让历史变得“辛辣”")
+
+每年6月29日是“国际热带日”，旨在引导人们关注紧贴赤道的热带地区，这些地区全年阳光充足，却也在气候变化议题中尤为脆弱。热带带位于北回归线与南回归线之间，涵盖亚洲、非洲、大洋洲、中美洲及南美洲的部分地区。全球近40%的人口生活于此，这里同时孕育了全球约80%的生物多样性。不仅自然资源丰富、文化多元，这些地区也承载着重要的历史背景；然而它们也面临着气温上升、森林砍伐和快速城市化等挑战。
+
+艾岛真正的魅力在于沙滩与浮潜或深潜体验。这里拥有原始的珊瑚礁，特别是在那些陡然下沉数千米的峭壁区，水下能见度如空气般清澈。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8f%ad%e8%be%be%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20250628_1600" "Bing Wallpaper 2025 6月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250629_BandaIsland"&FORM=HPQUIZ "必应主页测验 2025 6月 29")
+[下载480](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_800x480.jpg&rf=LaDigue_800x480.jpg "Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_1280x720.jpg&rf=LaDigue_1280x720.jpg "Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_UHD.jpg&rf=LaDigue_UHD.jpg "Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚")
+
+---
 ### 06月28日：从实用建筑到地标象征
 #### 曼海姆水塔, 德国（© no limit pictures/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_1280x720.jpg&rf=LaDigue_1280x720.jpg "雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利")
 [下载1080](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利")
 [下载UHD](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_UHD.jpg&rf=LaDigue_UHD.jpg "雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利")
-
----
-### 06月14日：静谧之声
-#### 五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区（© usabin/Getty Images）
-
-![静谧之声](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_800x480.jpg&rf=LaDigue_800x480.jpg "静谧之声")
-
-五塔峰坐落于意大利威尼托大区贝卢诺省的多洛米蒂山脉腹地，仿佛天然雕塑般矗立，是夏季避暑、远离海滩与城市喧嚣的理想之选。每一座岩塔皆承载着独特的历史与自然故事：从古文明的遗迹，到徒步与登山者的足迹，再到第一次世界大战时期的军事要地。这些塔峰在战时曾扮演战略要塞的角色，如今游客仍可探访战壕遗址与战争留下的痕迹。然而，自然的力量终将超越人类历史：茂密松林、芳草牧场与山间溪流共同构成了一幅宁静和谐的生态图景，晴朗的天空与繁花草甸相映成趣，伴随着阵阵鸟鸣，为前行的每一步增添生机。
-
-这几座岩塔因具备多样化的攀登路线等级，成为攀岩爱好者的重要目的地，适合不同水平的攀岩者挑战。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%9a%e6%b4%9b%e7%b1%b3%e8%92%82%e5%b1%b1%e8%84%89%e4%ba%94%e5%a1%94%e5%b3%b0&form=hpcapt&filters=HpDate:"20250613_1600" "Bing Wallpaper 2025 6月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250614_DolomitiEstate"&FORM=HPQUIZ "必应主页测验 2025 6月 14")
-[下载480](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_800x480.jpg&rf=LaDigue_800x480.jpg "五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区")
-[下载720](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1280x720.jpg&rf=LaDigue_1280x720.jpg "五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区")
-[下载1080](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区")
-[下载UHD](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&rf=LaDigue_UHD.jpg "五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区")
 
 ---
