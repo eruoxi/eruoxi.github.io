@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月01日：原始渔村的风貌
+#### Tilting渔村, 福戈岛 , 纽芬兰和拉布拉多省, 加拿大（© FedevPhoto/Getty Images）
+
+![原始渔村的风貌](https://cn.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_800x480.jpg&rf=LaDigue_800x480.jpg "原始渔村的风貌")
+
+蒂林村最初由18世纪的爱尔兰移民所建立，是极少数至今仍保留爱尔兰渔村文化特色的社区之一。当地渔棚与住宅采用明亮色彩，不仅具有装饰功能，更是为了在浓雾或风雪中提高可见性。这种设计体现了早期居民兼具实用性与创造力的生活智慧。今天，加拿大迎来了建国158周年纪念日。从东海岸的历史小村到现代都市，从多元文化融合到壮丽自然风光，我们共同庆祝这个国家的历史积淀、文化底蕴与持续发展的未来愿景。
+
+蒂林渔村坐落于加拿大东部福戈岛，是一座历史悠久的小村庄，其丰富的历史通过保存完好的建筑与文化传统得以传承。该村被列为国家历史遗址和注册遗产区，成为历史爱好者及希望亲身体验纽芬兰传统风貌游客的重要目的地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e6%8b%bf%e5%a4%a7%e7%ba%bd%e8%8a%ac%e5%85%b0%e5%b2%9b%e7%a6%8f%e6%88%88%e5%b2%9b&form=hpcapt&filters=HpDate:"20250630_1600" "Bing Wallpaper 2025 7月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250701_CanadaDayFogo"&FORM=HPQUIZ "必应主页测验 2025 7月 1")
+[下载480](https://cn.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_800x480.jpg&rf=LaDigue_800x480.jpg "Tilting渔村, 福戈岛 , 纽芬兰和拉布拉多省, 加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_1280x720.jpg&rf=LaDigue_1280x720.jpg "Tilting渔村, 福戈岛 , 纽芬兰和拉布拉多省, 加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Tilting渔村, 福戈岛 , 纽芬兰和拉布拉多省, 加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_UHD.jpg&rf=LaDigue_UHD.jpg "Tilting渔村, 福戈岛 , 纽芬兰和拉布拉多省, 加拿大")
+
+---
 ### 06月30日：是谁击中了地面？
 #### 沃尔夫溪陨石坑, 澳大利亚（© Abstract Aerial Art/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_1280x720.jpg&rf=LaDigue_1280x720.jpg "坎伯兰岛国家海岸的海滨森林，乔治亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "坎伯兰岛国家海岸的海滨森林，乔治亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_UHD.jpg&rf=LaDigue_UHD.jpg "坎伯兰岛国家海岸的海滨森林，乔治亚州，美国")
-
----
-### 06月16日：远古泳者的现代困境
-#### 海龟，费尔南多·迪诺罗尼亚群岛，巴西（© João Vianna/Getty Images）
-
-![远古泳者的现代困境](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_800x480.jpg&rf=LaDigue_800x480.jpg "远古泳者的现代困境")
-
-它们天生“头戴钢盔”，以从容节奏穿梭海洋，丝毫不受人类时间表的影响。以今日图片中拍摄于巴西费尔南多·迪诺罗尼亚群岛的海龟为例：这类生物早在霸王龙出现之前就已在地球的海洋中悠游。6月16日是“世界海龟日”，旨在唤起人们对这一古老物种及其在维持海洋生态平衡中所发挥作用的关注。该日期之所以被选定，是为纪念被誉为“海龟保护之父”的美国自然保护主义者阿奇·卡尔的生日。他的研究与倡导为现代海龟行为学研究和保护实践奠定了坚实基础。
-
-2001年，联合国教科文组织将这里列为世界遗产地，理由是其对金枪鱼、鲨鱼、海龟和海洋哺乳动物的重要觅食地位。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e9%be%9f&form=hpcapt&filters=HpDate:"20250615_1600" "Bing Wallpaper 2025 6月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250616_SeaTurtleBrazil"&FORM=HPQUIZ "必应主页测验 2025 6月 16")
-[下载480](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_800x480.jpg&rf=LaDigue_800x480.jpg "海龟，费尔南多·迪诺罗尼亚群岛，巴西")
-[下载720](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_1280x720.jpg&rf=LaDigue_1280x720.jpg "海龟，费尔南多·迪诺罗尼亚群岛，巴西")
-[下载1080](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海龟，费尔南多·迪诺罗尼亚群岛，巴西")
-[下载UHD](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_UHD.jpg&rf=LaDigue_UHD.jpg "海龟，费尔南多·迪诺罗尼亚群岛，巴西")
 
 ---
