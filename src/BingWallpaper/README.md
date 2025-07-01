@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月02日：触手之间的依赖
+#### 被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚（© Fred Bavendam/Nature Picture Library）
+
+![触手之间的依赖](https://cn.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_800x480.jpg&rf=LaDigue_800x480.jpg "触手之间的依赖")
+
+图片中藏匿于海葵中的色彩斑斓小鱼，是棘颊海葵鱼，也称栗色小丑鱼。它不仅是水下世界中广受喜爱的角色，更是海洋生态中独特共生机制的代表物种。该鱼类原产于印太区域，其分布范围自印度尼西亚西部延伸至中国台湾与大堡礁。它们多栖息于珊瑚礁边缘，最具辨识度的特征是面颊两侧明显突出的棘刺，这一特征正是其命名的由来。在一个群体中，所有个体均围绕一条占主导地位的雌鱼而生存；一旦雌鱼不再存在，首位雄鱼将通过性别转变，继任为新的主导者。棘颊海葵鱼偏好温暖浅水环境，且始终依赖于选定的海葵栖息。
+
+这种鱼的显著颜色变化与性别和地理位置有关。雄性和幼鱼为明亮的红橙色，在性别变为雌性时，颜色会变深，从栗色到深褐色不等。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%88%ba%e9%a2%8a%e6%b5%b7%e8%91%b5%e9%b1%bc&form=hpcapt&filters=HpDate:"20250701_1600" "Bing Wallpaper 2025 7月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250702_MaroonClownfish"&FORM=HPQUIZ "必应主页测验 2025 7月 2")
+[下载480](https://cn.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_800x480.jpg&rf=LaDigue_800x480.jpg "被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚")
+[下载720](https://cn.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_1280x720.jpg&rf=LaDigue_1280x720.jpg "被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚")
+[下载1080](https://cn.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_UHD.jpg&rf=LaDigue_UHD.jpg "被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚")
+
+---
 ### 07月01日：原始渔村的风貌
 #### Tilting渔村, 福戈岛 , 纽芬兰和拉布拉多省, 加拿大（© FedevPhoto/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_1280x720.jpg&rf=LaDigue_1280x720.jpg "红花石蒜上的柑橘凤蝶")
 [下载1080](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红花石蒜上的柑橘凤蝶")
 [下载UHD](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_UHD.jpg&rf=LaDigue_UHD.jpg "红花石蒜上的柑橘凤蝶")
-
----
-### 06月17日：海岸静谧，野性依旧
-#### 坎伯兰岛国家海岸的海滨森林，乔治亚州，美国（© Chris Moore/TANDEM Stills + Motion）
-
-![海岸静谧，野性依旧](https://cn.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_800x480.jpg&rf=LaDigue_800x480.jpg "海岸静谧，野性依旧")
-
-在你踏上沙滩之前，便能听见海风中树叶的沙沙声、扭曲树干的嘎吱响，以及仿佛来自古老世界的低语。欢迎来到乔治亚州大西洋海岸最南端坎伯兰岛国家海岸的海滨森林。面对盐雾、沙土与飓风的挑战，这里的树木依旧坚定屹立。南方红橡树弯而不折，锯叶棕榈如同绿叶护卫般贴地而生，西班牙苔藓则似大自然的流苏垂挂于树枝之上。这片海洋森林是美国现存最完整的此类稀有生态系统之一。得益于坎伯兰岛被划定为国家海岸，其生态得以避免其他海岸地区常见的城市化侵蚀。
-
-坎伯兰岛国家海滨拥有丰富多样的海岸动植物群。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9d%8e%e4%bc%af%e5%85%b0%e5%b2%9b%e5%9b%bd%e5%ae%b6%e6%b5%b7%e5%b2%b8&form=hpcapt&filters=HpDate:"20250616_1600" "Bing Wallpaper 2025 6月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250617_CumberlandOaks"&FORM=HPQUIZ "必应主页测验 2025 6月 17")
-[下载480](https://cn.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_800x480.jpg&rf=LaDigue_800x480.jpg "坎伯兰岛国家海岸的海滨森林，乔治亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_1280x720.jpg&rf=LaDigue_1280x720.jpg "坎伯兰岛国家海岸的海滨森林，乔治亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "坎伯兰岛国家海岸的海滨森林，乔治亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_UHD.jpg&rf=LaDigue_UHD.jpg "坎伯兰岛国家海岸的海滨森林，乔治亚州，美国")
 
 ---
