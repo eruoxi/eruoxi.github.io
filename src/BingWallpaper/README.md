@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月03日：彩虹河的清澈拥抱
+#### 彩虹泉州立公园的彩虹河，佛罗里达州，美国（© Michel Roggo/Minden Pictures）
+
+![彩虹河的清澈拥抱](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_800x480.jpg&rf=LaDigue_800x480.jpg "彩虹河的清澈拥抱")
+
+坐落于佛罗里达州北部墨西哥湾沿岸的，是彩虹泉州立公园。数百年来，这片区域一直作为自然资源，为人类与动物所依赖。穿越公园蜿蜒流淌的彩虹河，正是其中的关键生态要素。河水源自佛罗里达州最大型的泉水之一彩虹泉，其水体汇集自770平方英里的广阔集水区，最终流入威特拉库奇河。
+
+彩虹河因其卓越的自然美景和审美价值，曾于1972年被指定为“国家自然地标”，1986年列为“水域保护区”，并在1987年被评为“杰出的佛罗里达水道”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bd%9b%e7%bd%97%e9%87%8c%e8%be%be%e5%b7%9e%e5%bd%a9%e8%99%b9%e6%b2%b3&form=hpcapt&filters=HpDate:"20250702_1600" "Bing Wallpaper 2025 7月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250703_RainbowRiver"&FORM=HPQUIZ "必应主页测验 2025 7月 3")
+[下载480](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_800x480.jpg&rf=LaDigue_800x480.jpg "彩虹泉州立公园的彩虹河，佛罗里达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_1280x720.jpg&rf=LaDigue_1280x720.jpg "彩虹泉州立公园的彩虹河，佛罗里达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "彩虹泉州立公园的彩虹河，佛罗里达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_UHD.jpg&rf=LaDigue_UHD.jpg "彩虹泉州立公园的彩虹河，佛罗里达州，美国")
+
+---
 ### 07月02日：触手之间的依赖
 #### 被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚（© Fred Bavendam/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣卡塔琳娜州的海滩, 巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣卡塔琳娜州的海滩, 巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_UHD.jpg&rf=LaDigue_UHD.jpg "圣卡塔琳娜州的海滩, 巴西")
-
----
-### 06月18日：让授粉游戏开始吧！
-#### 红花石蒜上的柑橘凤蝶（© lzh/Getty Images）
-
-![让授粉游戏开始吧！](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_800x480.jpg&rf=LaDigue_800x480.jpg "让授粉游戏开始吧！")
-
-传粉者周正在如火如荼地展开！今年的庆祝时间为6月16日至22日，旨在关注那些为近90%开花植物完成授粉过程的重要传粉者，包括我们日常喜爱的水果、蔬菜和坚果等作物的“幕后功臣”。今日图片展示的是一只亚洲凤蝶，它正优雅地停驻在一朵鲜红的彼岸花上。亚洲凤蝶广泛分布于东北亚地区，甚至扩展至夏威夷部分区域。这类蝴蝶具有敏锐的色觉，擅长寻找花朵，尤其偏爱柑橘类植物。尽管该物种当前种群稳定、不被列为受威胁物种，它在自然授粉过程中的作用仍不可或缺。
-
-授粉者不止有蜜蜂，还有蝴蝶、鸟类、蝙蝠、风、水，甚至某些植物也能完成自花授粉！
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9f%91%e6%a9%98%e5%87%a4%e8%9d%b6&form=hpcapt&filters=HpDate:"20250617_1600" "Bing Wallpaper 2025 6月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250618_AsianSwallowtail"&FORM=HPQUIZ "必应主页测验 2025 6月 18")
-[下载480](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_800x480.jpg&rf=LaDigue_800x480.jpg "红花石蒜上的柑橘凤蝶")
-[下载720](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_1280x720.jpg&rf=LaDigue_1280x720.jpg "红花石蒜上的柑橘凤蝶")
-[下载1080](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红花石蒜上的柑橘凤蝶")
-[下载UHD](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_UHD.jpg&rf=LaDigue_UHD.jpg "红花石蒜上的柑橘凤蝶")
 
 ---
