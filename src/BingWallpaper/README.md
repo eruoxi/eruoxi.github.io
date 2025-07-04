@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月05日：优雅而低调的巨人
+#### Cize-Bolozon viaduct crossing the Ain gorge, France（© Leonid Andronov/Getty Images）
+
+![优雅而低调的巨人](https://cn.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_800x480.jpg&rf=LaDigue_800x480.jpg "优雅而低调的巨人")
+
+想象一座桥梁，它连接的不仅是两岸，更是时间与记忆的延续。坐落于法国东部安省的锡兹博洛宗高架桥，它建于1950年，这座桥取代了战争中被摧毁的前代桥梁，成为重建与希望的象征。
+
+安河全长近190公里，长期以来一直作为汝拉山脉与罗讷河之间的重要交通通道。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%95%e5%9b%bd%e9%94%a1%e5%85%b9%e5%8d%9a%e6%b4%9b%e5%ae%97%e9%ab%98%e6%9e%b6%e6%a1%a5&form=hpcapt&filters=HpDate:"20250704_1600" "Bing Wallpaper 2025 7月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250705_BolozonViaduct"&FORM=HPQUIZ "必应主页测验 2025 7月 5")
+[下载480](https://cn.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_800x480.jpg&rf=LaDigue_800x480.jpg "Cize-Bolozon viaduct crossing the Ain gorge, France")
+[下载720](https://cn.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_1280x720.jpg&rf=LaDigue_1280x720.jpg "Cize-Bolozon viaduct crossing the Ain gorge, France")
+[下载1080](https://cn.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Cize-Bolozon viaduct crossing the Ain gorge, France")
+[下载UHD](https://cn.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_UHD.jpg&rf=LaDigue_UHD.jpg "Cize-Bolozon viaduct crossing the Ain gorge, France")
+
+---
 ### 07月04日：水、空气、岩石
 #### 奥罗塞，撒丁岛，意大利（© EyeEm Mobile GmbH/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_1280x720.jpg&rf=LaDigue_1280x720.jpg "雾中莲花，中国佛山")
 [下载1080](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雾中莲花，中国佛山")
 [下载UHD](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_UHD.jpg&rf=LaDigue_UHD.jpg "雾中莲花，中国佛山")
-
----
-### 06月20日：寻找斑点
-#### 一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚（© Alberto Cassani/Getty Images）
-
-![寻找斑点](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_800x480.jpg&rf=LaDigue_800x480.jpg "寻找斑点")
-
-今天我们介绍的是生活于塞伦盖蒂地区的马赛长颈鹿。它们以独特的锯齿状斑点而闻名，是东非的本土物种。除了肯尼亚和乌干达，马赛长颈鹿还广泛分布于坦桑尼亚辽阔的塞伦盖蒂平原。“塞伦盖蒂”一词源自马赛语“seringit”，意为“无边无际的平原”。如今日图片所示，一对母子马赛长颈鹿在这片壮阔的景色中彼此依偎，画面温馨动人。据估计，目前全球野生长颈鹿仅存约117000头，现在正是采取行动的关键时刻。通过支持“世界长颈鹿日”， 你可以为保护这些奇特生物及其自然栖息地贡献力量。加入这一年度庆祝活动，为地球上最高的陆生动物带来切实的改变。
-
-马赛长颈鹿在奔跑时，时速最高可达近64公里（40英里）。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e8%b5%9b%e9%95%bf%e9%a2%88%e9%b9%bf&form=hpcapt&filters=HpDate:"20250619_1600" "Bing Wallpaper 2025 6月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250620_SerengetiGiraffe"&FORM=HPQUIZ "必应主页测验 2025 6月 20")
-[下载480](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_800x480.jpg&rf=LaDigue_800x480.jpg "一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_UHD.jpg&rf=LaDigue_UHD.jpg "一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚")
 
 ---
