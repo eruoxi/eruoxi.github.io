@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月06日：时光沙丘
+#### 死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国（© Bryan Jolley/TANDEM Stills + Motion）
+
+![时光沙丘](https://cn.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_800x480.jpg&rf=LaDigue_800x480.jpg "时光沙丘")
+
+梅斯基特平原沙丘位于死亡谷国家公园内的斯托夫派普韦尔斯村附近，是公园内最易到达且最具标志性的沙丘。它们由北侧山脉风化提供的沙源、盛行风的搬运作用，以及南侧山脉的阻挡所共同作用形成，造就了这片波纹起伏的壮美景观。沙丘以在恶劣环境中依旧顽强生长的蜜荆树命名。在日出和日落时分，沙丘的纹理和棱线在光影映照下格外分明，是欣赏日照美景与星空观测的绝佳地点。
+
+梅斯基特平原沙丘以日出和日落时分的壮丽阴影而闻名，那时沙丘上的波纹和棱线在光线的映照下显得更加分明。这里也是观测死亡谷著名漆黑夜空的绝佳地点。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%ad%bb%e4%ba%a1%e8%b0%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250705_1600" "Bing Wallpaper 2025 7月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250706_MesquiteFlats"&FORM=HPQUIZ "必应主页测验 2025 7月 6")
+[下载480](https://cn.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_800x480.jpg&rf=LaDigue_800x480.jpg "死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_1280x720.jpg&rf=LaDigue_1280x720.jpg "死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_UHD.jpg&rf=LaDigue_UHD.jpg "死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国")
+
+---
 ### 07月05日：优雅而低调的巨人
 #### Cize-Bolozon viaduct crossing the Ain gorge, France（© Leonid Andronov/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_1280x720.jpg&rf=LaDigue_1280x720.jpg "亚马逊雨林，厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亚马逊雨林，厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_UHD.jpg&rf=LaDigue_UHD.jpg "亚马逊雨林，厄瓜多尔")
-
----
-### 06月21日：此花端合在瑶池
-#### 雾中莲花，中国佛山（© huoguangliang/Getty Images）
-
-![此花端合在瑶池](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_800x480.jpg&rf=LaDigue_800x480.jpg "此花端合在瑶池")
-
-夏至既是二十四节气之一，“夏至”是盛夏的起点，这个季节也是荷花盛开的季节。今天图片中的美景位于广东佛山地区的盛开的荷花。晨曦在水面上织就一层丝丝薄纱。漫步岸边，仿佛置身于云雾缭绕的仙境，每一次呼吸都模糊了虚实的界限。这便是“朦胧”的精髓——这种诗意的朦胧感曾深深触动过中国古代文人，激发出无数颂扬莲花空灵之美的诗句。
-
-荷花全身皆宝，藕和莲子能食用，莲子、根茎、藕节、荷叶、花及种子的胚芽等都可入药。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e7%9a%84%e8%8d%b7%e8%8a%b1&form=hpcapt&filters=HpDate:"20250620_1600" "Bing Wallpaper 2025 6月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250621_SummerSolsticeY25"&FORM=HPQUIZ "必应主页测验 2025 6月 21")
-[下载480](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_800x480.jpg&rf=LaDigue_800x480.jpg "雾中莲花，中国佛山")
-[下载720](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_1280x720.jpg&rf=LaDigue_1280x720.jpg "雾中莲花，中国佛山")
-[下载1080](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雾中莲花，中国佛山")
-[下载UHD](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_UHD.jpg&rf=LaDigue_UHD.jpg "雾中莲花，中国佛山")
 
 ---
