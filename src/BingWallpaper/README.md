@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月07日：闪电俯冲、水花四溅，然后开吃
+#### 潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰（© Richard Shucksmith/Minden Pictures）
+
+![闪电俯冲、水花四溅，然后开吃](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_800x480.jpg&rf=LaDigue_800x480.jpg "闪电俯冲、水花四溅，然后开吃")
+
+优雅、有力，且令人难以忽视的北方鲣鸟是北大西洋海域体型最大的海鸟之一。它们大部分时间都在辽阔的海面上滑翔，只有在繁殖季节才会返回陆地。这些海鸟以其庞大而喧嚣的繁殖群体著称，被称为“鲣鸟群”，通常选择在陡峭悬崖、偏远岩岛，或突兀于海中的海蚀柱上筑巢。
+
+这些羽毛具备防水特性，使得该类鸟能够在水中停留较长时间。羽毛表面覆盖着一种由皮脂腺分泌的防水物质，鸟类通常会用喙或头部将其涂抹至全身。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%96%b9%e9%b2%a3%e9%b8%9f&form=hpcapt&filters=HpDate:"20250706_1600" "Bing Wallpaper 2025 7月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250707_ShetlandGannets"&FORM=HPQUIZ "必应主页测验 2025 7月 7")
+[下载480](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_800x480.jpg&rf=LaDigue_800x480.jpg "潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰")
+[下载720](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_1280x720.jpg&rf=LaDigue_1280x720.jpg "潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_UHD.jpg&rf=LaDigue_UHD.jpg "潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰")
+
+---
 ### 07月06日：时光沙丘
 #### 死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国（© Bryan Jolley/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_1280x720.jpg&rf=LaDigue_1280x720.jpg "德累斯顿易北河谷, 德国")
 [下载1080](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "德累斯顿易北河谷, 德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_UHD.jpg&rf=LaDigue_UHD.jpg "德累斯顿易北河谷, 德国")
-
----
-### 06月22日：一路丛林
-#### 亚马逊雨林，厄瓜多尔（© Mark Fox/Getty Images）
-
-![一路丛林](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_800x480.jpg&rf=LaDigue_800x480.jpg "一路丛林")
-
-“世界雨林日”不仅是日历上的一个纪念日，更是一项行动号召。该节日由非营利环保组织“雨林伙伴关系”于2017年设立，旨在提升公众对雨林重要性的认识，并推动全球范围内的保护工作。在美国，人们通过社区植树、学校项目以及社交媒体活动参与纪念，宣传雨林保护的成功案例。许多植物园会举办特别展览，而环保组织则发起筹款挑战，以支持实地保护项目。
-
-亚马逊雨林绝非人迹罕至，约有三千万人生活在该流域之中。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8e%84%e7%93%9c%e5%a4%9a%e5%b0%94%e7%9a%84%e4%ba%9a%e9%a9%ac%e9%80%8a%e9%9b%a8%e6%9e%97&form=hpcapt&filters=HpDate:"20250621_1600" "Bing Wallpaper 2025 6月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250622_AmazonEcuador"&FORM=HPQUIZ "必应主页测验 2025 6月 22")
-[下载480](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_800x480.jpg&rf=LaDigue_800x480.jpg "亚马逊雨林，厄瓜多尔")
-[下载720](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_1280x720.jpg&rf=LaDigue_1280x720.jpg "亚马逊雨林，厄瓜多尔")
-[下载1080](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亚马逊雨林，厄瓜多尔")
-[下载UHD](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_UHD.jpg&rf=LaDigue_UHD.jpg "亚马逊雨林，厄瓜多尔")
 
 ---
