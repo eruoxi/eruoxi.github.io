@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月08日：锋芒毕露的美
+#### 塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利（© Kalyakan/Adobe Stock）
+
+![锋芒毕露的美](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_800x480.jpg&rf=LaDigue_800x480.jpg "锋芒毕露的美")
+
+意大利多洛米蒂山脉不仅雄伟耸立，更如施展魔法般，使每一条山路都变成一个故事。人们亲切地称它们为“苍白山脉”，这一名字源自其主要构成矿物白云石。这片山脉坐落于意大利北部阿尔卑斯山脉，占地超过34.5万英亩，拥有18座海拔超过9,500英尺的高峰。其地貌特征包括陡峭的悬崖、雄伟的岩壁和蜿蜒狭窄的山谷。
+
+塞切达位于瓦尔加迪纳山谷向阳的一侧，冬季可欣赏令人惊叹的美景，是一个应有尽有的滑雪胜地。夏季，这里为游客提供了无限的户外活动机会。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%9a%e6%b4%9b%e7%b1%b3%e8%92%82%e5%b1%b1%e8%84%89&form=hpcapt&filters=HpDate:"20250707_1600" "Bing Wallpaper 2025 7月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250708_SecedaPeak"&FORM=HPQUIZ "必应主页测验 2025 7月 8")
+[下载480](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_800x480.jpg&rf=LaDigue_800x480.jpg "塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_UHD.jpg&rf=LaDigue_UHD.jpg "塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利")
+
+---
 ### 07月07日：闪电俯冲、水花四溅，然后开吃
 #### 潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰（© Richard Shucksmith/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_1280x720.jpg&rf=LaDigue_1280x720.jpg "精致拱门, 拱门国家公园, 犹他州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "精致拱门, 拱门国家公园, 犹他州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_UHD.jpg&rf=LaDigue_UHD.jpg "精致拱门, 拱门国家公园, 犹他州, 美国")
-
----
-### 06月23日：从废墟中重生
-#### 德累斯顿易北河谷, 德国（© Sean Pavone/Getty Images）
-
-![从废墟中重生](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_800x480.jpg&rf=LaDigue_800x480.jpg "从废墟中重生")
-
-柏林充满活力，慕尼黑以啤酒闻名，那么德累斯顿则诉说着历史与重生的故事。这座位于德国萨克森州的城市，曾被誉为“易北河上的佛罗伦萨”。然而，在1945年第二次世界大战期间，城市几乎被彻底摧毁。自那以后，它经历了浴火重生，如今成为一座融合现代艺术博物馆、巴洛克建筑与河畔风光的文化城市。德累斯顿最古老的建筑群主要分布在老城区与新城区两大区域。周边街区最初由萨克森王室在18世纪至19世纪间规划，并以历代君主命名，例如腓特烈城和阿尔贝特城。
-
-易北河上有多条渡轮航线运营，既有载客渡轮，也有可搭载车辆的渡轮。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%be%b7%e7%b4%af%e6%96%af%e9%a1%bf&form=hpcapt&filters=HpDate:"20250622_1600" "Bing Wallpaper 2025 6月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250623_DresdenElbe"&FORM=HPQUIZ "必应主页测验 2025 6月 23")
-[下载480](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_800x480.jpg&rf=LaDigue_800x480.jpg "德累斯顿易北河谷, 德国")
-[下载720](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_1280x720.jpg&rf=LaDigue_1280x720.jpg "德累斯顿易北河谷, 德国")
-[下载1080](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "德累斯顿易北河谷, 德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_UHD.jpg&rf=LaDigue_UHD.jpg "德累斯顿易北河谷, 德国")
 
 ---
