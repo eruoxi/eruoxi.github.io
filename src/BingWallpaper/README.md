@@ -1,4 +1,38 @@
 ## Bing Wallpaper(最近15天)
+### 07月10日：奔向自由之浪
+#### 巴哈马的绿松石色水域（© BlueOrange Studio/Adobe Stock）
+
+![奔向自由之浪](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_800x480.jpg&rf=LaDigue_800x480.jpg "奔向自由之浪")
+
+今天，巴哈马以缤纷的色彩、音乐与自豪感迎来国家独立日的庆祝。1492年，克里斯托弗·哥伦布首次抵达这些岛屿，自此被欧洲人记录在案。最初，这些岛屿处于西班牙统治之下，之后曾短暂由美国控制，随后成为英国殖民地。经过数十年的法律谈判与日益高涨的自治诉求，巴哈马最终于1973年7月10日实现完全独立。
+
+虽然巴哈马在1973年获得独立，但英国君主仍为其国家元首。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e5%93%88%e9%a9%ac&form=hpcapt&filters=HpDate:"20250709_1600" "Bing Wallpaper 2025 7月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250710_BahamaBlues"&FORM=HPQUIZ "必应主页测验 2025 7月 10")
+[下载480](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_800x480.jpg&rf=LaDigue_800x480.jpg "巴哈马的绿松石色水域")
+[下载720](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴哈马的绿松石色水域")
+[下载1080](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴哈马的绿松石色水域")
+[下载UHD](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_UHD.jpg&rf=LaDigue_UHD.jpg "巴哈马的绿松石色水域")
+
+---
+### 07月09日：具有纪念意义的火车站
+#### 宪法火车站，布宜诺斯艾利斯，阿根廷（© Grafissimo/Getty Images）
+
+![具有纪念意义的火车站](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_800x480.jpg&rf=LaDigue_800x480.jpg "具有纪念意义的火车站")
+
+今天是阿根廷的独立日。这片拥有辽阔潘帕斯草原、丰富文化遗产与鲜明民族认同的南美国家，于1816年在图库曼省圣米格尔市正式宣告独立，摆脱西班牙的殖民统治。通往独立的道路充满挑战，伴随着长期内战与政治动荡；而阿根廷的独立运动也深受美国和法国独立运动的影响。最终，阿根廷人民以坚定不移的意志赢得了国家的自由。
+
+2021年，这座火车站被授予国家历史纪念碑的遗产称号。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e5%ae%9c%e8%af%ba%e6%96%af%e8%89%be%e5%88%a9%e6%96%af&form=hpcapt&filters=HpDate:"20250708_1600" "Bing Wallpaper 2025 7月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250709_ConstitucionStation"&FORM=HPQUIZ "必应主页测验 2025 7月 9")
+[下载480](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_800x480.jpg&rf=LaDigue_800x480.jpg "宪法火车站，布宜诺斯艾利斯，阿根廷")
+[下载720](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_1280x720.jpg&rf=LaDigue_1280x720.jpg "宪法火车站，布宜诺斯艾利斯，阿根廷")
+[下载1080](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "宪法火车站，布宜诺斯艾利斯，阿根廷")
+[下载UHD](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_UHD.jpg&rf=LaDigue_UHD.jpg "宪法火车站，布宜诺斯艾利斯，阿根廷")
+
+---
 ### 07月08日：锋芒毕露的美
 #### 塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利（© Kalyakan/Adobe Stock）
 
@@ -218,39 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_1280x720.jpg&rf=LaDigue_1280x720.jpg "马头岩上空的银河, 新南威尔士州, 澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马头岩上空的银河, 新南威尔士州, 澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_UHD.jpg&rf=LaDigue_UHD.jpg "马头岩上空的银河, 新南威尔士州, 澳大利亚")
-
----
-### 06月25日：这里举办的是哪个音乐节？
-#### 格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰（© Gavin Hellier/Getty Images）
-
-![这里举办的是哪个音乐节？](https://cn.bing.com/th?id=OHR.GlastonburyScenic_ZH-CN9162571249_800x480.jpg&rf=LaDigue_800x480.jpg "这里举办的是哪个音乐节？")
-
-当阳光洒落在英格兰萨默塞特郡起伏的山丘上，格拉斯顿伯里音乐节便随之揭幕。这一音乐盛会最初的门票仅为1英镑，如今已发展为全球最具影响力的文化活动之一，每年吸引超过20万人参与。音乐节深植于嬉皮文化、20世纪60年代的反主流运动与自由音乐节的理念之中，这些价值观正是其诞生的基石。从大卫·鲍伊和艾尔顿·约翰，到金属乐队和比莉·艾利什，这个舞台承载了无数定义时代的经典演出。今年的格拉斯顿伯里音乐节从今天开始，持续至6月29日，主打阵容包括The 1975、尼尔·杨与奥利维亚·罗德里戈等。俯瞰整个音乐节现场的，是如今日图片所示的格拉斯顿伯里托尔山丘。山顶耸立着14世纪的圣迈克尔教堂塔楼。托尔山被视为传说中亚瑟王的阿瓦隆王国所在地，并与古老的精神传统息息相关，成为历史与神话交汇之地。
-
-2025年1月，据报道截至2024年3月，格拉斯顿伯里音乐节税前利润翻倍，达到590万英镑，并在同期向慈善机构捐赠了520万英镑。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a0%bc%e6%8b%89%e6%96%af%e9%a1%bf%e4%bc%af%e9%87%8c%e9%9f%b3%e4%b9%90%e8%8a%82&form=hpcapt&filters=HpDate:"20250624_1600" "Bing Wallpaper 2025 6月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250625_GlastonburyScenic"&FORM=HPQUIZ "必应主页测验 2025 6月 25")
-[下载480](https://cn.bing.com/th?id=OHR.GlastonburyScenic_ZH-CN9162571249_800x480.jpg&rf=LaDigue_800x480.jpg "格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.GlastonburyScenic_ZH-CN9162571249_1280x720.jpg&rf=LaDigue_1280x720.jpg "格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.GlastonburyScenic_ZH-CN9162571249_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.GlastonburyScenic_ZH-CN9162571249_UHD.jpg&rf=LaDigue_UHD.jpg "格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰")
-
----
-### 06月24日：大自然的耐心之作
-#### 精致拱门, 拱门国家公园, 犹他州, 美国（© mmac72/Getty Images）
-
-![大自然的耐心之作](https://cn.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的耐心之作")
-
-这片景观并非一朝一夕形成，而是大自然历经漫长岁月的雕琢之作。你在美国犹他州拱门国家公园所见的一切，是3亿多年间地壳抬升、风化与侵蚀共同作用的结果。这些天然拱门最初由古海洋遗留下的盐层构成，在时间推移中，砂岩层开裂、位移并不断风化，最终形成了超过2000座天然拱门。这些地貌主要由恩特拉达砂岩与纳瓦霍砂岩构成。该地区于1929年被认定为国家纪念地，并于1971年正式升格为国家公园。
-
-在这座公园内，游客可以进行露营、在指定小径徒步旅行、背包探险、峡谷穿越、攀岩、骑行，以及在现有的铺砌和未铺砌道路上驾车游览等活动。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8a%b9%e4%bb%96%e5%b7%9e%e6%8b%b1%e9%97%a8%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad%e7%b2%be%e8%87%b4%e6%8b%b1%e9%97%a8&form=hpcapt&filters=HpDate:"20250623_1600" "Bing Wallpaper 2025 6月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250624_DelicateArch"&FORM=HPQUIZ "必应主页测验 2025 6月 24")
-[下载480](https://cn.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_800x480.jpg&rf=LaDigue_800x480.jpg "精致拱门, 拱门国家公园, 犹他州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_1280x720.jpg&rf=LaDigue_1280x720.jpg "精致拱门, 拱门国家公园, 犹他州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "精致拱门, 拱门国家公园, 犹他州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_UHD.jpg&rf=LaDigue_UHD.jpg "精致拱门, 拱门国家公园, 犹他州, 美国")
 
 ---
