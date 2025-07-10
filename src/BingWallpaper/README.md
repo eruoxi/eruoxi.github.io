@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月11日：把我们都算上
+#### 日出时的东京，日本（© pongnathee kluaythong/Getty Images）
+
+![把我们都算上](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_800x480.jpg&rf=LaDigue_800x480.jpg "把我们都算上")
+
+我们生活的地球早已人满为患，并且仍在不断变得更加拥挤。目前全球人口已达82亿，且呈持续增长之势。世界人口日旨在引发人们对人口增长如何影响城市发展、粮食供给与未来前景的思考。该纪念日设立于1989年，聚焦于不受控的人口增长对可持续性带来的影响，其灵感源自1987年全球人口首次突破50亿的“50亿人口日”。随着城市不断扩张，绿地面积减少，农业也在有限的土地和水资源中展开竞争。然而前路并非无解：通过教育投资、改善医疗可及性，以及建设更智慧的城市，人口增长与可持续发展之间可以实现平衡。
+
+在过去三十年间，世界各地的社会在人口数据的收集、分析与使用方面取得了显著进步。如今的人口数据可以按年龄、族裔、性别及其他因素进行细致划分，更加准确地反映出我们社会的多样性。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e4%ba%ba%e5%8f%a3%e6%97%a5&form=hpcapt&filters=HpDate:"20250710_1600" "Bing Wallpaper 2025 7月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250711_TokyoSunrise"&FORM=HPQUIZ "必应主页测验 2025 7月 11")
+[下载480](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_800x480.jpg&rf=LaDigue_800x480.jpg "日出时的东京，日本")
+[下载720](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的东京，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的东京，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的东京，日本")
+
+---
 ### 07月10日：奔向自由之浪
 #### 巴哈马的绿松石色水域（© BlueOrange Studio/Adobe Stock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_1280x720.jpg&rf=LaDigue_1280x720.jpg "Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典")
 [下载1080](https://cn.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典")
 [下载UHD](https://cn.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_UHD.jpg&rf=LaDigue_UHD.jpg "Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典")
-
----
-### 06月26日：海岸线附近的“马戏”
-#### 马头岩上空的银河, 新南威尔士州, 澳大利亚（© Philip Thurston/Getty Images）
-
-![海岸线附近的“马戏”](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_800x480.jpg&rf=LaDigue_800x480.jpg "海岸线附近的“马戏”")
-
-人们常说：“你可以牵马到水边，却无法强迫它饮水。”当然，马头岩除外。这块岩石屹立于澳大利亚新南威尔士州伯马吉附近的蓝宝石海岸。如今日图片所示，这块古老的岩石宛如大自然亲手雕刻的一匹神话中的骏马，永远在低头畅饮海水。据估计，马头岩已有5亿年历史，其酷似一匹弯颈饮水的马，这正是风蚀与海浪侵蚀共同作用的结果。作为该地区最古老且最具象征意义的地质地标之一，马头岩全年吸引着徒步旅行者、摄影师与自然爱好者前来观赏。最佳观景点位于骆驼岩与穆鲁纳角之间的高地步道，而更富冒险精神的访客则可在退潮时，从骆驼岩冲浪海滩绕行至此。
-
-1880年，政府地质学家拉蒙特·杨与另外四人在从伯马吉出海途中神秘失踪，该海湾的命名正与这起事件有关。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%be%b3%e5%a4%a7%e5%88%a9%e4%ba%9a%e9%a9%ac%e5%a4%b4%e5%b2%a9&form=hpcapt&filters=HpDate:"20250625_1600" "Bing Wallpaper 2025 6月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250626_HorseheadRock"&FORM=HPQUIZ "必应主页测验 2025 6月 26")
-[下载480](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_800x480.jpg&rf=LaDigue_800x480.jpg "马头岩上空的银河, 新南威尔士州, 澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_1280x720.jpg&rf=LaDigue_1280x720.jpg "马头岩上空的银河, 新南威尔士州, 澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马头岩上空的银河, 新南威尔士州, 澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_UHD.jpg&rf=LaDigue_UHD.jpg "马头岩上空的银河, 新南威尔士州, 澳大利亚")
 
 ---
