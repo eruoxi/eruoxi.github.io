@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月12日：跟随妈妈的脚步
+#### 汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚（© Gallo Images/DanitaDelimont.com）
+
+![跟随妈妈的脚步](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_800x480.jpg&rf=LaDigue_800x480.jpg "跟随妈妈的脚步")
+
+在肯尼亚西南部的马赛马拉稀树草原上，金色阳光洒落大地，野生动物穿梭其间，形成一幅动人画面。这片草原上野生动物众多，有在灌木丛中漫步的大象，地平线上搜寻猎物的猎豹等。然而，真正吸引目光的，往往是那些体型较小却灵动可爱的动物，比如今日图片中的汤氏瞪羚。
+
+2016年迪士尼动画电影《疯狂动物城》中，一位拟人化的流行歌手“汤氏瞪羚”由歌手夏奇拉配音，令人印象深刻。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b1%a4%e6%b0%8f%e7%9e%aa%e7%be%9a&form=hpcapt&filters=HpDate:"20250711_1600" "Bing Wallpaper 2025 7月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250712_ThomsonGazelle"&FORM=HPQUIZ "必应主页测验 2025 7月 12")
+[下载480](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_800x480.jpg&rf=LaDigue_800x480.jpg "汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_1280x720.jpg&rf=LaDigue_1280x720.jpg "汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_UHD.jpg&rf=LaDigue_UHD.jpg "汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚")
+
+---
 ### 07月11日：把我们都算上
 #### 日出时的东京，日本（© pongnathee kluaythong/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_1280x720.jpg&rf=LaDigue_1280x720.jpg "曼海姆水塔, 德国")
 [下载1080](https://cn.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼海姆水塔, 德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_UHD.jpg&rf=LaDigue_UHD.jpg "曼海姆水塔, 德国")
-
----
-### 06月27日：古冰川遗迹之地
-#### Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典（© Sven Halling/DEEPOL/plainpicture）
-
-![古冰川遗迹之地](https://cn.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_800x480.jpg&rf=LaDigue_800x480.jpg "古冰川遗迹之地")
-
-克努特霍德斯莫森自然保护区位于瑞典海勒福什市附近，占地近250英亩。这片宁静的绿洲拥有环形木栈道，穿越沼泽地带，沿途分布着多个小湖泊、沙丘、湿地与松林。其中部分路段无障碍设计，适合轮椅和婴儿车通行。
-
-最佳造访时间为每年4月至5月。若运气不错，你甚至可能在步道旁发现鸟巢。请注意：在4月1日至7月15日的鸟类繁殖期内，请务必留在步道上，以避免惊扰野生鸟类。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e5%8b%92%e7%a6%8f%e4%bb%80%e5%b8%82&form=hpcapt&filters=HpDate:"20250626_1600" "Bing Wallpaper 2025 6月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250627_SwedenReserve"&FORM=HPQUIZ "必应主页测验 2025 6月 27")
-[下载480](https://cn.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_800x480.jpg&rf=LaDigue_800x480.jpg "Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典")
-[下载720](https://cn.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_1280x720.jpg&rf=LaDigue_1280x720.jpg "Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典")
-[下载1080](https://cn.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典")
-[下载UHD](https://cn.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_UHD.jpg&rf=LaDigue_UHD.jpg "Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典")
 
 ---
