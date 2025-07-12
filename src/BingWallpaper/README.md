@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月13日：层层叠叠的岩石
+#### 卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛（© Arterra Picture Library/Alamy Stock Photo）
+
+![层层叠叠的岩石](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_800x480.jpg&rf=LaDigue_800x480.jpg "层层叠叠的岩石")
+
+你觉得岩石只是……岩石吗？这些天然的矿物组合不仅仅只是静静地待在原地，它们是地球地壳的基本组成单位，从石器时代的工具到为现代文明提供动力的矿物，岩石在人类发展史中发挥了重要作用。国际岩石日的设立，正是为了庆祝岩石在自然界及人类社会中的深远影响，激发公众对地质科学的兴趣，并鼓励人们欣赏岩石所展现的自然之美与多样性。
+
+玄武岩是火星表面常见的岩石类型之一，这一事实已通过来自火星探测任务的数据与陨石分析得到了证实。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b2%a9%e7%9f%b3%e5%9c%b0%e8%b4%a8%e5%ad%a6&form=hpcapt&filters=HpDate:"20250712_1600" "Bing Wallpaper 2025 7月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250713_BasaltColumns"&FORM=HPQUIZ "必应主页测验 2025 7月 13")
+[下载480](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_800x480.jpg&rf=LaDigue_800x480.jpg "卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛")
+[下载720](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛")
+[下载1080](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_UHD.jpg&rf=LaDigue_UHD.jpg "卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛")
+
+---
 ### 07月12日：跟随妈妈的脚步
 #### 汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚（© Gallo Images/DanitaDelimont.com）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_1280x720.jpg&rf=LaDigue_1280x720.jpg "Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_UHD.jpg&rf=LaDigue_UHD.jpg "Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚")
-
----
-### 06月28日：从实用建筑到地标象征
-#### 曼海姆水塔, 德国（© no limit pictures/Getty Images）
-
-![从实用建筑到地标象征](https://cn.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_800x480.jpg&rf=LaDigue_800x480.jpg "从实用建筑到地标象征")
-
-位于曼海姆市中心的这座水塔，正是今日图像中所展示的主体。它不仅仅是一座功能性建筑，更是曼海姆的文化象征。该塔由著名建筑师古斯塔夫·哈姆胡伯设计，他后来还参与了柏林国会大厦的建设。水塔建于1886至1889年之间，高达60米，最初作为城市饮用水的蓄水塔，储水容量可达200万升。如今，它不仅是一处旅游打卡地，也常用作文化活动与市民休闲的重要场所，象征着曼海姆在保留传统的同时拥抱现代化的城市精神。
-
-凭借其巴洛克风格的设计与核心地理位置，曼海姆水塔已成为这座城市最具代表性的标志性建筑。这座塔坐落于弗里德里希广场以新艺术风格闻名的宏伟景观花园中央，四周环绕着喷泉与精美的花卉布景，呈现出一幅赏心悦目的城市画卷。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9b%bc%e6%b5%b7%e5%a7%86%e6%b0%b4%e5%a1%94&form=hpcapt&filters=HpDate:"20250627_1600" "Bing Wallpaper 2025 6月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250628_WatertowerMannheim"&FORM=HPQUIZ "必应主页测验 2025 6月 28")
-[下载480](https://cn.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_800x480.jpg&rf=LaDigue_800x480.jpg "曼海姆水塔, 德国")
-[下载720](https://cn.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_1280x720.jpg&rf=LaDigue_1280x720.jpg "曼海姆水塔, 德国")
-[下载1080](https://cn.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼海姆水塔, 德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_UHD.jpg&rf=LaDigue_UHD.jpg "曼海姆水塔, 德国")
 
 ---
