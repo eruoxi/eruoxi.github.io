@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月14日：追逐海浪，掀起潮汐
+#### 加利西亚海域游弋的幼年大青鲨，西班牙（© Damocean/Getty Images）
+
+![追逐海浪，掀起潮汐](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_800x480.jpg&rf=LaDigue_800x480.jpg "追逐海浪，掀起潮汐")
+
+鲨鱼在地球上的历史可追溯至4亿年前，它们早于恐龙出现，并在历经冰河时期及多次生物大灭绝后依然顽强存续，成为海洋生态系统中不可或缺的一环。鲨鱼被视为健康海洋的指标物种，因此每年“鲨鱼意识日”的设立，正是为了提升公众对鲨鱼生态重要性的认知。作为海洋食物链顶端的掠食者，鲨鱼有助于维持物种平衡，其保护关系到整个海洋生态的可持续性。然而，当前多种鲨鱼面临灭绝危机，这一天也提醒人们采取行动，避免这些古老生物从海洋中消失。
+
+大青鲨与真鲨科其他成员一样，具备五种核心感官：视觉、听觉、侧线感知、化学感知以及电感知。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e9%9d%92%e9%b2%a8&form=hpcapt&filters=HpDate:"20250713_1600" "Bing Wallpaper 2025 7月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250714_YoungShark"&FORM=HPQUIZ "必应主页测验 2025 7月 14")
+[下载480](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_800x480.jpg&rf=LaDigue_800x480.jpg "加利西亚海域游弋的幼年大青鲨，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_1280x720.jpg&rf=LaDigue_1280x720.jpg "加利西亚海域游弋的幼年大青鲨，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加利西亚海域游弋的幼年大青鲨，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_UHD.jpg&rf=LaDigue_UHD.jpg "加利西亚海域游弋的幼年大青鲨，西班牙")
+
+---
 ### 07月13日：层层叠叠的岩石
 #### 卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛（© Arterra Picture Library/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WolfeCrater_ZH-CN1652906326_1280x720.jpg&rf=LaDigue_1280x720.jpg "沃尔夫溪陨石坑, 澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.WolfeCrater_ZH-CN1652906326_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沃尔夫溪陨石坑, 澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.WolfeCrater_ZH-CN1652906326_UHD.jpg&rf=LaDigue_UHD.jpg "沃尔夫溪陨石坑, 澳大利亚")
-
----
-### 06月29日：哪里让历史变得“辛辣”
-#### Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚（© fabio lamanna/Alamy Stock Photo）
-
-![哪里让历史变得“辛辣”](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_800x480.jpg&rf=LaDigue_800x480.jpg "哪里让历史变得“辛辣”")
-
-每年6月29日是“国际热带日”，旨在引导人们关注紧贴赤道的热带地区，这些地区全年阳光充足，却也在气候变化议题中尤为脆弱。热带带位于北回归线与南回归线之间，涵盖亚洲、非洲、大洋洲、中美洲及南美洲的部分地区。全球近40%的人口生活于此，这里同时孕育了全球约80%的生物多样性。不仅自然资源丰富、文化多元，这些地区也承载着重要的历史背景；然而它们也面临着气温上升、森林砍伐和快速城市化等挑战。
-
-艾岛真正的魅力在于沙滩与浮潜或深潜体验。这里拥有原始的珊瑚礁，特别是在那些陡然下沉数千米的峭壁区，水下能见度如空气般清澈。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8f%ad%e8%be%be%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20250628_1600" "Bing Wallpaper 2025 6月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250629_BandaIsland"&FORM=HPQUIZ "必应主页测验 2025 6月 29")
-[下载480](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_800x480.jpg&rf=LaDigue_800x480.jpg "Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚")
-[下载720](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_1280x720.jpg&rf=LaDigue_1280x720.jpg "Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_UHD.jpg&rf=LaDigue_UHD.jpg "Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚")
 
 ---
