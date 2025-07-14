@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月15日：永恒的光芒
+#### 英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国（© Wirestock Creators/Shutterstock）
+
+![永恒的光芒](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_800x480.jpg&rf=LaDigue_800x480.jpg "永恒的光芒")
+
+准备迎接一年中最耀眼的天文奇观之一英仙座流星雨吧！该流星雨每年活跃期为7月中旬至8月下旬，而今年的峰值将于8月12日夜间至13日凌晨上演璀璨盛景。当地球穿越彗星斯威夫特-塔特尔留下的冰岩碎片轨道时，形成了这一流星雨。这颗彗星上一次接近地球是在1992年。当这些尘埃颗粒以高速进入地球大气层时，会因摩擦而燃烧，划出一道道明亮的光痕。
+
+英仙座流星雨之所以得名，是因为这些流星看起来像是从英仙座方向划破夜空。“Perseids”一词源自希腊语，意为“英仙的子孙”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8b%b1%e4%bb%99%e5%ba%a7%e6%b5%81%e6%98%9f%e9%9b%a8&form=hpcapt&filters=HpDate:"20250714_1600" "Bing Wallpaper 2025 7月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250715_PerseidsPine"&FORM=HPQUIZ "必应主页测验 2025 7月 15")
+[下载480](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_800x480.jpg&rf=LaDigue_800x480.jpg "英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_1280x720.jpg&rf=LaDigue_1280x720.jpg "英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_UHD.jpg&rf=LaDigue_UHD.jpg "英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国")
+
+---
 ### 07月14日：追逐海浪，掀起潮汐
 #### 加利西亚海域游弋的幼年大青鲨，西班牙（© Damocean/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_1280x720.jpg&rf=LaDigue_1280x720.jpg "Tilting渔村, 福戈岛 , 纽芬兰和拉布拉多省, 加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Tilting渔村, 福戈岛 , 纽芬兰和拉布拉多省, 加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_UHD.jpg&rf=LaDigue_UHD.jpg "Tilting渔村, 福戈岛 , 纽芬兰和拉布拉多省, 加拿大")
-
----
-### 06月30日：是谁击中了地面？
-#### 沃尔夫溪陨石坑, 澳大利亚（© Abstract Aerial Art/Getty Images）
-
-![是谁击中了地面？](https://cn.bing.com/th?id=OHR.WolfeCrater_ZH-CN1652906326_800x480.jpg&rf=LaDigue_800x480.jpg "是谁击中了地面？")
-
-地球表面每一道因陨石撞击而留下的伤痕，都讲述着一个关于宇宙的故事，从导致恐龙灭绝的小行星，到遍布全球却鲜为人知的陨石坑。小行星日正是为了提醒人类关注这些来自太空的访客，以及它们可能带来的潜在威胁。该纪念日设立于2015年，受到联合国支持，以纪念1908年6月30日发生在西伯利亚通古斯河附近的通古斯大爆炸。这场爆炸摧毁了超过800平方英里的森林，所释放的能量相当于10至15兆吨TNT炸药。自那以后，科学家们通过研究亚利桑那州的巴林杰陨石坑、加拿大魁北克的马尼库阿甘陨石坑等地，深入探索了天体撞击对地球的影响。
-
-沃尔夫溪陨石坑是世界第二大已知陨石坑。大约在30万年前，一颗巨大的陨石撞击地球，形成了这一壮观地貌。这块巨大的太空岩石以每秒15千米的速度穿行大气层，若从澳大利亚一端穿越至另一端，仅需五分钟。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b0%8f%e8%a1%8c%e6%98%9f%e6%97%a5&form=hpcapt&filters=HpDate:"20250629_1600" "Bing Wallpaper 2025 6月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250630_WolfeCrater"&FORM=HPQUIZ "必应主页测验 2025 6月 30")
-[下载480](https://cn.bing.com/th?id=OHR.WolfeCrater_ZH-CN1652906326_800x480.jpg&rf=LaDigue_800x480.jpg "沃尔夫溪陨石坑, 澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.WolfeCrater_ZH-CN1652906326_1280x720.jpg&rf=LaDigue_1280x720.jpg "沃尔夫溪陨石坑, 澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.WolfeCrater_ZH-CN1652906326_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沃尔夫溪陨石坑, 澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.WolfeCrater_ZH-CN1652906326_UHD.jpg&rf=LaDigue_UHD.jpg "沃尔夫溪陨石坑, 澳大利亚")
 
 ---
