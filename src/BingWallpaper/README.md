@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月16日：伊西斯女神的光辉照耀下
+#### 菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及（© Ratnakorn Piyasirisorost/Getty Images）
+
+![伊西斯女神的光辉照耀下](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_800x480.jpg&rf=LaDigue_800x480.jpg "伊西斯女神的光辉照耀下")
+
+菲莱神庙，常被称为伊西斯神庙，是埃及最迷人的古迹之一。它最初建在菲莱岛上，后来为避免被洪水淹没而迁至附近的阿吉勒基亚岛。这项迁移工程是20世纪60年代由联合国教科文组织发起的国际文物拯救项目，历时多年，搬运了逾4万块石块，才得以完整重建并保存这座古老神庙。如今，它坐落在尼罗河环绕的静谧之地，是乘船游览和探寻往昔的绝佳去处。
+
+菲莱岛虽小，仅长约450米、宽不足150米，却自古以来便吸引着无数前来埃及的游客。因其秀美的景致，这座小岛素有“埃及明珠”之称。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9f%83%e5%8f%8a%e9%98%bf%e6%96%af%e6%97%ba%e8%8f%b2%e8%8e%b1%e7%a5%9e%e5%ba%99&form=hpcapt&filters=HpDate:"20250715_1600" "Bing Wallpaper 2025 7月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250716_TemplePhilae"&FORM=HPQUIZ "必应主页测验 2025 7月 16")
+[下载480](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_800x480.jpg&rf=LaDigue_800x480.jpg "菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及")
+[下载720](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_1280x720.jpg&rf=LaDigue_1280x720.jpg "菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及")
+[下载1080](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及")
+[下载UHD](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_UHD.jpg&rf=LaDigue_UHD.jpg "菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及")
+
+---
 ### 07月15日：永恒的光芒
 #### 英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国（© Wirestock Creators/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_1280x720.jpg&rf=LaDigue_1280x720.jpg "被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚")
 [下载1080](https://cn.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_UHD.jpg&rf=LaDigue_UHD.jpg "被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚")
-
----
-### 07月01日：原始渔村的风貌
-#### Tilting渔村, 福戈岛 , 纽芬兰和拉布拉多省, 加拿大（© FedevPhoto/Getty Images）
-
-![原始渔村的风貌](https://cn.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_800x480.jpg&rf=LaDigue_800x480.jpg "原始渔村的风貌")
-
-蒂林村最初由18世纪的爱尔兰移民所建立，是极少数至今仍保留爱尔兰渔村文化特色的社区之一。当地渔棚与住宅采用明亮色彩，不仅具有装饰功能，更是为了在浓雾或风雪中提高可见性。这种设计体现了早期居民兼具实用性与创造力的生活智慧。今天，加拿大迎来了建国158周年纪念日。从东海岸的历史小村到现代都市，从多元文化融合到壮丽自然风光，我们共同庆祝这个国家的历史积淀、文化底蕴与持续发展的未来愿景。
-
-蒂林渔村坐落于加拿大东部福戈岛，是一座历史悠久的小村庄，其丰富的历史通过保存完好的建筑与文化传统得以传承。该村被列为国家历史遗址和注册遗产区，成为历史爱好者及希望亲身体验纽芬兰传统风貌游客的重要目的地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e6%8b%bf%e5%a4%a7%e7%ba%bd%e8%8a%ac%e5%85%b0%e5%b2%9b%e7%a6%8f%e6%88%88%e5%b2%9b&form=hpcapt&filters=HpDate:"20250630_1600" "Bing Wallpaper 2025 7月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250701_CanadaDayFogo"&FORM=HPQUIZ "必应主页测验 2025 7月 1")
-[下载480](https://cn.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_800x480.jpg&rf=LaDigue_800x480.jpg "Tilting渔村, 福戈岛 , 纽芬兰和拉布拉多省, 加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_1280x720.jpg&rf=LaDigue_1280x720.jpg "Tilting渔村, 福戈岛 , 纽芬兰和拉布拉多省, 加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Tilting渔村, 福戈岛 , 纽芬兰和拉布拉多省, 加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_UHD.jpg&rf=LaDigue_UHD.jpg "Tilting渔村, 福戈岛 , 纽芬兰和拉布拉多省, 加拿大")
 
 ---
