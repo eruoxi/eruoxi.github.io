@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月17日：追随香气的地平线
+#### 瓦朗索勒高原的薰衣草田，法国（© zpagistock/Getty Images）
+
+![追随香气的地平线](https://cn.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_800x480.jpg&rf=LaDigue_800x480.jpg "追随香气的地平线")
+
+若你正在寻找一场充满芬芳的夏日旅程，法国普罗旺斯的瓦朗索勒高原无疑是理想之选。从六月下旬至七月中旬，这片高原便会被紫色花海覆盖，宛如香气四溢的天然画布。高原坐落于海拔约1,900英尺的地带，面积达约300平方英里，是法国规模最大的薰衣草种植区之一。
+
+与普罗旺斯的其他地区一样，瓦朗索勒高原受益于充足的阳光，这一气候条件不仅适合薰衣草的生长，也吸引了大量偏好自然体验的夏季游客，与偏爱地中海沿岸的游客群体形成鲜明对比。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%93%a6%e6%9c%97%e7%b4%a2%e5%8b%92%e9%ab%98%e5%8e%9f&form=hpcapt&filters=HpDate:"20250716_1600" "Bing Wallpaper 2025 7月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250717_FranceLavender"&FORM=HPQUIZ "必应主页测验 2025 7月 17")
+[下载480](https://cn.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_800x480.jpg&rf=LaDigue_800x480.jpg "瓦朗索勒高原的薰衣草田，法国")
+[下载720](https://cn.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓦朗索勒高原的薰衣草田，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦朗索勒高原的薰衣草田，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_UHD.jpg&rf=LaDigue_UHD.jpg "瓦朗索勒高原的薰衣草田，法国")
+
+---
 ### 07月16日：伊西斯女神的光辉照耀下
 #### 菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及（© Ratnakorn Piyasirisorost/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_1280x720.jpg&rf=LaDigue_1280x720.jpg "彩虹泉州立公园的彩虹河，佛罗里达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "彩虹泉州立公园的彩虹河，佛罗里达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_UHD.jpg&rf=LaDigue_UHD.jpg "彩虹泉州立公园的彩虹河，佛罗里达州，美国")
-
----
-### 07月02日：触手之间的依赖
-#### 被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚（© Fred Bavendam/Nature Picture Library）
-
-![触手之间的依赖](https://cn.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_800x480.jpg&rf=LaDigue_800x480.jpg "触手之间的依赖")
-
-图片中藏匿于海葵中的色彩斑斓小鱼，是棘颊海葵鱼，也称栗色小丑鱼。它不仅是水下世界中广受喜爱的角色，更是海洋生态中独特共生机制的代表物种。该鱼类原产于印太区域，其分布范围自印度尼西亚西部延伸至中国台湾与大堡礁。它们多栖息于珊瑚礁边缘，最具辨识度的特征是面颊两侧明显突出的棘刺，这一特征正是其命名的由来。在一个群体中，所有个体均围绕一条占主导地位的雌鱼而生存；一旦雌鱼不再存在，首位雄鱼将通过性别转变，继任为新的主导者。棘颊海葵鱼偏好温暖浅水环境，且始终依赖于选定的海葵栖息。
-
-这种鱼的显著颜色变化与性别和地理位置有关。雄性和幼鱼为明亮的红橙色，在性别变为雌性时，颜色会变深，从栗色到深褐色不等。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%88%ba%e9%a2%8a%e6%b5%b7%e8%91%b5%e9%b1%bc&form=hpcapt&filters=HpDate:"20250701_1600" "Bing Wallpaper 2025 7月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250702_MaroonClownfish"&FORM=HPQUIZ "必应主页测验 2025 7月 2")
-[下载480](https://cn.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_800x480.jpg&rf=LaDigue_800x480.jpg "被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚")
-[下载720](https://cn.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_1280x720.jpg&rf=LaDigue_1280x720.jpg "被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚")
-[下载1080](https://cn.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_UHD.jpg&rf=LaDigue_UHD.jpg "被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚")
 
 ---
