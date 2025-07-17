@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月18日：一切准备就绪，等待日落
+#### 塞里雅兰瀑布日落美景，冰岛（© Tom Mackie/AWL/plainpicture）
+
+![一切准备就绪，等待日落](https://cn.bing.com/th?id=OHR.IcelandSolstice_ZH-CN6073168622_800x480.jpg&rf=LaDigue_800x480.jpg "一切准备就绪，等待日落")
+
+这座197英尺高的瀑布从曾经标志着冰岛海岸线的悬崖峭壁倾泻而下。奔腾的瀑布是塞里雅兰河 (Seljalandsa River) 的一部分，发源于火山冰川埃亚菲亚德拉冰盖 (Eyjafjallajökull)。这座冰盖下的火山上次喷发是在2010年，对当地居民和空中交通造成了影响。游客可以走到瀑布后面的一个小洞穴，那里拥有独特的视角，也是摄影师的最爱。夜晚，泛光灯照亮了瀑布，营造出一幅梦幻般的景象。如果您计划在夏至期间度假，塞里雅兰瀑布 (Seljalandsfoss) 值得列入您的旅行清单。无论您是自然爱好者还是摄影爱好者，这次体验都将为您留下难忘的回忆。
+
+仲夏节是这里一个重要的节日，是一个庆祝一年中白天最长的节日。它在斯堪的纳维亚国家尤其受欢迎，那里的传统包括围绕五朔节花柱跳舞、盛宴和点燃篝火。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a1%9e%e9%87%8c%e9%9b%85%e5%85%b0%e7%80%91%e5%b8%83&form=hpcapt&filters=HpDate:"20250717_1600" "Bing Wallpaper 2025 7月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250718_IcelandSolstice"&FORM=HPQUIZ "必应主页测验 2025 7月 18")
+[下载480](https://cn.bing.com/th?id=OHR.IcelandSolstice_ZH-CN6073168622_800x480.jpg&rf=LaDigue_800x480.jpg "塞里雅兰瀑布日落美景，冰岛")
+[下载720](https://cn.bing.com/th?id=OHR.IcelandSolstice_ZH-CN6073168622_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞里雅兰瀑布日落美景，冰岛")
+[下载1080](https://cn.bing.com/th?id=OHR.IcelandSolstice_ZH-CN6073168622_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞里雅兰瀑布日落美景，冰岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.IcelandSolstice_ZH-CN6073168622_UHD.jpg&rf=LaDigue_UHD.jpg "塞里雅兰瀑布日落美景，冰岛")
+
+---
 ### 07月17日：追随香气的地平线
 #### 瓦朗索勒高原的薰衣草田，法国（© zpagistock/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥罗塞，撒丁岛，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥罗塞，撒丁岛，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_UHD.jpg&rf=LaDigue_UHD.jpg "奥罗塞，撒丁岛，意大利")
-
----
-### 07月03日：彩虹河的清澈拥抱
-#### 彩虹泉州立公园的彩虹河，佛罗里达州，美国（© Michel Roggo/Minden Pictures）
-
-![彩虹河的清澈拥抱](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_800x480.jpg&rf=LaDigue_800x480.jpg "彩虹河的清澈拥抱")
-
-坐落于佛罗里达州北部墨西哥湾沿岸的，是彩虹泉州立公园。数百年来，这片区域一直作为自然资源，为人类与动物所依赖。穿越公园蜿蜒流淌的彩虹河，正是其中的关键生态要素。河水源自佛罗里达州最大型的泉水之一彩虹泉，其水体汇集自770平方英里的广阔集水区，最终流入威特拉库奇河。
-
-彩虹河因其卓越的自然美景和审美价值，曾于1972年被指定为“国家自然地标”，1986年列为“水域保护区”，并在1987年被评为“杰出的佛罗里达水道”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bd%9b%e7%bd%97%e9%87%8c%e8%be%be%e5%b7%9e%e5%bd%a9%e8%99%b9%e6%b2%b3&form=hpcapt&filters=HpDate:"20250702_1600" "Bing Wallpaper 2025 7月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250703_RainbowRiver"&FORM=HPQUIZ "必应主页测验 2025 7月 3")
-[下载480](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_800x480.jpg&rf=LaDigue_800x480.jpg "彩虹泉州立公园的彩虹河，佛罗里达州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_1280x720.jpg&rf=LaDigue_1280x720.jpg "彩虹泉州立公园的彩虹河，佛罗里达州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "彩虹泉州立公园的彩虹河，佛罗里达州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_UHD.jpg&rf=LaDigue_UHD.jpg "彩虹泉州立公园的彩虹河，佛罗里达州，美国")
 
 ---
