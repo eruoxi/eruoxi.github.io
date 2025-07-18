@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月19日：化石、瀑布与林间小径
+#### 幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大（© Feng Wei Photography/Getty Images）
+
+![化石、瀑布与林间小径](https://cn.bing.com/th?id=OHR.YohoNP_ZH-CN2349599497_800x480.jpg&rf=LaDigue_800x480.jpg "化石、瀑布与林间小径")
+
+“Yoho”听起来就像是人们站在山巅情不自禁发出的欢呼，而来到这里，你或许真的会这样做。幽鹤国家公园建于1886年，位于加拿大不列颠哥伦比亚省，以其峻峭的悬崖、冰川湖泊与雷鸣般的瀑布而闻名。作为加拿大第二古老的国家公园，它也是加拿大落基山国家公园世界遗产地的一部分。整个公园占地1,313 平方公里，其中的伯吉斯页岩化石遗址保存了逾5亿年前的海洋生物，对理解早期生物演化历程具有不可替代的科研价值。
+
+“Yoho”一词源自克里族语言，意为“惊叹”或“敬畏”，这一名称恰如其分地表达了公园内冰原广布、高峰耸立的壮观景致，堪称加拿大落基山脉中最令人瞩目的自然奇观之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b9%bd%e9%b9%a4%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250718_1600" "Bing Wallpaper 2025 7月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250719_YohoNP"&FORM=HPQUIZ "必应主页测验 2025 7月 19")
+[下载480](https://cn.bing.com/th?id=OHR.YohoNP_ZH-CN2349599497_800x480.jpg&rf=LaDigue_800x480.jpg "幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.YohoNP_ZH-CN2349599497_1280x720.jpg&rf=LaDigue_1280x720.jpg "幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.YohoNP_ZH-CN2349599497_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.YohoNP_ZH-CN2349599497_UHD.jpg&rf=LaDigue_UHD.jpg "幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大")
+
+---
 ### 07月18日：一切准备就绪，等待日落
 #### 塞里雅兰瀑布日落美景，冰岛（© Tom Mackie/AWL/plainpicture）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_1280x720.jpg&rf=LaDigue_1280x720.jpg "Cize-Bolozon viaduct crossing the Ain gorge, France")
 [下载1080](https://cn.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Cize-Bolozon viaduct crossing the Ain gorge, France")
 [下载UHD](https://cn.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_UHD.jpg&rf=LaDigue_UHD.jpg "Cize-Bolozon viaduct crossing the Ain gorge, France")
-
----
-### 07月04日：水、空气、岩石
-#### 奥罗塞，撒丁岛，意大利（© EyeEm Mobile GmbH/Getty Images）
-
-![水、空气、岩石](https://cn.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_800x480.jpg&rf=LaDigue_800x480.jpg "水、空气、岩石")
-
-此刻，我们置身于意大利撒丁岛东部奥罗塞湾的一处瑰宝卡拉卢纳，坐落于第勒尼安海之滨。大自然在此将岩石雕琢成面向大海的隐秘洞穴，正如今日图片所示，湛蓝海水悄然渗入石窟，在石灰岩墙上投射出光影交织的图案。金色沙滩与天然阴影交错，地中海的微风带来咸香气息，海浪轻拍岩岸，低语着亘古不变的旋律。被岩洞环抱的这片海滩仿若人间秘境，陆地与海洋在此交汇，构成一幅和谐而独特的自然画卷。清澈海水邀请人们畅游其中，峭壁巍峨静立，见证岁月流转。卡拉卢纳不仅是一处地理位置，更是一段自然的诗篇：海浪拍击古老岩石的低语，金色阳光在水面上的短暂停留，共同诉说着海洋以超越语言的方式，留下的恒久故事。
-
-奥罗塞虽小，却汇聚了撒丁岛“原貌”的精华：壮丽的历史、隐秘的海湾，以及壮阔的大自然。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%92%92%e4%b8%81%e5%b2%9b%e5%a5%a5%e7%bd%97%e5%a1%9e&form=hpcapt&filters=HpDate:"20250703_1600" "Bing Wallpaper 2025 7月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250704_OroseiSardegna"&FORM=HPQUIZ "必应主页测验 2025 7月 4")
-[下载480](https://cn.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_800x480.jpg&rf=LaDigue_800x480.jpg "奥罗塞，撒丁岛，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥罗塞，撒丁岛，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥罗塞，撒丁岛，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_UHD.jpg&rf=LaDigue_UHD.jpg "奥罗塞，撒丁岛，意大利")
 
 ---
