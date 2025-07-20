@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月21日：海洋中的热带雨林
+#### 浅海中的鹿角珊瑚（© blue-sea.cz/Shutterstock）
+
+![海洋中的热带雨林](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_800x480.jpg&rf=LaDigue_800x480.jpg "海洋中的热带雨林")
+
+每年七月的第三周被定为珊瑚礁意识周，旨在提醒人们：在广袤海洋的表层之下，存在一个生态复杂度堪比热带雨林的系统。尽管珊瑚礁仅覆盖不到1%的海底面积，却孕育了约25%的海洋生物。以今日图片中的鹿角珊瑚为例，这类珊瑚构成了关键的生态基底，为众多海洋物种提供庇护和栖息空间。这些生态系统不仅维系着海洋生物多样性，也在缓冲海岸侵蚀方面发挥重要作用，并通过旅游业与渔业促进沿海地区经济发展。
+
+珊瑚斑斓的色彩来源于其体内共生的微小藻类。这些藻类不仅赋予珊瑚颜色，还通过光合作用为其提供所需的营养物质。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8f%8a%e7%91%9a%e7%a4%81%e5%ae%a3%e4%bc%a0%e5%91%a8&form=hpcapt&filters=HpDate:"20250720_1600" "Bing Wallpaper 2025 7月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250721_AcroporaReef"&FORM=HPQUIZ "必应主页测验 2025 7月 21")
+[下载480](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_800x480.jpg&rf=LaDigue_800x480.jpg "浅海中的鹿角珊瑚")
+[下载720](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_1280x720.jpg&rf=LaDigue_1280x720.jpg "浅海中的鹿角珊瑚")
+[下载1080](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "浅海中的鹿角珊瑚")
+[下载UHD](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_UHD.jpg&rf=LaDigue_UHD.jpg "浅海中的鹿角珊瑚")
+
+---
 ### 07月20日：在月光下起舞
 #### 望远镜下的月球表面照片（© Sergey Kuznetsov/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_1280x720.jpg&rf=LaDigue_1280x720.jpg "潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_UHD.jpg&rf=LaDigue_UHD.jpg "潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰")
-
----
-### 07月06日：时光沙丘
-#### 死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国（© Bryan Jolley/TANDEM Stills + Motion）
-
-![时光沙丘](https://cn.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_800x480.jpg&rf=LaDigue_800x480.jpg "时光沙丘")
-
-梅斯基特平原沙丘位于死亡谷国家公园内的斯托夫派普韦尔斯村附近，是公园内最易到达且最具标志性的沙丘。它们由北侧山脉风化提供的沙源、盛行风的搬运作用，以及南侧山脉的阻挡所共同作用形成，造就了这片波纹起伏的壮美景观。沙丘以在恶劣环境中依旧顽强生长的蜜荆树命名。在日出和日落时分，沙丘的纹理和棱线在光影映照下格外分明，是欣赏日照美景与星空观测的绝佳地点。
-
-梅斯基特平原沙丘以日出和日落时分的壮丽阴影而闻名，那时沙丘上的波纹和棱线在光线的映照下显得更加分明。这里也是观测死亡谷著名漆黑夜空的绝佳地点。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%ad%bb%e4%ba%a1%e8%b0%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250705_1600" "Bing Wallpaper 2025 7月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250706_MesquiteFlats"&FORM=HPQUIZ "必应主页测验 2025 7月 6")
-[下载480](https://cn.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_800x480.jpg&rf=LaDigue_800x480.jpg "死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_1280x720.jpg&rf=LaDigue_1280x720.jpg "死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_UHD.jpg&rf=LaDigue_UHD.jpg "死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国")
 
 ---
