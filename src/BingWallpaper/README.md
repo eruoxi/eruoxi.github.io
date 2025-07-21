@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月22日：天山上的蓝宝石
+#### 夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区（© Feng Wei Photography/Getty Images）
+
+![天山上的蓝宝石](https://cn.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_800x480.jpg&rf=LaDigue_800x480.jpg "天山上的蓝宝石")
+
+大暑是中国传统农历的第十二个节气，也是夏季的最后一个节气，象征着“暑气逼人”——一年中阳光最强烈、气温最热、湿度最高的时期。炎炎夏日来临，何不逃离尘嚣，前往新疆天山附近赛里木湖畔的绝美风景区呢？
+
+赛里木湖原本没有鱼，1998年从俄罗斯引进高白鲑、凹目白鲑等冷水鱼养殖，2000年首次捕捞成品鱼，结束了赛里木湖不产鱼的历史，经过十年的发展，已成为新疆重要的冷水鱼生产基地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%b0%e7%96%86%e8%b5%9b%e9%87%8c%e6%9c%a8%e6%b9%96&form=hpcapt&filters=HpDate:"20250721_1600" "Bing Wallpaper 2025 7月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250722_GreatHeatY25"&FORM=HPQUIZ "必应主页测验 2025 7月 22")
+[下载480](https://cn.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_800x480.jpg&rf=LaDigue_800x480.jpg "夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区")
+[下载720](https://cn.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_1280x720.jpg&rf=LaDigue_1280x720.jpg "夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区")
+[下载1080](https://cn.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区")
+[下载UHD](https://cn.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_UHD.jpg&rf=LaDigue_UHD.jpg "夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区")
+
+---
 ### 07月21日：海洋中的热带雨林
 #### 浅海中的鹿角珊瑚（© blue-sea.cz/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_UHD.jpg&rf=LaDigue_UHD.jpg "塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利")
-
----
-### 07月07日：闪电俯冲、水花四溅，然后开吃
-#### 潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰（© Richard Shucksmith/Minden Pictures）
-
-![闪电俯冲、水花四溅，然后开吃](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_800x480.jpg&rf=LaDigue_800x480.jpg "闪电俯冲、水花四溅，然后开吃")
-
-优雅、有力，且令人难以忽视的北方鲣鸟是北大西洋海域体型最大的海鸟之一。它们大部分时间都在辽阔的海面上滑翔，只有在繁殖季节才会返回陆地。这些海鸟以其庞大而喧嚣的繁殖群体著称，被称为“鲣鸟群”，通常选择在陡峭悬崖、偏远岩岛，或突兀于海中的海蚀柱上筑巢。
-
-这些羽毛具备防水特性，使得该类鸟能够在水中停留较长时间。羽毛表面覆盖着一种由皮脂腺分泌的防水物质，鸟类通常会用喙或头部将其涂抹至全身。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%96%b9%e9%b2%a3%e9%b8%9f&form=hpcapt&filters=HpDate:"20250706_1600" "Bing Wallpaper 2025 7月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250707_ShetlandGannets"&FORM=HPQUIZ "必应主页测验 2025 7月 7")
-[下载480](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_800x480.jpg&rf=LaDigue_800x480.jpg "潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰")
-[下载720](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_1280x720.jpg&rf=LaDigue_1280x720.jpg "潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_UHD.jpg&rf=LaDigue_UHD.jpg "潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰")
 
 ---
