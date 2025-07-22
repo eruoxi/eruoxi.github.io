@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月23日：城中之国
+#### 梵蒂冈城与圣彼得大教堂，罗马，意大利（© RudyBalasko/Getty Images）
+
+![城中之国](https://cn.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_800x480.jpg&rf=LaDigue_800x480.jpg "城中之国")
+
+在意大利罗马市中心，有一个独立的国家：梵蒂冈城国。这个国家仅有 121 英亩，是世界上最小的独立国家，但其影响力却跨越了数个世纪和各大洲。作为教皇的居所和罗马天主教的精神中心，这座城墙环绕的飞地融合了艺术、历史与信仰。梵蒂冈城的核心地标是圣彼得大教堂，这座文艺复兴时期的建筑被普遍认为建于耶稣门徒、第一任罗马主教圣彼得的安葬地之上。今日图片中远景所示即为其雄伟的穹顶，也是世界上最大的教堂之一。大教堂前的圣彼得广场是教皇祝福仪式和宗教聚会的重要场所，每年吸引大量信众前来朝圣。此外，梵蒂冈博物馆与西斯廷礼拜堂也是不可错过的文化遗产，后者天顶画由米开朗基罗绘制，堪称艺术巅峰。尽管面积狭小，梵蒂冈城国却拥有独立的行政体系，包括邮政、电话系统、银行以及货币发行权。它虽非欧盟成员国，却发行专属欧元硬币。
+
+1984年，联合国教科文组织将梵蒂冈城国列入《世界遗产名录》，它也是全球唯一一个以整个国家形式入选的世界遗产。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a2%b5%e8%92%82%e5%86%88%e5%9f%8e&form=hpcapt&filters=HpDate:"20250722_1600" "Bing Wallpaper 2025 7月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250723_VaticanCity"&FORM=HPQUIZ "必应主页测验 2025 7月 23")
+[下载480](https://cn.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_800x480.jpg&rf=LaDigue_800x480.jpg "梵蒂冈城与圣彼得大教堂，罗马，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_1280x720.jpg&rf=LaDigue_1280x720.jpg "梵蒂冈城与圣彼得大教堂，罗马，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梵蒂冈城与圣彼得大教堂，罗马，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_UHD.jpg&rf=LaDigue_UHD.jpg "梵蒂冈城与圣彼得大教堂，罗马，意大利")
+
+---
 ### 07月22日：天山上的蓝宝石
 #### 夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区（© Feng Wei Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_1280x720.jpg&rf=LaDigue_1280x720.jpg "宪法火车站，布宜诺斯艾利斯，阿根廷")
 [下载1080](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "宪法火车站，布宜诺斯艾利斯，阿根廷")
 [下载UHD](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_UHD.jpg&rf=LaDigue_UHD.jpg "宪法火车站，布宜诺斯艾利斯，阿根廷")
-
----
-### 07月08日：锋芒毕露的美
-#### 塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利（© Kalyakan/Adobe Stock）
-
-![锋芒毕露的美](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_800x480.jpg&rf=LaDigue_800x480.jpg "锋芒毕露的美")
-
-意大利多洛米蒂山脉不仅雄伟耸立，更如施展魔法般，使每一条山路都变成一个故事。人们亲切地称它们为“苍白山脉”，这一名字源自其主要构成矿物白云石。这片山脉坐落于意大利北部阿尔卑斯山脉，占地超过34.5万英亩，拥有18座海拔超过9,500英尺的高峰。其地貌特征包括陡峭的悬崖、雄伟的岩壁和蜿蜒狭窄的山谷。
-
-塞切达位于瓦尔加迪纳山谷向阳的一侧，冬季可欣赏令人惊叹的美景，是一个应有尽有的滑雪胜地。夏季，这里为游客提供了无限的户外活动机会。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%9a%e6%b4%9b%e7%b1%b3%e8%92%82%e5%b1%b1%e8%84%89&form=hpcapt&filters=HpDate:"20250707_1600" "Bing Wallpaper 2025 7月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250708_SecedaPeak"&FORM=HPQUIZ "必应主页测验 2025 7月 8")
-[下载480](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_800x480.jpg&rf=LaDigue_800x480.jpg "塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_UHD.jpg&rf=LaDigue_UHD.jpg "塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利")
 
 ---
