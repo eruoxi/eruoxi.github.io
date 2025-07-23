@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月24日：物以类聚，鸟以群分
+#### 栖息在树枝上的灰燕鵙家族（© Captain Skyhigh/Getty Images）
+
+![物以类聚，鸟以群分](https://cn.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_800x480.jpg&rf=LaDigue_800x480.jpg "物以类聚，鸟以群分")
+
+你是否还记得那个怂恿你爬上最高树的表兄，或者在家庭聚会上悄悄帮你多拿一块蛋糕的堂妹？今天，正是感激这些儿时玩伴的日子，表兄妹常常处于兄弟姐妹与朋友之间的独特位置，一起惹祸、分享彼此才懂的玩笑，总是在每次家庭聚会中如影随形。这样的情感纽带，也许会因时间与空间的拉远而变得稀疏，但却极少彻底消散。在自然界中，能够如此生动体现这种亲密联系的，正是今日图片中所展示的灰燕鵙。这种鸟类原产于南亚，具有显著的群居性。它们很少独自行动，常常集群栖息在光秃的树枝或电线等高处。从这些制高点，它们一跃而起，在空中灵巧飞行，优雅地捕食飞虫，展现出与生俱来的协调与默契。
+
+灰燕鵙是所有雨燕中体型最大，生活在新几内亚高达9,800英尺的高地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%81%b0%e7%87%95%e9%b5%99&form=hpcapt&filters=HpDate:"20250723_1600" "Bing Wallpaper 2025 7月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250724_AshyWoodswallow"&FORM=HPQUIZ "必应主页测验 2025 7月 24")
+[下载480](https://cn.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_800x480.jpg&rf=LaDigue_800x480.jpg "栖息在树枝上的灰燕鵙家族")
+[下载720](https://cn.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_1280x720.jpg&rf=LaDigue_1280x720.jpg "栖息在树枝上的灰燕鵙家族")
+[下载1080](https://cn.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "栖息在树枝上的灰燕鵙家族")
+[下载UHD](https://cn.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_UHD.jpg&rf=LaDigue_UHD.jpg "栖息在树枝上的灰燕鵙家族")
+
+---
 ### 07月23日：城中之国
 #### 梵蒂冈城与圣彼得大教堂，罗马，意大利（© RudyBalasko/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴哈马的绿松石色水域")
 [下载1080](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴哈马的绿松石色水域")
 [下载UHD](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_UHD.jpg&rf=LaDigue_UHD.jpg "巴哈马的绿松石色水域")
-
----
-### 07月09日：具有纪念意义的火车站
-#### 宪法火车站，布宜诺斯艾利斯，阿根廷（© Grafissimo/Getty Images）
-
-![具有纪念意义的火车站](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_800x480.jpg&rf=LaDigue_800x480.jpg "具有纪念意义的火车站")
-
-今天是阿根廷的独立日。这片拥有辽阔潘帕斯草原、丰富文化遗产与鲜明民族认同的南美国家，于1816年在图库曼省圣米格尔市正式宣告独立，摆脱西班牙的殖民统治。通往独立的道路充满挑战，伴随着长期内战与政治动荡；而阿根廷的独立运动也深受美国和法国独立运动的影响。最终，阿根廷人民以坚定不移的意志赢得了国家的自由。
-
-2021年，这座火车站被授予国家历史纪念碑的遗产称号。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e5%ae%9c%e8%af%ba%e6%96%af%e8%89%be%e5%88%a9%e6%96%af&form=hpcapt&filters=HpDate:"20250708_1600" "Bing Wallpaper 2025 7月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250709_ConstitucionStation"&FORM=HPQUIZ "必应主页测验 2025 7月 9")
-[下载480](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_800x480.jpg&rf=LaDigue_800x480.jpg "宪法火车站，布宜诺斯艾利斯，阿根廷")
-[下载720](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_1280x720.jpg&rf=LaDigue_1280x720.jpg "宪法火车站，布宜诺斯艾利斯，阿根廷")
-[下载1080](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "宪法火车站，布宜诺斯艾利斯，阿根廷")
-[下载UHD](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_UHD.jpg&rf=LaDigue_UHD.jpg "宪法火车站，布宜诺斯艾利斯，阿根廷")
 
 ---
