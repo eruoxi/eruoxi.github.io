@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月25日：生活的画卷
+#### 大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙（© Marco Bottigelli/Getty Images）
+
+![生活的画卷](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_800x480.jpg&rf=LaDigue_800x480.jpg "生活的画卷")
+
+如果你渴望在这个夏天探索一片遥远的风景，不妨跟随我们的步伐，走进拉斯帕尔马斯。这座充满活力的城市是加那利群岛的两大首府之一，同时也是群岛中人口最多的城市。加那利群岛隶属于西班牙，位于大西洋之上，而拉斯帕尔马斯坐落于大加那利岛东北海岸，拥有超过38万居民，是该地区重要的港口及商业中心。从空中俯瞰，这座城市色彩斑斓的建筑为像圣胡安山这样的社区增添了鲜明的层次感，这里的房屋依山而建。拉斯帕尔马斯建于1478年，历史底蕴深厚，曾受到西班牙殖民、海上贸易与移民潮的多重影响。如今，它以典型的亚热带沙漠气候闻名，冬季平均气温约16摄氏度，夏季则在27摄氏度左右。同时，这里还拥有被誉为欧洲最佳城市海滩之一的拉斯坎特拉斯海滩。
+
+拉斯帕尔马斯狂欢节是吸引游客的主要看点之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e5%8a%a0%e9%82%a3%e5%88%a9%e5%b2%9b%e6%8b%89%e6%96%af%e5%b8%95%e5%b0%94%e9%a9%ac%e6%96%af&form=hpcapt&filters=HpDate:"20250724_1600" "Bing Wallpaper 2025 7月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250725_LasPalmas"&FORM=HPQUIZ "必应主页测验 2025 7月 25")
+[下载480](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_800x480.jpg&rf=LaDigue_800x480.jpg "大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_1280x720.jpg&rf=LaDigue_1280x720.jpg "大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_UHD.jpg&rf=LaDigue_UHD.jpg "大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙")
+
+---
 ### 07月24日：物以类聚，鸟以群分
 #### 栖息在树枝上的灰燕鵙家族（© Captain Skyhigh/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的东京，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的东京，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的东京，日本")
-
----
-### 07月10日：奔向自由之浪
-#### 巴哈马的绿松石色水域（© BlueOrange Studio/Adobe Stock）
-
-![奔向自由之浪](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_800x480.jpg&rf=LaDigue_800x480.jpg "奔向自由之浪")
-
-今天，巴哈马以缤纷的色彩、音乐与自豪感迎来国家独立日的庆祝。1492年，克里斯托弗·哥伦布首次抵达这些岛屿，自此被欧洲人记录在案。最初，这些岛屿处于西班牙统治之下，之后曾短暂由美国控制，随后成为英国殖民地。经过数十年的法律谈判与日益高涨的自治诉求，巴哈马最终于1973年7月10日实现完全独立。
-
-虽然巴哈马在1973年获得独立，但英国君主仍为其国家元首。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e5%93%88%e9%a9%ac&form=hpcapt&filters=HpDate:"20250709_1600" "Bing Wallpaper 2025 7月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250710_BahamaBlues"&FORM=HPQUIZ "必应主页测验 2025 7月 10")
-[下载480](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_800x480.jpg&rf=LaDigue_800x480.jpg "巴哈马的绿松石色水域")
-[下载720](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴哈马的绿松石色水域")
-[下载1080](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴哈马的绿松石色水域")
-[下载UHD](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_UHD.jpg&rf=LaDigue_UHD.jpg "巴哈马的绿松石色水域")
 
 ---
