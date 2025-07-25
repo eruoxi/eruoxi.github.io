@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月26日：潮汐的守护者
+#### 黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚（© Boonchet Ch./Getty Images）
+
+![潮汐的守护者](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_800x480.jpg&rf=LaDigue_800x480.jpg "潮汐的守护者")
+
+当暮色降临印度尼西亚松巴岛的瓦拉基里海滩时，红树林的剪影宛如潮汐中的哨兵般矗立，既优雅又坚韧，充满生命力。今天是国际红树林生态系统保护日，让我们向这些在维系地球生命中发挥至关重要作用的非凡树木致以敬意。
+
+目前，据估计，在过去40年间，全球红树林的覆盖面积已减少了一半。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bf%9d%e6%8a%a4%e7%ba%a2%e6%a0%91%e6%9e%97%e7%94%9f%e6%80%81%e7%b3%bb%e7%bb%9f%e5%9b%bd%e9%99%85%e6%97%a5&form=hpcapt&filters=HpDate:"20250725_1600" "Bing Wallpaper 2025 7月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250726_MangroveTwilight"&FORM=HPQUIZ "必应主页测验 2025 7月 26")
+[下载480](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_800x480.jpg&rf=LaDigue_800x480.jpg "黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_UHD.jpg&rf=LaDigue_UHD.jpg "黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚")
+
+---
 ### 07月25日：生活的画卷
 #### 大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙（© Marco Bottigelli/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_1280x720.jpg&rf=LaDigue_1280x720.jpg "汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_UHD.jpg&rf=LaDigue_UHD.jpg "汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚")
-
----
-### 07月11日：把我们都算上
-#### 日出时的东京，日本（© pongnathee kluaythong/Getty Images）
-
-![把我们都算上](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_800x480.jpg&rf=LaDigue_800x480.jpg "把我们都算上")
-
-我们生活的地球早已人满为患，并且仍在不断变得更加拥挤。目前全球人口已达82亿，且呈持续增长之势。世界人口日旨在引发人们对人口增长如何影响城市发展、粮食供给与未来前景的思考。该纪念日设立于1989年，聚焦于不受控的人口增长对可持续性带来的影响，其灵感源自1987年全球人口首次突破50亿的“50亿人口日”。随着城市不断扩张，绿地面积减少，农业也在有限的土地和水资源中展开竞争。然而前路并非无解：通过教育投资、改善医疗可及性，以及建设更智慧的城市，人口增长与可持续发展之间可以实现平衡。
-
-在过去三十年间，世界各地的社会在人口数据的收集、分析与使用方面取得了显著进步。如今的人口数据可以按年龄、族裔、性别及其他因素进行细致划分，更加准确地反映出我们社会的多样性。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e4%ba%ba%e5%8f%a3%e6%97%a5&form=hpcapt&filters=HpDate:"20250710_1600" "Bing Wallpaper 2025 7月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250711_TokyoSunrise"&FORM=HPQUIZ "必应主页测验 2025 7月 11")
-[下载480](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_800x480.jpg&rf=LaDigue_800x480.jpg "日出时的东京，日本")
-[下载720](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的东京，日本")
-[下载1080](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的东京，日本")
-[下载UHD](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的东京，日本")
 
 ---
