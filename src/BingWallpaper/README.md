@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月27日：同步闪耀
+#### 黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及（© Alex Mustard/Nature Picture Library）
+
+![同步闪耀](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_800x480.jpg&rf=LaDigue_800x480.jpg "同步闪耀")
+
+在埃及拉斯穆罕默德国家公园的鲨鱼礁，当你遇见一群黑鳍梭鱼时，就仿佛被一圈银色的漩涡所环绕。这些体型流畅、带有明显V形条纹的鱼类，几乎以完美的同步移动。它们缓慢而有序地盘旋，并非随意而为，而是进化出的行为策略，既可保障群体安全，也能在捕猎时占据优势。黑鳍梭鱼广泛分布于热带海域，从红海一直延伸至中太平洋。白天，它们在珊瑚礁附近紧密集结成群，黄昏时才会分散，追逐猎物。
+
+拉斯穆罕默德国家公园栖息着超过1,000种鱼类、40种海星、25种海胆、100多种软体动物以及150种甲壳类动物。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%8b%89%e6%96%af%e7%a9%86%e7%bd%95%e9%bb%98%e5%be%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250726_1600" "Bing Wallpaper 2025 7月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250727_BlackfinBarracuda"&FORM=HPQUIZ "必应主页测验 2025 7月 27")
+[下载480](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_800x480.jpg&rf=LaDigue_800x480.jpg "黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及")
+[下载720](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及")
+[下载1080](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及")
+[下载UHD](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_UHD.jpg&rf=LaDigue_UHD.jpg "黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及")
+
+---
 ### 07月26日：潮汐的守护者
 #### 黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚（© Boonchet Ch./Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛")
 [下载1080](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_UHD.jpg&rf=LaDigue_UHD.jpg "卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛")
-
----
-### 07月12日：跟随妈妈的脚步
-#### 汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚（© Gallo Images/DanitaDelimont.com）
-
-![跟随妈妈的脚步](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_800x480.jpg&rf=LaDigue_800x480.jpg "跟随妈妈的脚步")
-
-在肯尼亚西南部的马赛马拉稀树草原上，金色阳光洒落大地，野生动物穿梭其间，形成一幅动人画面。这片草原上野生动物众多，有在灌木丛中漫步的大象，地平线上搜寻猎物的猎豹等。然而，真正吸引目光的，往往是那些体型较小却灵动可爱的动物，比如今日图片中的汤氏瞪羚。
-
-2016年迪士尼动画电影《疯狂动物城》中，一位拟人化的流行歌手“汤氏瞪羚”由歌手夏奇拉配音，令人印象深刻。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b1%a4%e6%b0%8f%e7%9e%aa%e7%be%9a&form=hpcapt&filters=HpDate:"20250711_1600" "Bing Wallpaper 2025 7月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250712_ThomsonGazelle"&FORM=HPQUIZ "必应主页测验 2025 7月 12")
-[下载480](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_800x480.jpg&rf=LaDigue_800x480.jpg "汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_1280x720.jpg&rf=LaDigue_1280x720.jpg "汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_UHD.jpg&rf=LaDigue_UHD.jpg "汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚")
 
 ---
