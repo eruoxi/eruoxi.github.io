@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月28日：领先一步
+#### 蒙古草原上的蒙古包（© Michel Arnault/Shutterstock）
+
+![领先一步](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_800x480.jpg&rf=LaDigue_800x480.jpg "领先一步")
+
+每年7月28日的世界自然保护日提醒我们，保护自然不是可有可无的选择，而是一种必要的责任。今日图片所介绍的蒙古广袤草原正是这一理念的有力证明。这些生态系统是地球上最大且保持相对完整的温带草原之一，绵延数百万英亩的开阔土地。它们不仅养育了大约20万游牧牧民家庭，也为蒙古黄羊、雪豹等珍稀物种提供了重要的栖息地。
+
+冬季，草原上的草变得干燥且极易燃烧，使得野火更加频繁。草在火灾后通常能迅速恢复，但树木却无法如此，这在一定程度上解释了该地区树木稀少的原因。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e8%87%aa%e7%84%b6%e4%bf%9d%e6%8a%a4%e6%97%a5&form=hpcapt&filters=HpDate:"20250727_1600" "Bing Wallpaper 2025 7月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250728_MongoliaYurts"&FORM=HPQUIZ "必应主页测验 2025 7月 28")
+[下载480](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_800x480.jpg&rf=LaDigue_800x480.jpg "蒙古草原上的蒙古包")
+[下载720](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒙古草原上的蒙古包")
+[下载1080](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙古草原上的蒙古包")
+[下载UHD](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_UHD.jpg&rf=LaDigue_UHD.jpg "蒙古草原上的蒙古包")
+
+---
 ### 07月27日：同步闪耀
 #### 黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及（© Alex Mustard/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_1280x720.jpg&rf=LaDigue_1280x720.jpg "加利西亚海域游弋的幼年大青鲨，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加利西亚海域游弋的幼年大青鲨，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_UHD.jpg&rf=LaDigue_UHD.jpg "加利西亚海域游弋的幼年大青鲨，西班牙")
-
----
-### 07月13日：层层叠叠的岩石
-#### 卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛（© Arterra Picture Library/Alamy Stock Photo）
-
-![层层叠叠的岩石](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_800x480.jpg&rf=LaDigue_800x480.jpg "层层叠叠的岩石")
-
-你觉得岩石只是……岩石吗？这些天然的矿物组合不仅仅只是静静地待在原地，它们是地球地壳的基本组成单位，从石器时代的工具到为现代文明提供动力的矿物，岩石在人类发展史中发挥了重要作用。国际岩石日的设立，正是为了庆祝岩石在自然界及人类社会中的深远影响，激发公众对地质科学的兴趣，并鼓励人们欣赏岩石所展现的自然之美与多样性。
-
-玄武岩是火星表面常见的岩石类型之一，这一事实已通过来自火星探测任务的数据与陨石分析得到了证实。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b2%a9%e7%9f%b3%e5%9c%b0%e8%b4%a8%e5%ad%a6&form=hpcapt&filters=HpDate:"20250712_1600" "Bing Wallpaper 2025 7月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250713_BasaltColumns"&FORM=HPQUIZ "必应主页测验 2025 7月 13")
-[下载480](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_800x480.jpg&rf=LaDigue_800x480.jpg "卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛")
-[下载720](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛")
-[下载1080](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_UHD.jpg&rf=LaDigue_UHD.jpg "卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛")
 
 ---
