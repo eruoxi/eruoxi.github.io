@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月29日：丛林女王
+#### 雌性孟加拉虎，坎哈国家公园，印度（© Axel Gomille/Nature Picture Library）
+
+![丛林女王](https://cn.bing.com/th?id=OHR.TigerDay_ZH-CN4359136631_800x480.jpg&rf=LaDigue_800x480.jpg "丛林女王")
+
+你觉得自己能听到寂静吗？试着坐在印度心脏地带的坎哈国家公园的吉普车里，静静等待一只孟加拉虎现身。每年的国际老虎日都会引发人们对这种强大却濒危的大型猫科动物的关注。孟加拉虎不仅因其醒目的橙色皮毛和黑色条纹而闻名，更是顶级掠食者，对其所栖息生态系统的健康与平衡至关重要。通过控制鹿和野猪等猎物的数量，老虎帮助维护植被格局，并支撑其环境的整体生物多样性。
+
+老虎是印度河流域文明帕苏帕提印章上的动物之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e8%80%81%e8%99%8e%e6%97%a5&form=hpcapt&filters=HpDate:"20250728_1600" "Bing Wallpaper 2025 7月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250729_TigerDay"&FORM=HPQUIZ "必应主页测验 2025 7月 29")
+[下载480](https://cn.bing.com/th?id=OHR.TigerDay_ZH-CN4359136631_800x480.jpg&rf=LaDigue_800x480.jpg "雌性孟加拉虎，坎哈国家公园，印度")
+[下载720](https://cn.bing.com/th?id=OHR.TigerDay_ZH-CN4359136631_1280x720.jpg&rf=LaDigue_1280x720.jpg "雌性孟加拉虎，坎哈国家公园，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.TigerDay_ZH-CN4359136631_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雌性孟加拉虎，坎哈国家公园，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.TigerDay_ZH-CN4359136631_UHD.jpg&rf=LaDigue_UHD.jpg "雌性孟加拉虎，坎哈国家公园，印度")
+
+---
 ### 07月28日：领先一步
 #### 蒙古草原上的蒙古包（© Michel Arnault/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_1280x720.jpg&rf=LaDigue_1280x720.jpg "英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_UHD.jpg&rf=LaDigue_UHD.jpg "英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国")
-
----
-### 07月14日：追逐海浪，掀起潮汐
-#### 加利西亚海域游弋的幼年大青鲨，西班牙（© Damocean/Getty Images）
-
-![追逐海浪，掀起潮汐](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_800x480.jpg&rf=LaDigue_800x480.jpg "追逐海浪，掀起潮汐")
-
-鲨鱼在地球上的历史可追溯至4亿年前，它们早于恐龙出现，并在历经冰河时期及多次生物大灭绝后依然顽强存续，成为海洋生态系统中不可或缺的一环。鲨鱼被视为健康海洋的指标物种，因此每年“鲨鱼意识日”的设立，正是为了提升公众对鲨鱼生态重要性的认知。作为海洋食物链顶端的掠食者，鲨鱼有助于维持物种平衡，其保护关系到整个海洋生态的可持续性。然而，当前多种鲨鱼面临灭绝危机，这一天也提醒人们采取行动，避免这些古老生物从海洋中消失。
-
-大青鲨与真鲨科其他成员一样，具备五种核心感官：视觉、听觉、侧线感知、化学感知以及电感知。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e9%9d%92%e9%b2%a8&form=hpcapt&filters=HpDate:"20250713_1600" "Bing Wallpaper 2025 7月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250714_YoungShark"&FORM=HPQUIZ "必应主页测验 2025 7月 14")
-[下载480](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_800x480.jpg&rf=LaDigue_800x480.jpg "加利西亚海域游弋的幼年大青鲨，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_1280x720.jpg&rf=LaDigue_1280x720.jpg "加利西亚海域游弋的幼年大青鲨，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加利西亚海域游弋的幼年大青鲨，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_UHD.jpg&rf=LaDigue_UHD.jpg "加利西亚海域游弋的幼年大青鲨，西班牙")
 
 ---
