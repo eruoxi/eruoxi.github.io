@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月30日：理想的世界！
+#### 里瓦德塞利亚，阿斯图里亚斯，西班牙（© Agnieszka Glowala/Getty Images）
+
+![理想的世界！](https://cn.bing.com/th?id=OHR.RibadesellaSummer_ZH-CN4852547359_800x480.jpg&rf=LaDigue_800x480.jpg "理想的世界！")
+
+在这个夏天，阿斯图里亚斯以其独特的景观迎接你的到来。里瓦德塞利亚崎岖壮丽的海岸线分布着圣玛丽娜和瓜达米亚等海滩，海与山在此交汇，勾勒出独一无二的景观。附近的世界遗产提托·布斯蒂略洞穴，洞壁画距今已有14000多年，为你开启一段跨越时空的探索之旅。
+
+里瓦德塞利亚位于西班牙阿斯图里亚斯，这里有著名的提托·布斯蒂略洞穴，该洞因史前动物与人物岩画而闻名，被列入联合国教科文组织世界遗产“西班牙北部旧石器时代洞穴艺术”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%87%8c%e7%93%a6%e5%be%b7%e5%a1%9e%e5%88%a9%e4%ba%9a&form=hpcapt&filters=HpDate:"20250729_1600" "Bing Wallpaper 2025 7月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250730_RibadesellaSummer"&FORM=HPQUIZ "必应主页测验 2025 7月 30")
+[下载480](https://cn.bing.com/th?id=OHR.RibadesellaSummer_ZH-CN4852547359_800x480.jpg&rf=LaDigue_800x480.jpg "里瓦德塞利亚，阿斯图里亚斯，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.RibadesellaSummer_ZH-CN4852547359_1280x720.jpg&rf=LaDigue_1280x720.jpg "里瓦德塞利亚，阿斯图里亚斯，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.RibadesellaSummer_ZH-CN4852547359_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "里瓦德塞利亚，阿斯图里亚斯，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.RibadesellaSummer_ZH-CN4852547359_UHD.jpg&rf=LaDigue_UHD.jpg "里瓦德塞利亚，阿斯图里亚斯，西班牙")
+
+---
 ### 07月29日：丛林女王
 #### 雌性孟加拉虎，坎哈国家公园，印度（© Axel Gomille/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_1280x720.jpg&rf=LaDigue_1280x720.jpg "菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及")
 [下载1080](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及")
 [下载UHD](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_UHD.jpg&rf=LaDigue_UHD.jpg "菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及")
-
----
-### 07月15日：永恒的光芒
-#### 英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国（© Wirestock Creators/Shutterstock）
-
-![永恒的光芒](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_800x480.jpg&rf=LaDigue_800x480.jpg "永恒的光芒")
-
-准备迎接一年中最耀眼的天文奇观之一英仙座流星雨吧！该流星雨每年活跃期为7月中旬至8月下旬，而今年的峰值将于8月12日夜间至13日凌晨上演璀璨盛景。当地球穿越彗星斯威夫特-塔特尔留下的冰岩碎片轨道时，形成了这一流星雨。这颗彗星上一次接近地球是在1992年。当这些尘埃颗粒以高速进入地球大气层时，会因摩擦而燃烧，划出一道道明亮的光痕。
-
-英仙座流星雨之所以得名，是因为这些流星看起来像是从英仙座方向划破夜空。“Perseids”一词源自希腊语，意为“英仙的子孙”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8b%b1%e4%bb%99%e5%ba%a7%e6%b5%81%e6%98%9f%e9%9b%a8&form=hpcapt&filters=HpDate:"20250714_1600" "Bing Wallpaper 2025 7月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250715_PerseidsPine"&FORM=HPQUIZ "必应主页测验 2025 7月 15")
-[下载480](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_800x480.jpg&rf=LaDigue_800x480.jpg "英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_1280x720.jpg&rf=LaDigue_1280x720.jpg "英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_UHD.jpg&rf=LaDigue_UHD.jpg "英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国")
 
 ---
