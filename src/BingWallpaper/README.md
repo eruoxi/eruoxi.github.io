@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月31日：远离尘嚣
+#### 纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国（© Russ Bishop/DanitaDelimont.com）
+
+![远离尘嚣](https://cn.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_800x480.jpg&rf=LaDigue_800x480.jpg "远离尘嚣")
+
+这里没有路标，也没有纪念品摊位，只有一条长达11英里的泥泞小径、险峻的峭壁以及开阔的视野，通向夏威夷最为偏远的海滩之一。卡拉劳海滩位于考艾岛卡拉劳步道的尽头，是所有辛苦徒步者最终踏上沙滩的奖赏。唯一的陆路就是这条小径，它穿越山谷，沿着海岸峭壁蜿蜒前行。夏季，一些游客会选择划皮划艇抵达，但无论采用哪种方式，所有在此停留的人都需要提前获得许可。
+
+卡拉劳海滩及其周边栖息着多样的野生动物，包括夏威夷本地鸟类、野山羊以及色彩斑斓的热带植物。
+
+[Bing搜索](https://cn.bing.com/search?q=%e2%80%8c%e5%8d%a1%e6%8b%89%e5%8a%b3%e6%b5%b7%e6%bb%a9&form=hpcapt&filters=HpDate:"20250730_1600" "Bing Wallpaper 2025 7月 31")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250731_NaPaliKauai"&FORM=HPQUIZ "必应主页测验 2025 7月 31")
+[下载480](https://cn.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_800x480.jpg&rf=LaDigue_800x480.jpg "纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_1280x720.jpg&rf=LaDigue_1280x720.jpg "纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_UHD.jpg&rf=LaDigue_UHD.jpg "纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国")
+
+---
 ### 07月30日：理想的世界！
 #### 里瓦德塞利亚，阿斯图里亚斯，西班牙（© Agnieszka Glowala/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓦朗索勒高原的薰衣草田，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦朗索勒高原的薰衣草田，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_UHD.jpg&rf=LaDigue_UHD.jpg "瓦朗索勒高原的薰衣草田，法国")
-
----
-### 07月16日：伊西斯女神的光辉照耀下
-#### 菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及（© Ratnakorn Piyasirisorost/Getty Images）
-
-![伊西斯女神的光辉照耀下](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_800x480.jpg&rf=LaDigue_800x480.jpg "伊西斯女神的光辉照耀下")
-
-菲莱神庙，常被称为伊西斯神庙，是埃及最迷人的古迹之一。它最初建在菲莱岛上，后来为避免被洪水淹没而迁至附近的阿吉勒基亚岛。这项迁移工程是20世纪60年代由联合国教科文组织发起的国际文物拯救项目，历时多年，搬运了逾4万块石块，才得以完整重建并保存这座古老神庙。如今，它坐落在尼罗河环绕的静谧之地，是乘船游览和探寻往昔的绝佳去处。
-
-菲莱岛虽小，仅长约450米、宽不足150米，却自古以来便吸引着无数前来埃及的游客。因其秀美的景致，这座小岛素有“埃及明珠”之称。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9f%83%e5%8f%8a%e9%98%bf%e6%96%af%e6%97%ba%e8%8f%b2%e8%8e%b1%e7%a5%9e%e5%ba%99&form=hpcapt&filters=HpDate:"20250715_1600" "Bing Wallpaper 2025 7月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250716_TemplePhilae"&FORM=HPQUIZ "必应主页测验 2025 7月 16")
-[下载480](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_800x480.jpg&rf=LaDigue_800x480.jpg "菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及")
-[下载720](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_1280x720.jpg&rf=LaDigue_1280x720.jpg "菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及")
-[下载1080](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及")
-[下载UHD](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_UHD.jpg&rf=LaDigue_UHD.jpg "菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及")
 
 ---
