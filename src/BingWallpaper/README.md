@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月01日：惊喜随时上演
+#### 皇家英里大道, 爱丁堡, 苏格兰（© MEDITERRANEAN/Getty Images）
+
+![惊喜随时上演](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_800x480.jpg&rf=LaDigue_800x480.jpg "惊喜随时上演")
+
+每年八月，爱丁堡就不再仅仅是一座城市，而是彻底活跃起来，几乎可以说是字面意义上的活跃。从酒吧地下室到公园长椅，舞台会在最意想不到的地方冒出来，表演也会在宁静的街道上突然出现。欢迎来到爱丁堡艺穗节。这个节日的故事始于1947年，当时有八个剧团在未受邀请的情况下出现在爱丁堡国际艺术节上，但他们依然坚持演出。这种叛逆的精神从此延续下来，艺穗节由此诞生。
+
+爱丁堡艺穗节完全向所有人开放，任何有故事想讲，并能找到愿意接纳他们的场地的人，都可以登上这个舞台。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%88%b1%e4%b8%81%e5%a0%a1%e8%89%ba%e7%a9%97%e8%8a%82&form=hpcapt&filters=HpDate:"20250731_1600" "Bing Wallpaper 2025 8月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250801_EdinburghFringe"&FORM=HPQUIZ "必应主页测验 2025 8月 1")
+[下载480](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_800x480.jpg&rf=LaDigue_800x480.jpg "皇家英里大道, 爱丁堡, 苏格兰")
+[下载720](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_1280x720.jpg&rf=LaDigue_1280x720.jpg "皇家英里大道, 爱丁堡, 苏格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "皇家英里大道, 爱丁堡, 苏格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_UHD.jpg&rf=LaDigue_UHD.jpg "皇家英里大道, 爱丁堡, 苏格兰")
+
+---
 ### 07月31日：远离尘嚣
 #### 纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国（© Russ Bishop/DanitaDelimont.com）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.IcelandSolstice_ZH-CN6073168622_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞里雅兰瀑布日落美景，冰岛")
 [下载1080](https://cn.bing.com/th?id=OHR.IcelandSolstice_ZH-CN6073168622_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞里雅兰瀑布日落美景，冰岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.IcelandSolstice_ZH-CN6073168622_UHD.jpg&rf=LaDigue_UHD.jpg "塞里雅兰瀑布日落美景，冰岛")
-
----
-### 07月17日：追随香气的地平线
-#### 瓦朗索勒高原的薰衣草田，法国（© zpagistock/Getty Images）
-
-![追随香气的地平线](https://cn.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_800x480.jpg&rf=LaDigue_800x480.jpg "追随香气的地平线")
-
-若你正在寻找一场充满芬芳的夏日旅程，法国普罗旺斯的瓦朗索勒高原无疑是理想之选。从六月下旬至七月中旬，这片高原便会被紫色花海覆盖，宛如香气四溢的天然画布。高原坐落于海拔约1,900英尺的地带，面积达约300平方英里，是法国规模最大的薰衣草种植区之一。
-
-与普罗旺斯的其他地区一样，瓦朗索勒高原受益于充足的阳光，这一气候条件不仅适合薰衣草的生长，也吸引了大量偏好自然体验的夏季游客，与偏爱地中海沿岸的游客群体形成鲜明对比。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%93%a6%e6%9c%97%e7%b4%a2%e5%8b%92%e9%ab%98%e5%8e%9f&form=hpcapt&filters=HpDate:"20250716_1600" "Bing Wallpaper 2025 7月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250717_FranceLavender"&FORM=HPQUIZ "必应主页测验 2025 7月 17")
-[下载480](https://cn.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_800x480.jpg&rf=LaDigue_800x480.jpg "瓦朗索勒高原的薰衣草田，法国")
-[下载720](https://cn.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓦朗索勒高原的薰衣草田，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦朗索勒高原的薰衣草田，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_UHD.jpg&rf=LaDigue_UHD.jpg "瓦朗索勒高原的薰衣草田，法国")
 
 ---
