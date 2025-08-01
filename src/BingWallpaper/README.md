@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月02日：古老的岩画
+#### 圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国（© Nicolas VINCENT/Adobe Stock）
+
+![古老的岩画](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_800x480.jpg&rf=LaDigue_800x480.jpg "古老的岩画")
+
+圆顶礁国家公园拥有一种亘古不变的魅力。在这里，红色的岩石峭壁、蜿蜒的峡谷与古老的故事，在犹他州沙漠的天空下彼此交织。1971年，这里被正式指定为国家公园。它不仅因鲜明的地质景观而引人驻足，更因那刻印在大地上的古老叙事与文化遗产而让人驻足沉思。
+
+圆顶礁国家公园被认为是美国所有国家公园中夜空最黑暗的地方之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%86%e9%a1%b6%e7%a4%81%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250801_1600" "Bing Wallpaper 2025 8月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250802_FruitaPetroglyphs"&FORM=HPQUIZ "必应主页测验 2025 8月 2")
+[下载480](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_800x480.jpg&rf=LaDigue_800x480.jpg "圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_1280x720.jpg&rf=LaDigue_1280x720.jpg "圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_UHD.jpg&rf=LaDigue_UHD.jpg "圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国")
+
+---
 ### 08月01日：惊喜随时上演
 #### 皇家英里大道, 爱丁堡, 苏格兰（© MEDITERRANEAN/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.YohoNP_ZH-CN2349599497_1280x720.jpg&rf=LaDigue_1280x720.jpg "幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.YohoNP_ZH-CN2349599497_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.YohoNP_ZH-CN2349599497_UHD.jpg&rf=LaDigue_UHD.jpg "幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大")
-
----
-### 07月18日：一切准备就绪，等待日落
-#### 塞里雅兰瀑布日落美景，冰岛（© Tom Mackie/AWL/plainpicture）
-
-![一切准备就绪，等待日落](https://cn.bing.com/th?id=OHR.IcelandSolstice_ZH-CN6073168622_800x480.jpg&rf=LaDigue_800x480.jpg "一切准备就绪，等待日落")
-
-这座197英尺高的瀑布从曾经标志着冰岛海岸线的悬崖峭壁倾泻而下。奔腾的瀑布是塞里雅兰河 (Seljalandsa River) 的一部分，发源于火山冰川埃亚菲亚德拉冰盖 (Eyjafjallajökull)。这座冰盖下的火山上次喷发是在2010年，对当地居民和空中交通造成了影响。游客可以走到瀑布后面的一个小洞穴，那里拥有独特的视角，也是摄影师的最爱。夜晚，泛光灯照亮了瀑布，营造出一幅梦幻般的景象。如果您计划在夏至期间度假，塞里雅兰瀑布 (Seljalandsfoss) 值得列入您的旅行清单。无论您是自然爱好者还是摄影爱好者，这次体验都将为您留下难忘的回忆。
-
-仲夏节是这里一个重要的节日，是一个庆祝一年中白天最长的节日。它在斯堪的纳维亚国家尤其受欢迎，那里的传统包括围绕五朔节花柱跳舞、盛宴和点燃篝火。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a1%9e%e9%87%8c%e9%9b%85%e5%85%b0%e7%80%91%e5%b8%83&form=hpcapt&filters=HpDate:"20250717_1600" "Bing Wallpaper 2025 7月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250718_IcelandSolstice"&FORM=HPQUIZ "必应主页测验 2025 7月 18")
-[下载480](https://cn.bing.com/th?id=OHR.IcelandSolstice_ZH-CN6073168622_800x480.jpg&rf=LaDigue_800x480.jpg "塞里雅兰瀑布日落美景，冰岛")
-[下载720](https://cn.bing.com/th?id=OHR.IcelandSolstice_ZH-CN6073168622_1280x720.jpg&rf=LaDigue_1280x720.jpg "塞里雅兰瀑布日落美景，冰岛")
-[下载1080](https://cn.bing.com/th?id=OHR.IcelandSolstice_ZH-CN6073168622_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞里雅兰瀑布日落美景，冰岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.IcelandSolstice_ZH-CN6073168622_UHD.jpg&rf=LaDigue_UHD.jpg "塞里雅兰瀑布日落美景，冰岛")
 
 ---
