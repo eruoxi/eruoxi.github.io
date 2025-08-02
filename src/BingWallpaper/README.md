@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月03日：你好，黄色！
+#### 夏天田野里盛开的向日葵（© Arsgera/Shutterstock）
+
+![你好，黄色！](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_800x480.jpg&rf=LaDigue_800x480.jpg "你好，黄色！")
+
+向日葵色彩鲜艳、姿态大胆，深受蜜蜂、鸟类以及几乎所有人的喜爱。它们的属名“Helianthus”源自希腊语，意为“太阳之花”。这些一年生植物因其硕大、形似雏菊的花朵和迷人的魅力而广受赞誉。虽然向日葵也有红色、橙色和深红色等不同品种，但最常见的仍是那些带有棕色花心的经典黄色花朵。
+
+向日葵是一种生长在开阔地带的植物，通常扎根于潮湿的土壤中。它常见于大草原及其他草地、荒地、道路两旁、铁路沿线、稀树草原以及森林边缘。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%90%91%e6%97%a5%e8%91%b5&form=hpcapt&filters=HpDate:"20250802_1600" "Bing Wallpaper 2025 8月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250803_HappySunflower"&FORM=HPQUIZ "必应主页测验 2025 8月 3")
+[下载480](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_800x480.jpg&rf=LaDigue_800x480.jpg "夏天田野里盛开的向日葵")
+[下载720](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_1280x720.jpg&rf=LaDigue_1280x720.jpg "夏天田野里盛开的向日葵")
+[下载1080](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夏天田野里盛开的向日葵")
+[下载UHD](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_UHD.jpg&rf=LaDigue_UHD.jpg "夏天田野里盛开的向日葵")
+
+---
 ### 08月02日：古老的岩画
 #### 圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国（© Nicolas VINCENT/Adobe Stock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BigMoon_ZH-CN2508603883_1280x720.jpg&rf=LaDigue_1280x720.jpg "望远镜下的月球表面照片")
 [下载1080](https://cn.bing.com/th?id=OHR.BigMoon_ZH-CN2508603883_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "望远镜下的月球表面照片")
 [下载UHD](https://cn.bing.com/th?id=OHR.BigMoon_ZH-CN2508603883_UHD.jpg&rf=LaDigue_UHD.jpg "望远镜下的月球表面照片")
-
----
-### 07月19日：化石、瀑布与林间小径
-#### 幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大（© Feng Wei Photography/Getty Images）
-
-![化石、瀑布与林间小径](https://cn.bing.com/th?id=OHR.YohoNP_ZH-CN2349599497_800x480.jpg&rf=LaDigue_800x480.jpg "化石、瀑布与林间小径")
-
-“Yoho”听起来就像是人们站在山巅情不自禁发出的欢呼，而来到这里，你或许真的会这样做。幽鹤国家公园建于1886年，位于加拿大不列颠哥伦比亚省，以其峻峭的悬崖、冰川湖泊与雷鸣般的瀑布而闻名。作为加拿大第二古老的国家公园，它也是加拿大落基山国家公园世界遗产地的一部分。整个公园占地1,313 平方公里，其中的伯吉斯页岩化石遗址保存了逾5亿年前的海洋生物，对理解早期生物演化历程具有不可替代的科研价值。
-
-“Yoho”一词源自克里族语言，意为“惊叹”或“敬畏”，这一名称恰如其分地表达了公园内冰原广布、高峰耸立的壮观景致，堪称加拿大落基山脉中最令人瞩目的自然奇观之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b9%bd%e9%b9%a4%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250718_1600" "Bing Wallpaper 2025 7月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250719_YohoNP"&FORM=HPQUIZ "必应主页测验 2025 7月 19")
-[下载480](https://cn.bing.com/th?id=OHR.YohoNP_ZH-CN2349599497_800x480.jpg&rf=LaDigue_800x480.jpg "幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.YohoNP_ZH-CN2349599497_1280x720.jpg&rf=LaDigue_1280x720.jpg "幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.YohoNP_ZH-CN2349599497_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.YohoNP_ZH-CN2349599497_UHD.jpg&rf=LaDigue_UHD.jpg "幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大")
 
 ---
