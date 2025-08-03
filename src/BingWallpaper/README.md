@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月04日：这是谁的家？
+#### 巢中的乌林鸮, 芬兰（© imageBROKER.com/Alamy Stock Photo）
+
+![这是谁的家？](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_800x480.jpg&rf=LaDigue_800x480.jpg "这是谁的家？")
+
+作为夜空中的无声猎手，猫头鹰是动物王国中最迷人的动物之一。它们能够将头部旋转多达270度，再加上无声的飞行和卓越的夜视能力，充分展现了其非凡的适应性。全球已知有200多种猫头鹰，它们在维护生态平衡中发挥着关键作用，并深深融入人类的文化传统。每年的8月4日是国际猫头鹰意识日，这一天不仅是对它们在自然界中重要角色的致敬，也是提醒人们关注它们所面临威胁的重要时刻。
+
+乌林鸮体型庞大，因而需要定期进食，在冬季，它们每天要捕食多达7只田鼠大小的小型哺乳动物。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8c%ab%e5%a4%b4%e9%b9%b0&form=hpcapt&filters=HpDate:"20250803_1600" "Bing Wallpaper 2025 8月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250804_LaplandOwl"&FORM=HPQUIZ "必应主页测验 2025 8月 4")
+[下载480](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_800x480.jpg&rf=LaDigue_800x480.jpg "巢中的乌林鸮, 芬兰")
+[下载720](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_1280x720.jpg&rf=LaDigue_1280x720.jpg "巢中的乌林鸮, 芬兰")
+[下载1080](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巢中的乌林鸮, 芬兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_UHD.jpg&rf=LaDigue_UHD.jpg "巢中的乌林鸮, 芬兰")
+
+---
 ### 08月03日：你好，黄色！
 #### 夏天田野里盛开的向日葵（© Arsgera/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_1280x720.jpg&rf=LaDigue_1280x720.jpg "浅海中的鹿角珊瑚")
 [下载1080](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "浅海中的鹿角珊瑚")
 [下载UHD](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_UHD.jpg&rf=LaDigue_UHD.jpg "浅海中的鹿角珊瑚")
-
----
-### 07月20日：在月光下起舞
-#### 望远镜下的月球表面照片（© Sergey Kuznetsov/Getty Images）
-
-![在月光下起舞](https://cn.bing.com/th?id=OHR.BigMoon_ZH-CN2508603883_800x480.jpg&rf=LaDigue_800x480.jpg "在月光下起舞")
-
-每年7月20日是国家月球日，纪念1969年尼尔·阿姆斯特朗首次踏上月球这一具有历史意义的时刻。他的那句宣言：“这是我个人的一小步，却是人类的一大步”，也随之载入史册。紧随其后的是巴兹·奥尔德林，成为第二位登上月球的人。
-
-月球也会发生地震，这类震动被称为“月震”。部分月震可能在月球表面形成裂缝，导致气体逸出。对当年的阿波罗宇航员而言，那无疑是一片既陌生又神秘的着陆景观。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9c%88%e7%90%83&form=hpcapt&filters=HpDate:"20250719_1600" "Bing Wallpaper 2025 7月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250720_BigMoon"&FORM=HPQUIZ "必应主页测验 2025 7月 20")
-[下载480](https://cn.bing.com/th?id=OHR.BigMoon_ZH-CN2508603883_800x480.jpg&rf=LaDigue_800x480.jpg "望远镜下的月球表面照片")
-[下载720](https://cn.bing.com/th?id=OHR.BigMoon_ZH-CN2508603883_1280x720.jpg&rf=LaDigue_1280x720.jpg "望远镜下的月球表面照片")
-[下载1080](https://cn.bing.com/th?id=OHR.BigMoon_ZH-CN2508603883_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "望远镜下的月球表面照片")
-[下载UHD](https://cn.bing.com/th?id=OHR.BigMoon_ZH-CN2508603883_UHD.jpg&rf=LaDigue_UHD.jpg "望远镜下的月球表面照片")
 
 ---
