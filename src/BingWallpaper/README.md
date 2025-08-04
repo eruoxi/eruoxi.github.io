@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月05日：潮起潮落
+#### 拉霍亚的潮汐池‌, 加利福尼亚州, 美国（© Andrew Shoemaker/DanitaDelimont.com）
+
+![潮起潮落](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_800x480.jpg&rf=LaDigue_800x480.jpg "潮起潮落")
+
+并非每堂科学课都需要在教室里进行。在加利福尼亚州的拉霍亚，退潮后形成的潮池就在你脚下，向你揭示海洋的奥秘。在圣地亚哥这个沿海社区的岩石海岸线上，当潮水退去，海水被困在天然的凹坑中，就形成了潮池。这些浅水池自然分布在拉霍亚的砂岩和礁石之间，尤以风之海海滩、贝壳海滩、南卡萨海滩和医院角附近最为典型。海水停留在这些岩石凹槽中，为海兔、脆皮海星等多样的海洋生物提供了独特的栖息地。潮池的形成要归功于长期的侵蚀作用。海浪日复一日拍击砂岩和石灰岩的海岸，逐渐雕刻出能够蓄水的小坑洼。每天两次，随着潮水的涨落，这些潮池不断被海水淹没又重新显露，内部的生物也因此必须适应极为多变的环境。冬季白天潮水最低，是探索潮池的最佳时机。需要注意的是，这些潮池受到加州《海洋生物保护法》的保护。你可以欣赏这里的美景、观察潮池中的居民并拍照留念，但请不要触碰或打扰其中的任何生物。这是一堂免费的海洋生物课程，正在你眼前生动上演。
+
+在低潮时，拉霍亚是观赏海底世界的绝佳地点。你可能会看到的海洋生物包括海葵、螃蟹、帽贝、章鱼、海星、海蛞蝓、海兔和藤壶。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e5%88%a9%e7%a6%8f%e5%b0%bc%e4%ba%9a%e5%b7%9e%e6%8b%89%e9%9c%8d%e4%ba%9a&form=hpcapt&filters=HpDate:"20250804_1600" "Bing Wallpaper 2025 8月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250805_CaliforniaTidepool"&FORM=HPQUIZ "必应主页测验 2025 8月 5")
+[下载480](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_800x480.jpg&rf=LaDigue_800x480.jpg "拉霍亚的潮汐池‌, 加利福尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_1280x720.jpg&rf=LaDigue_1280x720.jpg "拉霍亚的潮汐池‌, 加利福尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拉霍亚的潮汐池‌, 加利福尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_UHD.jpg&rf=LaDigue_UHD.jpg "拉霍亚的潮汐池‌, 加利福尼亚州, 美国")
+
+---
 ### 08月04日：这是谁的家？
 #### 巢中的乌林鸮, 芬兰（© imageBROKER.com/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_1280x720.jpg&rf=LaDigue_1280x720.jpg "夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区")
 [下载1080](https://cn.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区")
 [下载UHD](https://cn.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_UHD.jpg&rf=LaDigue_UHD.jpg "夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区")
-
----
-### 07月21日：海洋中的热带雨林
-#### 浅海中的鹿角珊瑚（© blue-sea.cz/Shutterstock）
-
-![海洋中的热带雨林](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_800x480.jpg&rf=LaDigue_800x480.jpg "海洋中的热带雨林")
-
-每年七月的第三周被定为珊瑚礁意识周，旨在提醒人们：在广袤海洋的表层之下，存在一个生态复杂度堪比热带雨林的系统。尽管珊瑚礁仅覆盖不到1%的海底面积，却孕育了约25%的海洋生物。以今日图片中的鹿角珊瑚为例，这类珊瑚构成了关键的生态基底，为众多海洋物种提供庇护和栖息空间。这些生态系统不仅维系着海洋生物多样性，也在缓冲海岸侵蚀方面发挥重要作用，并通过旅游业与渔业促进沿海地区经济发展。
-
-珊瑚斑斓的色彩来源于其体内共生的微小藻类。这些藻类不仅赋予珊瑚颜色，还通过光合作用为其提供所需的营养物质。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8f%8a%e7%91%9a%e7%a4%81%e5%ae%a3%e4%bc%a0%e5%91%a8&form=hpcapt&filters=HpDate:"20250720_1600" "Bing Wallpaper 2025 7月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250721_AcroporaReef"&FORM=HPQUIZ "必应主页测验 2025 7月 21")
-[下载480](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_800x480.jpg&rf=LaDigue_800x480.jpg "浅海中的鹿角珊瑚")
-[下载720](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_1280x720.jpg&rf=LaDigue_1280x720.jpg "浅海中的鹿角珊瑚")
-[下载1080](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "浅海中的鹿角珊瑚")
-[下载UHD](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_UHD.jpg&rf=LaDigue_UHD.jpg "浅海中的鹿角珊瑚")
 
 ---
