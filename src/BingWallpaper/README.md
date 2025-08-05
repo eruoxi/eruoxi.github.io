@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月06日：马达加斯加原住民
+#### 环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加（© Andy Rouse/Nature Picture Library）
+
+![马达加斯加原住民](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_800x480.jpg&rf=LaDigue_800x480.jpg "马达加斯加原住民")
+
+看起来这只小家伙像是在玩耍，对吗？其实，当一只幼年环尾狐猴缠绕或拉扯自己的尾巴时，它正在练习一些至关重要的技能。环尾狐猴的幼崽在生命最初的几周会紧紧依附在母亲身上，起初趴在母亲的腹部，随后转移到背上。随着它们逐渐长大、开始离开母亲，追逐尾巴成为学习平衡、协调以及融入群体玩耍的重要一环。这些灵长类动物还会利用它们长长的尾巴进行交流。当它们集体移动时，会将尾巴像旗帜一样高高举起，以便在开阔地带保持队形。此外，响亮而有节奏的叫声、气味标记以及雄性之间的“臭味大战”，都让它们的社会生活显得格外丰富有趣。
+
+环尾狐猴是最擅长发声的灵长类动物之一，它们会用多样的叫声来保持群体联系或发出捕食者警报。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8e%af%e5%b0%be%e7%8b%90%e7%8c%b4%e2%80%8c&form=hpcapt&filters=HpDate:"20250805_1600" "Bing Wallpaper 2025 8月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250806_BabyLemur"&FORM=HPQUIZ "必应主页测验 2025 8月 6")
+[下载480](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_800x480.jpg&rf=LaDigue_800x480.jpg "环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加")
+[下载720](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_1280x720.jpg&rf=LaDigue_1280x720.jpg "环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加")
+[下载1080](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加")
+[下载UHD](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_UHD.jpg&rf=LaDigue_UHD.jpg "环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加")
+
+---
 ### 08月05日：潮起潮落
 #### 拉霍亚的潮汐池‌, 加利福尼亚州, 美国（© Andrew Shoemaker/DanitaDelimont.com）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_1280x720.jpg&rf=LaDigue_1280x720.jpg "梵蒂冈城与圣彼得大教堂，罗马，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梵蒂冈城与圣彼得大教堂，罗马，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_UHD.jpg&rf=LaDigue_UHD.jpg "梵蒂冈城与圣彼得大教堂，罗马，意大利")
-
----
-### 07月22日：天山上的蓝宝石
-#### 夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区（© Feng Wei Photography/Getty Images）
-
-![天山上的蓝宝石](https://cn.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_800x480.jpg&rf=LaDigue_800x480.jpg "天山上的蓝宝石")
-
-大暑是中国传统农历的第十二个节气，也是夏季的最后一个节气，象征着“暑气逼人”——一年中阳光最强烈、气温最热、湿度最高的时期。炎炎夏日来临，何不逃离尘嚣，前往新疆天山附近赛里木湖畔的绝美风景区呢？
-
-赛里木湖原本没有鱼，1998年从俄罗斯引进高白鲑、凹目白鲑等冷水鱼养殖，2000年首次捕捞成品鱼，结束了赛里木湖不产鱼的历史，经过十年的发展，已成为新疆重要的冷水鱼生产基地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%b0%e7%96%86%e8%b5%9b%e9%87%8c%e6%9c%a8%e6%b9%96&form=hpcapt&filters=HpDate:"20250721_1600" "Bing Wallpaper 2025 7月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250722_GreatHeatY25"&FORM=HPQUIZ "必应主页测验 2025 7月 22")
-[下载480](https://cn.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_800x480.jpg&rf=LaDigue_800x480.jpg "夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区")
-[下载720](https://cn.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_1280x720.jpg&rf=LaDigue_1280x720.jpg "夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区")
-[下载1080](https://cn.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区")
-[下载UHD](https://cn.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_UHD.jpg&rf=LaDigue_UHD.jpg "夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区")
 
 ---
