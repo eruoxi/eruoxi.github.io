@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月07日：海岸的密码
+#### 加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国（© Wiltser/Getty Images）
+
+![海岸的密码](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_800x480.jpg&rf=LaDigue_800x480.jpg "海岸的密码")
+
+在GPS尚未为船只导航之前，灯塔就是航海者的重要领航标。每座灯塔都拥有独特的闪光模式，即使在漆黑的夜晚，水手们也能凭此确定自身所处的位置。今天是美国国家灯塔日，正是向这些沿海守护者致敬的良机。1789年，美国国会通过法案，规定所有灯塔由联邦政府统一维护。不论你是历史爱好者、海岸探险者，还是单纯钟爱经典工程建筑的人，这一天都值得你去深入了解灯塔的故事，或与亲朋好友一同参观灯塔。
+
+最初，灯塔使用燃烧的煤炭甚至是篝火作为“灯”或光源。后来，灯塔改用燃油灯，直到1875年最终采用电灯。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e5%9b%bd%e5%9b%bd%e5%ae%b6%e7%81%af%e5%a1%94%e6%97%a5&form=hpcapt&filters=HpDate:"20250806_1600" "Bing Wallpaper 2025 8月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250807_GasparillaLight"&FORM=HPQUIZ "必应主页测验 2025 8月 7")
+[下载480](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_800x480.jpg&rf=LaDigue_800x480.jpg "加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_1280x720.jpg&rf=LaDigue_1280x720.jpg "加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_UHD.jpg&rf=LaDigue_UHD.jpg "加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国")
+
+---
 ### 08月06日：马达加斯加原住民
 #### 环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加（© Andy Rouse/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_1280x720.jpg&rf=LaDigue_1280x720.jpg "栖息在树枝上的灰燕鵙家族")
 [下载1080](https://cn.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "栖息在树枝上的灰燕鵙家族")
 [下载UHD](https://cn.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_UHD.jpg&rf=LaDigue_UHD.jpg "栖息在树枝上的灰燕鵙家族")
-
----
-### 07月23日：城中之国
-#### 梵蒂冈城与圣彼得大教堂，罗马，意大利（© RudyBalasko/Getty Images）
-
-![城中之国](https://cn.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_800x480.jpg&rf=LaDigue_800x480.jpg "城中之国")
-
-在意大利罗马市中心，有一个独立的国家：梵蒂冈城国。这个国家仅有 121 英亩，是世界上最小的独立国家，但其影响力却跨越了数个世纪和各大洲。作为教皇的居所和罗马天主教的精神中心，这座城墙环绕的飞地融合了艺术、历史与信仰。梵蒂冈城的核心地标是圣彼得大教堂，这座文艺复兴时期的建筑被普遍认为建于耶稣门徒、第一任罗马主教圣彼得的安葬地之上。今日图片中远景所示即为其雄伟的穹顶，也是世界上最大的教堂之一。大教堂前的圣彼得广场是教皇祝福仪式和宗教聚会的重要场所，每年吸引大量信众前来朝圣。此外，梵蒂冈博物馆与西斯廷礼拜堂也是不可错过的文化遗产，后者天顶画由米开朗基罗绘制，堪称艺术巅峰。尽管面积狭小，梵蒂冈城国却拥有独立的行政体系，包括邮政、电话系统、银行以及货币发行权。它虽非欧盟成员国，却发行专属欧元硬币。
-
-1984年，联合国教科文组织将梵蒂冈城国列入《世界遗产名录》，它也是全球唯一一个以整个国家形式入选的世界遗产。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a2%b5%e8%92%82%e5%86%88%e5%9f%8e&form=hpcapt&filters=HpDate:"20250722_1600" "Bing Wallpaper 2025 7月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250723_VaticanCity"&FORM=HPQUIZ "必应主页测验 2025 7月 23")
-[下载480](https://cn.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_800x480.jpg&rf=LaDigue_800x480.jpg "梵蒂冈城与圣彼得大教堂，罗马，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_1280x720.jpg&rf=LaDigue_1280x720.jpg "梵蒂冈城与圣彼得大教堂，罗马，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梵蒂冈城与圣彼得大教堂，罗马，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_UHD.jpg&rf=LaDigue_UHD.jpg "梵蒂冈城与圣彼得大教堂，罗马，意大利")
 
 ---
