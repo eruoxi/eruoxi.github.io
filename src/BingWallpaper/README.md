@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月08日：奔流不息，为你为我
+#### 伊瓜苏瀑布的三火枪瀑布, 阿根廷（© Mark Meredith/Getty Images）
+
+![奔流不息，为你为我](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_800x480.jpg&rf=LaDigue_800x480.jpg "奔流不息，为你为我")
+
+没有任何声音能盖过伊瓜苏瀑布的轰鸣。但令人震撼的不仅是那轰鸣的声浪。这座横跨阿根廷与巴西边境的自然奇观，以其磅礴气势令人无法抗拒。广阔的瀑布群绵延近两英里，汇聚了270多道独立瀑布，每一处都展现出独特的水流奔腾和水雾蒸腾之景。
+
+“伊瓜苏”这个名字源自瓜拉尼语或图皮语，其中“y”意为“水”，“uasu”意为“巨大”，合起来即“巨大的水”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bc%8a%e7%93%9c%e8%8b%8f%e7%80%91%e5%b8%83+%e9%98%bf%e6%a0%b9%e5%bb%b7+%e5%b7%b4%e8%a5%bf&form=hpcapt&filters=HpDate:"20250807_1600" "Bing Wallpaper 2025 8月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250808_IguazuArgentina"&FORM=HPQUIZ "必应主页测验 2025 8月 8")
+[下载480](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_800x480.jpg&rf=LaDigue_800x480.jpg "伊瓜苏瀑布的三火枪瀑布, 阿根廷")
+[下载720](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_1280x720.jpg&rf=LaDigue_1280x720.jpg "伊瓜苏瀑布的三火枪瀑布, 阿根廷")
+[下载1080](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊瓜苏瀑布的三火枪瀑布, 阿根廷")
+[下载UHD](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_UHD.jpg&rf=LaDigue_UHD.jpg "伊瓜苏瀑布的三火枪瀑布, 阿根廷")
+
+---
 ### 08月07日：海岸的密码
 #### 加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国（© Wiltser/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_1280x720.jpg&rf=LaDigue_1280x720.jpg "大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_UHD.jpg&rf=LaDigue_UHD.jpg "大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙")
-
----
-### 07月24日：物以类聚，鸟以群分
-#### 栖息在树枝上的灰燕鵙家族（© Captain Skyhigh/Getty Images）
-
-![物以类聚，鸟以群分](https://cn.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_800x480.jpg&rf=LaDigue_800x480.jpg "物以类聚，鸟以群分")
-
-你是否还记得那个怂恿你爬上最高树的表兄，或者在家庭聚会上悄悄帮你多拿一块蛋糕的堂妹？今天，正是感激这些儿时玩伴的日子，表兄妹常常处于兄弟姐妹与朋友之间的独特位置，一起惹祸、分享彼此才懂的玩笑，总是在每次家庭聚会中如影随形。这样的情感纽带，也许会因时间与空间的拉远而变得稀疏，但却极少彻底消散。在自然界中，能够如此生动体现这种亲密联系的，正是今日图片中所展示的灰燕鵙。这种鸟类原产于南亚，具有显著的群居性。它们很少独自行动，常常集群栖息在光秃的树枝或电线等高处。从这些制高点，它们一跃而起，在空中灵巧飞行，优雅地捕食飞虫，展现出与生俱来的协调与默契。
-
-灰燕鵙是所有雨燕中体型最大，生活在新几内亚高达9,800英尺的高地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%81%b0%e7%87%95%e9%b5%99&form=hpcapt&filters=HpDate:"20250723_1600" "Bing Wallpaper 2025 7月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250724_AshyWoodswallow"&FORM=HPQUIZ "必应主页测验 2025 7月 24")
-[下载480](https://cn.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_800x480.jpg&rf=LaDigue_800x480.jpg "栖息在树枝上的灰燕鵙家族")
-[下载720](https://cn.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_1280x720.jpg&rf=LaDigue_1280x720.jpg "栖息在树枝上的灰燕鵙家族")
-[下载1080](https://cn.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "栖息在树枝上的灰燕鵙家族")
-[下载UHD](https://cn.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_UHD.jpg&rf=LaDigue_UHD.jpg "栖息在树枝上的灰燕鵙家族")
 
 ---
