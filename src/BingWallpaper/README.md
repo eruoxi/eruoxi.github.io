@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月09日：致敬原住民之声
+#### 陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰（© Joppi/Getty Images）
+
+![致敬原住民之声](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_800x480.jpg&rf=LaDigue_800x480.jpg "致敬原住民之声")
+
+每年8月9日，联合国都会庆祝“世界土著人民国际日”，这一日是纪念原住民社区坚韧精神、智慧和丰富文化的时刻。在美国，这一天也成为反思美洲原住民部落历史与贡献的契机，同时鼓励人们与全球各地的土著人民携手共进。
+
+在陶波湖深水之上的悬崖峭壁上，高达14米的石刻由艺术家马塔希·布赖特韦尔创作，已成为新西兰北岛最受欢迎的旅游景点之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%9c%9f%e8%91%97%e4%ba%ba%e6%b0%91%e5%9b%bd%e9%99%85%e6%97%a5&form=hpcapt&filters=HpDate:"20250808_1600" "Bing Wallpaper 2025 8月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250809_MaoriRock"&FORM=HPQUIZ "必应主页测验 2025 8月 9")
+[下载480](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_800x480.jpg&rf=LaDigue_800x480.jpg "陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰")
+[下载720](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_1280x720.jpg&rf=LaDigue_1280x720.jpg "陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰")
+[下载1080](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_UHD.jpg&rf=LaDigue_UHD.jpg "陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰")
+
+---
 ### 08月08日：奔流不息，为你为我
 #### 伊瓜苏瀑布的三火枪瀑布, 阿根廷（© Mark Meredith/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_UHD.jpg&rf=LaDigue_UHD.jpg "黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚")
-
----
-### 07月25日：生活的画卷
-#### 大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙（© Marco Bottigelli/Getty Images）
-
-![生活的画卷](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_800x480.jpg&rf=LaDigue_800x480.jpg "生活的画卷")
-
-如果你渴望在这个夏天探索一片遥远的风景，不妨跟随我们的步伐，走进拉斯帕尔马斯。这座充满活力的城市是加那利群岛的两大首府之一，同时也是群岛中人口最多的城市。加那利群岛隶属于西班牙，位于大西洋之上，而拉斯帕尔马斯坐落于大加那利岛东北海岸，拥有超过38万居民，是该地区重要的港口及商业中心。从空中俯瞰，这座城市色彩斑斓的建筑为像圣胡安山这样的社区增添了鲜明的层次感，这里的房屋依山而建。拉斯帕尔马斯建于1478年，历史底蕴深厚，曾受到西班牙殖民、海上贸易与移民潮的多重影响。如今，它以典型的亚热带沙漠气候闻名，冬季平均气温约16摄氏度，夏季则在27摄氏度左右。同时，这里还拥有被誉为欧洲最佳城市海滩之一的拉斯坎特拉斯海滩。
-
-拉斯帕尔马斯狂欢节是吸引游客的主要看点之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e5%8a%a0%e9%82%a3%e5%88%a9%e5%b2%9b%e6%8b%89%e6%96%af%e5%b8%95%e5%b0%94%e9%a9%ac%e6%96%af&form=hpcapt&filters=HpDate:"20250724_1600" "Bing Wallpaper 2025 7月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250725_LasPalmas"&FORM=HPQUIZ "必应主页测验 2025 7月 25")
-[下载480](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_800x480.jpg&rf=LaDigue_800x480.jpg "大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_1280x720.jpg&rf=LaDigue_1280x720.jpg "大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_UHD.jpg&rf=LaDigue_UHD.jpg "大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙")
 
 ---
