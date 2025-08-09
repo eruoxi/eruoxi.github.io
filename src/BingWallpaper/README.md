@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月10日：为正义怒吼
+#### 马赛马拉国家保护区的雌狮,肯尼亚（© Tandem Stock/Adobe Stock）
+
+![为正义怒吼](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_800x480.jpg&rf=LaDigue_800x480.jpg "为正义怒吼")
+
+狮子的怒吼在非洲大草原上回荡，千百年来激发着人类的想象力。每年的8月10日是世界狮子日，这一天邀请我们共同庆祝这些具有象征意义的猛兽，同时唤起人们对它们数量日益减少以及保护工作的紧迫性的关注。
+
+和许多动物一样，狮子能够通过解谜来获取食物。与众不同的是，它们还能通过观察其他狮子如何解开谜题，从而学会应对同样的挑战。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%8b%ae%e5%ad%90%e6%97%a5&form=hpcapt&filters=HpDate:"20250809_1600" "Bing Wallpaper 2025 8月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250810_LionessKenya"&FORM=HPQUIZ "必应主页测验 2025 8月 10")
+[下载480](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_800x480.jpg&rf=LaDigue_800x480.jpg "马赛马拉国家保护区的雌狮,肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_1280x720.jpg&rf=LaDigue_1280x720.jpg "马赛马拉国家保护区的雌狮,肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉国家保护区的雌狮,肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉国家保护区的雌狮,肯尼亚")
+
+---
 ### 08月09日：致敬原住民之声
 #### 陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰（© Joppi/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及")
 [下载1080](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及")
 [下载UHD](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_UHD.jpg&rf=LaDigue_UHD.jpg "黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及")
-
----
-### 07月26日：潮汐的守护者
-#### 黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚（© Boonchet Ch./Getty Images）
-
-![潮汐的守护者](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_800x480.jpg&rf=LaDigue_800x480.jpg "潮汐的守护者")
-
-当暮色降临印度尼西亚松巴岛的瓦拉基里海滩时，红树林的剪影宛如潮汐中的哨兵般矗立，既优雅又坚韧，充满生命力。今天是国际红树林生态系统保护日，让我们向这些在维系地球生命中发挥至关重要作用的非凡树木致以敬意。
-
-目前，据估计，在过去40年间，全球红树林的覆盖面积已减少了一半。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bf%9d%e6%8a%a4%e7%ba%a2%e6%a0%91%e6%9e%97%e7%94%9f%e6%80%81%e7%b3%bb%e7%bb%9f%e5%9b%bd%e9%99%85%e6%97%a5&form=hpcapt&filters=HpDate:"20250725_1600" "Bing Wallpaper 2025 7月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250726_MangroveTwilight"&FORM=HPQUIZ "必应主页测验 2025 7月 26")
-[下载480](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_800x480.jpg&rf=LaDigue_800x480.jpg "黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚")
-[下载720](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_UHD.jpg&rf=LaDigue_UHD.jpg "黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚")
 
 ---
