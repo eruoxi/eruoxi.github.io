@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月11日：来自山巅的明信片
+#### 圣玛格达莱娜, 多洛米蒂山, 意大利（© Sakrapee Nopparat/Getty Images）
+
+![来自山巅的明信片](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_800x480.jpg&rf=LaDigue_800x480.jpg "来自山巅的明信片")
+
+位于意大利北部阿尔卑斯山的南蒂罗尔州，圣玛格达莱娜村坐落于福内斯山谷中，宛如明信片上描绘的理想村落。村中标志性的尖顶教堂，背后耸立着刀削斧刻般的多洛米蒂山峰，是该地区最常被拍摄的景致之一。多洛米蒂山脉本身被联合国教科文组织列为世界遗产，山体主要由淡色石灰岩构成，日落时泛起柔和的粉红色光芒，当地人称之为“日照粉红”现象。
+
+多洛米蒂世界遗产地由九个组成部分构成，保护着一系列极具特色的山地景观，以其卓越的自然美而闻名。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e5%a4%9a%e6%b4%9b%e7%b1%b3%e8%92%82%e5%b1%b1&form=hpcapt&filters=HpDate:"20250810_1600" "Bing Wallpaper 2025 8月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250811_SantaMaddalena"&FORM=HPQUIZ "必应主页测验 2025 8月 11")
+[下载480](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_800x480.jpg&rf=LaDigue_800x480.jpg "圣玛格达莱娜, 多洛米蒂山, 意大利")
+[下载720](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣玛格达莱娜, 多洛米蒂山, 意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣玛格达莱娜, 多洛米蒂山, 意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_UHD.jpg&rf=LaDigue_UHD.jpg "圣玛格达莱娜, 多洛米蒂山, 意大利")
+
+---
 ### 08月10日：为正义怒吼
 #### 马赛马拉国家保护区的雌狮,肯尼亚（© Tandem Stock/Adobe Stock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒙古草原上的蒙古包")
 [下载1080](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙古草原上的蒙古包")
 [下载UHD](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_UHD.jpg&rf=LaDigue_UHD.jpg "蒙古草原上的蒙古包")
-
----
-### 07月27日：同步闪耀
-#### 黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及（© Alex Mustard/Nature Picture Library）
-
-![同步闪耀](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_800x480.jpg&rf=LaDigue_800x480.jpg "同步闪耀")
-
-在埃及拉斯穆罕默德国家公园的鲨鱼礁，当你遇见一群黑鳍梭鱼时，就仿佛被一圈银色的漩涡所环绕。这些体型流畅、带有明显V形条纹的鱼类，几乎以完美的同步移动。它们缓慢而有序地盘旋，并非随意而为，而是进化出的行为策略，既可保障群体安全，也能在捕猎时占据优势。黑鳍梭鱼广泛分布于热带海域，从红海一直延伸至中太平洋。白天，它们在珊瑚礁附近紧密集结成群，黄昏时才会分散，追逐猎物。
-
-拉斯穆罕默德国家公园栖息着超过1,000种鱼类、40种海星、25种海胆、100多种软体动物以及150种甲壳类动物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%8b%89%e6%96%af%e7%a9%86%e7%bd%95%e9%bb%98%e5%be%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250726_1600" "Bing Wallpaper 2025 7月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250727_BlackfinBarracuda"&FORM=HPQUIZ "必应主页测验 2025 7月 27")
-[下载480](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_800x480.jpg&rf=LaDigue_800x480.jpg "黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及")
-[下载720](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及")
-[下载1080](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及")
-[下载UHD](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_UHD.jpg&rf=LaDigue_UHD.jpg "黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及")
 
 ---
