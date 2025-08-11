@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月12日：野性、智慧与奇迹
+#### 非洲象群, 安博塞利国家公园, 肯尼亚（© Chase Dekker/Minden Pictures）
+
+![野性、智慧与奇迹](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_800x480.jpg&rf=LaDigue_800x480.jpg "野性、智慧与奇迹")
+
+大耳朵，大心脏，大象不仅是野性的象征，更代表着自然界的智慧。每年8月12日是“世界大象日”，这是一个全球纪念日，旨在提高人们对这些雄伟巨兽的关注。今日图片拍摄于肯尼亚的安博塞利国家公园，这里是它们的重要栖息地之一。大象真正令人敬佩的不只是庞大的体型，更是它们卓越的智慧。年长的母象首领拥有惊人的记忆力，能够记得数十年前的水源位置，并在干旱时期带领族群找到水源。它们的社交关系也极为紧密，生活在稳固的家族群体中，会为同伴的死亡哀悼，甚至在困难时互相安慰。
+
+大象喜欢玩耍，而且不仅限于幼象。成年大象也会往空中喷水、在地上打滚，甚至追逐其他动物，仅仅是为了好玩。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%a4%a7%e8%b1%a1%e6%97%a5&form=hpcapt&filters=HpDate:"20250811_1600" "Bing Wallpaper 2025 8月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250812_KenyaElephants"&FORM=HPQUIZ "必应主页测验 2025 8月 12")
+[下载480](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_800x480.jpg&rf=LaDigue_800x480.jpg "非洲象群, 安博塞利国家公园, 肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_1280x720.jpg&rf=LaDigue_1280x720.jpg "非洲象群, 安博塞利国家公园, 肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "非洲象群, 安博塞利国家公园, 肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_UHD.jpg&rf=LaDigue_UHD.jpg "非洲象群, 安博塞利国家公园, 肯尼亚")
+
+---
 ### 08月11日：来自山巅的明信片
 #### 圣玛格达莱娜, 多洛米蒂山, 意大利（© Sakrapee Nopparat/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TigerDay_ZH-CN4359136631_1280x720.jpg&rf=LaDigue_1280x720.jpg "雌性孟加拉虎，坎哈国家公园，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.TigerDay_ZH-CN4359136631_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雌性孟加拉虎，坎哈国家公园，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.TigerDay_ZH-CN4359136631_UHD.jpg&rf=LaDigue_UHD.jpg "雌性孟加拉虎，坎哈国家公园，印度")
-
----
-### 07月28日：领先一步
-#### 蒙古草原上的蒙古包（© Michel Arnault/Shutterstock）
-
-![领先一步](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_800x480.jpg&rf=LaDigue_800x480.jpg "领先一步")
-
-每年7月28日的世界自然保护日提醒我们，保护自然不是可有可无的选择，而是一种必要的责任。今日图片所介绍的蒙古广袤草原正是这一理念的有力证明。这些生态系统是地球上最大且保持相对完整的温带草原之一，绵延数百万英亩的开阔土地。它们不仅养育了大约20万游牧牧民家庭，也为蒙古黄羊、雪豹等珍稀物种提供了重要的栖息地。
-
-冬季，草原上的草变得干燥且极易燃烧，使得野火更加频繁。草在火灾后通常能迅速恢复，但树木却无法如此，这在一定程度上解释了该地区树木稀少的原因。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e8%87%aa%e7%84%b6%e4%bf%9d%e6%8a%a4%e6%97%a5&form=hpcapt&filters=HpDate:"20250727_1600" "Bing Wallpaper 2025 7月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250728_MongoliaYurts"&FORM=HPQUIZ "必应主页测验 2025 7月 28")
-[下载480](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_800x480.jpg&rf=LaDigue_800x480.jpg "蒙古草原上的蒙古包")
-[下载720](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒙古草原上的蒙古包")
-[下载1080](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙古草原上的蒙古包")
-[下载UHD](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_UHD.jpg&rf=LaDigue_UHD.jpg "蒙古草原上的蒙古包")
 
 ---
