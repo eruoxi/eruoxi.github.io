@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月14日：从山顶俯瞰
+#### 皮兹奈尔山缆车站, 格劳宾登州, 瑞士（© Roberto Moiola/Alamy）
+
+![从山顶俯瞰](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_800x480.jpg&rf=LaDigue_800x480.jpg "从山顶俯瞰")
+
+瑞士有一座山，它总是在俯瞰着你，但别太在意。皮茨奈尔峰坐落于阿尔布拉阿尔卑斯山脉，海拔高达10,026英尺，俯视着格劳宾登州的恩加丁山谷。从圣莫里茨出发，先乘坐缆索铁路抵达科尔维利亚，再换乘缆车直达山顶。登顶后，等待你的是观景平台、著名的阿尔卑斯野山羊雕像，以及一间独具特色的玻璃立方体餐厅，在这里可享受 360 度全景用餐体验。
+
+无论是冬季还是夏季，在海拔 3,000 多米的高处，都可以欣赏到皮茨奈尔峰日出的壮丽景观。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a5%88%e5%b0%94%e5%b3%b0&form=hpcapt&filters=HpDate:"20250813_1600" "Bing Wallpaper 2025 8月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250814_PizNairPeak"&FORM=HPQUIZ "必应主页测验 2025 8月 14")
+[下载480](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_800x480.jpg&rf=LaDigue_800x480.jpg "皮兹奈尔山缆车站, 格劳宾登州, 瑞士")
+[下载720](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_1280x720.jpg&rf=LaDigue_1280x720.jpg "皮兹奈尔山缆车站, 格劳宾登州, 瑞士")
+[下载1080](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "皮兹奈尔山缆车站, 格劳宾登州, 瑞士")
+[下载UHD](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_UHD.jpg&rf=LaDigue_UHD.jpg "皮兹奈尔山缆车站, 格劳宾登州, 瑞士")
+
+---
 ### 08月13日：地球的公开秘密
 #### 一名男子从摩押附近的科罗纳拱门索降, 美国（© Grant Ordelheide/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_1280x720.jpg&rf=LaDigue_1280x720.jpg "纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_UHD.jpg&rf=LaDigue_UHD.jpg "纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国")
-
----
-### 07月30日：理想的世界！
-#### 里瓦德塞利亚，阿斯图里亚斯，西班牙（© Agnieszka Glowala/Getty Images）
-
-![理想的世界！](https://cn.bing.com/th?id=OHR.RibadesellaSummer_ZH-CN4852547359_800x480.jpg&rf=LaDigue_800x480.jpg "理想的世界！")
-
-在这个夏天，阿斯图里亚斯以其独特的景观迎接你的到来。里瓦德塞利亚崎岖壮丽的海岸线分布着圣玛丽娜和瓜达米亚等海滩，海与山在此交汇，勾勒出独一无二的景观。附近的世界遗产提托·布斯蒂略洞穴，洞壁画距今已有14000多年，为你开启一段跨越时空的探索之旅。
-
-里瓦德塞利亚位于西班牙阿斯图里亚斯，这里有著名的提托·布斯蒂略洞穴，该洞因史前动物与人物岩画而闻名，被列入联合国教科文组织世界遗产“西班牙北部旧石器时代洞穴艺术”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%87%8c%e7%93%a6%e5%be%b7%e5%a1%9e%e5%88%a9%e4%ba%9a&form=hpcapt&filters=HpDate:"20250729_1600" "Bing Wallpaper 2025 7月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250730_RibadesellaSummer"&FORM=HPQUIZ "必应主页测验 2025 7月 30")
-[下载480](https://cn.bing.com/th?id=OHR.RibadesellaSummer_ZH-CN4852547359_800x480.jpg&rf=LaDigue_800x480.jpg "里瓦德塞利亚，阿斯图里亚斯，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.RibadesellaSummer_ZH-CN4852547359_1280x720.jpg&rf=LaDigue_1280x720.jpg "里瓦德塞利亚，阿斯图里亚斯，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.RibadesellaSummer_ZH-CN4852547359_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "里瓦德塞利亚，阿斯图里亚斯，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.RibadesellaSummer_ZH-CN4852547359_UHD.jpg&rf=LaDigue_UHD.jpg "里瓦德塞利亚，阿斯图里亚斯，西班牙")
 
 ---
