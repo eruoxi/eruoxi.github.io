@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月15日：水下翱翔
+#### 斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔（© Tui De Roy/Minden Pictures）
+
+![水下翱翔](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_800x480.jpg&rf=LaDigue_800x480.jpg "水下翱翔")
+
+这是什么？鸟？飞机？不，这是一条鱼！它挥动鳍状肢在海中滑翔，还自带斑点的时尚外观，斑点鹰鳐绝不会默默无闻。与那些在海底爬行的魟鱼亲戚不同，它是海洋中的“飞行者”。 它的名字来自你猜得没错的部分，那突出而弯曲的吻部，酷似鹰喙；而背部的斑点更是独一无二，就像指纹一样，每一条都有自己独特的花纹。它展开胸鳍时可达 3 米宽，那对如翅膀般的鳍令它在水中翱翔自如。它那长长的尾巴基部带有毒刺，能在有捕食者靠近时发挥防御作用。虽然斑点鹞鲼通常性情温和，但绝非毫无保护能力。
+
+斑点鹞鲼通常栖息于海湾与珊瑚礁之间，偶尔也会进入河口水域。在中国，它分布于东海、台湾沿岸以及南海地区。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%91%e7%82%b9%e9%b9%9e%e9%b2%bc&form=hpcapt&filters=HpDate:"20250814_1600" "Bing Wallpaper 2025 8月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250815_SpottedEagleRay"&FORM=HPQUIZ "必应主页测验 2025 8月 15")
+[下载480](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_800x480.jpg&rf=LaDigue_800x480.jpg "斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔")
+[下载720](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_1280x720.jpg&rf=LaDigue_1280x720.jpg "斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔")
+[下载1080](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg&rf=LaDigue_UHD.jpg "斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔")
+
+---
 ### 08月14日：从山顶俯瞰
 #### 皮兹奈尔山缆车站, 格劳宾登州, 瑞士（© Roberto Moiola/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_1280x720.jpg&rf=LaDigue_1280x720.jpg "皇家英里大道, 爱丁堡, 苏格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "皇家英里大道, 爱丁堡, 苏格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_UHD.jpg&rf=LaDigue_UHD.jpg "皇家英里大道, 爱丁堡, 苏格兰")
-
----
-### 07月31日：远离尘嚣
-#### 纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国（© Russ Bishop/DanitaDelimont.com）
-
-![远离尘嚣](https://cn.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_800x480.jpg&rf=LaDigue_800x480.jpg "远离尘嚣")
-
-这里没有路标，也没有纪念品摊位，只有一条长达11英里的泥泞小径、险峻的峭壁以及开阔的视野，通向夏威夷最为偏远的海滩之一。卡拉劳海滩位于考艾岛卡拉劳步道的尽头，是所有辛苦徒步者最终踏上沙滩的奖赏。唯一的陆路就是这条小径，它穿越山谷，沿着海岸峭壁蜿蜒前行。夏季，一些游客会选择划皮划艇抵达，但无论采用哪种方式，所有在此停留的人都需要提前获得许可。
-
-卡拉劳海滩及其周边栖息着多样的野生动物，包括夏威夷本地鸟类、野山羊以及色彩斑斓的热带植物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e2%80%8c%e5%8d%a1%e6%8b%89%e5%8a%b3%e6%b5%b7%e6%bb%a9&form=hpcapt&filters=HpDate:"20250730_1600" "Bing Wallpaper 2025 7月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250731_NaPaliKauai"&FORM=HPQUIZ "必应主页测验 2025 7月 31")
-[下载480](https://cn.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_800x480.jpg&rf=LaDigue_800x480.jpg "纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_1280x720.jpg&rf=LaDigue_1280x720.jpg "纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_UHD.jpg&rf=LaDigue_UHD.jpg "纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国")
 
 ---
