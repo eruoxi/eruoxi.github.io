@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月16日：成为改变的一“蜂”
+#### 色彩斑斓的蜂巢, 意大利（© Roberto Caucino/Shutterstock）
+
+![成为改变的一“蜂”](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_800x480.jpg&rf=LaDigue_800x480.jpg "成为改变的一“蜂”")
+
+如果你以为蜜蜂的存在只是为了蜇人，那就大错特错了。这些小小的有翅工匠，正在从事世界上最甜蜜也最重要的工作，而且它们还有属于自己的节日：每年 8 月第三个星期六的“世界蜜蜂日”。 全球约 35% 的粮食作物产量依赖动物传粉，其中蜜蜂是最重要的传粉者之一。由蜜蜂完成授粉的作物，其经济价值估计高达数千亿美元。尽管拥有这般“超能力”，蜜蜂的生存却正面临危机：栖息地丧失、杀虫剂使用、疾病蔓延以及气候变化，都在让蜂巢生活日益艰难。
+
+蜜蜂通过复杂的“摇摆舞”与蜂巢中的其他蜜蜂沟通，传达食物来源的位置。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%9c%9c%e8%9c%82&form=hpcapt&filters=HpDate:"20250815_1600" "Bing Wallpaper 2025 8月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250816_ColorfulBeehives"&FORM=HPQUIZ "必应主页测验 2025 8月 16")
+[下载480](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_800x480.jpg&rf=LaDigue_800x480.jpg "色彩斑斓的蜂巢, 意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_1280x720.jpg&rf=LaDigue_1280x720.jpg "色彩斑斓的蜂巢, 意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "色彩斑斓的蜂巢, 意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_UHD.jpg&rf=LaDigue_UHD.jpg "色彩斑斓的蜂巢, 意大利")
+
+---
 ### 08月15日：水下翱翔
 #### 斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔（© Tui De Roy/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_1280x720.jpg&rf=LaDigue_1280x720.jpg "圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_UHD.jpg&rf=LaDigue_UHD.jpg "圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国")
-
----
-### 08月01日：惊喜随时上演
-#### 皇家英里大道, 爱丁堡, 苏格兰（© MEDITERRANEAN/Getty Images）
-
-![惊喜随时上演](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_800x480.jpg&rf=LaDigue_800x480.jpg "惊喜随时上演")
-
-每年八月，爱丁堡就不再仅仅是一座城市，而是彻底活跃起来，几乎可以说是字面意义上的活跃。从酒吧地下室到公园长椅，舞台会在最意想不到的地方冒出来，表演也会在宁静的街道上突然出现。欢迎来到爱丁堡艺穗节。这个节日的故事始于1947年，当时有八个剧团在未受邀请的情况下出现在爱丁堡国际艺术节上，但他们依然坚持演出。这种叛逆的精神从此延续下来，艺穗节由此诞生。
-
-爱丁堡艺穗节完全向所有人开放，任何有故事想讲，并能找到愿意接纳他们的场地的人，都可以登上这个舞台。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%88%b1%e4%b8%81%e5%a0%a1%e8%89%ba%e7%a9%97%e8%8a%82&form=hpcapt&filters=HpDate:"20250731_1600" "Bing Wallpaper 2025 8月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250801_EdinburghFringe"&FORM=HPQUIZ "必应主页测验 2025 8月 1")
-[下载480](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_800x480.jpg&rf=LaDigue_800x480.jpg "皇家英里大道, 爱丁堡, 苏格兰")
-[下载720](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_1280x720.jpg&rf=LaDigue_1280x720.jpg "皇家英里大道, 爱丁堡, 苏格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "皇家英里大道, 爱丁堡, 苏格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_UHD.jpg&rf=LaDigue_UHD.jpg "皇家英里大道, 爱丁堡, 苏格兰")
 
 ---
