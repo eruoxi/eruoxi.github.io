@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月17日：眺望大海的高塔
+#### 灵维格灯塔，维泽桑讷，丹麦（© Caroline Brundle Bugge/Getty Images）
+
+![眺望大海的高塔](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_800x480.jpg&rf=LaDigue_800x480.jpg "眺望大海的高塔")
+
+为抵御风暴并引导船只安全靠岸，灯塔最初应运而生。如今，它们不仅是导航工具，更成为文化遗产、建筑奇迹和人类与海洋之间深厚联结的象征。每年 8 月的第三个周末，世界各地都会迎来“国际灯塔灯船周”活动，让人们齐聚一堂，共同庆祝这些海岸地标。该活动由苏格兰艾尔业余无线电小组成员约翰·福赛思和迈克·达尔里姆普尔于 1998年发起，旨在提高对灯塔与灯船保护的意识，同时推广业余无线电通信，并促进国际友好交流。
+
+灯船的使用有着悠久的历史。早在 1311 年，中国就在江苏太仓刘家港西岸的沙嘴上设立了两艘标志船，并竖起旗帜，为粮船导航。这些装置可视为灯船的早期雏形。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%81%af%e5%a1%94&form=hpcapt&filters=HpDate:"20250816_1600" "Bing Wallpaper 2025 8月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250817_LyngvigLighthouse"&FORM=HPQUIZ "必应主页测验 2025 8月 17")
+[下载480](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_800x480.jpg&rf=LaDigue_800x480.jpg "灵维格灯塔，维泽桑讷，丹麦")
+[下载720](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_1280x720.jpg&rf=LaDigue_1280x720.jpg "灵维格灯塔，维泽桑讷，丹麦")
+[下载1080](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灵维格灯塔，维泽桑讷，丹麦")
+[下载UHD](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_UHD.jpg&rf=LaDigue_UHD.jpg "灵维格灯塔，维泽桑讷，丹麦")
+
+---
 ### 08月16日：成为改变的一“蜂”
 #### 色彩斑斓的蜂巢, 意大利（© Roberto Caucino/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_1280x720.jpg&rf=LaDigue_1280x720.jpg "夏天田野里盛开的向日葵")
 [下载1080](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夏天田野里盛开的向日葵")
 [下载UHD](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_UHD.jpg&rf=LaDigue_UHD.jpg "夏天田野里盛开的向日葵")
-
----
-### 08月02日：古老的岩画
-#### 圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国（© Nicolas VINCENT/Adobe Stock）
-
-![古老的岩画](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_800x480.jpg&rf=LaDigue_800x480.jpg "古老的岩画")
-
-圆顶礁国家公园拥有一种亘古不变的魅力。在这里，红色的岩石峭壁、蜿蜒的峡谷与古老的故事，在犹他州沙漠的天空下彼此交织。1971年，这里被正式指定为国家公园。它不仅因鲜明的地质景观而引人驻足，更因那刻印在大地上的古老叙事与文化遗产而让人驻足沉思。
-
-圆顶礁国家公园被认为是美国所有国家公园中夜空最黑暗的地方之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%86%e9%a1%b6%e7%a4%81%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250801_1600" "Bing Wallpaper 2025 8月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250802_FruitaPetroglyphs"&FORM=HPQUIZ "必应主页测验 2025 8月 2")
-[下载480](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_800x480.jpg&rf=LaDigue_800x480.jpg "圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_1280x720.jpg&rf=LaDigue_1280x720.jpg "圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_UHD.jpg&rf=LaDigue_UHD.jpg "圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国")
 
 ---
