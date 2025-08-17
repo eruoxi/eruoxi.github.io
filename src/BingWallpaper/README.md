@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月18日：溪流入梦
+#### 雪崩湖步道，阿迪朗达克高峰区，纽约州，美国（© Posnov/Getty Images）
+
+![溪流入梦](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_800x480.jpg&rf=LaDigue_800x480.jpg "溪流入梦")
+
+在这片高峰密布的区域，一座面积仅约9英亩的高山湖泊静静地坐落在近2,900英尺的海拔处，位于科尔登山与雪崩山之间。湖泊由远古冰川雕刻而成，四周环绕着陡峭的峭壁和崎岖的地形，清晰地保留着冰川时代留下的印记。其中最引人注目的地貌特征是“陷阱裂缝”，一条高达1,200英尺的岩石峡谷，峭壁险峻，是阿迪朗达克地区最令人震撼的自然奇观之一。正是过去发生的大规模雪崩，塑造了这一地形，也因此得名“雪崩湖”。 雪崩湖步道始于著名的阿迪朗达克小屋，这里是进入高峰区进行徒步、登山等户外活动的热门起点。全程约9.6英里，累计爬升约1,350英尺，虽然看似是一段轻松的行程，实则沿途地形复杂、变化多端，是对体力与意志的双重挑战。
+
+纽约州的阿迪朗达克高峰区拥有 46座山峰，其中最高的是马西山，海拔达1,629米，是全州的最高点。整个区域占地约240万公顷，呈弧形分布。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%bd%e7%ba%a6%e5%b7%9e%e9%9b%aa%e5%b4%a9%e6%b9%96&form=hpcapt&filters=HpDate:"20250817_1600" "Bing Wallpaper 2025 8月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250818_AvalancheLake"&FORM=HPQUIZ "必应主页测验 2025 8月 18")
+[下载480](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_800x480.jpg&rf=LaDigue_800x480.jpg "雪崩湖步道，阿迪朗达克高峰区，纽约州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪崩湖步道，阿迪朗达克高峰区，纽约州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪崩湖步道，阿迪朗达克高峰区，纽约州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_UHD.jpg&rf=LaDigue_UHD.jpg "雪崩湖步道，阿迪朗达克高峰区，纽约州，美国")
+
+---
 ### 08月17日：眺望大海的高塔
 #### 灵维格灯塔，维泽桑讷，丹麦（© Caroline Brundle Bugge/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_1280x720.jpg&rf=LaDigue_1280x720.jpg "巢中的乌林鸮, 芬兰")
 [下载1080](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巢中的乌林鸮, 芬兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_UHD.jpg&rf=LaDigue_UHD.jpg "巢中的乌林鸮, 芬兰")
-
----
-### 08月03日：你好，黄色！
-#### 夏天田野里盛开的向日葵（© Arsgera/Shutterstock）
-
-![你好，黄色！](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_800x480.jpg&rf=LaDigue_800x480.jpg "你好，黄色！")
-
-向日葵色彩鲜艳、姿态大胆，深受蜜蜂、鸟类以及几乎所有人的喜爱。它们的属名“Helianthus”源自希腊语，意为“太阳之花”。这些一年生植物因其硕大、形似雏菊的花朵和迷人的魅力而广受赞誉。虽然向日葵也有红色、橙色和深红色等不同品种，但最常见的仍是那些带有棕色花心的经典黄色花朵。
-
-向日葵是一种生长在开阔地带的植物，通常扎根于潮湿的土壤中。它常见于大草原及其他草地、荒地、道路两旁、铁路沿线、稀树草原以及森林边缘。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%90%91%e6%97%a5%e8%91%b5&form=hpcapt&filters=HpDate:"20250802_1600" "Bing Wallpaper 2025 8月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250803_HappySunflower"&FORM=HPQUIZ "必应主页测验 2025 8月 3")
-[下载480](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_800x480.jpg&rf=LaDigue_800x480.jpg "夏天田野里盛开的向日葵")
-[下载720](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_1280x720.jpg&rf=LaDigue_1280x720.jpg "夏天田野里盛开的向日葵")
-[下载1080](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夏天田野里盛开的向日葵")
-[下载UHD](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_UHD.jpg&rf=LaDigue_UHD.jpg "夏天田野里盛开的向日葵")
 
 ---
