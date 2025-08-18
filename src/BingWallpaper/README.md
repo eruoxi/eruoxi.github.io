@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月19日：随海而流的岩石！
+#### 祖马亚的复理层，巴斯克地区，西班牙（© Eloi_Omella/Getty Images）
+
+![随海而流的岩石！](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_800x480.jpg&rf=LaDigue_800x480.jpg "随海而流的岩石！")
+
+这些壮观的岩层坐落于西班牙北部的祖马亚海岸，面向坎塔布连海。对于喜爱徒步的人来说，这里设有沿悬崖而建的远足路线，可通往邻近的德巴和穆特里库等小镇，沿途风光令人叹为观止。你知道吗？这里还是《权力的游戏》部分场景的取景地。它如同电影画面般的美景不仅吸引了无数好奇的旅行者，也吸引了众多地质学家前来考察。祖马亚是探索地球历史与自然之美的理想之地，一旦踏足，定会被它的奇岩异石与丰富地貌深深吸引。
+
+飞来石通常由砂岩和页岩交替组成，是地质学中典型的深海浊流沉积序列；祖马亚地区因其独特的飞来石地貌而被列为联合国教科文组织世界遗产地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e7%a5%96%e9%a9%ac%e4%ba%9a%e7%9a%84%e5%a4%8d%e7%90%86%e7%9f%b3&form=hpcapt&filters=HpDate:"20250818_1600" "Bing Wallpaper 2025 8月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250819_GipuzcoaSummer"&FORM=HPQUIZ "必应主页测验 2025 8月 19")
+[下载480](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_800x480.jpg&rf=LaDigue_800x480.jpg "祖马亚的复理层，巴斯克地区，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_1280x720.jpg&rf=LaDigue_1280x720.jpg "祖马亚的复理层，巴斯克地区，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "祖马亚的复理层，巴斯克地区，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_UHD.jpg&rf=LaDigue_UHD.jpg "祖马亚的复理层，巴斯克地区，西班牙")
+
+---
 ### 08月18日：溪流入梦
 #### 雪崩湖步道，阿迪朗达克高峰区，纽约州，美国（© Posnov/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_1280x720.jpg&rf=LaDigue_1280x720.jpg "拉霍亚的潮汐池‌, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拉霍亚的潮汐池‌, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_UHD.jpg&rf=LaDigue_UHD.jpg "拉霍亚的潮汐池‌, 加利福尼亚州, 美国")
-
----
-### 08月04日：这是谁的家？
-#### 巢中的乌林鸮, 芬兰（© imageBROKER.com/Alamy Stock Photo）
-
-![这是谁的家？](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_800x480.jpg&rf=LaDigue_800x480.jpg "这是谁的家？")
-
-作为夜空中的无声猎手，猫头鹰是动物王国中最迷人的动物之一。它们能够将头部旋转多达270度，再加上无声的飞行和卓越的夜视能力，充分展现了其非凡的适应性。全球已知有200多种猫头鹰，它们在维护生态平衡中发挥着关键作用，并深深融入人类的文化传统。每年的8月4日是国际猫头鹰意识日，这一天不仅是对它们在自然界中重要角色的致敬，也是提醒人们关注它们所面临威胁的重要时刻。
-
-乌林鸮体型庞大，因而需要定期进食，在冬季，它们每天要捕食多达7只田鼠大小的小型哺乳动物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8c%ab%e5%a4%b4%e9%b9%b0&form=hpcapt&filters=HpDate:"20250803_1600" "Bing Wallpaper 2025 8月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250804_LaplandOwl"&FORM=HPQUIZ "必应主页测验 2025 8月 4")
-[下载480](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_800x480.jpg&rf=LaDigue_800x480.jpg "巢中的乌林鸮, 芬兰")
-[下载720](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_1280x720.jpg&rf=LaDigue_1280x720.jpg "巢中的乌林鸮, 芬兰")
-[下载1080](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巢中的乌林鸮, 芬兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_UHD.jpg&rf=LaDigue_UHD.jpg "巢中的乌林鸮, 芬兰")
 
 ---
