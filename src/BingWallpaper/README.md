@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月20日：永恒的建筑
+#### 博尼法乔城堡，科西嘉岛南部，法国（© Marc Dozier/Getty Images）
+
+![永恒的建筑](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_800x480.jpg&rf=LaDigue_800x480.jpg "永恒的建筑")
+
+位于科西嘉岛南端边缘的博尼法乔，隔着狭窄的海峡遥望撒丁岛，石灰岩峭壁高耸于海浪之上。最初，这里并非风景如画的旅游胜地，而是作为沿海防御工事而建立，在数百年间守护着地中海最繁忙的航道之一。公元828年，托斯卡纳的博尼法斯二世创建了博尼法乔公社，这里逐渐成为商人、士兵与水手聚集的地方，各方人群共同推动了城镇的发展。博尼法乔分为两部分：老城区（又称上城）位于高耸的悬崖之上，坐落在最初的城堡围墙内；而下方的滨海区则沿着狭长的海湾分布，拥有港口、海边住宅和日益发展的山谷社区。
+
+博尼法乔是居伊·德·莫泊桑短篇小说《复仇》的背景地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%9a%e5%b0%bc%e6%b3%95%e4%b9%94&form=hpcapt&filters=HpDate:"20250819_1600" "Bing Wallpaper 2025 8月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250820_CitadelBonifacio"&FORM=HPQUIZ "必应主页测验 2025 8月 20")
+[下载480](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_800x480.jpg&rf=LaDigue_800x480.jpg "博尼法乔城堡，科西嘉岛南部，法国")
+[下载720](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_1280x720.jpg&rf=LaDigue_1280x720.jpg "博尼法乔城堡，科西嘉岛南部，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博尼法乔城堡，科西嘉岛南部，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_UHD.jpg&rf=LaDigue_UHD.jpg "博尼法乔城堡，科西嘉岛南部，法国")
+
+---
 ### 08月19日：随海而流的岩石！
 #### 祖马亚的复理层，巴斯克地区，西班牙（© Eloi_Omella/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_1280x720.jpg&rf=LaDigue_1280x720.jpg "环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加")
 [下载1080](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加")
 [下载UHD](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_UHD.jpg&rf=LaDigue_UHD.jpg "环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加")
-
----
-### 08月05日：潮起潮落
-#### 拉霍亚的潮汐池‌, 加利福尼亚州, 美国（© Andrew Shoemaker/DanitaDelimont.com）
-
-![潮起潮落](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_800x480.jpg&rf=LaDigue_800x480.jpg "潮起潮落")
-
-并非每堂科学课都需要在教室里进行。在加利福尼亚州的拉霍亚，退潮后形成的潮池就在你脚下，向你揭示海洋的奥秘。在圣地亚哥这个沿海社区的岩石海岸线上，当潮水退去，海水被困在天然的凹坑中，就形成了潮池。这些浅水池自然分布在拉霍亚的砂岩和礁石之间，尤以风之海海滩、贝壳海滩、南卡萨海滩和医院角附近最为典型。海水停留在这些岩石凹槽中，为海兔、脆皮海星等多样的海洋生物提供了独特的栖息地。潮池的形成要归功于长期的侵蚀作用。海浪日复一日拍击砂岩和石灰岩的海岸，逐渐雕刻出能够蓄水的小坑洼。每天两次，随着潮水的涨落，这些潮池不断被海水淹没又重新显露，内部的生物也因此必须适应极为多变的环境。冬季白天潮水最低，是探索潮池的最佳时机。需要注意的是，这些潮池受到加州《海洋生物保护法》的保护。你可以欣赏这里的美景、观察潮池中的居民并拍照留念，但请不要触碰或打扰其中的任何生物。这是一堂免费的海洋生物课程，正在你眼前生动上演。
-
-在低潮时，拉霍亚是观赏海底世界的绝佳地点。你可能会看到的海洋生物包括海葵、螃蟹、帽贝、章鱼、海星、海蛞蝓、海兔和藤壶。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e5%88%a9%e7%a6%8f%e5%b0%bc%e4%ba%9a%e5%b7%9e%e6%8b%89%e9%9c%8d%e4%ba%9a&form=hpcapt&filters=HpDate:"20250804_1600" "Bing Wallpaper 2025 8月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250805_CaliforniaTidepool"&FORM=HPQUIZ "必应主页测验 2025 8月 5")
-[下载480](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_800x480.jpg&rf=LaDigue_800x480.jpg "拉霍亚的潮汐池‌, 加利福尼亚州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_1280x720.jpg&rf=LaDigue_1280x720.jpg "拉霍亚的潮汐池‌, 加利福尼亚州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拉霍亚的潮汐池‌, 加利福尼亚州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_UHD.jpg&rf=LaDigue_UHD.jpg "拉霍亚的潮汐池‌, 加利福尼亚州, 美国")
 
 ---
