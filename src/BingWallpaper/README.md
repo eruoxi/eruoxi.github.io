@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月21日：伫立凝视
+#### 穗䳭和盛开的帚石楠，峰区国家公园，英格兰（© Ben Hall/Nature Picture Library）
+
+![伫立凝视](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN2663965839_800x480.jpg&rf=LaDigue_800x480.jpg "伫立凝视")
+
+即便你不是鸟类专家，也不难注意到白尾穗䳭在开阔地面上快速飞奔的身影。这些地栖鸣禽属于水芹属，以直立的姿态和在栖木之间跳跃或奔跑的习性而闻名。尽管名称听起来与谷物有关，白尾穗䳭其实与小麦毫无关系，其名称是“白屁股”这一古老短语的变体，源于该属大多数鸟类所拥有的醒目白色臀部。全球大约有20种白尾穗䳭，但在美国，人们最有可能遇到的是北方穗䳭。这类小鸟体重不足一盎司，却能在阿拉斯加和加拿大北部的夏季栖息地与非洲的越冬地之间往返数千英里。它们的迁徙路线横跨海洋与大陆，是同等体型鸟类中最长的之一。与许多常见的后院鸣禽不同，穗䳭偏爱低矮植被覆盖的开阔地带，在那里它们能够奔跑并迅速扑向昆虫。虽然北美的大多数观鸟者只有在更偏远的北方才能看到它们的身影，但穗䳭在欧洲、亚洲和非洲却分布广泛。
+
+“穗䳭”这个名字并非源自“小麦”或“麦穗”，而是“white”（白色）与“arse”（臀部）两个词的民间词源组合，指的是该属大多数鸟类身上明显可见的白色臀部。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%a9%97%e4%b3%ad&form=hpcapt&filters=HpDate:"20250820_1600" "Bing Wallpaper 2025 8月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250821_WheatearBird"&FORM=HPQUIZ "必应主页测验 2025 8月 21")
+[下载480](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN2663965839_800x480.jpg&rf=LaDigue_800x480.jpg "穗䳭和盛开的帚石楠，峰区国家公园，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN2663965839_1280x720.jpg&rf=LaDigue_1280x720.jpg "穗䳭和盛开的帚石楠，峰区国家公园，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN2663965839_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "穗䳭和盛开的帚石楠，峰区国家公园，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN2663965839_UHD.jpg&rf=LaDigue_UHD.jpg "穗䳭和盛开的帚石楠，峰区国家公园，英格兰")
+
+---
 ### 08月20日：永恒的建筑
 #### 博尼法乔城堡，科西嘉岛南部，法国（© Marc Dozier/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_1280x720.jpg&rf=LaDigue_1280x720.jpg "加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_UHD.jpg&rf=LaDigue_UHD.jpg "加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国")
-
----
-### 08月06日：马达加斯加原住民
-#### 环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加（© Andy Rouse/Nature Picture Library）
-
-![马达加斯加原住民](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_800x480.jpg&rf=LaDigue_800x480.jpg "马达加斯加原住民")
-
-看起来这只小家伙像是在玩耍，对吗？其实，当一只幼年环尾狐猴缠绕或拉扯自己的尾巴时，它正在练习一些至关重要的技能。环尾狐猴的幼崽在生命最初的几周会紧紧依附在母亲身上，起初趴在母亲的腹部，随后转移到背上。随着它们逐渐长大、开始离开母亲，追逐尾巴成为学习平衡、协调以及融入群体玩耍的重要一环。这些灵长类动物还会利用它们长长的尾巴进行交流。当它们集体移动时，会将尾巴像旗帜一样高高举起，以便在开阔地带保持队形。此外，响亮而有节奏的叫声、气味标记以及雄性之间的“臭味大战”，都让它们的社会生活显得格外丰富有趣。
-
-环尾狐猴是最擅长发声的灵长类动物之一，它们会用多样的叫声来保持群体联系或发出捕食者警报。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8e%af%e5%b0%be%e7%8b%90%e7%8c%b4%e2%80%8c&form=hpcapt&filters=HpDate:"20250805_1600" "Bing Wallpaper 2025 8月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250806_BabyLemur"&FORM=HPQUIZ "必应主页测验 2025 8月 6")
-[下载480](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_800x480.jpg&rf=LaDigue_800x480.jpg "环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加")
-[下载720](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_1280x720.jpg&rf=LaDigue_1280x720.jpg "环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加")
-[下载1080](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加")
-[下载UHD](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_UHD.jpg&rf=LaDigue_UHD.jpg "环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加")
 
 ---
