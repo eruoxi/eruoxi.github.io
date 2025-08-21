@@ -1,8 +1,25 @@
 ## Bing Wallpaper(最近15天)
+### 08月22日：大自然的绿色地毯
+#### 帕卢斯连绵起伏的丘陵，华盛顿州，美国（© svetlana57/Getty Images）
+
+![大自然的绿色地毯](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的绿色地毯")
+
+一波又一波的柔软丘陵绵延于帕卢斯地区。这片宁静的区域位于华盛顿州东南部，向爱达荷州和俄勒冈州的边界延伸。覆盖着小麦的坡地随着季节更迭而变换色彩。春季，丘陵呈现出郁郁葱葱的绿色，年轻的小麦和大麦开始生长；夏季则转变为干燥的金黄色，作物即将收割。
+
+帕卢斯南部地区（靠近沃拉沃拉）最近出现了一种新现象——葡萄园的兴起。截至2015年，该地区已有超过800个葡萄园。与小麦种植一样，该地区的气候也非常适合葡萄种植，其中赤霞珠（Cabernet Sauvignon）是主要品种。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%95%e5%8d%a2%e6%96%af%e5%9c%b0%e5%8c%ba&form=hpcapt&filters=HpDate:"20250821_1600" "Bing Wallpaper 2025 8月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250822_PalouseWA"&FORM=HPQUIZ "必应主页测验 2025 8月 22")
+[下载480](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_800x480.jpg&rf=LaDigue_800x480.jpg "帕卢斯连绵起伏的丘陵，华盛顿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕卢斯连绵起伏的丘陵，华盛顿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕卢斯连绵起伏的丘陵，华盛顿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_UHD.jpg&rf=LaDigue_UHD.jpg "帕卢斯连绵起伏的丘陵，华盛顿州，美国")
+
+---
 ### 08月21日：伫立凝视
 #### 穗䳭和盛开的帚石楠，峰区国家公园，英格兰（© Ben Hall/Nature Picture Library）
 
-![伫立凝视](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN2663965839_800x480.jpg&rf=LaDigue_800x480.jpg "伫立凝视")
+![伫立凝视](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN3286472001_800x480.jpg&rf=LaDigue_800x480.jpg "伫立凝视")
 
 即便你不是鸟类专家，也不难注意到白尾穗䳭在开阔地面上快速飞奔的身影。这些地栖鸣禽属于水芹属，以直立的姿态和在栖木之间跳跃或奔跑的习性而闻名。尽管名称听起来与谷物有关，白尾穗䳭其实与小麦毫无关系，其名称是“白屁股”这一古老短语的变体，源于该属大多数鸟类所拥有的醒目白色臀部。全球大约有20种白尾穗䳭，但在美国，人们最有可能遇到的是北方穗䳭。这类小鸟体重不足一盎司，却能在阿拉斯加和加拿大北部的夏季栖息地与非洲的越冬地之间往返数千英里。它们的迁徙路线横跨海洋与大陆，是同等体型鸟类中最长的之一。与许多常见的后院鸣禽不同，穗䳭偏爱低矮植被覆盖的开阔地带，在那里它们能够奔跑并迅速扑向昆虫。虽然北美的大多数观鸟者只有在更偏远的北方才能看到它们的身影，但穗䳭在欧洲、亚洲和非洲却分布广泛。
 
@@ -10,10 +27,10 @@
 
 [Bing搜索](https://cn.bing.com/search?q=%e7%a9%97%e4%b3%ad&form=hpcapt&filters=HpDate:"20250820_1600" "Bing Wallpaper 2025 8月 21")
 [必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250821_WheatearBird"&FORM=HPQUIZ "必应主页测验 2025 8月 21")
-[下载480](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN2663965839_800x480.jpg&rf=LaDigue_800x480.jpg "穗䳭和盛开的帚石楠，峰区国家公园，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN2663965839_1280x720.jpg&rf=LaDigue_1280x720.jpg "穗䳭和盛开的帚石楠，峰区国家公园，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN2663965839_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "穗䳭和盛开的帚石楠，峰区国家公园，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN2663965839_UHD.jpg&rf=LaDigue_UHD.jpg "穗䳭和盛开的帚石楠，峰区国家公园，英格兰")
+[下载480](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN3286472001_800x480.jpg&rf=LaDigue_800x480.jpg "穗䳭和盛开的帚石楠，峰区国家公园，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN3286472001_1280x720.jpg&rf=LaDigue_1280x720.jpg "穗䳭和盛开的帚石楠，峰区国家公园，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN3286472001_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "穗䳭和盛开的帚石楠，峰区国家公园，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN3286472001_UHD.jpg&rf=LaDigue_UHD.jpg "穗䳭和盛开的帚石楠，峰区国家公园，英格兰")
 
 ---
 ### 08月20日：永恒的建筑
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_1280x720.jpg&rf=LaDigue_1280x720.jpg "伊瓜苏瀑布的三火枪瀑布, 阿根廷")
 [下载1080](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊瓜苏瀑布的三火枪瀑布, 阿根廷")
 [下载UHD](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_UHD.jpg&rf=LaDigue_UHD.jpg "伊瓜苏瀑布的三火枪瀑布, 阿根廷")
-
----
-### 08月07日：海岸的密码
-#### 加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国（© Wiltser/Getty Images）
-
-![海岸的密码](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_800x480.jpg&rf=LaDigue_800x480.jpg "海岸的密码")
-
-在GPS尚未为船只导航之前，灯塔就是航海者的重要领航标。每座灯塔都拥有独特的闪光模式，即使在漆黑的夜晚，水手们也能凭此确定自身所处的位置。今天是美国国家灯塔日，正是向这些沿海守护者致敬的良机。1789年，美国国会通过法案，规定所有灯塔由联邦政府统一维护。不论你是历史爱好者、海岸探险者，还是单纯钟爱经典工程建筑的人，这一天都值得你去深入了解灯塔的故事，或与亲朋好友一同参观灯塔。
-
-最初，灯塔使用燃烧的煤炭甚至是篝火作为“灯”或光源。后来，灯塔改用燃油灯，直到1875年最终采用电灯。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e5%9b%bd%e5%9b%bd%e5%ae%b6%e7%81%af%e5%a1%94%e6%97%a5&form=hpcapt&filters=HpDate:"20250806_1600" "Bing Wallpaper 2025 8月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250807_GasparillaLight"&FORM=HPQUIZ "必应主页测验 2025 8月 7")
-[下载480](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_800x480.jpg&rf=LaDigue_800x480.jpg "加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_1280x720.jpg&rf=LaDigue_1280x720.jpg "加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_UHD.jpg&rf=LaDigue_UHD.jpg "加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国")
 
 ---
