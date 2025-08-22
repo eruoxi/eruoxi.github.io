@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月23日：彩林叠翠间的瀑布
+#### 秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国（© tawatchaiprakobkit/Getty images）
+
+![彩林叠翠间的瀑布](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_800x480.jpg&rf=LaDigue_800x480.jpg "彩林叠翠间的瀑布")
+
+立秋是秋季的第二个节气。这意味着夏季的炎热将从此消失。不过，天气依然闷热，不像秋天。人们称这种天气为 “秋老虎”，通常从8月22日左右开始，到8月24日左右结束。
+
+诺日朗瀑布高20 米（66 英尺），宽 270 米（66 英尺），是中国最宽的瀑布。对面建有观景平台，可将糯日朗瀑布尽收眼底。许多中国电影和电视剧（如《西游记》）的场景都是在这里拍摄的。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%af%ba%e6%97%a5%e6%9c%97%e7%80%91%e5%b8%83&form=hpcapt&filters=HpDate:"20250822_1600" "Bing Wallpaper 2025 8月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250823_ChushuY25"&FORM=HPQUIZ "必应主页测验 2025 8月 23")
+[下载480](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_800x480.jpg&rf=LaDigue_800x480.jpg "秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国")
+[下载720](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国")
+[下载1080](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_UHD.jpg&rf=LaDigue_UHD.jpg "秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国")
+
+---
 ### 08月22日：大自然的绿色地毯
 #### 帕卢斯连绵起伏的丘陵，华盛顿州，美国（© svetlana57/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_1280x720.jpg&rf=LaDigue_1280x720.jpg "陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰")
 [下载1080](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_UHD.jpg&rf=LaDigue_UHD.jpg "陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰")
-
----
-### 08月08日：奔流不息，为你为我
-#### 伊瓜苏瀑布的三火枪瀑布, 阿根廷（© Mark Meredith/Getty Images）
-
-![奔流不息，为你为我](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_800x480.jpg&rf=LaDigue_800x480.jpg "奔流不息，为你为我")
-
-没有任何声音能盖过伊瓜苏瀑布的轰鸣。但令人震撼的不仅是那轰鸣的声浪。这座横跨阿根廷与巴西边境的自然奇观，以其磅礴气势令人无法抗拒。广阔的瀑布群绵延近两英里，汇聚了270多道独立瀑布，每一处都展现出独特的水流奔腾和水雾蒸腾之景。
-
-“伊瓜苏”这个名字源自瓜拉尼语或图皮语，其中“y”意为“水”，“uasu”意为“巨大”，合起来即“巨大的水”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bc%8a%e7%93%9c%e8%8b%8f%e7%80%91%e5%b8%83+%e9%98%bf%e6%a0%b9%e5%bb%b7+%e5%b7%b4%e8%a5%bf&form=hpcapt&filters=HpDate:"20250807_1600" "Bing Wallpaper 2025 8月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250808_IguazuArgentina"&FORM=HPQUIZ "必应主页测验 2025 8月 8")
-[下载480](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_800x480.jpg&rf=LaDigue_800x480.jpg "伊瓜苏瀑布的三火枪瀑布, 阿根廷")
-[下载720](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_1280x720.jpg&rf=LaDigue_1280x720.jpg "伊瓜苏瀑布的三火枪瀑布, 阿根廷")
-[下载1080](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊瓜苏瀑布的三火枪瀑布, 阿根廷")
-[下载UHD](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_UHD.jpg&rf=LaDigue_UHD.jpg "伊瓜苏瀑布的三火枪瀑布, 阿根廷")
 
 ---
