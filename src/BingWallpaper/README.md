@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月24日：“跟我来”
+#### 欧洲黇鹿‌，英格兰（© Enrique Aguirre Aves/Getty Images）
+
+![“跟我来”](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_800x480.jpg&rf=LaDigue_800x480.jpg "“跟我来”")
+
+扁平的鹿角？没错。斑点的皮毛？没错。灌木丛里的斜眼？也没错。跟欧洲黇鹿打个招呼吧。几个世纪以来，这些中等体型的鹿一直昂首阔步地穿梭于英国的林地和公园之中。虽然它们看起来很像家，但它们并非土生土长的。罗马人很可能把它们带到了这里，后来诺曼人又使它们在狩猎公园里变得常见。如今，它们已成为从苏塞克斯郡到苏格兰各地风景的常客。
+
+2024年的一项研究表明，土耳其黇鹿种群是欧洲大部分黇鹿以及世界各地引进种群的祖先。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e6%b4%b2%e9%bb%87%e9%b9%bf%e2%80%8c&form=hpcapt&filters=HpDate:"20250823_1600" "Bing Wallpaper 2025 8月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250824_CervusDama"&FORM=HPQUIZ "必应主页测验 2025 8月 24")
+[下载480](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_800x480.jpg&rf=LaDigue_800x480.jpg "欧洲黇鹿‌，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧洲黇鹿‌，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧洲黇鹿‌，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_UHD.jpg&rf=LaDigue_UHD.jpg "欧洲黇鹿‌，英格兰")
+
+---
 ### 08月23日：彩林叠翠间的瀑布
 #### 秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国（© tawatchaiprakobkit/Getty images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_1280x720.jpg&rf=LaDigue_1280x720.jpg "马赛马拉国家保护区的雌狮,肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉国家保护区的雌狮,肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉国家保护区的雌狮,肯尼亚")
-
----
-### 08月09日：致敬原住民之声
-#### 陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰（© Joppi/Getty Images）
-
-![致敬原住民之声](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_800x480.jpg&rf=LaDigue_800x480.jpg "致敬原住民之声")
-
-每年8月9日，联合国都会庆祝“世界土著人民国际日”，这一日是纪念原住民社区坚韧精神、智慧和丰富文化的时刻。在美国，这一天也成为反思美洲原住民部落历史与贡献的契机，同时鼓励人们与全球各地的土著人民携手共进。
-
-在陶波湖深水之上的悬崖峭壁上，高达14米的石刻由艺术家马塔希·布赖特韦尔创作，已成为新西兰北岛最受欢迎的旅游景点之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%9c%9f%e8%91%97%e4%ba%ba%e6%b0%91%e5%9b%bd%e9%99%85%e6%97%a5&form=hpcapt&filters=HpDate:"20250808_1600" "Bing Wallpaper 2025 8月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250809_MaoriRock"&FORM=HPQUIZ "必应主页测验 2025 8月 9")
-[下载480](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_800x480.jpg&rf=LaDigue_800x480.jpg "陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰")
-[下载720](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_1280x720.jpg&rf=LaDigue_1280x720.jpg "陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰")
-[下载1080](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_UHD.jpg&rf=LaDigue_UHD.jpg "陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰")
 
 ---
