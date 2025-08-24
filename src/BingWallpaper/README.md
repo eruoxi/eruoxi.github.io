@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月25日：从火山之源到河流之路
+#### 方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国（© Rebecca L. Latson/Getty Images）
+
+![从火山之源到河流之路](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_800x480.jpg&rf=LaDigue_800x480.jpg "从火山之源到河流之路")
+
+黄石河是美国本土48州最后一条未建坝的主要河流，它从黄石公园东南方向发源，全长671英里（1080公里），汇入密苏里河，最终汇入大西洋。这座地热与峡谷交汇的观景台，让您近距离欣赏黄石河蜿蜒流经熔岩锻造的峡谷的壮丽景色。沿着玄武岩峭壁，可以看到富含矿物质的地下水仍在冒着热气，形成了白色的矿藏，方解石泉也因此得名。您或许还能看到白头鹰在头顶滑翔，或是野牛在附近悠闲地休息。黄石公园不仅仅是一个公园，它更是一座拥有游客中心的超级火山。
+
+石灰泉得名于覆盖该地区的乳白色石灰石晶体。与石灰石混杂在一起的是半透明的蜂蜜色重晶石晶体。在温泉管道内，有美丽但气味刺鼻的黄色硫磺晶体。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%bb%84%e7%9f%b3%e6%b2%b3&form=hpcapt&filters=HpDate:"20250824_1600" "Bing Wallpaper 2025 8月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250825_YellowstoneRiver"&FORM=HPQUIZ "必应主页测验 2025 8月 25")
+[下载480](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_800x480.jpg&rf=LaDigue_800x480.jpg "方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_1280x720.jpg&rf=LaDigue_1280x720.jpg "方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_UHD.jpg&rf=LaDigue_UHD.jpg "方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国")
+
+---
 ### 08月24日：“跟我来”
 #### 欧洲黇鹿‌，英格兰（© Enrique Aguirre Aves/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣玛格达莱娜, 多洛米蒂山, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣玛格达莱娜, 多洛米蒂山, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_UHD.jpg&rf=LaDigue_UHD.jpg "圣玛格达莱娜, 多洛米蒂山, 意大利")
-
----
-### 08月10日：为正义怒吼
-#### 马赛马拉国家保护区的雌狮,肯尼亚（© Tandem Stock/Adobe Stock）
-
-![为正义怒吼](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_800x480.jpg&rf=LaDigue_800x480.jpg "为正义怒吼")
-
-狮子的怒吼在非洲大草原上回荡，千百年来激发着人类的想象力。每年的8月10日是世界狮子日，这一天邀请我们共同庆祝这些具有象征意义的猛兽，同时唤起人们对它们数量日益减少以及保护工作的紧迫性的关注。
-
-和许多动物一样，狮子能够通过解谜来获取食物。与众不同的是，它们还能通过观察其他狮子如何解开谜题，从而学会应对同样的挑战。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%8b%ae%e5%ad%90%e6%97%a5&form=hpcapt&filters=HpDate:"20250809_1600" "Bing Wallpaper 2025 8月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250810_LionessKenya"&FORM=HPQUIZ "必应主页测验 2025 8月 10")
-[下载480](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_800x480.jpg&rf=LaDigue_800x480.jpg "马赛马拉国家保护区的雌狮,肯尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_1280x720.jpg&rf=LaDigue_1280x720.jpg "马赛马拉国家保护区的雌狮,肯尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉国家保护区的雌狮,肯尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉国家保护区的雌狮,肯尼亚")
 
 ---
