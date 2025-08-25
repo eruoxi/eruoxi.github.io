@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月26日：一座非凡的特鲁洛小镇
+#### 阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利（© Feng Wei Photography/Getty Images）
+
+![一座非凡的特鲁洛小镇](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_800x480.jpg&rf=LaDigue_800x480.jpg "一座非凡的特鲁洛小镇")
+
+如果童话故事里有建筑师，他们或许能创造出像意大利阿尔贝罗贝洛那样的景象。但这座小镇的标志性建筑——特鲁利（trulli，单数为trullo），并非靠魔杖，而是石灰岩、无砂浆砌筑，以及——根据某些理论——一些逃税手段——才得以建成。这些粉刷过的石屋顶部是干砌的石灰岩屋顶，形状像倒置的冰淇淋蛋筒。这是一种古老的建筑技术，在阿尔贝罗贝洛，更是巧妙之举。据说早在14世纪，当地人就试图通过建造房屋来逃避房产税，因为国王的税务官来袭时，这些房屋很容易被拆除。
+
+阿尔贝罗贝洛字面意思是“美丽的树”；是意大利南部普利亚大区巴里大都会区的一个小镇和市镇。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e5%b0%94%e8%b4%9d%e7%bd%97%e8%b4%9d%e6%b4%9b&form=hpcapt&filters=HpDate:"20250825_1600" "Bing Wallpaper 2025 8月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250826_TrulliHouses"&FORM=HPQUIZ "必应主页测验 2025 8月 26")
+[下载480](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利")
+
+---
 ### 08月25日：从火山之源到河流之路
 #### 方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国（© Rebecca L. Latson/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_1280x720.jpg&rf=LaDigue_1280x720.jpg "非洲象群, 安博塞利国家公园, 肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "非洲象群, 安博塞利国家公园, 肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_UHD.jpg&rf=LaDigue_UHD.jpg "非洲象群, 安博塞利国家公园, 肯尼亚")
-
----
-### 08月11日：来自山巅的明信片
-#### 圣玛格达莱娜, 多洛米蒂山, 意大利（© Sakrapee Nopparat/Getty Images）
-
-![来自山巅的明信片](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_800x480.jpg&rf=LaDigue_800x480.jpg "来自山巅的明信片")
-
-位于意大利北部阿尔卑斯山的南蒂罗尔州，圣玛格达莱娜村坐落于福内斯山谷中，宛如明信片上描绘的理想村落。村中标志性的尖顶教堂，背后耸立着刀削斧刻般的多洛米蒂山峰，是该地区最常被拍摄的景致之一。多洛米蒂山脉本身被联合国教科文组织列为世界遗产，山体主要由淡色石灰岩构成，日落时泛起柔和的粉红色光芒，当地人称之为“日照粉红”现象。
-
-多洛米蒂世界遗产地由九个组成部分构成，保护着一系列极具特色的山地景观，以其卓越的自然美而闻名。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e5%a4%9a%e6%b4%9b%e7%b1%b3%e8%92%82%e5%b1%b1&form=hpcapt&filters=HpDate:"20250810_1600" "Bing Wallpaper 2025 8月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250811_SantaMaddalena"&FORM=HPQUIZ "必应主页测验 2025 8月 11")
-[下载480](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_800x480.jpg&rf=LaDigue_800x480.jpg "圣玛格达莱娜, 多洛米蒂山, 意大利")
-[下载720](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣玛格达莱娜, 多洛米蒂山, 意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣玛格达莱娜, 多洛米蒂山, 意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_UHD.jpg&rf=LaDigue_UHD.jpg "圣玛格达莱娜, 多洛米蒂山, 意大利")
 
 ---
