@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月27日：海洋上方的湖泊
+#### 瑟沃格湖，瓦加尔岛，法罗群岛（© Anton Petrus/Getty Images）
+
+![海洋上方的湖泊](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_800x480.jpg&rf=LaDigue_800x480.jpg "海洋上方的湖泊")
+
+大自然自有其奇妙之处，瑟沃格湖（Sørvágsvatn）便是其中最精彩的之一。世界湖泊日是探索法罗群岛（丹麦王国的一个自治行政区）这片视错觉的绝佳时机。这座位于沃格岛上的湖泊也被称为莱蒂斯湖（Leitisvatn），看似漂浮在海平面之上。实际上，它的海拔不到100英尺。索尔瓦格斯湖是法罗群岛最大的湖泊，面积约1.3平方英里，为Bøsdalafossur瀑布Bøsdalafossur提供水源，瀑布的湖水在那里奔腾而下，最终倾泻而入大海。
+
+该湖位于瓦加尔岛南部，通过Bøsdalafossur瀑布与大西洋相连，形成了壮丽的“悬湖”景观。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%91%9f%e6%b2%83%e6%a0%bc%e6%b9%96&form=hpcapt&filters=HpDate:"20250826_1600" "Bing Wallpaper 2025 8月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250827_FaroeLake"&FORM=HPQUIZ "必应主页测验 2025 8月 27")
+[下载480](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_800x480.jpg&rf=LaDigue_800x480.jpg "瑟沃格湖，瓦加尔岛，法罗群岛")
+[下载720](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_1280x720.jpg&rf=LaDigue_1280x720.jpg "瑟沃格湖，瓦加尔岛，法罗群岛")
+[下载1080](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瑟沃格湖，瓦加尔岛，法罗群岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_UHD.jpg&rf=LaDigue_UHD.jpg "瑟沃格湖，瓦加尔岛，法罗群岛")
+
+---
 ### 08月26日：一座非凡的特鲁洛小镇
 #### 阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利（© Feng Wei Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_1280x720.jpg&rf=LaDigue_1280x720.jpg "一名男子从摩押附近的科罗纳拱门索降, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一名男子从摩押附近的科罗纳拱门索降, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_UHD.jpg&rf=LaDigue_UHD.jpg "一名男子从摩押附近的科罗纳拱门索降, 美国")
-
----
-### 08月12日：野性、智慧与奇迹
-#### 非洲象群, 安博塞利国家公园, 肯尼亚（© Chase Dekker/Minden Pictures）
-
-![野性、智慧与奇迹](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_800x480.jpg&rf=LaDigue_800x480.jpg "野性、智慧与奇迹")
-
-大耳朵，大心脏，大象不仅是野性的象征，更代表着自然界的智慧。每年8月12日是“世界大象日”，这是一个全球纪念日，旨在提高人们对这些雄伟巨兽的关注。今日图片拍摄于肯尼亚的安博塞利国家公园，这里是它们的重要栖息地之一。大象真正令人敬佩的不只是庞大的体型，更是它们卓越的智慧。年长的母象首领拥有惊人的记忆力，能够记得数十年前的水源位置，并在干旱时期带领族群找到水源。它们的社交关系也极为紧密，生活在稳固的家族群体中，会为同伴的死亡哀悼，甚至在困难时互相安慰。
-
-大象喜欢玩耍，而且不仅限于幼象。成年大象也会往空中喷水、在地上打滚，甚至追逐其他动物，仅仅是为了好玩。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%a4%a7%e8%b1%a1%e6%97%a5&form=hpcapt&filters=HpDate:"20250811_1600" "Bing Wallpaper 2025 8月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250812_KenyaElephants"&FORM=HPQUIZ "必应主页测验 2025 8月 12")
-[下载480](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_800x480.jpg&rf=LaDigue_800x480.jpg "非洲象群, 安博塞利国家公园, 肯尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_1280x720.jpg&rf=LaDigue_1280x720.jpg "非洲象群, 安博塞利国家公园, 肯尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "非洲象群, 安博塞利国家公园, 肯尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_UHD.jpg&rf=LaDigue_UHD.jpg "非洲象群, 安博塞利国家公园, 肯尼亚")
 
 ---
