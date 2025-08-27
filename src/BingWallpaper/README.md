@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月28日：这只白鹭毫无遗憾
+#### 大白鹭，匈牙利（© Markus Varesvuo/Nature Picture Library）
+
+![这只白鹭毫无遗憾](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_800x480.jpg&rf=LaDigue_800x480.jpg "这只白鹭毫无遗憾")
+
+今天让我们来认识一下大白鹭吧。它们分布在美洲、亚洲、非洲和欧洲部分地区，经常在湿地、潮滩和平静的溪流中涉水。它们耐心而精准，会一动不动地站上几分钟，等待着最佳时机发动闪电般的攻击。鱼类是它们的主要猎物，但也捕食青蛙、爬行动物，甚至小型哺乳动物。大白鹭广泛分布在世界各地。在中国见于东北、河北、江苏、云南、广东、海南、台湾等地。栖息于河川、海滨、沼泽湿地或水田中。性颇机警，见人即飞去。白天多单独寻觅食物，在食物丰富的区域内，也成小群活动。
+
+大白鹭于1758年由瑞典自然学家卡尔·林奈在《自然系统》第十版中正式描述，其学名为Ardea alba。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e7%99%bd%e9%b9%ad&form=hpcapt&filters=HpDate:"20250827_1600" "Bing Wallpaper 2025 8月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250828_WhiteEgret"&FORM=HPQUIZ "必应主页测验 2025 8月 28")
+[下载480](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_800x480.jpg&rf=LaDigue_800x480.jpg "大白鹭，匈牙利")
+[下载720](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_1280x720.jpg&rf=LaDigue_1280x720.jpg "大白鹭，匈牙利")
+[下载1080](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大白鹭，匈牙利")
+[下载UHD](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_UHD.jpg&rf=LaDigue_UHD.jpg "大白鹭，匈牙利")
+
+---
 ### 08月27日：海洋上方的湖泊
 #### 瑟沃格湖，瓦加尔岛，法罗群岛（© Anton Petrus/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_1280x720.jpg&rf=LaDigue_1280x720.jpg "皮兹奈尔山缆车站, 格劳宾登州, 瑞士")
 [下载1080](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "皮兹奈尔山缆车站, 格劳宾登州, 瑞士")
 [下载UHD](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_UHD.jpg&rf=LaDigue_UHD.jpg "皮兹奈尔山缆车站, 格劳宾登州, 瑞士")
-
----
-### 08月13日：地球的公开秘密
-#### 一名男子从摩押附近的科罗纳拱门索降, 美国（© Grant Ordelheide/TANDEM Stills + Motion）
-
-![地球的公开秘密](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_800x480.jpg&rf=LaDigue_800x480.jpg "地球的公开秘密")
-
-通往它的科罗纳拱门步道起初较为平坦，但沿途风光壮丽：穿越铁路轨道、攀爬光滑岩石，甚至需借助金属缆绳前行，让这段旅程远不只是一次在犹他州拱门国家公园之外，有一处如同通向天空的巨大门户般的自然奇观，吸引着摄影师、自然爱好者和徒步旅行者，那就是今日图片中所见的科罗纳拱门。这座巨大拱形岩石由纳瓦霍砂岩构成，是一处充满冒险却不拥挤的旅行目的地。普通的沙漠散步。步行约1.5英里后，你将抵达这座令人震撼的天然拱门，它宽达140英尺，高约105英尺，庞大的规模令人叹为观止。过去曾有人在拱门上系绳荡秋千，这种极限活动后来因安全原因被禁止。即便没有刺激的冒险，这次徒步旅程仍能让你在红岩地貌的心脏地带，欣赏到令人震撼的自然景观，留下难忘回忆。科罗纳拱门也被称为“小彩虹桥”，因其外形酷似鲍威尔湖附近的著名彩虹桥，但它独自坐落于更为宁静的天地之中，绽放着独特的自然魅力。
-
-如果你有恐高症或行走不稳，最好在第一个缆绳处停下，从那里观赏拱门即可。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a9%e7%84%b6%e6%8b%b1%e9%97%a8&form=hpcapt&filters=HpDate:"20250812_1600" "Bing Wallpaper 2025 8月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250813_CoronaArch"&FORM=HPQUIZ "必应主页测验 2025 8月 13")
-[下载480](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_800x480.jpg&rf=LaDigue_800x480.jpg "一名男子从摩押附近的科罗纳拱门索降, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_1280x720.jpg&rf=LaDigue_1280x720.jpg "一名男子从摩押附近的科罗纳拱门索降, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一名男子从摩押附近的科罗纳拱门索降, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_UHD.jpg&rf=LaDigue_UHD.jpg "一名男子从摩押附近的科罗纳拱门索降, 美国")
 
 ---
