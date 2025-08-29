@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月30日：有鳍且惊艳
+#### 阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫（© Bachir Moukarzel/Amazing Aerial Agency）
+
+![有鳍且惊艳](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_800x480.jpg&rf=LaDigue_800x480.jpg "有鳍且惊艳")
+
+如果你从未见过一条近40英尺长、身上布满斑点的鲸鲨在珊瑚礁间优雅游弋，那你可就错过了精彩的一幕。今天是国际鲸鲨日，提醒我们这些行动缓慢的巨型生物需要我们的关注。自2008年首次设立以来，这一天被研究人员和海洋保护倡导者用来聚焦保护工作，并警示船只撞击、塑料污染和无序旅游等威胁。
+
+自2016年以来，鲸鲨已被国际自然保护联盟列为濒危物种。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e9%b2%b8%e9%b2%a8%e6%97%a5&form=hpcapt&filters=HpDate:"20250829_1600" "Bing Wallpaper 2025 8月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250830_MaldivesWhaleShark"&FORM=HPQUIZ "必应主页测验 2025 8月 30")
+[下载480](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_800x480.jpg&rf=LaDigue_800x480.jpg "阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫")
+[下载720](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫")
+[下载1080](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫")
+[下载UHD](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_UHD.jpg&rf=LaDigue_UHD.jpg "阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫")
+
+---
 ### 08月29日：网格的心脏
 #### 马约尔广场鸟瞰图, 马德里, 西班牙（© AirPano LLC/Amazing Aerial Agency）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_1280x720.jpg&rf=LaDigue_1280x720.jpg "色彩斑斓的蜂巢, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "色彩斑斓的蜂巢, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_UHD.jpg&rf=LaDigue_UHD.jpg "色彩斑斓的蜂巢, 意大利")
-
----
-### 08月15日：水下翱翔
-#### 斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔（© Tui De Roy/Minden Pictures）
-
-![水下翱翔](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_800x480.jpg&rf=LaDigue_800x480.jpg "水下翱翔")
-
-这是什么？鸟？飞机？不，这是一条鱼！它挥动鳍状肢在海中滑翔，还自带斑点的时尚外观，斑点鹰鳐绝不会默默无闻。与那些在海底爬行的魟鱼亲戚不同，它是海洋中的“飞行者”。 它的名字来自你猜得没错的部分，那突出而弯曲的吻部，酷似鹰喙；而背部的斑点更是独一无二，就像指纹一样，每一条都有自己独特的花纹。它展开胸鳍时可达 3 米宽，那对如翅膀般的鳍令它在水中翱翔自如。它那长长的尾巴基部带有毒刺，能在有捕食者靠近时发挥防御作用。虽然斑点鹞鲼通常性情温和，但绝非毫无保护能力。
-
-斑点鹞鲼通常栖息于海湾与珊瑚礁之间，偶尔也会进入河口水域。在中国，它分布于东海、台湾沿岸以及南海地区。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%91%e7%82%b9%e9%b9%9e%e9%b2%bc&form=hpcapt&filters=HpDate:"20250814_1600" "Bing Wallpaper 2025 8月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250815_SpottedEagleRay"&FORM=HPQUIZ "必应主页测验 2025 8月 15")
-[下载480](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_800x480.jpg&rf=LaDigue_800x480.jpg "斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔")
-[下载720](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_1280x720.jpg&rf=LaDigue_1280x720.jpg "斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔")
-[下载1080](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg&rf=LaDigue_UHD.jpg "斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔")
 
 ---
