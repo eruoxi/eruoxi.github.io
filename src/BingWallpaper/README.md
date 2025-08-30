@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月31日：彩绘的云，静默的悬崖
+#### 杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国（© Hawk Buckman/Getty Images）
+
+![彩绘的云，静默的悬崖](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_800x480.jpg&rf=LaDigue_800x480.jpg "彩绘的云，静默的悬崖")
+
+在GPS问世之前，像斯科茨布卢夫（Scotts Bluff）这样的自然地标就已高耸于大草原之上，为西行的旅人指明方向。在1887年杰林镇（Gering）建镇之前，以及内布拉斯加州于1867年成为美国州份的数十年之前，这些砂岩和泥岩地貌已然引导着成千上万的旅人沿着俄勒冈小径、加利福尼亚小径和摩门教徒小径前行。斯科茨布卢夫国家纪念碑（Scotts Bluff National Monument）以皮毛商人希拉姆·斯科特（Hiram Scott）命名，他曾是落基山皮毛公司（Rocky Mountain Fur Company）的成员，于19世纪20年代在附近地区因神秘原因去世。
+
+纪念碑博物馆展出了该地区的人类和自然历史展品，并收藏了边疆摄影师兼艺术家威廉·亨利·杰克逊（William Henry Jackson）的一系列独特水彩画作品。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e7%a7%91%e8%8c%a8%e5%b8%83%e6%8b%89%e5%a4%ab%e5%9b%bd%e5%ae%b6%e7%ba%aa%e5%bf%b5%e7%a2%91&form=hpcapt&filters=HpDate:"20250830_1600" "Bing Wallpaper 2025 8月 31")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250831_ScottsBluff"&FORM=HPQUIZ "必应主页测验 2025 8月 31")
+[下载480](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_800x480.jpg&rf=LaDigue_800x480.jpg "杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国")
+[下载720](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_1280x720.jpg&rf=LaDigue_1280x720.jpg "杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_UHD.jpg&rf=LaDigue_UHD.jpg "杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国")
+
+---
 ### 08月30日：有鳍且惊艳
 #### 阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫（© Bachir Moukarzel/Amazing Aerial Agency）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_1280x720.jpg&rf=LaDigue_1280x720.jpg "灵维格灯塔，维泽桑讷，丹麦")
 [下载1080](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灵维格灯塔，维泽桑讷，丹麦")
 [下载UHD](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_UHD.jpg&rf=LaDigue_UHD.jpg "灵维格灯塔，维泽桑讷，丹麦")
-
----
-### 08月16日：成为改变的一“蜂”
-#### 色彩斑斓的蜂巢, 意大利（© Roberto Caucino/Shutterstock）
-
-![成为改变的一“蜂”](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_800x480.jpg&rf=LaDigue_800x480.jpg "成为改变的一“蜂”")
-
-如果你以为蜜蜂的存在只是为了蜇人，那就大错特错了。这些小小的有翅工匠，正在从事世界上最甜蜜也最重要的工作，而且它们还有属于自己的节日：每年 8 月第三个星期六的“世界蜜蜂日”。 全球约 35% 的粮食作物产量依赖动物传粉，其中蜜蜂是最重要的传粉者之一。由蜜蜂完成授粉的作物，其经济价值估计高达数千亿美元。尽管拥有这般“超能力”，蜜蜂的生存却正面临危机：栖息地丧失、杀虫剂使用、疾病蔓延以及气候变化，都在让蜂巢生活日益艰难。
-
-蜜蜂通过复杂的“摇摆舞”与蜂巢中的其他蜜蜂沟通，传达食物来源的位置。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%9c%9c%e8%9c%82&form=hpcapt&filters=HpDate:"20250815_1600" "Bing Wallpaper 2025 8月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250816_ColorfulBeehives"&FORM=HPQUIZ "必应主页测验 2025 8月 16")
-[下载480](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_800x480.jpg&rf=LaDigue_800x480.jpg "色彩斑斓的蜂巢, 意大利")
-[下载720](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_1280x720.jpg&rf=LaDigue_1280x720.jpg "色彩斑斓的蜂巢, 意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "色彩斑斓的蜂巢, 意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_UHD.jpg&rf=LaDigue_UHD.jpg "色彩斑斓的蜂巢, 意大利")
 
 ---
