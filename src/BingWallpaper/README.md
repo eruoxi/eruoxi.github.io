@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月01日：风景如画的葡萄园
+#### 凯撒施图尔，巴登-符腾堡，德国（© EyeEM Mobile GmbH/Getty Images）
+
+![风景如画的葡萄园](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_800x480.jpg&rf=LaDigue_800x480.jpg "风景如画的葡萄园")
+
+凯撒施图尔山是巴登-符腾堡州南部一座低矮的小山脉，靠近弗莱堡，是德国阳光最充沛的地区之一。凯泽斯图尔因奥托三世皇帝于994年在此统治而得名。这片风景如画的地区是自然爱好者、寻求放松身心人士以及葡萄酒鉴赏家的天堂。肥沃的土壤和温和的气候，使灰皮诺和黑皮诺等葡萄品种在这里茁壮成长。过去的火山活动留下了富含矿物质的土壤，赋予了该地区葡萄酒独特的风味。连绵起伏的丘陵、田园诗般的村庄以及包括珍稀绿蜥蜴在内的多种野生动物，使凯泽斯图尔成为自然爱好者的迷人目的地。
+
+巴登-符腾堡州是德国自然风光最迷人的地区之一，拥有七处景点被列为联合国教科文组织世界遗产。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e7%99%bb-%e7%ac%a6%e8%85%be%e5%a0%a1&form=hpcapt&filters=HpDate:"20250831_1600" "Bing Wallpaper 2025 9月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250901_FieldKaiserstuhl"&FORM=HPQUIZ "必应主页测验 2025 9月 1")
+[下载480](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_800x480.jpg&rf=LaDigue_800x480.jpg "凯撒施图尔，巴登-符腾堡，德国")
+[下载720](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_1280x720.jpg&rf=LaDigue_1280x720.jpg "凯撒施图尔，巴登-符腾堡，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "凯撒施图尔，巴登-符腾堡，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_UHD.jpg&rf=LaDigue_UHD.jpg "凯撒施图尔，巴登-符腾堡，德国")
+
+---
 ### 08月31日：彩绘的云，静默的悬崖
 #### 杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国（© Hawk Buckman/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪崩湖步道，阿迪朗达克高峰区，纽约州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪崩湖步道，阿迪朗达克高峰区，纽约州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_UHD.jpg&rf=LaDigue_UHD.jpg "雪崩湖步道，阿迪朗达克高峰区，纽约州，美国")
-
----
-### 08月17日：眺望大海的高塔
-#### 灵维格灯塔，维泽桑讷，丹麦（© Caroline Brundle Bugge/Getty Images）
-
-![眺望大海的高塔](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_800x480.jpg&rf=LaDigue_800x480.jpg "眺望大海的高塔")
-
-为抵御风暴并引导船只安全靠岸，灯塔最初应运而生。如今，它们不仅是导航工具，更成为文化遗产、建筑奇迹和人类与海洋之间深厚联结的象征。每年 8 月的第三个周末，世界各地都会迎来“国际灯塔灯船周”活动，让人们齐聚一堂，共同庆祝这些海岸地标。该活动由苏格兰艾尔业余无线电小组成员约翰·福赛思和迈克·达尔里姆普尔于 1998年发起，旨在提高对灯塔与灯船保护的意识，同时推广业余无线电通信，并促进国际友好交流。
-
-灯船的使用有着悠久的历史。早在 1311 年，中国就在江苏太仓刘家港西岸的沙嘴上设立了两艘标志船，并竖起旗帜，为粮船导航。这些装置可视为灯船的早期雏形。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%81%af%e5%a1%94&form=hpcapt&filters=HpDate:"20250816_1600" "Bing Wallpaper 2025 8月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250817_LyngvigLighthouse"&FORM=HPQUIZ "必应主页测验 2025 8月 17")
-[下载480](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_800x480.jpg&rf=LaDigue_800x480.jpg "灵维格灯塔，维泽桑讷，丹麦")
-[下载720](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_1280x720.jpg&rf=LaDigue_1280x720.jpg "灵维格灯塔，维泽桑讷，丹麦")
-[下载1080](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灵维格灯塔，维泽桑讷，丹麦")
-[下载UHD](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_UHD.jpg&rf=LaDigue_UHD.jpg "灵维格灯塔，维泽桑讷，丹麦")
 
 ---
