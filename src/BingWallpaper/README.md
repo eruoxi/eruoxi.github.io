@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月02日：死谷的幽灵
+#### 骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚（© Inge Johnsson/Alamy Stock Photo）
+
+![死谷的幽灵](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_800x480.jpg&rf=LaDigue_800x480.jpg "死谷的幽灵")
+
+乍一看，这仿佛是一件超现实的艺术装置：黑暗的树木凝固在黏土平原上，背后是沙丘和闪烁的天空。但这幅来自纳米比亚纳米布-诺克卢夫国家公园的德阿夫莱（Deadvlei）的景象，完全是自然形成的。德阿夫莱（Deadvlei）这个名字意为“死沼泽”——这是曾经填满这个盆地的湿地的遗迹。
+
+纳米比亚的鸟类、啮齿类动物和人类都以骆驼刺树为食。该树的种子可以研磨成细粉，用作咖啡替代品，而树上分泌的树胶也可食用。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%b3%e7%b1%b3%e6%af%94%e4%ba%9a%e7%ba%b3%e7%b1%b3%e5%b8%83%e8%af%ba%e5%85%8b%e8%b7%af%e7%a6%8f%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250901_1600" "Bing Wallpaper 2025 9月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250902_DeadvleiTrees"&FORM=HPQUIZ "必应主页测验 2025 9月 2")
+[下载480](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_800x480.jpg&rf=LaDigue_800x480.jpg "骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚")
+[下载720](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_1280x720.jpg&rf=LaDigue_1280x720.jpg "骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚")
+[下载1080](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_UHD.jpg&rf=LaDigue_UHD.jpg "骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚")
+
+---
 ### 09月01日：风景如画的葡萄园
 #### 凯撒施图尔，巴登-符腾堡，德国（© EyeEM Mobile GmbH/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_1280x720.jpg&rf=LaDigue_1280x720.jpg "祖马亚的复理层，巴斯克地区，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "祖马亚的复理层，巴斯克地区，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_UHD.jpg&rf=LaDigue_UHD.jpg "祖马亚的复理层，巴斯克地区，西班牙")
-
----
-### 08月18日：溪流入梦
-#### 雪崩湖步道，阿迪朗达克高峰区，纽约州，美国（© Posnov/Getty Images）
-
-![溪流入梦](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_800x480.jpg&rf=LaDigue_800x480.jpg "溪流入梦")
-
-在这片高峰密布的区域，一座面积仅约9英亩的高山湖泊静静地坐落在近2,900英尺的海拔处，位于科尔登山与雪崩山之间。湖泊由远古冰川雕刻而成，四周环绕着陡峭的峭壁和崎岖的地形，清晰地保留着冰川时代留下的印记。其中最引人注目的地貌特征是“陷阱裂缝”，一条高达1,200英尺的岩石峡谷，峭壁险峻，是阿迪朗达克地区最令人震撼的自然奇观之一。正是过去发生的大规模雪崩，塑造了这一地形，也因此得名“雪崩湖”。 雪崩湖步道始于著名的阿迪朗达克小屋，这里是进入高峰区进行徒步、登山等户外活动的热门起点。全程约9.6英里，累计爬升约1,350英尺，虽然看似是一段轻松的行程，实则沿途地形复杂、变化多端，是对体力与意志的双重挑战。
-
-纽约州的阿迪朗达克高峰区拥有 46座山峰，其中最高的是马西山，海拔达1,629米，是全州的最高点。整个区域占地约240万公顷，呈弧形分布。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%bd%e7%ba%a6%e5%b7%9e%e9%9b%aa%e5%b4%a9%e6%b9%96&form=hpcapt&filters=HpDate:"20250817_1600" "Bing Wallpaper 2025 8月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250818_AvalancheLake"&FORM=HPQUIZ "必应主页测验 2025 8月 18")
-[下载480](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_800x480.jpg&rf=LaDigue_800x480.jpg "雪崩湖步道，阿迪朗达克高峰区，纽约州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪崩湖步道，阿迪朗达克高峰区，纽约州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪崩湖步道，阿迪朗达克高峰区，纽约州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_UHD.jpg&rf=LaDigue_UHD.jpg "雪崩湖步道，阿迪朗达克高峰区，纽约州，美国")
 
 ---
