@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月03日：享受宁静
+#### 边界水域独木舟区荒野区, 明尼苏达州, 美国（© s.tomas/Shutterstock）
+
+![享受宁静](https://cn.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_800x480.jpg&rf=LaDigue_800x480.jpg "享受宁静")
+
+这里是位于明尼苏达州东北部的边界水域独木舟荒野区。该区域跨越超过100万英亩，由相互连接的湖泊、河流和针叶林组成。这里的地貌由冰川雕琢的水道、岩石露头和茂密林地交织而成，为驼鹿、狼、鸥鸟及无数其他物种提供了理想栖息地。该地区拥有超过1200英里的皮划艇航线和2000多个露营地，为人们提供了难得的与自然亲密接触、享受宁静的机会。
+
+边境水域独木舟荒野区（BWCAW）被美国国家地理旅游杂志评为人生50个必游景点之一。
+
+[Bing搜索](https://cn.bing.com/search?q=+%e6%98%8e%e5%b0%bc%e8%8b%8f%e8%be%be%e5%b7%9e%e8%be%b9%e7%95%8c%e6%b0%b4%e5%9f%9f&form=hpcapt&filters=HpDate:"20250902_1600" "Bing Wallpaper 2025 9月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250903_MinnesotaWaters"&FORM=HPQUIZ "必应主页测验 2025 9月 3")
+[下载480](https://cn.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_800x480.jpg&rf=LaDigue_800x480.jpg "边界水域独木舟区荒野区, 明尼苏达州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_1280x720.jpg&rf=LaDigue_1280x720.jpg "边界水域独木舟区荒野区, 明尼苏达州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "边界水域独木舟区荒野区, 明尼苏达州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_UHD.jpg&rf=LaDigue_UHD.jpg "边界水域独木舟区荒野区, 明尼苏达州, 美国")
+
+---
 ### 09月02日：死谷的幽灵
 #### 骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚（© Inge Johnsson/Alamy Stock Photo）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_1280x720.jpg&rf=LaDigue_1280x720.jpg "博尼法乔城堡，科西嘉岛南部，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博尼法乔城堡，科西嘉岛南部，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_UHD.jpg&rf=LaDigue_UHD.jpg "博尼法乔城堡，科西嘉岛南部，法国")
-
----
-### 08月19日：随海而流的岩石！
-#### 祖马亚的复理层，巴斯克地区，西班牙（© Eloi_Omella/Getty Images）
-
-![随海而流的岩石！](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_800x480.jpg&rf=LaDigue_800x480.jpg "随海而流的岩石！")
-
-这些壮观的岩层坐落于西班牙北部的祖马亚海岸，面向坎塔布连海。对于喜爱徒步的人来说，这里设有沿悬崖而建的远足路线，可通往邻近的德巴和穆特里库等小镇，沿途风光令人叹为观止。你知道吗？这里还是《权力的游戏》部分场景的取景地。它如同电影画面般的美景不仅吸引了无数好奇的旅行者，也吸引了众多地质学家前来考察。祖马亚是探索地球历史与自然之美的理想之地，一旦踏足，定会被它的奇岩异石与丰富地貌深深吸引。
-
-飞来石通常由砂岩和页岩交替组成，是地质学中典型的深海浊流沉积序列；祖马亚地区因其独特的飞来石地貌而被列为联合国教科文组织世界遗产地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e7%a5%96%e9%a9%ac%e4%ba%9a%e7%9a%84%e5%a4%8d%e7%90%86%e7%9f%b3&form=hpcapt&filters=HpDate:"20250818_1600" "Bing Wallpaper 2025 8月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250819_GipuzcoaSummer"&FORM=HPQUIZ "必应主页测验 2025 8月 19")
-[下载480](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_800x480.jpg&rf=LaDigue_800x480.jpg "祖马亚的复理层，巴斯克地区，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_1280x720.jpg&rf=LaDigue_1280x720.jpg "祖马亚的复理层，巴斯克地区，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "祖马亚的复理层，巴斯克地区，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_UHD.jpg&rf=LaDigue_UHD.jpg "祖马亚的复理层，巴斯克地区，西班牙")
 
 ---
