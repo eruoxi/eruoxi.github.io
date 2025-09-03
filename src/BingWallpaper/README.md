@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月04日：力量的角逐
+#### 灰熊摔跤, 卡特迈国家公园及自然保护区, 阿拉斯加, 美国（© Cavan Images/Adobe Stock）
+
+![力量的角逐](https://cn.bing.com/th?id=OHR.WrestlingBears_ZH-CN6430637848_800x480.jpg&rf=LaDigue_800x480.jpg "力量的角逐")
+
+今天图片中正在进行摔跤角逐的是力量型选手——灰熊。年轻的灰熊常常通过“嬉戏打斗”来增强体力、磨练技能并建立社会联系。这些重量级冠军体重可达900磅，但仍能以每小时35英里的速度疾驰，比大多数人类跑得更快。在中国主要分布在新疆、青藏高原和东北山林地区。灰熊广泛分布于北半球各大陆，包括北美洲、亚洲与欧洲的北部。在中国主要分布在新疆、青藏高原和东北山林地区。
+
+灰熊的嗅觉极为敏锐，能够在20英里外嗅到食物——其嗅觉灵敏度是血猎犬的七倍。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%81%b0%e7%86%8a&form=hpcapt&filters=HpDate:"20250903_1600" "Bing Wallpaper 2025 9月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250904_WrestlingBears"&FORM=HPQUIZ "必应主页测验 2025 9月 4")
+[下载480](https://cn.bing.com/th?id=OHR.WrestlingBears_ZH-CN6430637848_800x480.jpg&rf=LaDigue_800x480.jpg "灰熊摔跤, 卡特迈国家公园及自然保护区, 阿拉斯加, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.WrestlingBears_ZH-CN6430637848_1280x720.jpg&rf=LaDigue_1280x720.jpg "灰熊摔跤, 卡特迈国家公园及自然保护区, 阿拉斯加, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.WrestlingBears_ZH-CN6430637848_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灰熊摔跤, 卡特迈国家公园及自然保护区, 阿拉斯加, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WrestlingBears_ZH-CN6430637848_UHD.jpg&rf=LaDigue_UHD.jpg "灰熊摔跤, 卡特迈国家公园及自然保护区, 阿拉斯加, 美国")
+
+---
 ### 09月03日：享受宁静
 #### 边界水域独木舟区荒野区, 明尼苏达州, 美国（© s.tomas/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN3286472001_1280x720.jpg&rf=LaDigue_1280x720.jpg "穗䳭和盛开的帚石楠，峰区国家公园，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN3286472001_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "穗䳭和盛开的帚石楠，峰区国家公园，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN3286472001_UHD.jpg&rf=LaDigue_UHD.jpg "穗䳭和盛开的帚石楠，峰区国家公园，英格兰")
-
----
-### 08月20日：永恒的建筑
-#### 博尼法乔城堡，科西嘉岛南部，法国（© Marc Dozier/Getty Images）
-
-![永恒的建筑](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_800x480.jpg&rf=LaDigue_800x480.jpg "永恒的建筑")
-
-位于科西嘉岛南端边缘的博尼法乔，隔着狭窄的海峡遥望撒丁岛，石灰岩峭壁高耸于海浪之上。最初，这里并非风景如画的旅游胜地，而是作为沿海防御工事而建立，在数百年间守护着地中海最繁忙的航道之一。公元828年，托斯卡纳的博尼法斯二世创建了博尼法乔公社，这里逐渐成为商人、士兵与水手聚集的地方，各方人群共同推动了城镇的发展。博尼法乔分为两部分：老城区（又称上城）位于高耸的悬崖之上，坐落在最初的城堡围墙内；而下方的滨海区则沿着狭长的海湾分布，拥有港口、海边住宅和日益发展的山谷社区。
-
-博尼法乔是居伊·德·莫泊桑短篇小说《复仇》的背景地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%9a%e5%b0%bc%e6%b3%95%e4%b9%94&form=hpcapt&filters=HpDate:"20250819_1600" "Bing Wallpaper 2025 8月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250820_CitadelBonifacio"&FORM=HPQUIZ "必应主页测验 2025 8月 20")
-[下载480](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_800x480.jpg&rf=LaDigue_800x480.jpg "博尼法乔城堡，科西嘉岛南部，法国")
-[下载720](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_1280x720.jpg&rf=LaDigue_1280x720.jpg "博尼法乔城堡，科西嘉岛南部，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博尼法乔城堡，科西嘉岛南部，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_UHD.jpg&rf=LaDigue_UHD.jpg "博尼法乔城堡，科西嘉岛南部，法国")
 
 ---
