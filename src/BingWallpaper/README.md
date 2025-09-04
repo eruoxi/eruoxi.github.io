@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月05日：完美的夜晚
+#### 太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国（© EXTREME-PHOTOGRAPHER/Getty Images）
+
+![完美的夜晚](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_800x480.jpg&rf=LaDigue_800x480.jpg "完美的夜晚")
+
+当夕阳西下，洒下橙色、粉色和紫色的光芒时，圣莫尼卡从悠闲的氛围中转为灯火通明。真的！这片海滩拥有超过3英里的沙滩、一座历史悠久的码头，以及风景如画的太平洋海岸公路，不仅仅是一条美丽的海岸线。让我们先从沙滩说起。宽阔、洁净，无论是打排球还是悠闲地读一本好书，这里都是日光浴爱好者和沙堡建造者的理想之地。
+
+2028年夏季奥运会期间，该海滩将举办沙滩排球和冲浪比赛。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e8%8e%ab%e5%a6%ae%e5%8d%a1%e5%b7%9e%e7%ab%8b%e6%b5%b7%e6%bb%a9&form=hpcapt&filters=HpDate:"20250904_1600" "Bing Wallpaper 2025 9月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250905_SunsetPier"&FORM=HPQUIZ "必应主页测验 2025 9月 5")
+[下载480](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_800x480.jpg&rf=LaDigue_800x480.jpg "太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_1280x720.jpg&rf=LaDigue_1280x720.jpg "太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_UHD.jpg&rf=LaDigue_UHD.jpg "太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国")
+
+---
 ### 09月04日：力量的角逐
 #### 灰熊摔跤, 卡特迈国家公园及自然保护区, 阿拉斯加, 美国（© Cavan Images/Adobe Stock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕卢斯连绵起伏的丘陵，华盛顿州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕卢斯连绵起伏的丘陵，华盛顿州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_UHD.jpg&rf=LaDigue_UHD.jpg "帕卢斯连绵起伏的丘陵，华盛顿州，美国")
-
----
-### 08月21日：伫立凝视
-#### 穗䳭和盛开的帚石楠，峰区国家公园，英格兰（© Ben Hall/Nature Picture Library）
-
-![伫立凝视](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN3286472001_800x480.jpg&rf=LaDigue_800x480.jpg "伫立凝视")
-
-即便你不是鸟类专家，也不难注意到白尾穗䳭在开阔地面上快速飞奔的身影。这些地栖鸣禽属于水芹属，以直立的姿态和在栖木之间跳跃或奔跑的习性而闻名。尽管名称听起来与谷物有关，白尾穗䳭其实与小麦毫无关系，其名称是“白屁股”这一古老短语的变体，源于该属大多数鸟类所拥有的醒目白色臀部。全球大约有20种白尾穗䳭，但在美国，人们最有可能遇到的是北方穗䳭。这类小鸟体重不足一盎司，却能在阿拉斯加和加拿大北部的夏季栖息地与非洲的越冬地之间往返数千英里。它们的迁徙路线横跨海洋与大陆，是同等体型鸟类中最长的之一。与许多常见的后院鸣禽不同，穗䳭偏爱低矮植被覆盖的开阔地带，在那里它们能够奔跑并迅速扑向昆虫。虽然北美的大多数观鸟者只有在更偏远的北方才能看到它们的身影，但穗䳭在欧洲、亚洲和非洲却分布广泛。
-
-“穗䳭”这个名字并非源自“小麦”或“麦穗”，而是“white”（白色）与“arse”（臀部）两个词的民间词源组合，指的是该属大多数鸟类身上明显可见的白色臀部。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a9%97%e4%b3%ad&form=hpcapt&filters=HpDate:"20250820_1600" "Bing Wallpaper 2025 8月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250821_WheatearBird"&FORM=HPQUIZ "必应主页测验 2025 8月 21")
-[下载480](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN3286472001_800x480.jpg&rf=LaDigue_800x480.jpg "穗䳭和盛开的帚石楠，峰区国家公园，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN3286472001_1280x720.jpg&rf=LaDigue_1280x720.jpg "穗䳭和盛开的帚石楠，峰区国家公园，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN3286472001_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "穗䳭和盛开的帚石楠，峰区国家公园，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN3286472001_UHD.jpg&rf=LaDigue_UHD.jpg "穗䳭和盛开的帚石楠，峰区国家公园，英格兰")
 
 ---
