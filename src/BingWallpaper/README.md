@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月06日：忙碌的一天
+#### 棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国（© jeremyborkat/Getty Images）
+
+![忙碌的一天](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_800x480.jpg&rf=LaDigue_800x480.jpg "忙碌的一天")
+
+它们飞向后方，俯冲轰炸对手，飞行距离比大多数公路旅行者更远。让我们来认识一下这只棕红蜂鸟——这张照片拍摄于加州旧金山的金门公园。棕红蜂鸟是塞拉斯福鲁斯属（Selasphorus）九个物种之一，因其锈红色的红橙色羽毛而得名。雄蜂鸟背部泛着铜色光泽，喉部红色斑块在阳光下闪闪发光。雌蜂鸟则较为温顺，但身体两侧和尾部仍带有棕红条纹。
+
+一项使用数字成像测速技术观察翅膀运动的研究发现，红蜂鸟在悬停时主要通过翅膀向下拍打（75% 的升力）而不是向上拍打（25% 的升力）来支撑其体重。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a3%95%e7%85%8c%e8%9c%82%e9%b8%9f&form=hpcapt&filters=HpDate:"20250905_1600" "Bing Wallpaper 2025 9月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250906_RufousHummer"&FORM=HPQUIZ "必应主页测验 2025 9月 6")
+[下载480](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_800x480.jpg&rf=LaDigue_800x480.jpg "棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_1280x720.jpg&rf=LaDigue_1280x720.jpg "棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_UHD.jpg&rf=LaDigue_UHD.jpg "棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国")
+
+---
 ### 09月05日：完美的夜晚
 #### 太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国（© EXTREME-PHOTOGRAPHER/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国")
 [下载1080](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_UHD.jpg&rf=LaDigue_UHD.jpg "秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国")
-
----
-### 08月22日：大自然的绿色地毯
-#### 帕卢斯连绵起伏的丘陵，华盛顿州，美国（© svetlana57/Getty Images）
-
-![大自然的绿色地毯](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的绿色地毯")
-
-一波又一波的柔软丘陵绵延于帕卢斯地区。这片宁静的区域位于华盛顿州东南部，向爱达荷州和俄勒冈州的边界延伸。覆盖着小麦的坡地随着季节更迭而变换色彩。春季，丘陵呈现出郁郁葱葱的绿色，年轻的小麦和大麦开始生长；夏季则转变为干燥的金黄色，作物即将收割。
-
-帕卢斯南部地区（靠近沃拉沃拉）最近出现了一种新现象——葡萄园的兴起。截至2015年，该地区已有超过800个葡萄园。与小麦种植一样，该地区的气候也非常适合葡萄种植，其中赤霞珠（Cabernet Sauvignon）是主要品种。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%95%e5%8d%a2%e6%96%af%e5%9c%b0%e5%8c%ba&form=hpcapt&filters=HpDate:"20250821_1600" "Bing Wallpaper 2025 8月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250822_PalouseWA"&FORM=HPQUIZ "必应主页测验 2025 8月 22")
-[下载480](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_800x480.jpg&rf=LaDigue_800x480.jpg "帕卢斯连绵起伏的丘陵，华盛顿州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕卢斯连绵起伏的丘陵，华盛顿州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕卢斯连绵起伏的丘陵，华盛顿州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_UHD.jpg&rf=LaDigue_UHD.jpg "帕卢斯连绵起伏的丘陵，华盛顿州，美国")
 
 ---
