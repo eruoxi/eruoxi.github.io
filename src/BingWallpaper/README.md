@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月07日：淡彩的梦境和静水
+#### 位于莫特拉瓦河河畔的格但斯克市，波兰（© Oscar Dominguez/TANDEM Stills + Motion）
+
+![淡彩的梦境和静水](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_800x480.jpg&rf=LaDigue_800x480.jpg "淡彩的梦境和静水")
+
+格但斯克是波兰滨海省一座充满活力的城市，鹅卵石铺就的魅力与清凉的海岸交相辉映。它是格但斯克湾沿岸的三联城（Tricity）的一部分，该区域包括邻近的沿海城市索波特和格丁尼亚市以及周边城镇。这座城市的名字很可能源于“Gdania”，这是流经该市的莫特拉瓦河（Motława）的早期名称。
+
+格但斯克港是波兰最大的港口，也是波罗的海沿岸最大的港口之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%a2%e5%85%b0%e6%a0%bc%e4%bd%86%e6%96%af%e5%85%8b%e5%b8%82&form=hpcapt&filters=HpDate:"20250906_1600" "Bing Wallpaper 2025 9月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250907_BlueGdansk"&FORM=HPQUIZ "必应主页测验 2025 9月 7")
+[下载480](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_800x480.jpg&rf=LaDigue_800x480.jpg "位于莫特拉瓦河河畔的格但斯克市，波兰")
+[下载720](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_1280x720.jpg&rf=LaDigue_1280x720.jpg "位于莫特拉瓦河河畔的格但斯克市，波兰")
+[下载1080](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "位于莫特拉瓦河河畔的格但斯克市，波兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_UHD.jpg&rf=LaDigue_UHD.jpg "位于莫特拉瓦河河畔的格但斯克市，波兰")
+
+---
 ### 09月06日：忙碌的一天
 #### 棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国（© jeremyborkat/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧洲黇鹿‌，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧洲黇鹿‌，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_UHD.jpg&rf=LaDigue_UHD.jpg "欧洲黇鹿‌，英格兰")
-
----
-### 08月23日：彩林叠翠间的瀑布
-#### 秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国（© tawatchaiprakobkit/Getty images）
-
-![彩林叠翠间的瀑布](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_800x480.jpg&rf=LaDigue_800x480.jpg "彩林叠翠间的瀑布")
-
-立秋是秋季的第二个节气。这意味着夏季的炎热将从此消失。不过，天气依然闷热，不像秋天。人们称这种天气为 “秋老虎”，通常从8月22日左右开始，到8月24日左右结束。
-
-诺日朗瀑布高20 米（66 英尺），宽 270 米（66 英尺），是中国最宽的瀑布。对面建有观景平台，可将糯日朗瀑布尽收眼底。许多中国电影和电视剧（如《西游记》）的场景都是在这里拍摄的。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%af%ba%e6%97%a5%e6%9c%97%e7%80%91%e5%b8%83&form=hpcapt&filters=HpDate:"20250822_1600" "Bing Wallpaper 2025 8月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250823_ChushuY25"&FORM=HPQUIZ "必应主页测验 2025 8月 23")
-[下载480](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_800x480.jpg&rf=LaDigue_800x480.jpg "秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国")
-[下载720](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国")
-[下载1080](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_UHD.jpg&rf=LaDigue_UHD.jpg "秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国")
 
 ---
