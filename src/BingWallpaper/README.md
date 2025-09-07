@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月08日：当天预订
+#### 乌节图书馆，新加坡（© Darwin Fan/Getty Images）
+
+![当天预订](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_800x480.jpg&rf=LaDigue_800x480.jpg "当天预订")
+
+读一读，就相信它——读写能力改变一切。作为一项基本人权，读写能力是一个强大的工具，它开启了通往更大自由和积极全球公民身份的大门。国际扫盲日（自1967年以来，每年的9月8日）认识到其深远的影响，提醒人们读写能力在为所有人建设更美好、更可持续的未来方面至关重要。今年的主题探讨了数字时代的读写能力，科技正在不断重塑人们学习、交流和参与社会的方式。因此，数字化参与既是挑战，也是机遇。
+
+识字能力对于培养批判性思维、辨别可靠信息以及应对复杂的信息环境也至关重要。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%89%ab%e7%9b%b2%e6%97%a5&form=hpcapt&filters=HpDate:"20250907_1600" "Bing Wallpaper 2025 9月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250908_OrchardLibrary"&FORM=HPQUIZ "必应主页测验 2025 9月 8")
+[下载480](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_800x480.jpg&rf=LaDigue_800x480.jpg "乌节图书馆，新加坡")
+[下载720](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌节图书馆，新加坡")
+[下载1080](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌节图书馆，新加坡")
+[下载UHD](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_UHD.jpg&rf=LaDigue_UHD.jpg "乌节图书馆，新加坡")
+
+---
 ### 09月07日：淡彩的梦境和静水
 #### 位于莫特拉瓦河河畔的格但斯克市，波兰（© Oscar Dominguez/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_1280x720.jpg&rf=LaDigue_1280x720.jpg "方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_UHD.jpg&rf=LaDigue_UHD.jpg "方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国")
-
----
-### 08月24日：“跟我来”
-#### 欧洲黇鹿‌，英格兰（© Enrique Aguirre Aves/Getty Images）
-
-![“跟我来”](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_800x480.jpg&rf=LaDigue_800x480.jpg "“跟我来”")
-
-扁平的鹿角？没错。斑点的皮毛？没错。灌木丛里的斜眼？也没错。跟欧洲黇鹿打个招呼吧。几个世纪以来，这些中等体型的鹿一直昂首阔步地穿梭于英国的林地和公园之中。虽然它们看起来很像家，但它们并非土生土长的。罗马人很可能把它们带到了这里，后来诺曼人又使它们在狩猎公园里变得常见。如今，它们已成为从苏塞克斯郡到苏格兰各地风景的常客。
-
-2024年的一项研究表明，土耳其黇鹿种群是欧洲大部分黇鹿以及世界各地引进种群的祖先。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e6%b4%b2%e9%bb%87%e9%b9%bf%e2%80%8c&form=hpcapt&filters=HpDate:"20250823_1600" "Bing Wallpaper 2025 8月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250824_CervusDama"&FORM=HPQUIZ "必应主页测验 2025 8月 24")
-[下载480](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_800x480.jpg&rf=LaDigue_800x480.jpg "欧洲黇鹿‌，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧洲黇鹿‌，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧洲黇鹿‌，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_UHD.jpg&rf=LaDigue_UHD.jpg "欧洲黇鹿‌，英格兰")
 
 ---
