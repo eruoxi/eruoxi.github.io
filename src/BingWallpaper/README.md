@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月09日：她一根一根地准备着
+#### 一只雌性欧亚红松鼠正在搬运苔藓，瑞士（© Jean-Luc and Francoise Ziegler/Minden Pictures）
+
+![她一根一根地准备着](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_800x480.jpg&rf=LaDigue_800x480.jpg "她一根一根地准备着")
+
+敏捷、聪明、总是四处奔波——来认识一下欧亚红松鼠吧。这种栖息于树梢的绿叶动物遍布欧洲和亚洲的大部分地区。虽然它们更喜欢森林的庇护，但这种敏捷的生物也能轻松适应花园和公园的环境。它们用树枝在高高的树杈上筑巢，称为“drey”（巢穴），形成一个约25到30厘米宽的圆顶结构。图中的雌性欧亚红松鼠正在采集苔藓——苔藓是几种柔软材料中的一种，它们与树皮、树叶和草一起构成巢穴，使巢穴成为一个舒适、隔热的避难所。这些啮齿动物也可能占据树洞或啄木鸟遗弃的洞穴（如果有的话）。
+
+红松鼠的皮毛颜色随季节和地区而变化，从黑色到红色不等。红色在英国最为常见，而欧洲和亚洲各地则呈现出各种不同的颜色。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e4%ba%9a%e7%ba%a2%e6%9d%be%e9%bc%a0&form=hpcapt&filters=HpDate:"20250908_1600" "Bing Wallpaper 2025 9月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250909_SwissSquirrel"&FORM=HPQUIZ "必应主页测验 2025 9月 9")
+[下载480](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_800x480.jpg&rf=LaDigue_800x480.jpg "一只雌性欧亚红松鼠正在搬运苔藓，瑞士")
+[下载720](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只雌性欧亚红松鼠正在搬运苔藓，瑞士")
+[下载1080](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只雌性欧亚红松鼠正在搬运苔藓，瑞士")
+[下载UHD](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_UHD.jpg&rf=LaDigue_UHD.jpg "一只雌性欧亚红松鼠正在搬运苔藓，瑞士")
+
+---
 ### 09月08日：当天预订
 #### 乌节图书馆，新加坡（© Darwin Fan/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利")
-
----
-### 08月25日：从火山之源到河流之路
-#### 方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国（© Rebecca L. Latson/Getty Images）
-
-![从火山之源到河流之路](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_800x480.jpg&rf=LaDigue_800x480.jpg "从火山之源到河流之路")
-
-黄石河是美国本土48州最后一条未建坝的主要河流，它从黄石公园东南方向发源，全长671英里（1080公里），汇入密苏里河，最终汇入大西洋。这座地热与峡谷交汇的观景台，让您近距离欣赏黄石河蜿蜒流经熔岩锻造的峡谷的壮丽景色。沿着玄武岩峭壁，可以看到富含矿物质的地下水仍在冒着热气，形成了白色的矿藏，方解石泉也因此得名。您或许还能看到白头鹰在头顶滑翔，或是野牛在附近悠闲地休息。黄石公园不仅仅是一个公园，它更是一座拥有游客中心的超级火山。
-
-石灰泉得名于覆盖该地区的乳白色石灰石晶体。与石灰石混杂在一起的是半透明的蜂蜜色重晶石晶体。在温泉管道内，有美丽但气味刺鼻的黄色硫磺晶体。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%bb%84%e7%9f%b3%e6%b2%b3&form=hpcapt&filters=HpDate:"20250824_1600" "Bing Wallpaper 2025 8月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250825_YellowstoneRiver"&FORM=HPQUIZ "必应主页测验 2025 8月 25")
-[下载480](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_800x480.jpg&rf=LaDigue_800x480.jpg "方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_1280x720.jpg&rf=LaDigue_1280x720.jpg "方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_UHD.jpg&rf=LaDigue_UHD.jpg "方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国")
 
 ---
