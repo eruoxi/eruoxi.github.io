@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月10日：阳光明媚，赶紧打草
+#### 干草捆，北约克郡，英格兰（© Nick Brundle Photography/Getty Images）
+
+![阳光明媚，赶紧打草](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_800x480.jpg&rf=LaDigue_800x480.jpg "阳光明媚，赶紧打草")
+
+“趁着阳光明媚，赶紧打草”这句谚语听起来可能有些陈旧，但在农业领域，它却是实实在在的真理。打草捆在全球农业中扮演着至关重要的角色。这一过程包括割草、晾干和包装草料，以便在寒冷季节喂养牲畜。整个流程高度依赖天气条件：草料必须在打捆前完全干燥，否则容易发霉。农民必须在干旱天气来临时迅速行动，因此这成为了一场季节性的赛跑。
+
+干草捆主要用于保存和储存干草、豆科植物或其他牧草作物，作为牲畜饲料。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8b%b1%e6%a0%bc%e5%85%b0%e7%ba%a6%e5%85%8b%e9%83%a1&form=hpcapt&filters=HpDate:"20250909_1600" "Bing Wallpaper 2025 9月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250910_YorkshireHay"&FORM=HPQUIZ "必应主页测验 2025 9月 10")
+[下载480](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_800x480.jpg&rf=LaDigue_800x480.jpg "干草捆，北约克郡，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_1280x720.jpg&rf=LaDigue_1280x720.jpg "干草捆，北约克郡，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "干草捆，北约克郡，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_UHD.jpg&rf=LaDigue_UHD.jpg "干草捆，北约克郡，英格兰")
+
+---
 ### 09月09日：她一根一根地准备着
 #### 一只雌性欧亚红松鼠正在搬运苔藓，瑞士（© Jean-Luc and Francoise Ziegler/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_1280x720.jpg&rf=LaDigue_1280x720.jpg "瑟沃格湖，瓦加尔岛，法罗群岛")
 [下载1080](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瑟沃格湖，瓦加尔岛，法罗群岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_UHD.jpg&rf=LaDigue_UHD.jpg "瑟沃格湖，瓦加尔岛，法罗群岛")
-
----
-### 08月26日：一座非凡的特鲁洛小镇
-#### 阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利（© Feng Wei Photography/Getty Images）
-
-![一座非凡的特鲁洛小镇](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_800x480.jpg&rf=LaDigue_800x480.jpg "一座非凡的特鲁洛小镇")
-
-如果童话故事里有建筑师，他们或许能创造出像意大利阿尔贝罗贝洛那样的景象。但这座小镇的标志性建筑——特鲁利（trulli，单数为trullo），并非靠魔杖，而是石灰岩、无砂浆砌筑，以及——根据某些理论——一些逃税手段——才得以建成。这些粉刷过的石屋顶部是干砌的石灰岩屋顶，形状像倒置的冰淇淋蛋筒。这是一种古老的建筑技术，在阿尔贝罗贝洛，更是巧妙之举。据说早在14世纪，当地人就试图通过建造房屋来逃避房产税，因为国王的税务官来袭时，这些房屋很容易被拆除。
-
-阿尔贝罗贝洛字面意思是“美丽的树”；是意大利南部普利亚大区巴里大都会区的一个小镇和市镇。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e5%b0%94%e8%b4%9d%e7%bd%97%e8%b4%9d%e6%b4%9b&form=hpcapt&filters=HpDate:"20250825_1600" "Bing Wallpaper 2025 8月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250826_TrulliHouses"&FORM=HPQUIZ "必应主页测验 2025 8月 26")
-[下载480](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利")
 
 ---
