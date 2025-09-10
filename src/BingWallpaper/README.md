@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月11日：准备仰望天空吧！
+#### 蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙（© Daniel Viñé Garcia/Getty Images）
+
+![准备仰望天空吧！](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_800x480.jpg&rf=LaDigue_800x480.jpg "准备仰望天空吧！")
+
+探索蒙弗拉圭国家公园，这座位于埃斯特雷马杜拉自治区心脏地带的自然瑰宝。从卡塞雷斯市的萨尔托德尔吉塔诺观景台，您可以欣赏到西班牙最壮丽的日落之一，四周环绕着嶙峋的悬崖，天空被金色的光辉染成一片金黄。两条河流——塔霍河和蒂埃塔尔河——横贯公园，塑造了其崎岖的地形，并滋养了丰富多样的野生动植物和地中海植被。这片天堂是自然爱好者和观鸟者的理想之地。秃鹫在公园上空自由翱翔——这里是欧洲最大的秃鹫群落所在地——与西班牙帝国鹰和埃及秃鹫共同栖息，使这里成为真正的生物多样性热点。
+
+黑美洲鹫并非蒙弗拉圭唯一的明星：这里还有数量可观的西班牙白肩雕。观赏这些雄伟的鸟类，或者像雕鸮和兀鹫这样的其他鸟类，都是一次难忘的体验。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%92%99%e5%bc%97%e6%8b%89%e5%9c%ad%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250910_1600" "Bing Wallpaper 2025 9月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250911_ExtremaduraJamon"&FORM=HPQUIZ "必应主页测验 2025 9月 11")
+[下载480](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_800x480.jpg&rf=LaDigue_800x480.jpg "蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_UHD.jpg&rf=LaDigue_UHD.jpg "蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙")
+
+---
 ### 09月10日：阳光明媚，赶紧打草
 #### 干草捆，北约克郡，英格兰（© Nick Brundle Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_1280x720.jpg&rf=LaDigue_1280x720.jpg "大白鹭，匈牙利")
 [下载1080](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大白鹭，匈牙利")
 [下载UHD](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_UHD.jpg&rf=LaDigue_UHD.jpg "大白鹭，匈牙利")
-
----
-### 08月27日：海洋上方的湖泊
-#### 瑟沃格湖，瓦加尔岛，法罗群岛（© Anton Petrus/Getty Images）
-
-![海洋上方的湖泊](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_800x480.jpg&rf=LaDigue_800x480.jpg "海洋上方的湖泊")
-
-大自然自有其奇妙之处，瑟沃格湖（Sørvágsvatn）便是其中最精彩的之一。世界湖泊日是探索法罗群岛（丹麦王国的一个自治行政区）这片视错觉的绝佳时机。这座位于沃格岛上的湖泊也被称为莱蒂斯湖（Leitisvatn），看似漂浮在海平面之上。实际上，它的海拔不到100英尺。索尔瓦格斯湖是法罗群岛最大的湖泊，面积约1.3平方英里，为Bøsdalafossur瀑布Bøsdalafossur提供水源，瀑布的湖水在那里奔腾而下，最终倾泻而入大海。
-
-该湖位于瓦加尔岛南部，通过Bøsdalafossur瀑布与大西洋相连，形成了壮丽的“悬湖”景观。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%91%9f%e6%b2%83%e6%a0%bc%e6%b9%96&form=hpcapt&filters=HpDate:"20250826_1600" "Bing Wallpaper 2025 8月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250827_FaroeLake"&FORM=HPQUIZ "必应主页测验 2025 8月 27")
-[下载480](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_800x480.jpg&rf=LaDigue_800x480.jpg "瑟沃格湖，瓦加尔岛，法罗群岛")
-[下载720](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_1280x720.jpg&rf=LaDigue_1280x720.jpg "瑟沃格湖，瓦加尔岛，法罗群岛")
-[下载1080](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瑟沃格湖，瓦加尔岛，法罗群岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_UHD.jpg&rf=LaDigue_UHD.jpg "瑟沃格湖，瓦加尔岛，法罗群岛")
 
 ---
