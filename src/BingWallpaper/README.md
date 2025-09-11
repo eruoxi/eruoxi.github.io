@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月12日：野性畅游，自在徜徉
+#### 红海中的飞旋海豚群, 阿拉姆港, 埃及（© Franco Banfi/Nature Picture Library）
+
+![野性畅游，自在徜徉](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_800x480.jpg&rf=LaDigue_800x480.jpg "野性畅游，自在徜徉")
+
+凭借终身伴侣关系、独特的鸣叫声和回声定位能力，海豚远不止是聪明的游泳者。自2022年首次被观察到以来，世界海豚日旨在关注这些聪明的海洋哺乳动物及其赖以生存的海洋环境。这一天鼓励人们了解它们的行为以及所面临的威胁。超过40种海豚在我们的海洋中游弋，从毛伊海豚到伊洛瓦底海豚。它们是卓越的导航者、问题解决者和团队合作者。有些甚至会形成超级群落——数百或数千只海豚在近海共同迁徙的临时聚集。
+
+2021年的这一天，超过一千四百头海豚被杀害。这是有记录以来最严重的集体海豚屠杀事件之一。世界海豚日旨在纪念这些生命，并提醒我们保护海豚为何如此重要。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b5%b7%e8%b1%9a%e6%97%a5&form=hpcapt&filters=HpDate:"20250911_1600" "Bing Wallpaper 2025 9月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250912_SpinnerDolphins"&FORM=HPQUIZ "必应主页测验 2025 9月 12")
+[下载480](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_800x480.jpg&rf=LaDigue_800x480.jpg "红海中的飞旋海豚群, 阿拉姆港, 埃及")
+[下载720](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_1280x720.jpg&rf=LaDigue_1280x720.jpg "红海中的飞旋海豚群, 阿拉姆港, 埃及")
+[下载1080](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红海中的飞旋海豚群, 阿拉姆港, 埃及")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_UHD.jpg&rf=LaDigue_UHD.jpg "红海中的飞旋海豚群, 阿拉姆港, 埃及")
+
+---
 ### 09月11日：准备仰望天空吧！
 #### 蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙（© Daniel Viñé Garcia/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_1280x720.jpg&rf=LaDigue_1280x720.jpg "马约尔广场鸟瞰图, 马德里, 西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马约尔广场鸟瞰图, 马德里, 西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_UHD.jpg&rf=LaDigue_UHD.jpg "马约尔广场鸟瞰图, 马德里, 西班牙")
-
----
-### 08月28日：这只白鹭毫无遗憾
-#### 大白鹭，匈牙利（© Markus Varesvuo/Nature Picture Library）
-
-![这只白鹭毫无遗憾](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_800x480.jpg&rf=LaDigue_800x480.jpg "这只白鹭毫无遗憾")
-
-今天让我们来认识一下大白鹭吧。它们分布在美洲、亚洲、非洲和欧洲部分地区，经常在湿地、潮滩和平静的溪流中涉水。它们耐心而精准，会一动不动地站上几分钟，等待着最佳时机发动闪电般的攻击。鱼类是它们的主要猎物，但也捕食青蛙、爬行动物，甚至小型哺乳动物。大白鹭广泛分布在世界各地。在中国见于东北、河北、江苏、云南、广东、海南、台湾等地。栖息于河川、海滨、沼泽湿地或水田中。性颇机警，见人即飞去。白天多单独寻觅食物，在食物丰富的区域内，也成小群活动。
-
-大白鹭于1758年由瑞典自然学家卡尔·林奈在《自然系统》第十版中正式描述，其学名为Ardea alba。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e7%99%bd%e9%b9%ad&form=hpcapt&filters=HpDate:"20250827_1600" "Bing Wallpaper 2025 8月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250828_WhiteEgret"&FORM=HPQUIZ "必应主页测验 2025 8月 28")
-[下载480](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_800x480.jpg&rf=LaDigue_800x480.jpg "大白鹭，匈牙利")
-[下载720](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_1280x720.jpg&rf=LaDigue_1280x720.jpg "大白鹭，匈牙利")
-[下载1080](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大白鹭，匈牙利")
-[下载UHD](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_UHD.jpg&rf=LaDigue_UHD.jpg "大白鹭，匈牙利")
 
 ---
