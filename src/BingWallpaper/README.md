@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月13日：崎岖而狂野
+#### 烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国（© Enrique Aguirre Aves/Getty Images）
+
+![崎岖而狂野](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_800x480.jpg&rf=LaDigue_800x480.jpg "崎岖而狂野")
+
+这里没有经过精心打磨或精心策划——而这正是它的精髓所在。从旧金山向北驱车仅需一个多小时，便可抵达点雷斯岬国家海岸公园——一个雾气缓缓飘荡、 tule 鹿自由漫步、时间仿佛停滞的地方。该公园于1962年的今天由国会设立，旨在保护这片海岸线，供公众游览和环境保护之用。公园面积超过100平方英里，拥有令人惊叹的景观，从沿海草原和风吹雨打的岬角，到沙滩和道格拉斯冷杉林。
+
+当象海豹（Mirounga angustirostris）于1981年在点雷耶斯国家海岸公园建立繁殖地时，该公园成为全球唯一同时拥有繁殖哺乳动物和鳍足类动物的国家公园。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%9b%b7%e6%96%af%e5%b2%ac%e5%9b%bd%e5%ae%b6%e6%b5%b7%e5%b2%b8&form=hpcapt&filters=HpDate:"20250912_1600" "Bing Wallpaper 2025 9月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250913_PointReyesSeashore"&FORM=HPQUIZ "必应主页测验 2025 9月 13")
+[下载480](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_800x480.jpg&rf=LaDigue_800x480.jpg "烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_1280x720.jpg&rf=LaDigue_1280x720.jpg "烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg&rf=LaDigue_UHD.jpg "烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国")
+
+---
 ### 09月12日：野性畅游，自在徜徉
 #### 红海中的飞旋海豚群, 阿拉姆港, 埃及（© Franco Banfi/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫")
 [下载1080](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫")
 [下载UHD](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_UHD.jpg&rf=LaDigue_UHD.jpg "阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫")
-
----
-### 08月29日：网格的心脏
-#### 马约尔广场鸟瞰图, 马德里, 西班牙（© AirPano LLC/Amazing Aerial Agency）
-
-![网格的心脏](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_800x480.jpg&rf=LaDigue_800x480.jpg "网格的心脏")
-
-从高处俯瞰，马德里（西班牙首都）的马约尔广场（Plaza Mayor）上，整齐的拱廊与瓦片屋顶交织成一幅令人着迷的建筑和谐画卷。这片历史悠久的空间曾是热闹的集市广场“阿拉巴尔广场”（Plaza del Arrabal）的所在地，见证了这座城市数百年来的变迁。这一转变始于1561年，当时皇家法院从托莱多迁至马德里，广场随之归入马德里管辖。受秩序与宏伟愿景的启发，菲利普二世重新构想了这片广场——尽管实际施工直至菲利普三世统治时期的1617年才正式展开。
-
-经过一系列火灾后，马约尔广场在历史上曾多次重建。要到达那里，你可以选择其中一个入口，每个入口都别具特色。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e5%be%b7%e9%87%8c%e9%a9%ac%e7%ba%a6%e5%b0%94%e5%b9%bf%e5%9c%ba&form=hpcapt&filters=HpDate:"20250828_1600" "Bing Wallpaper 2025 8月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250829_PlazaMayor"&FORM=HPQUIZ "必应主页测验 2025 8月 29")
-[下载480](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_800x480.jpg&rf=LaDigue_800x480.jpg "马约尔广场鸟瞰图, 马德里, 西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_1280x720.jpg&rf=LaDigue_1280x720.jpg "马约尔广场鸟瞰图, 马德里, 西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马约尔广场鸟瞰图, 马德里, 西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_UHD.jpg&rf=LaDigue_UHD.jpg "马约尔广场鸟瞰图, 马德里, 西班牙")
 
 ---
