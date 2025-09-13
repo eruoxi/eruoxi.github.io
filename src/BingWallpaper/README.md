@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月14日：苔藓与薄雾
+#### 奥林匹克国家公园的瀑布, 华盛顿, 美国（© Chris Moore/TANDEM Stills + Motion）
+
+![苔藓与薄雾](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_800x480.jpg&rf=LaDigue_800x480.jpg "苔藓与薄雾")
+
+奥林匹克国家公园拥有罕见的多元地形——这正是其独特魅力所在。这里汇聚了高山脊岭、宁静的森林，以及美国本土48州中最长的未开发海岸线之一。这片占地近1400平方英里的华盛顿州区域，作为联合国教科文组织世界遗产地，在2024年吸引了超过370万名游客。该地区最初于1909年由西奥多·罗斯福总统以“奥林匹斯山国家纪念碑”之名设立为保护区，并于1938年正式成为国家公园。
+
+奥林匹克半岛以多雨著称，而雨水也带来了汹涌的河流，这些河流最终形成美丽的瀑布。其中一些瀑布可供轮椅通行，还有少数瀑布可通过船只或皮划艇抵达。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a5%a5%e6%9e%97%e5%8c%b9%e5%85%8b%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad+%e5%8d%8e%e7%9b%9b%e9%a1%bf&form=hpcapt&filters=HpDate:"20250913_1600" "Bing Wallpaper 2025 9月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250914_HohWaterfall"&FORM=HPQUIZ "必应主页测验 2025 9月 14")
+[下载480](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_800x480.jpg&rf=LaDigue_800x480.jpg "奥林匹克国家公园的瀑布, 华盛顿, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥林匹克国家公园的瀑布, 华盛顿, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥林匹克国家公园的瀑布, 华盛顿, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_UHD.jpg&rf=LaDigue_UHD.jpg "奥林匹克国家公园的瀑布, 华盛顿, 美国")
+
+---
 ### 09月13日：崎岖而狂野
 #### 烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国（© Enrique Aguirre Aves/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_1280x720.jpg&rf=LaDigue_1280x720.jpg "杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国")
 [下载1080](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_UHD.jpg&rf=LaDigue_UHD.jpg "杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国")
-
----
-### 08月30日：有鳍且惊艳
-#### 阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫（© Bachir Moukarzel/Amazing Aerial Agency）
-
-![有鳍且惊艳](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_800x480.jpg&rf=LaDigue_800x480.jpg "有鳍且惊艳")
-
-如果你从未见过一条近40英尺长、身上布满斑点的鲸鲨在珊瑚礁间优雅游弋，那你可就错过了精彩的一幕。今天是国际鲸鲨日，提醒我们这些行动缓慢的巨型生物需要我们的关注。自2008年首次设立以来，这一天被研究人员和海洋保护倡导者用来聚焦保护工作，并警示船只撞击、塑料污染和无序旅游等威胁。
-
-自2016年以来，鲸鲨已被国际自然保护联盟列为濒危物种。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e9%b2%b8%e9%b2%a8%e6%97%a5&form=hpcapt&filters=HpDate:"20250829_1600" "Bing Wallpaper 2025 8月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250830_MaldivesWhaleShark"&FORM=HPQUIZ "必应主页测验 2025 8月 30")
-[下载480](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_800x480.jpg&rf=LaDigue_800x480.jpg "阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫")
-[下载720](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫")
-[下载1080](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫")
-[下载UHD](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_UHD.jpg&rf=LaDigue_UHD.jpg "阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫")
 
 ---
