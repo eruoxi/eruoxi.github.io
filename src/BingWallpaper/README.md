@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月15日：涉水寻迹
+#### 黑翅长脚鹬, 法国（© Antonio Sementa/500px/Getty Images）
+
+![涉水寻迹](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_800x480.jpg&rf=LaDigue_800x480.jpg "涉水寻迹")
+
+在非洲闪烁的泻湖、亚洲蜿蜒的三角洲以及南欧的盐沼之间，一个优雅的身影悄然浮现，轻盈地徘徊于水天之间。黑翅长脚鹬以其修长纤细的红色双腿，在浅滩间悄然移动，举止间透着宁静的优雅。它们的存在有时会带来一种宁静的亲密感——两只鸟儿贴近漂浮，动作如同一场 delicate 的舞蹈，仿佛在分享一个只有湿地才能听到的秘密。它们以安静的精准度狩猎，轻轻地从水面拾取昆虫、幼虫和小型甲壳类动物。每一个动作都展现出对环境的微妙掌控，这种掌控力源于耐心与本能的结合。
+
+黑翅长脚鹬对自己的巢穴和幼鸟非常保护。它们会群起攻击并驱赶体型更大的鸟类。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%bb%91%e7%bf%85%e9%95%bf%e8%84%9a%e9%b9%ac&form=hpcapt&filters=HpDate:"20250914_1600" "Bing Wallpaper 2025 9月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250915_Echasse"&FORM=HPQUIZ "必应主页测验 2025 9月 15")
+[下载480](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_800x480.jpg&rf=LaDigue_800x480.jpg "黑翅长脚鹬, 法国")
+[下载720](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑翅长脚鹬, 法国")
+[下载1080](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑翅长脚鹬, 法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_UHD.jpg&rf=LaDigue_UHD.jpg "黑翅长脚鹬, 法国")
+
+---
 ### 09月14日：苔藓与薄雾
 #### 奥林匹克国家公园的瀑布, 华盛顿, 美国（© Chris Moore/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_1280x720.jpg&rf=LaDigue_1280x720.jpg "凯撒施图尔，巴登-符腾堡，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "凯撒施图尔，巴登-符腾堡，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_UHD.jpg&rf=LaDigue_UHD.jpg "凯撒施图尔，巴登-符腾堡，德国")
-
----
-### 08月31日：彩绘的云，静默的悬崖
-#### 杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国（© Hawk Buckman/Getty Images）
-
-![彩绘的云，静默的悬崖](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_800x480.jpg&rf=LaDigue_800x480.jpg "彩绘的云，静默的悬崖")
-
-在GPS问世之前，像斯科茨布卢夫（Scotts Bluff）这样的自然地标就已高耸于大草原之上，为西行的旅人指明方向。在1887年杰林镇（Gering）建镇之前，以及内布拉斯加州于1867年成为美国州份的数十年之前，这些砂岩和泥岩地貌已然引导着成千上万的旅人沿着俄勒冈小径、加利福尼亚小径和摩门教徒小径前行。斯科茨布卢夫国家纪念碑（Scotts Bluff National Monument）以皮毛商人希拉姆·斯科特（Hiram Scott）命名，他曾是落基山皮毛公司（Rocky Mountain Fur Company）的成员，于19世纪20年代在附近地区因神秘原因去世。
-
-纪念碑博物馆展出了该地区的人类和自然历史展品，并收藏了边疆摄影师兼艺术家威廉·亨利·杰克逊（William Henry Jackson）的一系列独特水彩画作品。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e7%a7%91%e8%8c%a8%e5%b8%83%e6%8b%89%e5%a4%ab%e5%9b%bd%e5%ae%b6%e7%ba%aa%e5%bf%b5%e7%a2%91&form=hpcapt&filters=HpDate:"20250830_1600" "Bing Wallpaper 2025 8月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250831_ScottsBluff"&FORM=HPQUIZ "必应主页测验 2025 8月 31")
-[下载480](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_800x480.jpg&rf=LaDigue_800x480.jpg "杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国")
-[下载720](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_1280x720.jpg&rf=LaDigue_1280x720.jpg "杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国")
-[下载1080](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_UHD.jpg&rf=LaDigue_UHD.jpg "杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国")
 
 ---
