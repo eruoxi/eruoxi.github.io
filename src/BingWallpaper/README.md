@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月16日：巨大的成功
+#### 从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象（© Stocktrek Images/Getty Images）
+
+![巨大的成功](https://cn.bing.com/th?id=OHR.OzoneEarth_ZH-CN0993915980_800x480.jpg&rf=LaDigue_800x480.jpg "巨大的成功")
+
+看不见的气体、老式发胶和卫星有什么共同点？它们都在历史上最伟大的环境复苏之一中发挥了作用。从225英里高空俯瞰，墨西哥湾沿岸如同一片星辰——点点灯光散落在黑暗中。但真正让这一景象成为可能的，却是肉眼无法看见的：臭氧层，它默默地保护着下方的一切免受太阳紫外线的侵害。到了20世纪80年代，这层屏障正迅速变薄——被曾用于制冷和气溶胶产品的化学物质所破坏。解决方案？一项全球协议。1987年签署的《蒙特利尔议定书》促使臭氧层破坏物质迅速被淘汰。如今，卫星数据显示南极上空的臭氧层空洞正在缩小。科学家认为，到本世纪中叶，它可能完全愈合。
+
+联合国的每一个成员国——197个国家——都批准了《蒙特利尔议定书》，使其成为联合国历史上第一个实现普遍批准的条约。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%87%ad%e6%b0%a7%e6%97%a5&form=hpcapt&filters=HpDate:"20250915_1600" "Bing Wallpaper 2025 9月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250916_OzoneEarth"&FORM=HPQUIZ "必应主页测验 2025 9月 16")
+[下载480](https://cn.bing.com/th?id=OHR.OzoneEarth_ZH-CN0993915980_800x480.jpg&rf=LaDigue_800x480.jpg "从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象")
+[下载720](https://cn.bing.com/th?id=OHR.OzoneEarth_ZH-CN0993915980_1280x720.jpg&rf=LaDigue_1280x720.jpg "从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象")
+[下载1080](https://cn.bing.com/th?id=OHR.OzoneEarth_ZH-CN0993915980_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象")
+[下载UHD](https://cn.bing.com/th?id=OHR.OzoneEarth_ZH-CN0993915980_UHD.jpg&rf=LaDigue_UHD.jpg "从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象")
+
+---
 ### 09月15日：涉水寻迹
 #### 黑翅长脚鹬, 法国（© Antonio Sementa/500px/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_1280x720.jpg&rf=LaDigue_1280x720.jpg "骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚")
 [下载1080](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_UHD.jpg&rf=LaDigue_UHD.jpg "骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚")
-
----
-### 09月01日：风景如画的葡萄园
-#### 凯撒施图尔，巴登-符腾堡，德国（© EyeEM Mobile GmbH/Getty Images）
-
-![风景如画的葡萄园](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_800x480.jpg&rf=LaDigue_800x480.jpg "风景如画的葡萄园")
-
-凯撒施图尔山是巴登-符腾堡州南部一座低矮的小山脉，靠近弗莱堡，是德国阳光最充沛的地区之一。凯泽斯图尔因奥托三世皇帝于994年在此统治而得名。这片风景如画的地区是自然爱好者、寻求放松身心人士以及葡萄酒鉴赏家的天堂。肥沃的土壤和温和的气候，使灰皮诺和黑皮诺等葡萄品种在这里茁壮成长。过去的火山活动留下了富含矿物质的土壤，赋予了该地区葡萄酒独特的风味。连绵起伏的丘陵、田园诗般的村庄以及包括珍稀绿蜥蜴在内的多种野生动物，使凯泽斯图尔成为自然爱好者的迷人目的地。
-
-巴登-符腾堡州是德国自然风光最迷人的地区之一，拥有七处景点被列为联合国教科文组织世界遗产。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e7%99%bb-%e7%ac%a6%e8%85%be%e5%a0%a1&form=hpcapt&filters=HpDate:"20250831_1600" "Bing Wallpaper 2025 9月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250901_FieldKaiserstuhl"&FORM=HPQUIZ "必应主页测验 2025 9月 1")
-[下载480](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_800x480.jpg&rf=LaDigue_800x480.jpg "凯撒施图尔，巴登-符腾堡，德国")
-[下载720](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_1280x720.jpg&rf=LaDigue_1280x720.jpg "凯撒施图尔，巴登-符腾堡，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "凯撒施图尔，巴登-符腾堡，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_UHD.jpg&rf=LaDigue_UHD.jpg "凯撒施图尔，巴登-符腾堡，德国")
 
 ---
