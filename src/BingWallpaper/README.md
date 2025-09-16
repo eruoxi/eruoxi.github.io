@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月17日：成长中的冠冕
+#### 迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国（© Grant Ordelheide/TANDEM Stills + Motion）
+
+![成长中的冠冕](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_800x480.jpg&rf=LaDigue_800x480.jpg "成长中的冠冕")
+
+他虽年轻，但这副鹿角已预示着未来的征战。在阿拉斯加的丹纳利国家公园，一只年轻的雄性驯鹿将头颅高高扬起，超越灌木丛的高度。此时，它的鹿角更像是冠冕而非武器——仍覆盖着绒毛。但即便如此，它们已隐约透露出一种由本能、较量与支配欲望悄然塑造的生命轨迹。
+
+驯鹿每年都会沿着相同的迁徙路线迁徙，常常在相同的树木上觅食。阿拉斯加驯鹿每天需要摄入9770千卡（32公斤）的热量。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e6%8b%89%e6%96%af%e5%8a%a0%e9%a9%bc%e9%b9%bf&form=hpcapt&filters=HpDate:"20250916_1600" "Bing Wallpaper 2025 9月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250917_YoungMoose"&FORM=HPQUIZ "必应主页测验 2025 9月 17")
+[下载480](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_800x480.jpg&rf=LaDigue_800x480.jpg "迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_1280x720.jpg&rf=LaDigue_1280x720.jpg "迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_UHD.jpg&rf=LaDigue_UHD.jpg "迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国")
+
+---
 ### 09月16日：巨大的成功
 #### 从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象（© Stocktrek Images/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_1280x720.jpg&rf=LaDigue_1280x720.jpg "边界水域独木舟区荒野区, 明尼苏达州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "边界水域独木舟区荒野区, 明尼苏达州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_UHD.jpg&rf=LaDigue_UHD.jpg "边界水域独木舟区荒野区, 明尼苏达州, 美国")
-
----
-### 09月02日：死谷的幽灵
-#### 骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚（© Inge Johnsson/Alamy Stock Photo）
-
-![死谷的幽灵](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_800x480.jpg&rf=LaDigue_800x480.jpg "死谷的幽灵")
-
-乍一看，这仿佛是一件超现实的艺术装置：黑暗的树木凝固在黏土平原上，背后是沙丘和闪烁的天空。但这幅来自纳米比亚纳米布-诺克卢夫国家公园的德阿夫莱（Deadvlei）的景象，完全是自然形成的。德阿夫莱（Deadvlei）这个名字意为“死沼泽”——这是曾经填满这个盆地的湿地的遗迹。
-
-纳米比亚的鸟类、啮齿类动物和人类都以骆驼刺树为食。该树的种子可以研磨成细粉，用作咖啡替代品，而树上分泌的树胶也可食用。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%b3%e7%b1%b3%e6%af%94%e4%ba%9a%e7%ba%b3%e7%b1%b3%e5%b8%83%e8%af%ba%e5%85%8b%e8%b7%af%e7%a6%8f%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250901_1600" "Bing Wallpaper 2025 9月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250902_DeadvleiTrees"&FORM=HPQUIZ "必应主页测验 2025 9月 2")
-[下载480](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_800x480.jpg&rf=LaDigue_800x480.jpg "骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚")
-[下载720](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_1280x720.jpg&rf=LaDigue_1280x720.jpg "骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚")
-[下载1080](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_UHD.jpg&rf=LaDigue_UHD.jpg "骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚")
 
 ---
