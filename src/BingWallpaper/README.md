@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月19日：千般理由，邀您探索
+#### 千岛群岛地区，圣劳伦斯河，美加边境（© benedek/Getty Images）
+
+![千般理由，邀您探索](https://cn.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_800x480.jpg&rf=LaDigue_800x480.jpg "千般理由，邀您探索")
+
+听到“千岛”这个词，你可能会想到一罐沙拉酱，但在这浓郁的酱汁背后，是北美最迷人的地区之一。千岛群岛是圣劳伦斯河上的一个群岛，横跨美国纽约州和加拿大安大略省。它由1800多个岛屿组成。有些岛屿上矗立着童话般的城堡，有些岛屿则狭小得几乎容不下一张吊床。此外，还有一座名为“刚好够住的岛”（Just Room Enough Island），岛上只有一栋房子和一棵孤树，名副其实。
+
+该地区于2002年被联合国教科文组织指定为世界生物圈保护区。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%83%e5%b2%9b%e7%be%a4%e5%b2%9b+%e5%8c%97%e7%be%8e%e6%b4%b2&form=hpcapt&filters=HpDate:"20250918_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250919_ThousandIslands"&FORM=HPQUIZ "必应主页测验 2025 9月 19")
+[下载480](https://cn.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_800x480.jpg&rf=LaDigue_800x480.jpg "千岛群岛地区，圣劳伦斯河，美加边境")
+[下载720](https://cn.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_1280x720.jpg&rf=LaDigue_1280x720.jpg "千岛群岛地区，圣劳伦斯河，美加边境")
+[下载1080](https://cn.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "千岛群岛地区，圣劳伦斯河，美加边境")
+[下载UHD](https://cn.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_UHD.jpg&rf=LaDigue_UHD.jpg "千岛群岛地区，圣劳伦斯河，美加边境")
+
+---
 ### 09月18日：爱尔兰岛的西端
 #### 邓金码头的蛇形楼梯, 凯里郡, 爱尔兰（© Hugh O'Connor/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_1280x720.jpg&rf=LaDigue_1280x720.jpg "太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_UHD.jpg&rf=LaDigue_UHD.jpg "太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国")
-
----
-### 09月04日：力量的角逐
-#### 灰熊摔跤, 卡特迈国家公园及自然保护区, 阿拉斯加, 美国（© Cavan Images/Adobe Stock）
-
-![力量的角逐](https://cn.bing.com/th?id=OHR.WrestlingBears_ZH-CN6430637848_800x480.jpg&rf=LaDigue_800x480.jpg "力量的角逐")
-
-今天图片中正在进行摔跤角逐的是力量型选手——灰熊。年轻的灰熊常常通过“嬉戏打斗”来增强体力、磨练技能并建立社会联系。这些重量级冠军体重可达900磅，但仍能以每小时35英里的速度疾驰，比大多数人类跑得更快。在中国主要分布在新疆、青藏高原和东北山林地区。灰熊广泛分布于北半球各大陆，包括北美洲、亚洲与欧洲的北部。在中国主要分布在新疆、青藏高原和东北山林地区。
-
-灰熊的嗅觉极为敏锐，能够在20英里外嗅到食物——其嗅觉灵敏度是血猎犬的七倍。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%81%b0%e7%86%8a&form=hpcapt&filters=HpDate:"20250903_1600" "Bing Wallpaper 2025 9月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250904_WrestlingBears"&FORM=HPQUIZ "必应主页测验 2025 9月 4")
-[下载480](https://cn.bing.com/th?id=OHR.WrestlingBears_ZH-CN6430637848_800x480.jpg&rf=LaDigue_800x480.jpg "灰熊摔跤, 卡特迈国家公园及自然保护区, 阿拉斯加, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.WrestlingBears_ZH-CN6430637848_1280x720.jpg&rf=LaDigue_1280x720.jpg "灰熊摔跤, 卡特迈国家公园及自然保护区, 阿拉斯加, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.WrestlingBears_ZH-CN6430637848_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灰熊摔跤, 卡特迈国家公园及自然保护区, 阿拉斯加, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.WrestlingBears_ZH-CN6430637848_UHD.jpg&rf=LaDigue_UHD.jpg "灰熊摔跤, 卡特迈国家公园及自然保护区, 阿拉斯加, 美国")
 
 ---
