@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月20日：关于啤酒和风景的故事
+#### 慕尼黑啤酒节上的旋转木马，慕尼黑，巴伐利亚，德国（© LOOK-foto/Alamy）
+
+![关于啤酒和风景的故事](https://cn.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_800x480.jpg&rf=LaDigue_800x480.jpg "关于啤酒和风景的故事")
+
+每年秋天，德国慕尼黑的特蕾莎草地都会摇身一变，成为全球最大的节日之一——慕尼黑啤酒节。啤酒节最初于1810年为庆祝一场皇室婚礼而举办，如今已发展成为一个持续16至18天的传统节日，吸引着来自世界各地的600多万人参加。啤酒节的规模令人叹为观止：场地占地约450万平方英尺，设有14个主帐篷，每个帐篷可容纳数千人。每年，游客们会喝掉约700万升啤酒，以及堆积如山的椒盐脆饼、香肠和姜饼心。慕尼黑啤酒节上供应的所有啤酒均来自慕尼黑啤酒厂，并符合德国啤酒纯度法（Reinheitsgebot）的严格标准。
+
+该活动每年吸引约700万游客；2023年，游客人数达到创纪录的720万人。同年，游客们喝掉了约740万升特制的慕尼黑啤酒节啤酒。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%85%95%e5%b0%bc%e9%bb%91%e5%95%a4%e9%85%92%e8%8a%82&form=hpcapt&filters=HpDate:"20250919_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250920_OktoberfestSwing"&FORM=HPQUIZ "必应主页测验 2025 9月 20")
+[下载480](https://cn.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_800x480.jpg&rf=LaDigue_800x480.jpg "慕尼黑啤酒节上的旋转木马，慕尼黑，巴伐利亚，德国")
+[下载720](https://cn.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_1280x720.jpg&rf=LaDigue_1280x720.jpg "慕尼黑啤酒节上的旋转木马，慕尼黑，巴伐利亚，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "慕尼黑啤酒节上的旋转木马，慕尼黑，巴伐利亚，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_UHD.jpg&rf=LaDigue_UHD.jpg "慕尼黑啤酒节上的旋转木马，慕尼黑，巴伐利亚，德国")
+
+---
 ### 09月19日：千般理由，邀您探索
 #### 千岛群岛地区，圣劳伦斯河，美加边境（© benedek/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_1280x720.jpg&rf=LaDigue_1280x720.jpg "棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_UHD.jpg&rf=LaDigue_UHD.jpg "棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国")
-
----
-### 09月05日：完美的夜晚
-#### 太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国（© EXTREME-PHOTOGRAPHER/Getty Images）
-
-![完美的夜晚](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_800x480.jpg&rf=LaDigue_800x480.jpg "完美的夜晚")
-
-当夕阳西下，洒下橙色、粉色和紫色的光芒时，圣莫尼卡从悠闲的氛围中转为灯火通明。真的！这片海滩拥有超过3英里的沙滩、一座历史悠久的码头，以及风景如画的太平洋海岸公路，不仅仅是一条美丽的海岸线。让我们先从沙滩说起。宽阔、洁净，无论是打排球还是悠闲地读一本好书，这里都是日光浴爱好者和沙堡建造者的理想之地。
-
-2028年夏季奥运会期间，该海滩将举办沙滩排球和冲浪比赛。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e8%8e%ab%e5%a6%ae%e5%8d%a1%e5%b7%9e%e7%ab%8b%e6%b5%b7%e6%bb%a9&form=hpcapt&filters=HpDate:"20250904_1600" "Bing Wallpaper 2025 9月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250905_SunsetPier"&FORM=HPQUIZ "必应主页测验 2025 9月 5")
-[下载480](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_800x480.jpg&rf=LaDigue_800x480.jpg "太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_1280x720.jpg&rf=LaDigue_1280x720.jpg "太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_UHD.jpg&rf=LaDigue_UHD.jpg "太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国")
 
 ---
