@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月21日：酷毙了
+#### 海獭，威廉王子湾，阿拉斯加州，美国（© Gerald Corsi/Getty Images）
+
+![酷毙了](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_800x480.jpg&rf=LaDigue_800x480.jpg "酷毙了")
+
+它们圆溜溜的眼睛背后藏着更多故事。每年一度的海獭认知周，正是为了彰显它们在维护沿海生态系统中的重要作用。这项由非营利环保组织“野生动物保护者”于2003年发起的活动，致力于推动公众教育与实际行动。在阿拉斯加威廉王子湾，海獭或漂浮于冰面，或如今日图片所示，用它们最爱的石头在腹部敲开贝壳。更不为人知的是，它们对海胆的食欲如何助力保护海藻森林。
+
+海獭拥有所有动物中最厚的皮毛。它们的皮毛每平方英寸含有60万到100万个毛囊。与大多数其他海洋哺乳动物不同，海獭没有鲸脂层。相反，它们依靠浓密防水的皮毛来保暖。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e7%8d%ad&form=hpcapt&filters=HpDate:"20250920_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250921_IceOtters"&FORM=HPQUIZ "必应主页测验 2025 9月 21")
+[下载480](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_800x480.jpg&rf=LaDigue_800x480.jpg "海獭，威廉王子湾，阿拉斯加州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_1280x720.jpg&rf=LaDigue_1280x720.jpg "海獭，威廉王子湾，阿拉斯加州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海獭，威廉王子湾，阿拉斯加州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg&rf=LaDigue_UHD.jpg "海獭，威廉王子湾，阿拉斯加州，美国")
+
+---
 ### 09月20日：关于啤酒和风景的故事
 #### 慕尼黑啤酒节上的旋转木马，慕尼黑，巴伐利亚，德国（© LOOK-foto/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_1280x720.jpg&rf=LaDigue_1280x720.jpg "位于莫特拉瓦河河畔的格但斯克市，波兰")
 [下载1080](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "位于莫特拉瓦河河畔的格但斯克市，波兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_UHD.jpg&rf=LaDigue_UHD.jpg "位于莫特拉瓦河河畔的格但斯克市，波兰")
-
----
-### 09月06日：忙碌的一天
-#### 棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国（© jeremyborkat/Getty Images）
-
-![忙碌的一天](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_800x480.jpg&rf=LaDigue_800x480.jpg "忙碌的一天")
-
-它们飞向后方，俯冲轰炸对手，飞行距离比大多数公路旅行者更远。让我们来认识一下这只棕红蜂鸟——这张照片拍摄于加州旧金山的金门公园。棕红蜂鸟是塞拉斯福鲁斯属（Selasphorus）九个物种之一，因其锈红色的红橙色羽毛而得名。雄蜂鸟背部泛着铜色光泽，喉部红色斑块在阳光下闪闪发光。雌蜂鸟则较为温顺，但身体两侧和尾部仍带有棕红条纹。
-
-一项使用数字成像测速技术观察翅膀运动的研究发现，红蜂鸟在悬停时主要通过翅膀向下拍打（75% 的升力）而不是向上拍打（25% 的升力）来支撑其体重。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a3%95%e7%85%8c%e8%9c%82%e9%b8%9f&form=hpcapt&filters=HpDate:"20250905_1600" "Bing Wallpaper 2025 9月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250906_RufousHummer"&FORM=HPQUIZ "必应主页测验 2025 9月 6")
-[下载480](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_800x480.jpg&rf=LaDigue_800x480.jpg "棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_1280x720.jpg&rf=LaDigue_1280x720.jpg "棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_UHD.jpg&rf=LaDigue_UHD.jpg "棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国")
 
 ---
