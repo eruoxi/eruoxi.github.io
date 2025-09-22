@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月23日：树树皆秋色
+#### 航拍中国江苏省常州翠竹公园（© Xu Changyu/Getty images）
+
+![树树皆秋色](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_800x480.jpg&rf=LaDigue_800x480.jpg "树树皆秋色")
+
+又是一年的秋分时节，众所周知，在这一天，全球各地昼夜的时间几乎是相等的。在幅员辽阔的中国，自南向北开始，秋季在每个地区有着不同颜色和不同的温度。大部分地区雨季在此时刚刚结束，秋天的凉意才刚刚开始，此时正是碧空万里，风和日丽的时节。中国的秋季颜色是叠翠鎏金的，许多植物的颜色由此时节开始，由苍翠的绿转为金黄或者橙红色。
+
+秋分曾是传统的“祭月节”，中秋节由“秋夕祭月”演变而来。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%a7%8b%e5%88%86&form=hpcapt&filters=HpDate:"20250922_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250923_AutumnalEquinoxY25"&FORM=HPQUIZ "必应主页测验 2025 9月 23")
+[下载480](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_800x480.jpg&rf=LaDigue_800x480.jpg "航拍中国江苏省常州翠竹公园")
+[下载720](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_1280x720.jpg&rf=LaDigue_1280x720.jpg "航拍中国江苏省常州翠竹公园")
+[下载1080](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "航拍中国江苏省常州翠竹公园")
+[下载UHD](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_UHD.jpg&rf=LaDigue_UHD.jpg "航拍中国江苏省常州翠竹公园")
+
+---
 ### 09月22日：到冬天的中途
 #### 秋日的白杨树，鱼湖国家森林，犹他州，美国（© Danita Delimont/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只雌性欧亚红松鼠正在搬运苔藓，瑞士")
 [下载1080](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只雌性欧亚红松鼠正在搬运苔藓，瑞士")
 [下载UHD](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_UHD.jpg&rf=LaDigue_UHD.jpg "一只雌性欧亚红松鼠正在搬运苔藓，瑞士")
-
----
-### 09月08日：当天预订
-#### 乌节图书馆，新加坡（© Darwin Fan/Getty Images）
-
-![当天预订](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_800x480.jpg&rf=LaDigue_800x480.jpg "当天预订")
-
-读一读，就相信它——读写能力改变一切。作为一项基本人权，读写能力是一个强大的工具，它开启了通往更大自由和积极全球公民身份的大门。国际扫盲日（自1967年以来，每年的9月8日）认识到其深远的影响，提醒人们读写能力在为所有人建设更美好、更可持续的未来方面至关重要。今年的主题探讨了数字时代的读写能力，科技正在不断重塑人们学习、交流和参与社会的方式。因此，数字化参与既是挑战，也是机遇。
-
-识字能力对于培养批判性思维、辨别可靠信息以及应对复杂的信息环境也至关重要。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%89%ab%e7%9b%b2%e6%97%a5&form=hpcapt&filters=HpDate:"20250907_1600" "Bing Wallpaper 2025 9月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250908_OrchardLibrary"&FORM=HPQUIZ "必应主页测验 2025 9月 8")
-[下载480](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_800x480.jpg&rf=LaDigue_800x480.jpg "乌节图书馆，新加坡")
-[下载720](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌节图书馆，新加坡")
-[下载1080](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌节图书馆，新加坡")
-[下载UHD](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_UHD.jpg&rf=LaDigue_UHD.jpg "乌节图书馆，新加坡")
 
 ---
