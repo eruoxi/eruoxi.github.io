@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月25日：忠勇的雕刻石
+#### 奇陶尔加尔堡, 拉贾斯坦邦, 印度（© chetansoni/Shutterstock）
+
+![忠勇的雕刻石](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_800x480.jpg&rf=LaDigue_800x480.jpg "忠勇的雕刻石")
+
+奇陶尔加尔堡坐落在印度拉贾斯坦邦一座海拔超过590英尺的山丘上，占地约690英亩。它骄傲地见证着著名武士家族——拉杰普特人的英勇事迹。拉杰普特人的名字源自梵语“rajaputra”，意为“国王之子”，他们以其高贵的血统和尚武传统而闻名于整个印度北部。这座堡垒的石墙见证了几个世纪以来拉贾斯坦邦吟游诗人的歌谣中流传的勇气、骄傲和浪漫。据传说，印度史诗《摩诃婆罗多》中的英雄比姆是这座堡垒的奠基者。
+
+这座雄伟的建筑将人们带回到征服和悲剧的时代，它的墙壁上至今仍回响着非凡男女的令人难以置信的故事。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a5%87%e9%99%b6%e5%b0%94%e5%8a%a0%e5%b0%94%e5%a0%a1%e5%8d%b0%e5%ba%a6&form=hpcapt&filters=HpDate:"20250924_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250925_FortChittorgarh"&FORM=HPQUIZ "必应主页测验 2025 9月 25")
+[下载480](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_800x480.jpg&rf=LaDigue_800x480.jpg "奇陶尔加尔堡, 拉贾斯坦邦, 印度")
+[下载720](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_1280x720.jpg&rf=LaDigue_1280x720.jpg "奇陶尔加尔堡, 拉贾斯坦邦, 印度")
+[下载1080](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奇陶尔加尔堡, 拉贾斯坦邦, 印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_UHD.jpg&rf=LaDigue_UHD.jpg "奇陶尔加尔堡, 拉贾斯坦邦, 印度")
+
+---
 ### 09月24日：孤独的巨人
 #### 魔鬼塔国家纪念碑, 怀俄明州，美国（© Laura Hedien/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_UHD.jpg&rf=LaDigue_UHD.jpg "蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙")
-
----
-### 09月10日：阳光明媚，赶紧打草
-#### 干草捆，北约克郡，英格兰（© Nick Brundle Photography/Getty Images）
-
-![阳光明媚，赶紧打草](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_800x480.jpg&rf=LaDigue_800x480.jpg "阳光明媚，赶紧打草")
-
-“趁着阳光明媚，赶紧打草”这句谚语听起来可能有些陈旧，但在农业领域，它却是实实在在的真理。打草捆在全球农业中扮演着至关重要的角色。这一过程包括割草、晾干和包装草料，以便在寒冷季节喂养牲畜。整个流程高度依赖天气条件：草料必须在打捆前完全干燥，否则容易发霉。农民必须在干旱天气来临时迅速行动，因此这成为了一场季节性的赛跑。
-
-干草捆主要用于保存和储存干草、豆科植物或其他牧草作物，作为牲畜饲料。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8b%b1%e6%a0%bc%e5%85%b0%e7%ba%a6%e5%85%8b%e9%83%a1&form=hpcapt&filters=HpDate:"20250909_1600" "Bing Wallpaper 2025 9月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250910_YorkshireHay"&FORM=HPQUIZ "必应主页测验 2025 9月 10")
-[下载480](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_800x480.jpg&rf=LaDigue_800x480.jpg "干草捆，北约克郡，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_1280x720.jpg&rf=LaDigue_1280x720.jpg "干草捆，北约克郡，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "干草捆，北约克郡，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_UHD.jpg&rf=LaDigue_UHD.jpg "干草捆，北约克郡，英格兰")
 
 ---
