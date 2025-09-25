@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月26日：速度与毛茸茸
+#### 最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国（© Donald M. Jones/Minden Pictures）
+
+![速度与毛茸茸](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_800x480.jpg&rf=LaDigue_800x480.jpg "速度与毛茸茸")
+
+在林地动物的世界里，体型最小的花栗鼠或许看起来像是“小松鼠”——但别小看它。凭借着敏锐的生存智慧和迅捷的双足，这种小型啮齿动物证明了“体型最小”并不意味着放弃你的潜力。它的体重还不到一副扑克牌，从鼻子到尾巴的长度不到10英寸（约25厘米），是北美体型最小的花栗鼠。
+
+一旦某个区域没有更多的食物可供觅食，最小的花栗鼠就会用尿液标记该区域，并且不会再回到该区域，直到重新供应为止。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%9c%80%e5%b0%8f%e8%8a%b1%e6%a0%97%e9%bc%a0&form=hpcapt&filters=HpDate:"20250925_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250926_AutumnChipmunk"&FORM=HPQUIZ "必应主页测验 2025 9月 26")
+[下载480](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_800x480.jpg&rf=LaDigue_800x480.jpg "最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_1280x720.jpg&rf=LaDigue_1280x720.jpg "最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_UHD.jpg&rf=LaDigue_UHD.jpg "最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国")
+
+---
 ### 09月25日：忠勇的雕刻石
 #### 奇陶尔加尔堡, 拉贾斯坦邦, 印度（© chetansoni/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_1280x720.jpg&rf=LaDigue_1280x720.jpg "红海中的飞旋海豚群, 阿拉姆港, 埃及")
 [下载1080](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红海中的飞旋海豚群, 阿拉姆港, 埃及")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_UHD.jpg&rf=LaDigue_UHD.jpg "红海中的飞旋海豚群, 阿拉姆港, 埃及")
-
----
-### 09月11日：准备仰望天空吧！
-#### 蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙（© Daniel Viñé Garcia/Getty Images）
-
-![准备仰望天空吧！](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_800x480.jpg&rf=LaDigue_800x480.jpg "准备仰望天空吧！")
-
-探索蒙弗拉圭国家公园，这座位于埃斯特雷马杜拉自治区心脏地带的自然瑰宝。从卡塞雷斯市的萨尔托德尔吉塔诺观景台，您可以欣赏到西班牙最壮丽的日落之一，四周环绕着嶙峋的悬崖，天空被金色的光辉染成一片金黄。两条河流——塔霍河和蒂埃塔尔河——横贯公园，塑造了其崎岖的地形，并滋养了丰富多样的野生动植物和地中海植被。这片天堂是自然爱好者和观鸟者的理想之地。秃鹫在公园上空自由翱翔——这里是欧洲最大的秃鹫群落所在地——与西班牙帝国鹰和埃及秃鹫共同栖息，使这里成为真正的生物多样性热点。
-
-黑美洲鹫并非蒙弗拉圭唯一的明星：这里还有数量可观的西班牙白肩雕。观赏这些雄伟的鸟类，或者像雕鸮和兀鹫这样的其他鸟类，都是一次难忘的体验。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%92%99%e5%bc%97%e6%8b%89%e5%9c%ad%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250910_1600" "Bing Wallpaper 2025 9月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250911_ExtremaduraJamon"&FORM=HPQUIZ "必应主页测验 2025 9月 11")
-[下载480](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_800x480.jpg&rf=LaDigue_800x480.jpg "蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_UHD.jpg&rf=LaDigue_UHD.jpg "蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙")
 
 ---
