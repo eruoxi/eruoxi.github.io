@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月27日：美丽的星空
+#### 坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国（© Austin Trigg/TANDEM Stills + Motion）
+
+![美丽的星空](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_800x480.jpg&rf=LaDigue_800x480.jpg "美丽的星空")
+
+今天图片中璀璨的星空来自于坦克湖，它位于高山湖泊荒野区。高山湖泊荒野占地超过40万英亩，位于风景如画的华盛顿州中部喀斯喀特山脉。荒野位于喀斯喀特山脉北段的斯诺夸米山口和史蒂文斯山口之间，其中包括被称为韦纳奇山脉的子山脉，该山脉构成了韦纳奇-雅基马分水岭。
+
+要前往坦克湖，首先要踏上18英里长的东福克福斯步道，进入项链谷，然后才能到达拉博恩峡谷和坦克湖/焚风湖地区。步道从这里开始变得崎岖不平，有时甚至无人维护。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%8e%e7%9b%9b%e9%a1%bf%e5%b7%9e%e9%ab%98%e5%b1%b1%e6%b9%96%e6%b3%8a%e8%8d%92%e9%87%8e%e5%8c%ba&form=hpcapt&filters=HpDate:"20250926_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250927_TankLakes"&FORM=HPQUIZ "必应主页测验 2025 9月 27")
+[下载480](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_800x480.jpg&rf=LaDigue_800x480.jpg "坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_1280x720.jpg&rf=LaDigue_1280x720.jpg "坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_UHD.jpg&rf=LaDigue_UHD.jpg "坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国")
+
+---
 ### 09月26日：速度与毛茸茸
 #### 最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国（© Donald M. Jones/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_1280x720.jpg&rf=LaDigue_1280x720.jpg "烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg&rf=LaDigue_UHD.jpg "烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国")
-
----
-### 09月12日：野性畅游，自在徜徉
-#### 红海中的飞旋海豚群, 阿拉姆港, 埃及（© Franco Banfi/Nature Picture Library）
-
-![野性畅游，自在徜徉](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_800x480.jpg&rf=LaDigue_800x480.jpg "野性畅游，自在徜徉")
-
-凭借终身伴侣关系、独特的鸣叫声和回声定位能力，海豚远不止是聪明的游泳者。自2022年首次被观察到以来，世界海豚日旨在关注这些聪明的海洋哺乳动物及其赖以生存的海洋环境。这一天鼓励人们了解它们的行为以及所面临的威胁。超过40种海豚在我们的海洋中游弋，从毛伊海豚到伊洛瓦底海豚。它们是卓越的导航者、问题解决者和团队合作者。有些甚至会形成超级群落——数百或数千只海豚在近海共同迁徙的临时聚集。
-
-2021年的这一天，超过一千四百头海豚被杀害。这是有记录以来最严重的集体海豚屠杀事件之一。世界海豚日旨在纪念这些生命，并提醒我们保护海豚为何如此重要。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b5%b7%e8%b1%9a%e6%97%a5&form=hpcapt&filters=HpDate:"20250911_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250912_SpinnerDolphins"&FORM=HPQUIZ "必应主页测验 2025 9月 12")
-[下载480](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_800x480.jpg&rf=LaDigue_800x480.jpg "红海中的飞旋海豚群, 阿拉姆港, 埃及")
-[下载720](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_1280x720.jpg&rf=LaDigue_1280x720.jpg "红海中的飞旋海豚群, 阿拉姆港, 埃及")
-[下载1080](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红海中的飞旋海豚群, 阿拉姆港, 埃及")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_UHD.jpg&rf=LaDigue_UHD.jpg "红海中的飞旋海豚群, 阿拉姆港, 埃及")
 
 ---
