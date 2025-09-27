@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月28日：品味皮恩扎
+#### 托斯卡纳的皮恩扎镇, 意大利（© zpagistock/Getty Images）
+
+![品味皮恩扎](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_800x480.jpg&rf=LaDigue_800x480.jpg "品味皮恩扎")
+
+有些城镇历经数个世纪缓慢演变。皮恩扎？15世纪，一位教皇为了证明某种观点——或许也为了炫耀——彻底重塑了它。这座意大利小镇坐落在奥尔恰山谷之上，周围环绕着连绵起伏的群山，其景象与你想象中的托斯卡纳一模一样：柏树成荫，蜿蜒的土路，偶尔还能看到几只绵羊。它宁静祥和。而当你踏入城墙，它便会变得灵动起来。
+
+皮恩扎历史中心作为文艺复兴人文主义城市设计理念的首次应用，在意大利乃至全球的后续城市发展中发挥了重要作用。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%9a%ae%e6%81%a9%e6%89%8e&form=hpcapt&filters=HpDate:"20250927_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250928_PienzaItaly"&FORM=HPQUIZ "必应主页测验 2025 9月 28")
+[下载480](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_800x480.jpg&rf=LaDigue_800x480.jpg "托斯卡纳的皮恩扎镇, 意大利")
+[下载720](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_1280x720.jpg&rf=LaDigue_1280x720.jpg "托斯卡纳的皮恩扎镇, 意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "托斯卡纳的皮恩扎镇, 意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_UHD.jpg&rf=LaDigue_UHD.jpg "托斯卡纳的皮恩扎镇, 意大利")
+
+---
 ### 09月27日：美丽的星空
 #### 坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国（© Austin Trigg/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥林匹克国家公园的瀑布, 华盛顿, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥林匹克国家公园的瀑布, 华盛顿, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_UHD.jpg&rf=LaDigue_UHD.jpg "奥林匹克国家公园的瀑布, 华盛顿, 美国")
-
----
-### 09月13日：崎岖而狂野
-#### 烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国（© Enrique Aguirre Aves/Getty Images）
-
-![崎岖而狂野](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_800x480.jpg&rf=LaDigue_800x480.jpg "崎岖而狂野")
-
-这里没有经过精心打磨或精心策划——而这正是它的精髓所在。从旧金山向北驱车仅需一个多小时，便可抵达点雷斯岬国家海岸公园——一个雾气缓缓飘荡、 tule 鹿自由漫步、时间仿佛停滞的地方。该公园于1962年的今天由国会设立，旨在保护这片海岸线，供公众游览和环境保护之用。公园面积超过100平方英里，拥有令人惊叹的景观，从沿海草原和风吹雨打的岬角，到沙滩和道格拉斯冷杉林。
-
-当象海豹（Mirounga angustirostris）于1981年在点雷耶斯国家海岸公园建立繁殖地时，该公园成为全球唯一同时拥有繁殖哺乳动物和鳍足类动物的国家公园。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%9b%b7%e6%96%af%e5%b2%ac%e5%9b%bd%e5%ae%b6%e6%b5%b7%e5%b2%b8&form=hpcapt&filters=HpDate:"20250912_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250913_PointReyesSeashore"&FORM=HPQUIZ "必应主页测验 2025 9月 13")
-[下载480](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_800x480.jpg&rf=LaDigue_800x480.jpg "烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_1280x720.jpg&rf=LaDigue_1280x720.jpg "烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg&rf=LaDigue_UHD.jpg "烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国")
 
 ---
