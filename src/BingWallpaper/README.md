@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月29日：彩虹骑行与宁静氛围
+#### 豪滕镇的彩虹屋, 荷兰（© George Pachantouris/Getty Images）
+
+![彩虹骑行与宁静氛围](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_800x480.jpg&rf=LaDigue_800x480.jpg "彩虹骑行与宁静氛围")
+
+你不会找到纪念品商店或旅游地图指引方向——但沿着豪滕的里特普拉斯湖畔，你会偶然发现荷兰最令人意想不到的上镜景点之一。虽然许多人涌向阿姆斯特丹的运河或鹿特丹的方块屋，但这座宁静的通勤小镇却拥有独特的建筑风格。彩虹屋如海市蜃楼般鳞次栉比，闪耀着大胆的绘画色彩——一个住宅区变成了一个低调的文化地标。
+
+豪滕是一座通勤城市，其居民非常重视在家乡使用自行车。继2008年荣获“自行车之城”称号后，该市去年再次荣获该称号。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%b1%aa%e6%bb%95%e9%95%87%e8%8d%b7%e5%85%b0&form=hpcapt&filters=HpDate:"20250928_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250929_HoutenHouses"&FORM=HPQUIZ "必应主页测验 2025 9月 29")
+[下载480](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_800x480.jpg&rf=LaDigue_800x480.jpg "豪滕镇的彩虹屋, 荷兰")
+[下载720](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_1280x720.jpg&rf=LaDigue_1280x720.jpg "豪滕镇的彩虹屋, 荷兰")
+[下载1080](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "豪滕镇的彩虹屋, 荷兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_UHD.jpg&rf=LaDigue_UHD.jpg "豪滕镇的彩虹屋, 荷兰")
+
+---
 ### 09月28日：品味皮恩扎
 #### 托斯卡纳的皮恩扎镇, 意大利（© zpagistock/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑翅长脚鹬, 法国")
 [下载1080](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑翅长脚鹬, 法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_UHD.jpg&rf=LaDigue_UHD.jpg "黑翅长脚鹬, 法国")
-
----
-### 09月14日：苔藓与薄雾
-#### 奥林匹克国家公园的瀑布, 华盛顿, 美国（© Chris Moore/TANDEM Stills + Motion）
-
-![苔藓与薄雾](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_800x480.jpg&rf=LaDigue_800x480.jpg "苔藓与薄雾")
-
-奥林匹克国家公园拥有罕见的多元地形——这正是其独特魅力所在。这里汇聚了高山脊岭、宁静的森林，以及美国本土48州中最长的未开发海岸线之一。这片占地近1400平方英里的华盛顿州区域，作为联合国教科文组织世界遗产地，在2024年吸引了超过370万名游客。该地区最初于1909年由西奥多·罗斯福总统以“奥林匹斯山国家纪念碑”之名设立为保护区，并于1938年正式成为国家公园。
-
-奥林匹克半岛以多雨著称，而雨水也带来了汹涌的河流，这些河流最终形成美丽的瀑布。其中一些瀑布可供轮椅通行，还有少数瀑布可通过船只或皮划艇抵达。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a5%a5%e6%9e%97%e5%8c%b9%e5%85%8b%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad+%e5%8d%8e%e7%9b%9b%e9%a1%bf&form=hpcapt&filters=HpDate:"20250913_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250914_HohWaterfall"&FORM=HPQUIZ "必应主页测验 2025 9月 14")
-[下载480](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_800x480.jpg&rf=LaDigue_800x480.jpg "奥林匹克国家公园的瀑布, 华盛顿, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥林匹克国家公园的瀑布, 华盛顿, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥林匹克国家公园的瀑布, 华盛顿, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_UHD.jpg&rf=LaDigue_UHD.jpg "奥林匹克国家公园的瀑布, 华盛顿, 美国")
 
 ---
