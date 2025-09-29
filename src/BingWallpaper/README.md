@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月30日：坚持重要的事情
+#### 桉树上的考拉, 大奥特维国家公园, 澳大利亚（© Jamie Lamb - elusive-images.co.uk/Getty Images）
+
+![坚持重要的事情](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_800x480.jpg&rf=LaDigue_800x480.jpg "坚持重要的事情")
+
+在大奥特维国家公园茂密的桉树林中，考拉如同沉睡的哨兵，守护着澳大利亚的野性灵魂。这些有袋动物常被误称为“考拉熊”，但实际上它们与袋熊的体型更接近，它们结实的无尾身躯、毛茸茸的耳朵和柔软的黑色鼻子很容易辨认。
+
+1998年，考拉为澳大利亚旅游业带来了超过10亿美元的收益，此后，考拉的国际知名度不断提升。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%80%83%e6%8b%89&form=hpcapt&filters=HpDate:"20250929_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250930_EucalyptusKoala"&FORM=HPQUIZ "必应主页测验 2025 9月 30")
+[下载480](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_800x480.jpg&rf=LaDigue_800x480.jpg "桉树上的考拉, 大奥特维国家公园, 澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_1280x720.jpg&rf=LaDigue_1280x720.jpg "桉树上的考拉, 大奥特维国家公园, 澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "桉树上的考拉, 大奥特维国家公园, 澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_UHD.jpg&rf=LaDigue_UHD.jpg "桉树上的考拉, 大奥特维国家公园, 澳大利亚")
+
+---
 ### 09月29日：彩虹骑行与宁静氛围
 #### 豪滕镇的彩虹屋, 荷兰（© George Pachantouris/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OzoneEarth_ZH-CN0993915980_1280x720.jpg&rf=LaDigue_1280x720.jpg "从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象")
 [下载1080](https://cn.bing.com/th?id=OHR.OzoneEarth_ZH-CN0993915980_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象")
 [下载UHD](https://cn.bing.com/th?id=OHR.OzoneEarth_ZH-CN0993915980_UHD.jpg&rf=LaDigue_UHD.jpg "从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象")
-
----
-### 09月15日：涉水寻迹
-#### 黑翅长脚鹬, 法国（© Antonio Sementa/500px/Getty Images）
-
-![涉水寻迹](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_800x480.jpg&rf=LaDigue_800x480.jpg "涉水寻迹")
-
-在非洲闪烁的泻湖、亚洲蜿蜒的三角洲以及南欧的盐沼之间，一个优雅的身影悄然浮现，轻盈地徘徊于水天之间。黑翅长脚鹬以其修长纤细的红色双腿，在浅滩间悄然移动，举止间透着宁静的优雅。它们的存在有时会带来一种宁静的亲密感——两只鸟儿贴近漂浮，动作如同一场 delicate 的舞蹈，仿佛在分享一个只有湿地才能听到的秘密。它们以安静的精准度狩猎，轻轻地从水面拾取昆虫、幼虫和小型甲壳类动物。每一个动作都展现出对环境的微妙掌控，这种掌控力源于耐心与本能的结合。
-
-黑翅长脚鹬对自己的巢穴和幼鸟非常保护。它们会群起攻击并驱赶体型更大的鸟类。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%bb%91%e7%bf%85%e9%95%bf%e8%84%9a%e9%b9%ac&form=hpcapt&filters=HpDate:"20250914_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250915_Echasse"&FORM=HPQUIZ "必应主页测验 2025 9月 15")
-[下载480](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_800x480.jpg&rf=LaDigue_800x480.jpg "黑翅长脚鹬, 法国")
-[下载720](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑翅长脚鹬, 法国")
-[下载1080](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑翅长脚鹬, 法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_UHD.jpg&rf=LaDigue_UHD.jpg "黑翅长脚鹬, 法国")
 
 ---
