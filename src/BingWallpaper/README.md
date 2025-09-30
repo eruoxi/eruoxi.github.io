@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月01日：克拉克山脉的回声
+#### 克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国（© Robb Hirsch/TANDEM Stills + Motion）
+
+![克拉克山脉的回声](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_800x480.jpg&rf=LaDigue_800x480.jpg "克拉克山脉的回声")
+
+今年是约塞米蒂国家公园遗产的又一个里程碑。约塞米蒂国家公园自1864年以来一直受到保护，以其令人惊叹的壮丽景色和生态意义而闻名。约塞米蒂坐落在内华达山脉的中心地带，占地近1200平方英里，孕育着巨大的花岗岩、奔腾的瀑布和古老的红杉。克拉克山脉是其鲜为人知的瑰宝之一——今天照片中显示的崎岖高海拔山脊。它以约塞米蒂的第一位守护者、自然保护先驱盖伦·克拉克的名字命名。
+
+约塞米蒂国家公园于1864年首次设立保护区，以其瀑布而闻名。然而，在其近1200平方英里的土地上，你还能发现深邃的山谷、壮丽的草地、古老的巨型红杉、广阔的荒野等等。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a6%e5%a1%9e%e7%b1%b3%e8%92%82%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250930_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251001_YosemiteClark"&FORM=HPQUIZ "必应主页测验 2025 10月 1")
+[下载480](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_800x480.jpg&rf=LaDigue_800x480.jpg "克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_1280x720.jpg&rf=LaDigue_1280x720.jpg "克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_UHD.jpg&rf=LaDigue_UHD.jpg "克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国")
+
+---
 ### 09月30日：坚持重要的事情
 #### 桉树上的考拉, 大奥特维国家公园, 澳大利亚（© Jamie Lamb - elusive-images.co.uk/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_1280x720.jpg&rf=LaDigue_1280x720.jpg "迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_UHD.jpg&rf=LaDigue_UHD.jpg "迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国")
-
----
-### 09月16日：巨大的成功
-#### 从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象（© Stocktrek Images/Getty Images）
-
-![巨大的成功](https://cn.bing.com/th?id=OHR.OzoneEarth_ZH-CN0993915980_800x480.jpg&rf=LaDigue_800x480.jpg "巨大的成功")
-
-看不见的气体、老式发胶和卫星有什么共同点？它们都在历史上最伟大的环境复苏之一中发挥了作用。从225英里高空俯瞰，墨西哥湾沿岸如同一片星辰——点点灯光散落在黑暗中。但真正让这一景象成为可能的，却是肉眼无法看见的：臭氧层，它默默地保护着下方的一切免受太阳紫外线的侵害。到了20世纪80年代，这层屏障正迅速变薄——被曾用于制冷和气溶胶产品的化学物质所破坏。解决方案？一项全球协议。1987年签署的《蒙特利尔议定书》促使臭氧层破坏物质迅速被淘汰。如今，卫星数据显示南极上空的臭氧层空洞正在缩小。科学家认为，到本世纪中叶，它可能完全愈合。
-
-联合国的每一个成员国——197个国家——都批准了《蒙特利尔议定书》，使其成为联合国历史上第一个实现普遍批准的条约。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%87%ad%e6%b0%a7%e6%97%a5&form=hpcapt&filters=HpDate:"20250915_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250916_OzoneEarth"&FORM=HPQUIZ "必应主页测验 2025 9月 16")
-[下载480](https://cn.bing.com/th?id=OHR.OzoneEarth_ZH-CN0993915980_800x480.jpg&rf=LaDigue_800x480.jpg "从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象")
-[下载720](https://cn.bing.com/th?id=OHR.OzoneEarth_ZH-CN0993915980_1280x720.jpg&rf=LaDigue_1280x720.jpg "从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象")
-[下载1080](https://cn.bing.com/th?id=OHR.OzoneEarth_ZH-CN0993915980_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象")
-[下载UHD](https://cn.bing.com/th?id=OHR.OzoneEarth_ZH-CN0993915980_UHD.jpg&rf=LaDigue_UHD.jpg "从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象")
 
 ---
