@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月02日：法定自然区
+#### 蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国（© DanitaDelimont.com/AWL Images/SuperStock）
+
+![法定自然区](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_800x480.jpg&rf=LaDigue_800x480.jpg "法定自然区")
+
+除了水，河流还承载着生命、历史和故事。它们是大自然对我们景观的永恒贡献，流淌过大地，跨越时间。蜿蜒流经怀俄明州大提顿国家公园的蛇河便是其中一颗瑰宝。这条河上一个尤为令人惊叹的景点是牛轭湖湾——今天这张照片中就出现了——平静的水面倒映着巍峨的提顿山脉，驼鹿和白头鹰等野生动物在这里繁衍生息。在这里，河水自由流淌，不受混凝土或商业的束缚，受到1968年今天签署的《野生与风景河流法案》的保护。
+
+在牛轭湖湾，莫兰山巍峨耸立，蛇河蜿蜒流淌，仿佛要流向提顿山脉（或从提顿山脉流出）。不难理解，这里为何成为“四大名胜”之一，并成为大提顿国家公园的标志性照片。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e5%ae%b6%e9%a3%8e%e6%99%af%e4%b8%8e%e8%87%aa%e7%84%b6%e6%b2%b3%e6%b5%81%e4%bd%93%e7%b3%bb&form=hpcapt&filters=HpDate:"20251001_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251002_OxbowBend"&FORM=HPQUIZ "必应主页测验 2025 10月 2")
+[下载480](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_800x480.jpg&rf=LaDigue_800x480.jpg "蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_1280x720.jpg&rf=LaDigue_1280x720.jpg "蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_UHD.jpg&rf=LaDigue_UHD.jpg "蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国")
+
+---
 ### 10月01日：克拉克山脉的回声
 #### 克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国（© Robb Hirsch/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_1280x720.jpg&rf=LaDigue_1280x720.jpg "邓金码头的蛇形楼梯, 凯里郡, 爱尔兰")
 [下载1080](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "邓金码头的蛇形楼梯, 凯里郡, 爱尔兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_UHD.jpg&rf=LaDigue_UHD.jpg "邓金码头的蛇形楼梯, 凯里郡, 爱尔兰")
-
----
-### 09月17日：成长中的冠冕
-#### 迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国（© Grant Ordelheide/TANDEM Stills + Motion）
-
-![成长中的冠冕](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_800x480.jpg&rf=LaDigue_800x480.jpg "成长中的冠冕")
-
-他虽年轻，但这副鹿角已预示着未来的征战。在阿拉斯加的丹纳利国家公园，一只年轻的雄性驯鹿将头颅高高扬起，超越灌木丛的高度。此时，它的鹿角更像是冠冕而非武器——仍覆盖着绒毛。但即便如此，它们已隐约透露出一种由本能、较量与支配欲望悄然塑造的生命轨迹。
-
-驯鹿每年都会沿着相同的迁徙路线迁徙，常常在相同的树木上觅食。阿拉斯加驯鹿每天需要摄入9770千卡（32公斤）的热量。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e6%8b%89%e6%96%af%e5%8a%a0%e9%a9%bc%e9%b9%bf&form=hpcapt&filters=HpDate:"20250916_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250917_YoungMoose"&FORM=HPQUIZ "必应主页测验 2025 9月 17")
-[下载480](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_800x480.jpg&rf=LaDigue_800x480.jpg "迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_1280x720.jpg&rf=LaDigue_1280x720.jpg "迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_UHD.jpg&rf=LaDigue_UHD.jpg "迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国")
 
 ---
