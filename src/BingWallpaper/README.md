@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月03日：雾中遐想
+#### 布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰（© Adam Mowery/TANDEM Stills + Motion）
+
+![雾中遐想](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_800x480.jpg&rf=LaDigue_800x480.jpg "雾中遐想")
+
+雾气袅袅，水波粼粼，传说萦绕——欢迎来到格伦·布里特尔。在苏格兰传说中的“雾岛”斯凯岛上，峡谷绵延展开，紫色石楠花如地毯般铺满崎岖山坡。这片土地回荡着历史的低语：远在八千年前新石器时代猎人循溪而行之前，恐龙的足迹早已镌刻于峭壁之上。九世纪时，航海的北欧维京人在此定居。数百年后，强大的麦克劳德与麦克唐纳氏族相继占据这片疆土，他们的城堡见证了无数战役与同盟的兴衰。
+
+2024年，格伦布里特尔地区的森林清理作业中，发现了一处名为布伦内尔的农耕聚落遗迹，该遗址可追溯至17或18世纪。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e5%87%af%e5%b2%9b&form=hpcapt&filters=HpDate:"20251002_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251003_SkyeHeather"&FORM=HPQUIZ "必应主页测验 2025 10月 3")
+[下载480](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_800x480.jpg&rf=LaDigue_800x480.jpg "布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰")
+[下载720](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_1280x720.jpg&rf=LaDigue_1280x720.jpg "布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_UHD.jpg&rf=LaDigue_UHD.jpg "布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰")
+
+---
 ### 10月02日：法定自然区
 #### 蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国（© DanitaDelimont.com/AWL Images/SuperStock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_1280x720.jpg&rf=LaDigue_1280x720.jpg "千岛群岛地区，圣劳伦斯河，美加边境")
 [下载1080](https://cn.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "千岛群岛地区，圣劳伦斯河，美加边境")
 [下载UHD](https://cn.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_UHD.jpg&rf=LaDigue_UHD.jpg "千岛群岛地区，圣劳伦斯河，美加边境")
-
----
-### 09月18日：爱尔兰岛的西端
-#### 邓金码头的蛇形楼梯, 凯里郡, 爱尔兰（© Hugh O'Connor/Getty Images）
-
-![爱尔兰岛的西端](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_800x480.jpg&rf=LaDigue_800x480.jpg "爱尔兰岛的西端")
-
-这片令人惊叹的景色——天空与大西洋的浩瀚水域相接之处——只能徒步抵达。位于爱尔兰荒野而美丽的丁格尔半岛上，邓金码头是凯里郡最适合拍照的景点之一。这座小型码头以蜿蜒曲折的盘山小径闻名，小径如丝带般在悬崖边剧烈蜿蜒而下。这些陡峭的弯道不仅带来刺激感，更是通往下方码头的唯一路径，从这里出发的船只将驶向偏远的布拉斯凯特群岛。
-
-码头风景如画，是爱尔兰的标志性景点之一，这在一定程度上要归功于那些沿着狭窄小路从码头走向大陆的羊群！
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%81%e6%a0%bc%e5%b0%94%e5%8d%8a%e5%b2%9b&form=hpcapt&filters=HpDate:"20250917_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250918_DunquinIreland"&FORM=HPQUIZ "必应主页测验 2025 9月 18")
-[下载480](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_800x480.jpg&rf=LaDigue_800x480.jpg "邓金码头的蛇形楼梯, 凯里郡, 爱尔兰")
-[下载720](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_1280x720.jpg&rf=LaDigue_1280x720.jpg "邓金码头的蛇形楼梯, 凯里郡, 爱尔兰")
-[下载1080](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "邓金码头的蛇形楼梯, 凯里郡, 爱尔兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_UHD.jpg&rf=LaDigue_UHD.jpg "邓金码头的蛇形楼梯, 凯里郡, 爱尔兰")
 
 ---
