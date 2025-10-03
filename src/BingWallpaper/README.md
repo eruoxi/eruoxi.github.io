@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月04日：使命必达
+#### 从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列（© NASA）
+
+![使命必达](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_800x480.jpg&rf=LaDigue_800x480.jpg "使命必达")
+
+10月4日至10日，世界空间周邀我们一同超越地球的界限，追逐星辰。这一盛事源于1957年苏联发射的"斯普特尼克1号"卫星，以及1967年签署的《外层空间条约》——这份开创性的国际承诺标志着人类和平探索宇宙的崭新篇章。在这一周里，教室里充满实验的热闹，天文馆里惊叹声不绝于耳，望远镜将人类与遥远星系相连。这些瞬间共同编织出科学探索的宇宙篇章，见证人类不断突破边界的执着追求。本年度主题明确：点燃新一代探索者、工程师和梦想家的热情，让他们准备好改写宇宙的篇章。
+
+2016年，国际空间站上培育出第一朵太空花——百日菊，为之后的太空农业开辟了道路。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%a9%ba%e9%97%b4%e5%91%a8&form=hpcapt&filters=HpDate:"20251003_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251004_DragonEndeavour"&FORM=HPQUIZ "必应主页测验 2025 10月 4")
+[下载480](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_800x480.jpg&rf=LaDigue_800x480.jpg "从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列")
+[下载720](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_1280x720.jpg&rf=LaDigue_1280x720.jpg "从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列")
+[下载1080](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列")
+[下载UHD](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_UHD.jpg&rf=LaDigue_UHD.jpg "从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列")
+
+---
 ### 10月03日：雾中遐想
 #### 布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰（© Adam Mowery/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_1280x720.jpg&rf=LaDigue_1280x720.jpg "慕尼黑啤酒节上的旋转木马，慕尼黑，巴伐利亚，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "慕尼黑啤酒节上的旋转木马，慕尼黑，巴伐利亚，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_UHD.jpg&rf=LaDigue_UHD.jpg "慕尼黑啤酒节上的旋转木马，慕尼黑，巴伐利亚，德国")
-
----
-### 09月19日：千般理由，邀您探索
-#### 千岛群岛地区，圣劳伦斯河，美加边境（© benedek/Getty Images）
-
-![千般理由，邀您探索](https://cn.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_800x480.jpg&rf=LaDigue_800x480.jpg "千般理由，邀您探索")
-
-听到“千岛”这个词，你可能会想到一罐沙拉酱，但在这浓郁的酱汁背后，是北美最迷人的地区之一。千岛群岛是圣劳伦斯河上的一个群岛，横跨美国纽约州和加拿大安大略省。它由1800多个岛屿组成。有些岛屿上矗立着童话般的城堡，有些岛屿则狭小得几乎容不下一张吊床。此外，还有一座名为“刚好够住的岛”（Just Room Enough Island），岛上只有一栋房子和一棵孤树，名副其实。
-
-该地区于2002年被联合国教科文组织指定为世界生物圈保护区。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%83%e5%b2%9b%e7%be%a4%e5%b2%9b+%e5%8c%97%e7%be%8e%e6%b4%b2&form=hpcapt&filters=HpDate:"20250918_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250919_ThousandIslands"&FORM=HPQUIZ "必应主页测验 2025 9月 19")
-[下载480](https://cn.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_800x480.jpg&rf=LaDigue_800x480.jpg "千岛群岛地区，圣劳伦斯河，美加边境")
-[下载720](https://cn.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_1280x720.jpg&rf=LaDigue_1280x720.jpg "千岛群岛地区，圣劳伦斯河，美加边境")
-[下载1080](https://cn.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "千岛群岛地区，圣劳伦斯河，美加边境")
-[下载UHD](https://cn.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_UHD.jpg&rf=LaDigue_UHD.jpg "千岛群岛地区，圣劳伦斯河，美加边境")
 
 ---
