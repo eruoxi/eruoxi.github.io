@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月05日：庆祝智慧！
+#### 中欧森林里的鬼鸮（© Ondrej Prosicky/Alamy）
+
+![庆祝智慧！](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_800x480.jpg&rf=LaDigue_800x480.jpg "庆祝智慧！")
+
+教书育人的传统在整个人类历史中根深蒂固。今天，我们向那些倾注心血传播知识、塑造思想的教育者致敬。祝所有老师世界教师节快乐，感谢你们帮助我们成为更好的自己。
+
+北方鸮分布于北美洲北部和欧洲地区，它们栖息于茂密的针叶林和混交林之中。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%95%99%e5%b8%88%e6%97%a5&form=hpcapt&filters=HpDate:"20251004_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251005_TeacherOwl"&FORM=HPQUIZ "必应主页测验 2025 10月 5")
+[下载480](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_800x480.jpg&rf=LaDigue_800x480.jpg "中欧森林里的鬼鸮")
+[下载720](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_1280x720.jpg&rf=LaDigue_1280x720.jpg "中欧森林里的鬼鸮")
+[下载1080](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中欧森林里的鬼鸮")
+[下载UHD](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_UHD.jpg&rf=LaDigue_UHD.jpg "中欧森林里的鬼鸮")
+
+---
 ### 10月04日：使命必达
 #### 从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列（© NASA）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_1280x720.jpg&rf=LaDigue_1280x720.jpg "海獭，威廉王子湾，阿拉斯加州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海獭，威廉王子湾，阿拉斯加州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg&rf=LaDigue_UHD.jpg "海獭，威廉王子湾，阿拉斯加州，美国")
-
----
-### 09月20日：关于啤酒和风景的故事
-#### 慕尼黑啤酒节上的旋转木马，慕尼黑，巴伐利亚，德国（© LOOK-foto/Alamy）
-
-![关于啤酒和风景的故事](https://cn.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_800x480.jpg&rf=LaDigue_800x480.jpg "关于啤酒和风景的故事")
-
-每年秋天，德国慕尼黑的特蕾莎草地都会摇身一变，成为全球最大的节日之一——慕尼黑啤酒节。啤酒节最初于1810年为庆祝一场皇室婚礼而举办，如今已发展成为一个持续16至18天的传统节日，吸引着来自世界各地的600多万人参加。啤酒节的规模令人叹为观止：场地占地约450万平方英尺，设有14个主帐篷，每个帐篷可容纳数千人。每年，游客们会喝掉约700万升啤酒，以及堆积如山的椒盐脆饼、香肠和姜饼心。慕尼黑啤酒节上供应的所有啤酒均来自慕尼黑啤酒厂，并符合德国啤酒纯度法（Reinheitsgebot）的严格标准。
-
-该活动每年吸引约700万游客；2023年，游客人数达到创纪录的720万人。同年，游客们喝掉了约740万升特制的慕尼黑啤酒节啤酒。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%85%95%e5%b0%bc%e9%bb%91%e5%95%a4%e9%85%92%e8%8a%82&form=hpcapt&filters=HpDate:"20250919_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250920_OktoberfestSwing"&FORM=HPQUIZ "必应主页测验 2025 9月 20")
-[下载480](https://cn.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_800x480.jpg&rf=LaDigue_800x480.jpg "慕尼黑啤酒节上的旋转木马，慕尼黑，巴伐利亚，德国")
-[下载720](https://cn.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_1280x720.jpg&rf=LaDigue_1280x720.jpg "慕尼黑啤酒节上的旋转木马，慕尼黑，巴伐利亚，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "慕尼黑啤酒节上的旋转木马，慕尼黑，巴伐利亚，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_UHD.jpg&rf=LaDigue_UHD.jpg "慕尼黑啤酒节上的旋转木马，慕尼黑，巴伐利亚，德国")
 
 ---
