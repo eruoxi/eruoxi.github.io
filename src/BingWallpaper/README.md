@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月06日：千里共婵娟
+#### 安顺桥中秋灯展，成都，中国（© Philippe LEJEANVRE/Getty Images）
+
+![千里共婵娟](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_800x480.jpg&rf=LaDigue_800x480.jpg "千里共婵娟")
+
+当秋月当空，空气中已透出冬日的气息，那份战栗感总会在记忆中久久萦绕。中秋节——亦称月节——作为中国最珍视的节日之一，为丰收时节的尾声增添了又一抹神话色彩。它在农历八月十五日庆祝，今年恰逢10月6日。相传此夜，月神嫦娥正俯瞰人间。
+
+中秋节时还有一些地方特色型习俗，例如：广东等地的舞火龙、湖南湘西等地象征性的“偷南瓜”等等。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e7%a7%8b%e8%8a%82&form=hpcapt&filters=HpDate:"20251005_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251006_AnshunBridge"&FORM=HPQUIZ "必应主页测验 2025 10月 6")
+[下载480](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_800x480.jpg&rf=LaDigue_800x480.jpg "安顺桥中秋灯展，成都，中国")
+[下载720](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_1280x720.jpg&rf=LaDigue_1280x720.jpg "安顺桥中秋灯展，成都，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安顺桥中秋灯展，成都，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_UHD.jpg&rf=LaDigue_UHD.jpg "安顺桥中秋灯展，成都，中国")
+
+---
 ### 10月05日：庆祝智慧！
 #### 中欧森林里的鬼鸮（© Ondrej Prosicky/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋日的白杨树，鱼湖国家森林，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋日的白杨树，鱼湖国家森林，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_UHD.jpg&rf=LaDigue_UHD.jpg "秋日的白杨树，鱼湖国家森林，犹他州，美国")
-
----
-### 09月21日：酷毙了
-#### 海獭，威廉王子湾，阿拉斯加州，美国（© Gerald Corsi/Getty Images）
-
-![酷毙了](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_800x480.jpg&rf=LaDigue_800x480.jpg "酷毙了")
-
-它们圆溜溜的眼睛背后藏着更多故事。每年一度的海獭认知周，正是为了彰显它们在维护沿海生态系统中的重要作用。这项由非营利环保组织“野生动物保护者”于2003年发起的活动，致力于推动公众教育与实际行动。在阿拉斯加威廉王子湾，海獭或漂浮于冰面，或如今日图片所示，用它们最爱的石头在腹部敲开贝壳。更不为人知的是，它们对海胆的食欲如何助力保护海藻森林。
-
-海獭拥有所有动物中最厚的皮毛。它们的皮毛每平方英寸含有60万到100万个毛囊。与大多数其他海洋哺乳动物不同，海獭没有鲸脂层。相反，它们依靠浓密防水的皮毛来保暖。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e7%8d%ad&form=hpcapt&filters=HpDate:"20250920_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250921_IceOtters"&FORM=HPQUIZ "必应主页测验 2025 9月 21")
-[下载480](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_800x480.jpg&rf=LaDigue_800x480.jpg "海獭，威廉王子湾，阿拉斯加州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_1280x720.jpg&rf=LaDigue_1280x720.jpg "海獭，威廉王子湾，阿拉斯加州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海獭，威廉王子湾，阿拉斯加州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg&rf=LaDigue_UHD.jpg "海獭，威廉王子湾，阿拉斯加州，美国")
 
 ---
