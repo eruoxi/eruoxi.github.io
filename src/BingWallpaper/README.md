@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月07日：金色的秋日余晖
+#### 里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国（© Grant Ordelheide/TANDEM Stills + Motion）
+
+![金色的秋日余晖](https://cn.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_800x480.jpg&rf=LaDigue_800x480.jpg "金色的秋日余晖")
+
+又到了一年之中，山峦褪去夏日青翠，披上绚烂秋色的时节。变色通常始于九月初至十月初，高处山坡率先染上秋意，随后低处山谷渐次跟进。白杨树堪称这场视觉盛宴的主角，其叶片在阳光下闪烁，宛如金币般熠熠生辉。然而白杨的绚烂并非年年如约而至。它们的色彩取决于多重因素——树木健康状况、局部气候变化、土壤湿度，以及生长海拔与纬度。健康的白杨林才是真正的季节主角：枝繁叶茂的林群色彩更明亮，落叶也更晚；而受压或衰弱的树木往往迅速褪色，只留下一抹短暂的辉煌。去年令人惊艳的景致，今年或许黯淡无光。今日镜头捕捉到斯内弗尔斯山麓的绚烂盛景——这座科罗拉多州斯内弗尔斯山脉的最高峰，从里奇韦镇拔地而起，海拔拔高逾7000英尺。
+
+从州道62号公路的达拉斯分水岭眺望，斯内弗尔斯山堪称科罗拉多州最常被拍摄的山峰之一。自2023年起，该山景还被印制在科罗拉多州驾驶执照及身份证上。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e7%bd%97%e6%8b%89%e5%a4%9a%e5%b7%9e&form=hpcapt&filters=HpDate:"20251006_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251007_RidgwayAspens"&FORM=HPQUIZ "必应主页测验 2025 10月 7")
+[下载480](https://cn.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_800x480.jpg&rf=LaDigue_800x480.jpg "里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_1280x720.jpg&rf=LaDigue_1280x720.jpg "里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_UHD.jpg&rf=LaDigue_UHD.jpg "里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国")
+
+---
 ### 10月06日：千里共婵娟
 #### 安顺桥中秋灯展，成都，中国（© Philippe LEJEANVRE/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_1280x720.jpg&rf=LaDigue_1280x720.jpg "航拍中国江苏省常州翠竹公园")
 [下载1080](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "航拍中国江苏省常州翠竹公园")
 [下载UHD](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_UHD.jpg&rf=LaDigue_UHD.jpg "航拍中国江苏省常州翠竹公园")
-
----
-### 09月22日：到冬天的中途
-#### 秋日的白杨树，鱼湖国家森林，犹他州，美国（© Danita Delimont/Getty Images）
-
-![到冬天的中途](https://cn.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_800x480.jpg&rf=LaDigue_800x480.jpg "到冬天的中途")
-
-随着九月的到来，今天图片中看到的白杨树开始了一年一度的变迁，呈现出鲜艳的黄色，在山丘上荡漾开来。这片森林覆盖了超过2300平方英里的湖泊、小径和山脉，秋天的色彩闪耀着光芒。看着季节与有着比我们遵循的公历更古老的事物同步变化，让人感到一种踏实的感觉。
-
-一些白杨克隆树，例如犹他州的潘多树林，是地球上最大、最古老的生物之一，其单一根系支撑着数千个基因相同的茎。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%99%bd%e6%9d%a8%e6%a0%91&form=hpcapt&filters=HpDate:"20250921_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250922_AspenEquinox"&FORM=HPQUIZ "必应主页测验 2025 9月 22")
-[下载480](https://cn.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_800x480.jpg&rf=LaDigue_800x480.jpg "秋日的白杨树，鱼湖国家森林，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋日的白杨树，鱼湖国家森林，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋日的白杨树，鱼湖国家森林，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_UHD.jpg&rf=LaDigue_UHD.jpg "秋日的白杨树，鱼湖国家森林，犹他州，美国")
 
 ---
