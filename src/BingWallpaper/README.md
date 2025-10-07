@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月08日：动态伪装
+#### 白日章鱼, 毛伊岛, 夏威夷, 美国（© Dave Fleetham/plainpicture）
+
+![动态伪装](https://cn.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_800x480.jpg&rf=LaDigue_800x480.jpg "动态伪装")
+
+八只触手，魅力十足，今天的主角是章鱼！值此世界章鱼日，当我们赞叹它们的智慧时，更要意识到：即便是这些海洋天才，也无法逃避气候变化和污染威胁。守护它们的家园，就是守护海洋的未来。
+
+章鱼能大幅改变身体形状，从而穿过极其狭窄的缝隙。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%ab%a0%e9%b1%bc%e6%97%a5&form=hpcapt&filters=HpDate:"20251007_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251008_OctopusCyanea"&FORM=HPQUIZ "必应主页测验 2025 10月 8")
+[下载480](https://cn.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_800x480.jpg&rf=LaDigue_800x480.jpg "白日章鱼, 毛伊岛, 夏威夷, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_1280x720.jpg&rf=LaDigue_1280x720.jpg "白日章鱼, 毛伊岛, 夏威夷, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "白日章鱼, 毛伊岛, 夏威夷, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_UHD.jpg&rf=LaDigue_UHD.jpg "白日章鱼, 毛伊岛, 夏威夷, 美国")
+
+---
 ### 10月07日：金色的秋日余晖
 #### 里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国（© Grant Ordelheide/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_1280x720.jpg&rf=LaDigue_1280x720.jpg "魔鬼塔国家纪念碑, 怀俄明州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "魔鬼塔国家纪念碑, 怀俄明州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_UHD.jpg&rf=LaDigue_UHD.jpg "魔鬼塔国家纪念碑, 怀俄明州，美国")
-
----
-### 09月23日：树树皆秋色
-#### 航拍中国江苏省常州翠竹公园（© Xu Changyu/Getty images）
-
-![树树皆秋色](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_800x480.jpg&rf=LaDigue_800x480.jpg "树树皆秋色")
-
-又是一年的秋分时节，众所周知，在这一天，全球各地昼夜的时间几乎是相等的。在幅员辽阔的中国，自南向北开始，秋季在每个地区有着不同颜色和不同的温度。大部分地区雨季在此时刚刚结束，秋天的凉意才刚刚开始，此时正是碧空万里，风和日丽的时节。中国的秋季颜色是叠翠鎏金的，许多植物的颜色由此时节开始，由苍翠的绿转为金黄或者橙红色。
-
-秋分曾是传统的“祭月节”，中秋节由“秋夕祭月”演变而来。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a7%8b%e5%88%86&form=hpcapt&filters=HpDate:"20250922_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250923_AutumnalEquinoxY25"&FORM=HPQUIZ "必应主页测验 2025 9月 23")
-[下载480](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_800x480.jpg&rf=LaDigue_800x480.jpg "航拍中国江苏省常州翠竹公园")
-[下载720](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_1280x720.jpg&rf=LaDigue_1280x720.jpg "航拍中国江苏省常州翠竹公园")
-[下载1080](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "航拍中国江苏省常州翠竹公园")
-[下载UHD](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_UHD.jpg&rf=LaDigue_UHD.jpg "航拍中国江苏省常州翠竹公园")
 
 ---
