@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月09日：宇宙在绽放
+#### ‌詹姆斯·韦伯太空望远镜观测的创生之柱（© NASA）
+
+![宇宙在绽放](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_800x480.jpg&rf=LaDigue_800x480.jpg "宇宙在绽放")
+
+随着世界空间周接近尾声，宇宙依然不断给予我们仰望的理由。想象一下云朵——不是在天空中飘动，而是在浩瀚星海中延展，孕育着新星的诞生。这正是NASA的詹姆斯·韦布太空望远镜所捕捉到的“创生之柱”景象。如图所示，色彩与细节前所未见，令人震撼。
+
+NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真1857年的布道，象征着神圣的宇宙根基。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%88%9b%e7%94%9f%e4%b9%8b%e6%9f%b1&form=hpcapt&filters=HpDate:"20251008_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251009_WebbPillars"&FORM=HPQUIZ "必应主页测验 2025 10月 9")
+[下载480](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_800x480.jpg&rf=LaDigue_800x480.jpg "‌詹姆斯·韦伯太空望远镜观测的创生之柱")
+[下载720](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_1280x720.jpg&rf=LaDigue_1280x720.jpg "‌詹姆斯·韦伯太空望远镜观测的创生之柱")
+[下载1080](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "‌詹姆斯·韦伯太空望远镜观测的创生之柱")
+[下载UHD](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_UHD.jpg&rf=LaDigue_UHD.jpg "‌詹姆斯·韦伯太空望远镜观测的创生之柱")
+
+---
 ### 10月08日：动态伪装
 #### 白日章鱼, 毛伊岛, 夏威夷, 美国（© Dave Fleetham/plainpicture）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_1280x720.jpg&rf=LaDigue_1280x720.jpg "奇陶尔加尔堡, 拉贾斯坦邦, 印度")
 [下载1080](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奇陶尔加尔堡, 拉贾斯坦邦, 印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_UHD.jpg&rf=LaDigue_UHD.jpg "奇陶尔加尔堡, 拉贾斯坦邦, 印度")
-
----
-### 09月24日：孤独的巨人
-#### 魔鬼塔国家纪念碑, 怀俄明州，美国（© Laura Hedien/Getty Images）
-
-![孤独的巨人](https://cn.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_800x480.jpg&rf=LaDigue_800x480.jpg "孤独的巨人")
-
-在怀俄明州东北部辽阔的草原上，矗立着魔鬼塔——一座从开阔平原拔地而起的岩石地貌。这座山丘原名熊屋，在1875年理查德·欧文·道奇上校率领的探险队中获得现名，据推测可能源于一名翻译将原住民的表述误译为“恶神之塔”。其官方名称省略的撇号符合标准地理命名惯例——因此路标均标注为“魔鬼塔”。1906年，西奥多·罗斯福总统将其指定为美国首个国家纪念碑，这一里程碑事件的周年纪念日正值今日。
-
-这块巨石的土著名称包括“熊屋”或“熊屋”。而魔鬼塔这个名字则是起源一位探险队翻译将一个土著名称误解为“恶神之塔”，后来被延用了。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%ad%94%e9%ac%bc%e5%a1%94%e5%9b%bd%e5%ae%b6%e7%ba%aa%e5%bf%b5%e7%a2%91&form=hpcapt&filters=HpDate:"20250923_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250924_BearLodge"&FORM=HPQUIZ "必应主页测验 2025 9月 24")
-[下载480](https://cn.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_800x480.jpg&rf=LaDigue_800x480.jpg "魔鬼塔国家纪念碑, 怀俄明州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_1280x720.jpg&rf=LaDigue_1280x720.jpg "魔鬼塔国家纪念碑, 怀俄明州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "魔鬼塔国家纪念碑, 怀俄明州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_UHD.jpg&rf=LaDigue_UHD.jpg "魔鬼塔国家纪念碑, 怀俄明州，美国")
 
 ---
