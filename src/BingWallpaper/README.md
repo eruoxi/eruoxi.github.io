@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月10日：思绪之礁
+#### 莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济（© David Wall/SuperStock）
+
+![思绪之礁](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_800x480.jpg&rf=LaDigue_800x480.jpg "思绪之礁")
+
+有些日子只标志着一个里程碑，而斐济的10月10日却见证了两个。1874年的这一天，斐济群岛正式成为英国殖民地。近一个世纪后的1970年，同一天，斐济升起了自己的国旗，宣布独立。斐济日是一个独特的全国性节日——既是反思的时刻，也是庆祝的日子。庆典从庄重的仪式开始，国旗冉冉升起，领导人发表演讲。学校和社区团体常常会举行历史重现或表演活动。街道上挤满了游行队伍，村庄里上演着传统舞蹈“梅克”，橄榄球场上热火朝天。家家户户则准备传统菜肴，比如将肉和根茎类作物埋在地下烤制的“洛沃”，以及用柑橘汁腌制的鱼“科科达”。
+
+莫努里基岛在2000年罗伯特·泽米吉斯执导、汤姆·汉克斯主演的电影《荒岛余生》中作为无名小岛的取景地而闻名。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8e%9b%e7%8e%9b%e5%8a%aa%e5%8d%a1%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20251009_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251010_MonurikiFiji"&FORM=HPQUIZ "必应主页测验 2025 10月 10")
+[下载480](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_800x480.jpg&rf=LaDigue_800x480.jpg "莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济")
+[下载720](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_1280x720.jpg&rf=LaDigue_1280x720.jpg "莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济")
+[下载1080](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济")
+[下载UHD](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_UHD.jpg&rf=LaDigue_UHD.jpg "莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济")
+
+---
 ### 10月09日：宇宙在绽放
 #### ‌詹姆斯·韦伯太空望远镜观测的创生之柱（© NASA）
 
@@ -235,22 +252,5 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_1280x720.jpg&rf=LaDigue_1280x720.jpg "最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_UHD.jpg&rf=LaDigue_UHD.jpg "最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国")
-
----
-### 09月25日：忠勇的雕刻石
-#### 奇陶尔加尔堡, 拉贾斯坦邦, 印度（© chetansoni/Shutterstock）
-
-![忠勇的雕刻石](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_800x480.jpg&rf=LaDigue_800x480.jpg "忠勇的雕刻石")
-
-奇陶尔加尔堡坐落在印度拉贾斯坦邦一座海拔超过590英尺的山丘上，占地约690英亩。它骄傲地见证着著名武士家族——拉杰普特人的英勇事迹。拉杰普特人的名字源自梵语“rajaputra”，意为“国王之子”，他们以其高贵的血统和尚武传统而闻名于整个印度北部。这座堡垒的石墙见证了几个世纪以来拉贾斯坦邦吟游诗人的歌谣中流传的勇气、骄傲和浪漫。据传说，印度史诗《摩诃婆罗多》中的英雄比姆是这座堡垒的奠基者。
-
-这座雄伟的建筑将人们带回到征服和悲剧的时代，它的墙壁上至今仍回响着非凡男女的令人难以置信的故事。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a5%87%e9%99%b6%e5%b0%94%e5%8a%a0%e5%b0%94%e5%a0%a1%e5%8d%b0%e5%ba%a6&form=hpcapt&filters=HpDate:"20250924_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250925_FortChittorgarh"&FORM=HPQUIZ "必应主页测验 2025 9月 25")
-[下载480](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_800x480.jpg&rf=LaDigue_800x480.jpg "奇陶尔加尔堡, 拉贾斯坦邦, 印度")
-[下载720](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_1280x720.jpg&rf=LaDigue_1280x720.jpg "奇陶尔加尔堡, 拉贾斯坦邦, 印度")
-[下载1080](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奇陶尔加尔堡, 拉贾斯坦邦, 印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_UHD.jpg&rf=LaDigue_UHD.jpg "奇陶尔加尔堡, 拉贾斯坦邦, 印度")
 
 ---
