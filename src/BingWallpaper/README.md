@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月11日：下一站：墨西哥！
+#### 林鸳鸯，美国（© ps50ace/iStock/Getty Images）
+
+![下一站：墨西哥！](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_800x480.jpg&rf=LaDigue_800x480.jpg "下一站：墨西哥！")
+
+鸟类无需护照、签证或行李，它们只需展开翅膀，就能随时启程。每年两次，数十亿只候鸟跨越全球，在繁殖地与越冬地之间飞行数千英里。这段壮丽的旅程正是“世界候鸟日”所要强调的。从每年飞行约44000英里的北极燕鸥，到单次飞行就能横跨墨西哥湾的红喉蜂鸟，这些季节性迁徙的鸟儿展现了真正的耐力。该节日定在每年5月和10月的第二个星期六，同时提醒人们候鸟所面临的威胁：栖息地丧失、气候变化以及光污染，都可能干扰它们的迁徙路线。
+
+林鸳鸯是北美唯一一种能在同一季节抚育两窝雏鸟的鸭类。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%80%99%e9%b8%9f%e6%97%a5&form=hpcapt&filters=HpDate:"20251010_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251011_WoodDuckHen"&FORM=HPQUIZ "必应主页测验 2025 10月 11")
+[下载480](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_800x480.jpg&rf=LaDigue_800x480.jpg "林鸳鸯，美国")
+[下载720](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_1280x720.jpg&rf=LaDigue_1280x720.jpg "林鸳鸯，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "林鸳鸯，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_UHD.jpg&rf=LaDigue_UHD.jpg "林鸳鸯，美国")
+
+---
 ### 10月10日：思绪之礁
 #### 莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济（© David Wall/SuperStock）
 
@@ -235,22 +252,5 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_1280x720.jpg&rf=LaDigue_1280x720.jpg "坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_UHD.jpg&rf=LaDigue_UHD.jpg "坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国")
-
----
-### 09月26日：速度与毛茸茸
-#### 最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国（© Donald M. Jones/Minden Pictures）
-
-![速度与毛茸茸](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_800x480.jpg&rf=LaDigue_800x480.jpg "速度与毛茸茸")
-
-在林地动物的世界里，体型最小的花栗鼠或许看起来像是“小松鼠”——但别小看它。凭借着敏锐的生存智慧和迅捷的双足，这种小型啮齿动物证明了“体型最小”并不意味着放弃你的潜力。它的体重还不到一副扑克牌，从鼻子到尾巴的长度不到10英寸（约25厘米），是北美体型最小的花栗鼠。
-
-一旦某个区域没有更多的食物可供觅食，最小的花栗鼠就会用尿液标记该区域，并且不会再回到该区域，直到重新供应为止。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9c%80%e5%b0%8f%e8%8a%b1%e6%a0%97%e9%bc%a0&form=hpcapt&filters=HpDate:"20250925_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250926_AutumnChipmunk"&FORM=HPQUIZ "必应主页测验 2025 9月 26")
-[下载480](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_800x480.jpg&rf=LaDigue_800x480.jpg "最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_1280x720.jpg&rf=LaDigue_1280x720.jpg "最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_UHD.jpg&rf=LaDigue_UHD.jpg "最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国")
 
 ---
