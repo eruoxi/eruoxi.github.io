@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月12日：爱上萨拉纳克
+#### 萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国（© DenisTangneyJr/Getty Images）
+
+![爱上萨拉纳克](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_800x480.jpg&rf=LaDigue_800x480.jpg "爱上萨拉纳克")
+
+有些地方只是地图上的一个点，但萨拉纳克湖却是一年四季都吸引游客的热门目的地。尽管名字里带“湖”，这个小镇并不直接坐落在萨拉纳克湖群边，而是位于萨拉纳克河的一段宽阔水域——弗劳尔湖畔。几个世纪以来，这片被称为“阿迪朗达克之都”的地方，一直是原住民狩猎和迁徙的要地。到19世纪末，这里因成为疗养胜地而声名鹊起，爱德华·李文斯顿·特鲁多医生在此开创了肺结核的新鲜空气疗法。那一时期的“疗养小屋”至今依然保存完好。
+
+在纽约阿迪朗达克山脉附近，分布着200多个有名字的湖泊，以及超过3,000个小型湖泊、池塘和其他水域。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%90%a8%e6%8b%89%e7%ba%b3%e5%85%8b%e6%b9%96%e6%9d%91&form=hpcapt&filters=HpDate:"20251011_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251012_SaranacLake"&FORM=HPQUIZ "必应主页测验 2025 10月 12")
+[下载480](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_800x480.jpg&rf=LaDigue_800x480.jpg "萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_UHD.jpg&rf=LaDigue_UHD.jpg "萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国")
+
+---
 ### 10月11日：下一站：墨西哥！
 #### 林鸳鸯，美国（© ps50ace/iStock/Getty Images）
 
@@ -235,22 +252,5 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_1280x720.jpg&rf=LaDigue_1280x720.jpg "托斯卡纳的皮恩扎镇, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "托斯卡纳的皮恩扎镇, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_UHD.jpg&rf=LaDigue_UHD.jpg "托斯卡纳的皮恩扎镇, 意大利")
-
----
-### 09月27日：美丽的星空
-#### 坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国（© Austin Trigg/TANDEM Stills + Motion）
-
-![美丽的星空](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_800x480.jpg&rf=LaDigue_800x480.jpg "美丽的星空")
-
-今天图片中璀璨的星空来自于坦克湖，它位于高山湖泊荒野区。高山湖泊荒野占地超过40万英亩，位于风景如画的华盛顿州中部喀斯喀特山脉。荒野位于喀斯喀特山脉北段的斯诺夸米山口和史蒂文斯山口之间，其中包括被称为韦纳奇山脉的子山脉，该山脉构成了韦纳奇-雅基马分水岭。
-
-要前往坦克湖，首先要踏上18英里长的东福克福斯步道，进入项链谷，然后才能到达拉博恩峡谷和坦克湖/焚风湖地区。步道从这里开始变得崎岖不平，有时甚至无人维护。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%8e%e7%9b%9b%e9%a1%bf%e5%b7%9e%e9%ab%98%e5%b1%b1%e6%b9%96%e6%b3%8a%e8%8d%92%e9%87%8e%e5%8c%ba&form=hpcapt&filters=HpDate:"20250926_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250927_TankLakes"&FORM=HPQUIZ "必应主页测验 2025 9月 27")
-[下载480](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_800x480.jpg&rf=LaDigue_800x480.jpg "坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_1280x720.jpg&rf=LaDigue_1280x720.jpg "坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_UHD.jpg&rf=LaDigue_UHD.jpg "坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国")
 
 ---
