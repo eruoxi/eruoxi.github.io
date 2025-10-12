@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月13日：水声低语
+#### 温巴赫峡谷瀑布，巴伐利亚州，德国（© EyeEm Mobile GmbH/Getty Images）
+
+![水声低语](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_800x480.jpg&rf=LaDigue_800x480.jpg "水声低语")
+
+陡峭的岩石峡谷，湍急的水流，还有如画般的风景：位于贝希特斯加登国家公园拉姆绍附近的温巴赫峡谷，是巴伐利亚最壮观的峡谷之一。在今日图片中，温巴赫溪在约200米长的狭窄岩层间奔流而下，形成层层小瀑布，并在长年累月中于岩石上雕刻出令人惊叹的纹理。色彩斑斓的岩层揭示了数千年前的地质过程。
+
+国王湖碧绿如翡翠，坐落在贝希特斯加登国家公园中心，雄伟的瓦茨曼山东壁脚下。这里被誉为大自然最瑰丽的杰作之一
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b8%a9%e5%b7%b4%e8%b5%ab%e5%b3%a1%e8%b0%b7&form=hpcapt&filters=HpDate:"20251012_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251013_HinterseeWaterfall"&FORM=HPQUIZ "必应主页测验 2025 10月 13")
+[下载480](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_800x480.jpg&rf=LaDigue_800x480.jpg "温巴赫峡谷瀑布，巴伐利亚州，德国")
+[下载720](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_1280x720.jpg&rf=LaDigue_1280x720.jpg "温巴赫峡谷瀑布，巴伐利亚州，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "温巴赫峡谷瀑布，巴伐利亚州，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_UHD.jpg&rf=LaDigue_UHD.jpg "温巴赫峡谷瀑布，巴伐利亚州，德国")
+
+---
 ### 10月12日：爱上萨拉纳克
 #### 萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国（© DenisTangneyJr/Getty Images）
 
@@ -235,22 +252,5 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_1280x720.jpg&rf=LaDigue_1280x720.jpg "豪滕镇的彩虹屋, 荷兰")
 [下载1080](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "豪滕镇的彩虹屋, 荷兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_UHD.jpg&rf=LaDigue_UHD.jpg "豪滕镇的彩虹屋, 荷兰")
-
----
-### 09月28日：品味皮恩扎
-#### 托斯卡纳的皮恩扎镇, 意大利（© zpagistock/Getty Images）
-
-![品味皮恩扎](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_800x480.jpg&rf=LaDigue_800x480.jpg "品味皮恩扎")
-
-有些城镇历经数个世纪缓慢演变。皮恩扎？15世纪，一位教皇为了证明某种观点——或许也为了炫耀——彻底重塑了它。这座意大利小镇坐落在奥尔恰山谷之上，周围环绕着连绵起伏的群山，其景象与你想象中的托斯卡纳一模一样：柏树成荫，蜿蜒的土路，偶尔还能看到几只绵羊。它宁静祥和。而当你踏入城墙，它便会变得灵动起来。
-
-皮恩扎历史中心作为文艺复兴人文主义城市设计理念的首次应用，在意大利乃至全球的后续城市发展中发挥了重要作用。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%9a%ae%e6%81%a9%e6%89%8e&form=hpcapt&filters=HpDate:"20250927_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250928_PienzaItaly"&FORM=HPQUIZ "必应主页测验 2025 9月 28")
-[下载480](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_800x480.jpg&rf=LaDigue_800x480.jpg "托斯卡纳的皮恩扎镇, 意大利")
-[下载720](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_1280x720.jpg&rf=LaDigue_1280x720.jpg "托斯卡纳的皮恩扎镇, 意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "托斯卡纳的皮恩扎镇, 意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_UHD.jpg&rf=LaDigue_UHD.jpg "托斯卡纳的皮恩扎镇, 意大利")
 
 ---
