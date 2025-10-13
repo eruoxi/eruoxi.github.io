@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月14日：蓝与白的梦境
+#### 伊亚镇，圣托里尼岛，希腊（© f9photos/Getty Images）
+
+![蓝与白的梦境](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_800x480.jpg&rf=LaDigue_800x480.jpg "蓝与白的梦境")
+
+你是否曾想过生活在电影布景中是什么感觉？在希腊圣托里尼群岛的伊亚村，这种体验几乎成真。这里曾出现在《牛仔裤的夏天》和《古墓丽影》等影片中。标志性的基克拉迪式建筑——立方体造型、平顶的白色房屋——与悬崖边的壮丽景色，仿佛不属于现实世界。它独特的建筑风格起源于19世纪末，当时的水手和商人直接在火山悬崖上凿建房屋，夏季清凉、冬季温暖。而蓝白相间的粉刷，也不仅仅是为了美观：石灰涂层能让雨水顺流而下并被收集利用。如今，游客可以漫步在鹅卵石铺就的小巷中，参观海军海事博物馆，或登上圣尼古拉斯城堡遗址，欣赏那令人难忘的落日。
+
+伊亚镇的日落之美举世无双，绝非浪得虚名。观赏日落的最佳地点当属位于村尾的圣尼古拉城堡遗址，那里视野开阔，海景与地平线一览无余。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%8c%e8%85%8a%e4%bc%8a%e4%ba%9a%e9%95%87&form=hpcapt&filters=HpDate:"20251013_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251014_OiaSantorini"&FORM=HPQUIZ "必应主页测验 2025 10月 14")
+[下载480](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_800x480.jpg&rf=LaDigue_800x480.jpg "伊亚镇，圣托里尼岛，希腊")
+[下载720](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_1280x720.jpg&rf=LaDigue_1280x720.jpg "伊亚镇，圣托里尼岛，希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊亚镇，圣托里尼岛，希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_UHD.jpg&rf=LaDigue_UHD.jpg "伊亚镇，圣托里尼岛，希腊")
+
+---
 ### 10月13日：水声低语
 #### 温巴赫峡谷瀑布，巴伐利亚州，德国（© EyeEm Mobile GmbH/Getty Images）
 
@@ -235,22 +252,5 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_1280x720.jpg&rf=LaDigue_1280x720.jpg "桉树上的考拉, 大奥特维国家公园, 澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "桉树上的考拉, 大奥特维国家公园, 澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_UHD.jpg&rf=LaDigue_UHD.jpg "桉树上的考拉, 大奥特维国家公园, 澳大利亚")
-
----
-### 09月29日：彩虹骑行与宁静氛围
-#### 豪滕镇的彩虹屋, 荷兰（© George Pachantouris/Getty Images）
-
-![彩虹骑行与宁静氛围](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_800x480.jpg&rf=LaDigue_800x480.jpg "彩虹骑行与宁静氛围")
-
-你不会找到纪念品商店或旅游地图指引方向——但沿着豪滕的里特普拉斯湖畔，你会偶然发现荷兰最令人意想不到的上镜景点之一。虽然许多人涌向阿姆斯特丹的运河或鹿特丹的方块屋，但这座宁静的通勤小镇却拥有独特的建筑风格。彩虹屋如海市蜃楼般鳞次栉比，闪耀着大胆的绘画色彩——一个住宅区变成了一个低调的文化地标。
-
-豪滕是一座通勤城市，其居民非常重视在家乡使用自行车。继2008年荣获“自行车之城”称号后，该市去年再次荣获该称号。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%b1%aa%e6%bb%95%e9%95%87%e8%8d%b7%e5%85%b0&form=hpcapt&filters=HpDate:"20250928_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250929_HoutenHouses"&FORM=HPQUIZ "必应主页测验 2025 9月 29")
-[下载480](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_800x480.jpg&rf=LaDigue_800x480.jpg "豪滕镇的彩虹屋, 荷兰")
-[下载720](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_1280x720.jpg&rf=LaDigue_1280x720.jpg "豪滕镇的彩虹屋, 荷兰")
-[下载1080](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "豪滕镇的彩虹屋, 荷兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_UHD.jpg&rf=LaDigue_UHD.jpg "豪滕镇的彩虹屋, 荷兰")
 
 ---
