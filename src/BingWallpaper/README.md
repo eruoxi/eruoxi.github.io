@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月15日：孢子奇遇记
+#### 紫蜡蘑，西贝克，华盛顿州，美国（© Danita Delimont/Shutterstock）
+
+![孢子奇遇记](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_800x480.jpg&rf=LaDigue_800x480.jpg "孢子奇遇记")
+
+你知道吗？蘑菇也有属于自己的节日。每年的10月15日是“全国蘑菇日”，这一天邀请我们走进它们奇妙的世界。比如图中的紫蜡蘑，又称“紫晶欺骗菇”。它在幼年时紫色明艳、光彩夺目，但随着时间和环境的变化，颜色逐渐褪去，辨认起来就不那么容易了。尽管外表娇嫩而多变，这种宝石般的真菌不仅可以食用，还在生态系统中发挥着重要作用。
+
+因为它那鲜艳的紫水晶色会随着年龄增长和风吹雨打逐渐褪去，从而难以辨认，所以有了“欺骗者”这个俗名。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%b4%ab%e8%9c%a1%e8%98%91&form=hpcapt&filters=HpDate:"20251014_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251015_AmethystLaccaria"&FORM=HPQUIZ "必应主页测验 2025 10月 15")
+[下载480](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_800x480.jpg&rf=LaDigue_800x480.jpg "紫蜡蘑，西贝克，华盛顿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_1280x720.jpg&rf=LaDigue_1280x720.jpg "紫蜡蘑，西贝克，华盛顿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "紫蜡蘑，西贝克，华盛顿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_UHD.jpg&rf=LaDigue_UHD.jpg "紫蜡蘑，西贝克，华盛顿州，美国")
+
+---
 ### 10月14日：蓝与白的梦境
 #### 伊亚镇，圣托里尼岛，希腊（© f9photos/Getty Images）
 
@@ -235,22 +252,5 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_1280x720.jpg&rf=LaDigue_1280x720.jpg "克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_UHD.jpg&rf=LaDigue_UHD.jpg "克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国")
-
----
-### 09月30日：坚持重要的事情
-#### 桉树上的考拉, 大奥特维国家公园, 澳大利亚（© Jamie Lamb - elusive-images.co.uk/Getty Images）
-
-![坚持重要的事情](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_800x480.jpg&rf=LaDigue_800x480.jpg "坚持重要的事情")
-
-在大奥特维国家公园茂密的桉树林中，考拉如同沉睡的哨兵，守护着澳大利亚的野性灵魂。这些有袋动物常被误称为“考拉熊”，但实际上它们与袋熊的体型更接近，它们结实的无尾身躯、毛茸茸的耳朵和柔软的黑色鼻子很容易辨认。
-
-1998年，考拉为澳大利亚旅游业带来了超过10亿美元的收益，此后，考拉的国际知名度不断提升。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%80%83%e6%8b%89&form=hpcapt&filters=HpDate:"20250929_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 9月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20250930_EucalyptusKoala"&FORM=HPQUIZ "必应主页测验 2025 9月 30")
-[下载480](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_800x480.jpg&rf=LaDigue_800x480.jpg "桉树上的考拉, 大奥特维国家公园, 澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_1280x720.jpg&rf=LaDigue_1280x720.jpg "桉树上的考拉, 大奥特维国家公园, 澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "桉树上的考拉, 大奥特维国家公园, 澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_UHD.jpg&rf=LaDigue_UHD.jpg "桉树上的考拉, 大奥特维国家公园, 澳大利亚")
 
 ---
