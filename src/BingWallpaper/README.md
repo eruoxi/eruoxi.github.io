@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月16日：幽灵之猫
+#### 欧亚猞猁，西伯利亚（© Mario Plechaty Photograph/Shutterstock）
+
+![幽灵之猫](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_800x480.jpg&rf=LaDigue_800x480.jpg "幽灵之猫")
+
+想象一只能在森林中悄然隐去的猫科动物——这就是欧亚猞猁。它耳尖上的簇毛和锐利的目光令人过目难忘。作为四种猞猁中体型最大的一种，它体长可达42 英寸，肩高可达30英寸，身形矫健，兼具力量与敏捷。厚实的脚掌不仅能帮助它悄无声息地移动，还像雪鞋一样分散体重，使其能在厚厚的积雪中追逐猎物。它大多在夜间出没，白天则隐匿在灌木丛或岩石洞穴中，夜幕降临才悄然出击，捕猎鹿、野兔和松鼠。
+
+在一些文化中认为猞猁拥有超自然的视力，甚至能看穿坚实的物体。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e4%ba%9a%e7%8c%9e%e7%8c%81&form=hpcapt&filters=HpDate:"20251015_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251016_SiberianLynx"&FORM=HPQUIZ "必应主页测验 2025 10月 16")
+[下载480](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_800x480.jpg&rf=LaDigue_800x480.jpg "欧亚猞猁，西伯利亚")
+[下载720](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧亚猞猁，西伯利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚猞猁，西伯利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚猞猁，西伯利亚")
+
+---
 ### 10月15日：孢子奇遇记
 #### 紫蜡蘑，西贝克，华盛顿州，美国（© Danita Delimont/Shutterstock）
 
@@ -235,22 +252,5 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_1280x720.jpg&rf=LaDigue_1280x720.jpg "蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_UHD.jpg&rf=LaDigue_UHD.jpg "蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国")
-
----
-### 10月01日：克拉克山脉的回声
-#### 克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国（© Robb Hirsch/TANDEM Stills + Motion）
-
-![克拉克山脉的回声](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_800x480.jpg&rf=LaDigue_800x480.jpg "克拉克山脉的回声")
-
-今年是约塞米蒂国家公园遗产的又一个里程碑。约塞米蒂国家公园自1864年以来一直受到保护，以其令人惊叹的壮丽景色和生态意义而闻名。约塞米蒂坐落在内华达山脉的中心地带，占地近1200平方英里，孕育着巨大的花岗岩、奔腾的瀑布和古老的红杉。克拉克山脉是其鲜为人知的瑰宝之一——今天照片中显示的崎岖高海拔山脊。它以约塞米蒂的第一位守护者、自然保护先驱盖伦·克拉克的名字命名。
-
-约塞米蒂国家公园于1864年首次设立保护区，以其瀑布而闻名。然而，在其近1200平方英里的土地上，你还能发现深邃的山谷、壮丽的草地、古老的巨型红杉、广阔的荒野等等。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a6%e5%a1%9e%e7%b1%b3%e8%92%82%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20250930_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251001_YosemiteClark"&FORM=HPQUIZ "必应主页测验 2025 10月 1")
-[下载480](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_800x480.jpg&rf=LaDigue_800x480.jpg "克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_1280x720.jpg&rf=LaDigue_1280x720.jpg "克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_UHD.jpg&rf=LaDigue_UHD.jpg "克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国")
 
 ---
