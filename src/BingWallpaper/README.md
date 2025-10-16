@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月17日：爱上密歇根
+#### 罗克河瀑布，上半岛，密歇根州，美国（© Matt Anderson Photography/Getty Images）
+
+![爱上密歇根](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_800x480.jpg&rf=LaDigue_800x480.jpg "爱上密歇根")
+
+密歇根州罗克河峡谷深处，罗克河瀑布在冰川雕琢的景观中悄然显现，周遭密林环绕，层层历史沉淀。在上半岛这片土地上，人类足迹绵延数千年：原住民阿尔冈昆语族之后，法国与英国探险者接踵而至；19世纪采矿与伐木业繁荣时期，芬兰、瑞典及法裔加拿大移民在此定居。如今这片人烟稀少的区域仅容纳着密歇根州3%的居民，森林与瀑布依旧保留着近乎原始的宁静。
+
+该森林拥有超过100英里（160公里）的海岸线。两个区域均毗邻苏必利尔湖和密歇根湖。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%af%86%e6%ad%87%e6%a0%b9%e5%b7%9e%e7%bd%97%e5%85%8b%e6%b2%b3%e8%8d%92%e9%87%8e&form=hpcapt&filters=HpDate:"20251016_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251017_RockRiverFalls"&FORM=HPQUIZ "必应主页测验 2025 10月 17")
+[下载480](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_800x480.jpg&rf=LaDigue_800x480.jpg "罗克河瀑布，上半岛，密歇根州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗克河瀑布，上半岛，密歇根州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗克河瀑布，上半岛，密歇根州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_UHD.jpg&rf=LaDigue_UHD.jpg "罗克河瀑布，上半岛，密歇根州，美国")
+
+---
 ### 10月16日：幽灵之猫
 #### 欧亚猞猁，西伯利亚（© Mario Plechaty Photograph/Shutterstock）
 
@@ -235,22 +252,5 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_1280x720.jpg&rf=LaDigue_1280x720.jpg "布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_UHD.jpg&rf=LaDigue_UHD.jpg "布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰")
-
----
-### 10月02日：法定自然区
-#### 蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国（© DanitaDelimont.com/AWL Images/SuperStock）
-
-![法定自然区](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_800x480.jpg&rf=LaDigue_800x480.jpg "法定自然区")
-
-除了水，河流还承载着生命、历史和故事。它们是大自然对我们景观的永恒贡献，流淌过大地，跨越时间。蜿蜒流经怀俄明州大提顿国家公园的蛇河便是其中一颗瑰宝。这条河上一个尤为令人惊叹的景点是牛轭湖湾——今天这张照片中就出现了——平静的水面倒映着巍峨的提顿山脉，驼鹿和白头鹰等野生动物在这里繁衍生息。在这里，河水自由流淌，不受混凝土或商业的束缚，受到1968年今天签署的《野生与风景河流法案》的保护。
-
-在牛轭湖湾，莫兰山巍峨耸立，蛇河蜿蜒流淌，仿佛要流向提顿山脉（或从提顿山脉流出）。不难理解，这里为何成为“四大名胜”之一，并成为大提顿国家公园的标志性照片。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e5%ae%b6%e9%a3%8e%e6%99%af%e4%b8%8e%e8%87%aa%e7%84%b6%e6%b2%b3%e6%b5%81%e4%bd%93%e7%b3%bb&form=hpcapt&filters=HpDate:"20251001_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251002_OxbowBend"&FORM=HPQUIZ "必应主页测验 2025 10月 2")
-[下载480](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_800x480.jpg&rf=LaDigue_800x480.jpg "蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_1280x720.jpg&rf=LaDigue_1280x720.jpg "蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_UHD.jpg&rf=LaDigue_UHD.jpg "蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国")
 
 ---
