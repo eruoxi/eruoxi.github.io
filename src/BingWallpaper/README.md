@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月18日：那座铭记往昔的山丘
+#### 西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国（© dbstockphotoa/Getty Images）
+
+![那座铭记往昔的山丘](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_800x480.jpg&rf=LaDigue_800x480.jpg "那座铭记往昔的山丘")
+
+每年十月的第三个星期六是国际考古日，它鼓励我们“深入地表”，探索尘封的历史与文明的根源。该纪念日由美国考古学会（AIA）于2011年设立，如今世界各地通过举办活动、组织参观和亲身体验挖掘等方式来庆祝。
+
+这座山丘的用途至今仍是谜团，尽管已有多种推测被提出。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e8%80%83%e5%8f%a4%e6%97%a5&form=hpcapt&filters=HpDate:"20251017_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251018_SilburyHill"&FORM=HPQUIZ "必应主页测验 2025 10月 18")
+[下载480](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_800x480.jpg&rf=LaDigue_800x480.jpg "西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国")
+[下载720](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_1280x720.jpg&rf=LaDigue_1280x720.jpg "西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_UHD.jpg&rf=LaDigue_UHD.jpg "西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国")
+
+---
 ### 10月17日：爱上密歇根
 #### 罗克河瀑布，上半岛，密歇根州，美国（© Matt Anderson Photography/Getty Images）
 
@@ -235,22 +252,5 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_1280x720.jpg&rf=LaDigue_1280x720.jpg "从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列")
 [下载1080](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列")
 [下载UHD](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_UHD.jpg&rf=LaDigue_UHD.jpg "从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列")
-
----
-### 10月03日：雾中遐想
-#### 布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰（© Adam Mowery/TANDEM Stills + Motion）
-
-![雾中遐想](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_800x480.jpg&rf=LaDigue_800x480.jpg "雾中遐想")
-
-雾气袅袅，水波粼粼，传说萦绕——欢迎来到格伦·布里特尔。在苏格兰传说中的“雾岛”斯凯岛上，峡谷绵延展开，紫色石楠花如地毯般铺满崎岖山坡。这片土地回荡着历史的低语：远在八千年前新石器时代猎人循溪而行之前，恐龙的足迹早已镌刻于峭壁之上。九世纪时，航海的北欧维京人在此定居。数百年后，强大的麦克劳德与麦克唐纳氏族相继占据这片疆土，他们的城堡见证了无数战役与同盟的兴衰。
-
-2024年，格伦布里特尔地区的森林清理作业中，发现了一处名为布伦内尔的农耕聚落遗迹，该遗址可追溯至17或18世纪。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e5%87%af%e5%b2%9b&form=hpcapt&filters=HpDate:"20251002_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251003_SkyeHeather"&FORM=HPQUIZ "必应主页测验 2025 10月 3")
-[下载480](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_800x480.jpg&rf=LaDigue_800x480.jpg "布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰")
-[下载720](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_1280x720.jpg&rf=LaDigue_1280x720.jpg "布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_UHD.jpg&rf=LaDigue_UHD.jpg "布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰")
 
 ---
