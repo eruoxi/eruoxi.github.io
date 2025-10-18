@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月19日：痴迷科学
+#### 即将收获的苹果，明尼苏达州，美国（© Tammi Mild/Getty Images）
+
+![痴迷科学](https://cn.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_800x480.jpg&rf=LaDigue_800x480.jpg "痴迷科学")
+
+在明尼苏达州，秋天不仅是红叶纷飞的季节，更是苹果飘香的时节。从八月中旬到十月下旬，全州各地的果园都敞开大门，迎接前来采摘的游客，园里种满了蜜脆、哈拉尔森等数十种苹果，每一品种都因风味、耐寒性和口感而闻名。今日图片定格了这一瞬间：枝头挂满成熟的果实，静待采收。
+
+苹果通过丝绸之路等早期贸易路线从中亚传播开来，先抵达古代中国，继而传入波斯，最终影响了古希腊和古罗马。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%94%b6%e8%8e%b7%e8%8b%b9%e6%9e%9c%e7%9a%84%e5%ad%a3%e8%8a%82&form=hpcapt&filters=HpDate:"20251018_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251019_AppleHarvest"&FORM=HPQUIZ "必应主页测验 2025 10月 19")
+[下载480](https://cn.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_800x480.jpg&rf=LaDigue_800x480.jpg "即将收获的苹果，明尼苏达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_1280x720.jpg&rf=LaDigue_1280x720.jpg "即将收获的苹果，明尼苏达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "即将收获的苹果，明尼苏达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_UHD.jpg&rf=LaDigue_UHD.jpg "即将收获的苹果，明尼苏达州，美国")
+
+---
 ### 10月18日：那座铭记往昔的山丘
 #### 西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国（© dbstockphotoa/Getty Images）
 
@@ -235,22 +252,5 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_1280x720.jpg&rf=LaDigue_1280x720.jpg "中欧森林里的鬼鸮")
 [下载1080](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中欧森林里的鬼鸮")
 [下载UHD](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_UHD.jpg&rf=LaDigue_UHD.jpg "中欧森林里的鬼鸮")
-
----
-### 10月04日：使命必达
-#### 从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列（© NASA）
-
-![使命必达](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_800x480.jpg&rf=LaDigue_800x480.jpg "使命必达")
-
-10月4日至10日，世界空间周邀我们一同超越地球的界限，追逐星辰。这一盛事源于1957年苏联发射的"斯普特尼克1号"卫星，以及1967年签署的《外层空间条约》——这份开创性的国际承诺标志着人类和平探索宇宙的崭新篇章。在这一周里，教室里充满实验的热闹，天文馆里惊叹声不绝于耳，望远镜将人类与遥远星系相连。这些瞬间共同编织出科学探索的宇宙篇章，见证人类不断突破边界的执着追求。本年度主题明确：点燃新一代探索者、工程师和梦想家的热情，让他们准备好改写宇宙的篇章。
-
-2016年，国际空间站上培育出第一朵太空花——百日菊，为之后的太空农业开辟了道路。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%a9%ba%e9%97%b4%e5%91%a8&form=hpcapt&filters=HpDate:"20251003_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251004_DragonEndeavour"&FORM=HPQUIZ "必应主页测验 2025 10月 4")
-[下载480](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_800x480.jpg&rf=LaDigue_800x480.jpg "从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列")
-[下载720](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_1280x720.jpg&rf=LaDigue_1280x720.jpg "从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列")
-[下载1080](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列")
-[下载UHD](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_UHD.jpg&rf=LaDigue_UHD.jpg "从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列")
 
 ---
