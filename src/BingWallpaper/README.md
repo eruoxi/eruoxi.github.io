@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月20日：慢节奏的生活
+#### 霍氏树懒，厄瓜多尔（© Murray Cooper/Minden Pictures）
+
+![慢节奏的生活](https://cn.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_800x480.jpg&rf=LaDigue_800x480.jpg "慢节奏的生活")
+
+你是否曾幻想过整天什么都不做，只是悠闲地发发呆？对树懒来说，这就是它们的日常。每年的国际树懒日，正是为了向这些慢节奏的动物致敬，也提醒我们：生活不一定总要匆匆忙忙。树懒是一种生活在中美洲和南美洲的树栖哺乳动物。它们行动缓慢，不是因为懒惰，而是一种聪明的生存策略。缓慢的动作不仅帮助它们节省能量，还能避开天敌的注意。更有趣的是，树懒的毛发上常年生长着藻类，使它们在树冠中呈现绿色伪装，进一步增强了隐蔽性。图中展示的是霍氏树懒，它是树懒家族中典型的“慢生活”代表。它们几乎整天挂在树上，只有在需要换树时才会缓缓爬到地面。
+
+树懒的力量约为人类的三倍，它们能紧紧抓住树枝，足以抵御美洲豹的袭击。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%a0%91%e6%87%92%e6%97%a5&form=hpcapt&filters=HpDate:"20251019_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251020_HoffmansSloth"&FORM=HPQUIZ "必应主页测验 2025 10月 20")
+[下载480](https://cn.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_800x480.jpg&rf=LaDigue_800x480.jpg "霍氏树懒，厄瓜多尔")
+[下载720](https://cn.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_1280x720.jpg&rf=LaDigue_1280x720.jpg "霍氏树懒，厄瓜多尔")
+[下载1080](https://cn.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "霍氏树懒，厄瓜多尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_UHD.jpg&rf=LaDigue_UHD.jpg "霍氏树懒，厄瓜多尔")
+
+---
 ### 10月19日：痴迷科学
 #### 即将收获的苹果，明尼苏达州，美国（© Tammi Mild/Getty Images）
 
@@ -235,22 +252,5 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_1280x720.jpg&rf=LaDigue_1280x720.jpg "安顺桥中秋灯展，成都，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安顺桥中秋灯展，成都，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_UHD.jpg&rf=LaDigue_UHD.jpg "安顺桥中秋灯展，成都，中国")
-
----
-### 10月05日：庆祝智慧！
-#### 中欧森林里的鬼鸮（© Ondrej Prosicky/Alamy）
-
-![庆祝智慧！](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_800x480.jpg&rf=LaDigue_800x480.jpg "庆祝智慧！")
-
-教书育人的传统在整个人类历史中根深蒂固。今天，我们向那些倾注心血传播知识、塑造思想的教育者致敬。祝所有老师世界教师节快乐，感谢你们帮助我们成为更好的自己。
-
-北方鸮分布于北美洲北部和欧洲地区，它们栖息于茂密的针叶林和混交林之中。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%95%99%e5%b8%88%e6%97%a5&form=hpcapt&filters=HpDate:"20251004_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251005_TeacherOwl"&FORM=HPQUIZ "必应主页测验 2025 10月 5")
-[下载480](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_800x480.jpg&rf=LaDigue_800x480.jpg "中欧森林里的鬼鸮")
-[下载720](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_1280x720.jpg&rf=LaDigue_1280x720.jpg "中欧森林里的鬼鸮")
-[下载1080](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中欧森林里的鬼鸮")
-[下载UHD](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_UHD.jpg&rf=LaDigue_UHD.jpg "中欧森林里的鬼鸮")
 
 ---
