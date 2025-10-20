@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月21日：鸟喙的故事
+#### 哥斯达黎加的厚嘴巨嘴鸟（© Juan Carlos Vindas/Getty Images）
+
+![鸟喙的故事](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_800x480.jpg&rf=LaDigue_800x480.jpg "鸟喙的故事")
+
+胸前闪着一抹亮黄，喙部宛如艺术家手绘——这就是厚嘴巨嘴鸟。它隶属于巨嘴鸟科，与巨嘴啄木鸟同属一个大家族，是40多种巨嘴鸟中的一种。厚嘴巨嘴鸟分布于墨西哥南部至哥伦比亚北部的热带地区，日常大部分时间都在用彩虹般的鸟喙采摘水果，偶尔也会捕食昆虫、鸟蛋和小爬行动物。它的鸟喙长度约占身体总长的三分之一，不仅用于觅食，还能通过内部血管散发多余热量。厚嘴巨嘴鸟性格活泼，常结伴活动，在树冠之间滑翔、鸣叫，它们的翅膀长达7至8英寸，每年仅换羽一次。
+
+这些鸟常以喙相互"决斗"，并将果实抛入对方口中。它们还会"玩球"，一只鸟将果实抛向空中，另一只随即接住。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8e%9a%e5%98%b4%e5%b7%a8%e5%98%b4%e9%b8%9f&form=hpcapt&filters=HpDate:"20251020_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251021_ToucanForest"&FORM=HPQUIZ "必应主页测验 2025 10月 21")
+[下载480](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_800x480.jpg&rf=LaDigue_800x480.jpg "哥斯达黎加的厚嘴巨嘴鸟")
+[下载720](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_1280x720.jpg&rf=LaDigue_1280x720.jpg "哥斯达黎加的厚嘴巨嘴鸟")
+[下载1080](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哥斯达黎加的厚嘴巨嘴鸟")
+[下载UHD](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_UHD.jpg&rf=LaDigue_UHD.jpg "哥斯达黎加的厚嘴巨嘴鸟")
+
+---
 ### 10月20日：慢节奏的生活
 #### 霍氏树懒，厄瓜多尔（© Murray Cooper/Minden Pictures）
 
@@ -235,22 +252,5 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_1280x720.jpg&rf=LaDigue_1280x720.jpg "里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_UHD.jpg&rf=LaDigue_UHD.jpg "里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国")
-
----
-### 10月06日：千里共婵娟
-#### 安顺桥中秋灯展，成都，中国（© Philippe LEJEANVRE/Getty Images）
-
-![千里共婵娟](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_800x480.jpg&rf=LaDigue_800x480.jpg "千里共婵娟")
-
-当秋月当空，空气中已透出冬日的气息，那份战栗感总会在记忆中久久萦绕。中秋节——亦称月节——作为中国最珍视的节日之一，为丰收时节的尾声增添了又一抹神话色彩。它在农历八月十五日庆祝，今年恰逢10月6日。相传此夜，月神嫦娥正俯瞰人间。
-
-中秋节时还有一些地方特色型习俗，例如：广东等地的舞火龙、湖南湘西等地象征性的“偷南瓜”等等。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e7%a7%8b%e8%8a%82&form=hpcapt&filters=HpDate:"20251005_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251006_AnshunBridge"&FORM=HPQUIZ "必应主页测验 2025 10月 6")
-[下载480](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_800x480.jpg&rf=LaDigue_800x480.jpg "安顺桥中秋灯展，成都，中国")
-[下载720](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_1280x720.jpg&rf=LaDigue_1280x720.jpg "安顺桥中秋灯展，成都，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安顺桥中秋灯展，成都，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_UHD.jpg&rf=LaDigue_UHD.jpg "安顺桥中秋灯展，成都，中国")
 
 ---
