@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月22日：刻在石头上
+#### 贝洛格拉齐克石林，保加利亚（© EvaL Miko/Shutterstock）
+
+![刻在石头上](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_800x480.jpg&rf=LaDigue_800x480.jpg "刻在石头上")
+
+在保加利亚巴尔干山脉西麓，贝洛格拉奇克石林如同一座天然画廊，每一块岩石都诉说着独特的故事。这些砂岩与石灰岩柱经过数百万年的风化与侵蚀，形成了千姿百态的奇特造型，当地人坚信其中有些轮廓酷似人物、动物，甚至完整的场景。因此，这些岩石也被赋予了富有想象力的名字，如"骑手岩"、"女学生岩"、"僧侣岩"等。在这片土地上，辨认岩石形状就像在玩一场大自然版的猜谜游戏，既有趣又充满惊喜。
+
+2009年1月，贝洛格拉奇克石林被提名为保加利亚参与"新七大自然奇观"评选活动的候选地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%b4%9d%e6%b4%9b%e6%a0%bc%e6%8b%89%e9%bd%90%e5%85%8b%e7%9f%b3%e6%9e%97&form=hpcapt&filters=HpDate:"20251021_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251022_BulgariaRocks"&FORM=HPQUIZ "必应主页测验 2025 10月 22")
+[下载480](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_800x480.jpg&rf=LaDigue_800x480.jpg "贝洛格拉齐克石林，保加利亚")
+[下载720](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_1280x720.jpg&rf=LaDigue_1280x720.jpg "贝洛格拉齐克石林，保加利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "贝洛格拉齐克石林，保加利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_UHD.jpg&rf=LaDigue_UHD.jpg "贝洛格拉齐克石林，保加利亚")
+
+---
 ### 10月21日：鸟喙的故事
 #### 哥斯达黎加的厚嘴巨嘴鸟（© Juan Carlos Vindas/Getty Images）
 
@@ -235,22 +252,5 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_1280x720.jpg&rf=LaDigue_1280x720.jpg "白日章鱼, 毛伊岛, 夏威夷, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "白日章鱼, 毛伊岛, 夏威夷, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_UHD.jpg&rf=LaDigue_UHD.jpg "白日章鱼, 毛伊岛, 夏威夷, 美国")
-
----
-### 10月07日：金色的秋日余晖
-#### 里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国（© Grant Ordelheide/TANDEM Stills + Motion）
-
-![金色的秋日余晖](https://cn.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_800x480.jpg&rf=LaDigue_800x480.jpg "金色的秋日余晖")
-
-又到了一年之中，山峦褪去夏日青翠，披上绚烂秋色的时节。变色通常始于九月初至十月初，高处山坡率先染上秋意，随后低处山谷渐次跟进。白杨树堪称这场视觉盛宴的主角，其叶片在阳光下闪烁，宛如金币般熠熠生辉。然而白杨的绚烂并非年年如约而至。它们的色彩取决于多重因素——树木健康状况、局部气候变化、土壤湿度，以及生长海拔与纬度。健康的白杨林才是真正的季节主角：枝繁叶茂的林群色彩更明亮，落叶也更晚；而受压或衰弱的树木往往迅速褪色，只留下一抹短暂的辉煌。去年令人惊艳的景致，今年或许黯淡无光。今日镜头捕捉到斯内弗尔斯山麓的绚烂盛景——这座科罗拉多州斯内弗尔斯山脉的最高峰，从里奇韦镇拔地而起，海拔拔高逾7000英尺。
-
-从州道62号公路的达拉斯分水岭眺望，斯内弗尔斯山堪称科罗拉多州最常被拍摄的山峰之一。自2023年起，该山景还被印制在科罗拉多州驾驶执照及身份证上。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e7%bd%97%e6%8b%89%e5%a4%9a%e5%b7%9e&form=hpcapt&filters=HpDate:"20251006_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251007_RidgwayAspens"&FORM=HPQUIZ "必应主页测验 2025 10月 7")
-[下载480](https://cn.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_800x480.jpg&rf=LaDigue_800x480.jpg "里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_1280x720.jpg&rf=LaDigue_1280x720.jpg "里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_UHD.jpg&rf=LaDigue_UHD.jpg "里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国")
 
 ---
