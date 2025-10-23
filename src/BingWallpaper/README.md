@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月24日：从“灰色幽灵”到幽灵传说
+#### 玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国（© Kit Leong/Shutterstock）
+
+![从“灰色幽灵”到幽灵传说](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_800x480.jpg&rf=LaDigue_800x480.jpg "从“灰色幽灵”到幽灵传说")
+
+她注定不会被遗忘。1936年，“玛丽女王号” 首次横渡大西洋时，便夺尽风采。这艘装饰艺术风格的巨轮打破了航速纪录，承载过无数名流、皇室成员与政要。二战期间，她的身份从“海上宫殿”骤然转变为“灰色幽灵”，奢华尽数褪去，取而代之的是装载盟军部队的使命。1967年，航行30年后，她退役停泊在加州长滩。如今，她的甲板化身为酒店走廊、导览展区，成为一座活生生的海事历史纪念碑。
+
+尽管在大萧条时期遭遇经济困境，导致建造一度停工数年，但冠达航运公司在建造“玛丽女王号”（最初被称为 534 号工程）时依旧不惜工本。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8e%9b%e4%b8%bd%e7%9a%87%e5%90%8e%e5%8f%b7&form=hpcapt&filters=HpDate:"20251023_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251024_QueenMary"&FORM=HPQUIZ "必应主页测验 2025 10月 24")
+[下载480](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_800x480.jpg&rf=LaDigue_800x480.jpg "玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_1280x720.jpg&rf=LaDigue_1280x720.jpg "玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_UHD.jpg&rf=LaDigue_UHD.jpg "玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国")
+
+---
 ### 10月23日：雪中深情
 #### 雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度（© Oriol Alamany/naturepl.com）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_1280x720.jpg&rf=LaDigue_1280x720.jpg "莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济")
 [下载1080](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济")
 [下载UHD](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_UHD.jpg&rf=LaDigue_UHD.jpg "莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济")
-
----
-### 10月09日：宇宙在绽放
-#### ‌詹姆斯·韦伯太空望远镜观测的创生之柱（© NASA）
-
-![宇宙在绽放](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_800x480.jpg&rf=LaDigue_800x480.jpg "宇宙在绽放")
-
-随着世界空间周接近尾声，宇宙依然不断给予我们仰望的理由。想象一下云朵——不是在天空中飘动，而是在浩瀚星海中延展，孕育着新星的诞生。这正是NASA的詹姆斯·韦布太空望远镜所捕捉到的“创生之柱”景象。如图所示，色彩与细节前所未见，令人震撼。
-
-NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真1857年的布道，象征着神圣的宇宙根基。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%88%9b%e7%94%9f%e4%b9%8b%e6%9f%b1&form=hpcapt&filters=HpDate:"20251008_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251009_WebbPillars"&FORM=HPQUIZ "必应主页测验 2025 10月 9")
-[下载480](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_800x480.jpg&rf=LaDigue_800x480.jpg "‌詹姆斯·韦伯太空望远镜观测的创生之柱")
-[下载720](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_1280x720.jpg&rf=LaDigue_1280x720.jpg "‌詹姆斯·韦伯太空望远镜观测的创生之柱")
-[下载1080](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "‌詹姆斯·韦伯太空望远镜观测的创生之柱")
-[下载UHD](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_UHD.jpg&rf=LaDigue_UHD.jpg "‌詹姆斯·韦伯太空望远镜观测的创生之柱")
 
 ---
