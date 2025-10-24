@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月25日：芬兰的活泥炭地
+#### 马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰（© romikatarina/Shutterstock）
+
+![芬兰的活泥炭地](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_800x480.jpg&rf=LaDigue_800x480.jpg "芬兰的活泥炭地")
+
+芬兰的沼泽大多是由泥炭地组成，它们源自大约 12,000 年前上一个冰河时期结束后，沉积物与苔藓不断堆积、分解而成。
+
+芬兰的沼泽大多是由泥炭地组成，它们源自大约 12,000 年前上一个冰河时期结束后，沉积物与苔藓不断堆积、分解而成。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b2%bc%e6%b3%bd%e7%94%9f%e6%80%81%e7%b3%bb%e7%bb%9f&form=hpcapt&filters=HpDate:"20251024_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251025_MartimoaapaFinland"&FORM=HPQUIZ "必应主页测验 2025 10月 25")
+[下载480](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_800x480.jpg&rf=LaDigue_800x480.jpg "马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰")
+[下载720](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_1280x720.jpg&rf=LaDigue_1280x720.jpg "马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰")
+[下载1080](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_UHD.jpg&rf=LaDigue_UHD.jpg "马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰")
+
+---
 ### 10月24日：从“灰色幽灵”到幽灵传说
 #### 玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国（© Kit Leong/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_1280x720.jpg&rf=LaDigue_1280x720.jpg "林鸳鸯，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "林鸳鸯，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_UHD.jpg&rf=LaDigue_UHD.jpg "林鸳鸯，美国")
-
----
-### 10月10日：思绪之礁
-#### 莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济（© David Wall/SuperStock）
-
-![思绪之礁](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_800x480.jpg&rf=LaDigue_800x480.jpg "思绪之礁")
-
-有些日子只标志着一个里程碑，而斐济的10月10日却见证了两个。1874年的这一天，斐济群岛正式成为英国殖民地。近一个世纪后的1970年，同一天，斐济升起了自己的国旗，宣布独立。斐济日是一个独特的全国性节日——既是反思的时刻，也是庆祝的日子。庆典从庄重的仪式开始，国旗冉冉升起，领导人发表演讲。学校和社区团体常常会举行历史重现或表演活动。街道上挤满了游行队伍，村庄里上演着传统舞蹈“梅克”，橄榄球场上热火朝天。家家户户则准备传统菜肴，比如将肉和根茎类作物埋在地下烤制的“洛沃”，以及用柑橘汁腌制的鱼“科科达”。
-
-莫努里基岛在2000年罗伯特·泽米吉斯执导、汤姆·汉克斯主演的电影《荒岛余生》中作为无名小岛的取景地而闻名。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8e%9b%e7%8e%9b%e5%8a%aa%e5%8d%a1%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20251009_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251010_MonurikiFiji"&FORM=HPQUIZ "必应主页测验 2025 10月 10")
-[下载480](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_800x480.jpg&rf=LaDigue_800x480.jpg "莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济")
-[下载720](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_1280x720.jpg&rf=LaDigue_1280x720.jpg "莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济")
-[下载1080](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济")
-[下载UHD](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_UHD.jpg&rf=LaDigue_UHD.jpg "莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济")
 
 ---
