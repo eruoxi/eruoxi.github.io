@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月26日：南瓜日，今日登场！
+#### 北卡罗来纳州的南瓜农场, 美国（© Matthew H Irvin/Getty Images）
+
+![南瓜日，今日登场！](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_800x480.jpg&rf=LaDigue_800x480.jpg "南瓜日，今日登场！")
+
+没有什么比一片等待采摘的南瓜田更能代表秋天了。这些圆滚滚的南瓜出现在南瓜派、门廊装饰、拿铁和游行中。美国一些地方更是把对南瓜的喜爱推向极致——伊利诺伊州莫顿镇自称为“世界南瓜之都”，因为其产量高且与罐装南瓜产业联系紧密。新罕布什尔州则紧随其后，将南瓜定为州水果。
+
+2020 年，美国人均南瓜消费量为 6.44 磅。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%97%e7%93%9c&form=hpcapt&filters=HpDate:"20251025_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251026_PumpkinFarm"&FORM=HPQUIZ "必应主页测验 2025 10月 26")
+[下载480](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_800x480.jpg&rf=LaDigue_800x480.jpg "北卡罗来纳州的南瓜农场, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_1280x720.jpg&rf=LaDigue_1280x720.jpg "北卡罗来纳州的南瓜农场, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北卡罗来纳州的南瓜农场, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_UHD.jpg&rf=LaDigue_UHD.jpg "北卡罗来纳州的南瓜农场, 美国")
+
+---
 ### 10月25日：芬兰的活泥炭地
 #### 马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰（© romikatarina/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_UHD.jpg&rf=LaDigue_UHD.jpg "萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国")
-
----
-### 10月11日：下一站：墨西哥！
-#### 林鸳鸯，美国（© ps50ace/iStock/Getty Images）
-
-![下一站：墨西哥！](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_800x480.jpg&rf=LaDigue_800x480.jpg "下一站：墨西哥！")
-
-鸟类无需护照、签证或行李，它们只需展开翅膀，就能随时启程。每年两次，数十亿只候鸟跨越全球，在繁殖地与越冬地之间飞行数千英里。这段壮丽的旅程正是“世界候鸟日”所要强调的。从每年飞行约44000英里的北极燕鸥，到单次飞行就能横跨墨西哥湾的红喉蜂鸟，这些季节性迁徙的鸟儿展现了真正的耐力。该节日定在每年5月和10月的第二个星期六，同时提醒人们候鸟所面临的威胁：栖息地丧失、气候变化以及光污染，都可能干扰它们的迁徙路线。
-
-林鸳鸯是北美唯一一种能在同一季节抚育两窝雏鸟的鸭类。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%80%99%e9%b8%9f%e6%97%a5&form=hpcapt&filters=HpDate:"20251010_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251011_WoodDuckHen"&FORM=HPQUIZ "必应主页测验 2025 10月 11")
-[下载480](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_800x480.jpg&rf=LaDigue_800x480.jpg "林鸳鸯，美国")
-[下载720](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_1280x720.jpg&rf=LaDigue_1280x720.jpg "林鸳鸯，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "林鸳鸯，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_UHD.jpg&rf=LaDigue_UHD.jpg "林鸳鸯，美国")
 
 ---
