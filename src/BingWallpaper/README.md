@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月27日：千年秘境
+#### 被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国（© Feng Wei Photography/Getty images）
+
+![千年秘境](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_800x480.jpg&rf=LaDigue_800x480.jpg "千年秘境")
+
+金塔沙漠胡杨林风景区位于甘肃省酒泉市金塔县西部巢湖林场，占地八万余亩，拥有西北地区最大的人工胡杨林。这些古老、耐寒耐旱的胡杨树，是第三纪遗留下来的，创造了“三千年古树”的生态奇观。金波湖水与胡杨林相映成趣，沙枣、柽柳等植物构成了多样的生态系统。
+
+胡杨林是一种神奇的群体，它们耐寒、耐热、耐碱、耐涝、耐干旱。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%83%a1%e6%9d%a8%e6%a0%91&form=hpcapt&filters=HpDate:"20251026_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251027_AutumnColorY25"&FORM=HPQUIZ "必应主页测验 2025 10月 27")
+[下载480](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_800x480.jpg&rf=LaDigue_800x480.jpg "被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国")
+[下载720](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_1280x720.jpg&rf=LaDigue_1280x720.jpg "被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国")
+[下载1080](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_UHD.jpg&rf=LaDigue_UHD.jpg "被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国")
+
+---
 ### 10月26日：南瓜日，今日登场！
 #### 北卡罗来纳州的南瓜农场, 美国（© Matthew H Irvin/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_1280x720.jpg&rf=LaDigue_1280x720.jpg "温巴赫峡谷瀑布，巴伐利亚州，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "温巴赫峡谷瀑布，巴伐利亚州，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_UHD.jpg&rf=LaDigue_UHD.jpg "温巴赫峡谷瀑布，巴伐利亚州，德国")
-
----
-### 10月12日：爱上萨拉纳克
-#### 萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国（© DenisTangneyJr/Getty Images）
-
-![爱上萨拉纳克](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_800x480.jpg&rf=LaDigue_800x480.jpg "爱上萨拉纳克")
-
-有些地方只是地图上的一个点，但萨拉纳克湖却是一年四季都吸引游客的热门目的地。尽管名字里带“湖”，这个小镇并不直接坐落在萨拉纳克湖群边，而是位于萨拉纳克河的一段宽阔水域——弗劳尔湖畔。几个世纪以来，这片被称为“阿迪朗达克之都”的地方，一直是原住民狩猎和迁徙的要地。到19世纪末，这里因成为疗养胜地而声名鹊起，爱德华·李文斯顿·特鲁多医生在此开创了肺结核的新鲜空气疗法。那一时期的“疗养小屋”至今依然保存完好。
-
-在纽约阿迪朗达克山脉附近，分布着200多个有名字的湖泊，以及超过3,000个小型湖泊、池塘和其他水域。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%90%a8%e6%8b%89%e7%ba%b3%e5%85%8b%e6%b9%96%e6%9d%91&form=hpcapt&filters=HpDate:"20251011_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251012_SaranacLake"&FORM=HPQUIZ "必应主页测验 2025 10月 12")
-[下载480](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_800x480.jpg&rf=LaDigue_800x480.jpg "萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_UHD.jpg&rf=LaDigue_UHD.jpg "萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国")
 
 ---
