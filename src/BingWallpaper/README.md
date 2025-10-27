@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月28日：通往石之奇境的大门
+#### 安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克（© Kseniya_Milner/Getty Images）
+
+![通往石之奇境的大门](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_800x480.jpg&rf=LaDigue_800x480.jpg "通往石之奇境的大门")
+
+从18世纪的最早来访者，到大火烧出小径的故事，这座“岩石之城”一直在诉说着生存的传奇。阿德尔什帕赫–特普利采岩石群位于捷克赫拉德茨–克拉洛韦州，是中欧最大的砂岩迷宫。几个世纪以来，这片悬崖与通道一直被森林覆盖，直到一场大火将树林烧尽，岩石的拱门、塔楼和蜿蜒的廊道才从灰烬中显露出来。最初的徒步小径由此开辟。不久之后，探险家和诗人用石刻铭文留下了他们的印记，描绘出一个既狂野又迷人的目的地。
+
+受中世纪神学的影响，哥特式建筑常给人神秘而幽暗的氛围，甚至带来一种浪漫的“死亡气息”，让人沉浸在其独特的魅力之中，不断追随、改进，最终形成了庞大的体系。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%93%a5%e7%89%b9%e5%bc%8f%e6%8b%b1%e9%97%a8&form=hpcapt&filters=HpDate:"20251027_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251028_TepliceRocks"&FORM=HPQUIZ "必应主页测验 2025 10月 28")
+[下载480](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_800x480.jpg&rf=LaDigue_800x480.jpg "安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克")
+[下载720](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_1280x720.jpg&rf=LaDigue_1280x720.jpg "安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克")
+[下载1080](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克")
+[下载UHD](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_UHD.jpg&rf=LaDigue_UHD.jpg "安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克")
+
+---
 ### 10月27日：千年秘境
 #### 被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国（© Feng Wei Photography/Getty images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_1280x720.jpg&rf=LaDigue_1280x720.jpg "伊亚镇，圣托里尼岛，希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊亚镇，圣托里尼岛，希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_UHD.jpg&rf=LaDigue_UHD.jpg "伊亚镇，圣托里尼岛，希腊")
-
----
-### 10月13日：水声低语
-#### 温巴赫峡谷瀑布，巴伐利亚州，德国（© EyeEm Mobile GmbH/Getty Images）
-
-![水声低语](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_800x480.jpg&rf=LaDigue_800x480.jpg "水声低语")
-
-陡峭的岩石峡谷，湍急的水流，还有如画般的风景：位于贝希特斯加登国家公园拉姆绍附近的温巴赫峡谷，是巴伐利亚最壮观的峡谷之一。在今日图片中，温巴赫溪在约200米长的狭窄岩层间奔流而下，形成层层小瀑布，并在长年累月中于岩石上雕刻出令人惊叹的纹理。色彩斑斓的岩层揭示了数千年前的地质过程。
-
-国王湖碧绿如翡翠，坐落在贝希特斯加登国家公园中心，雄伟的瓦茨曼山东壁脚下。这里被誉为大自然最瑰丽的杰作之一
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b8%a9%e5%b7%b4%e8%b5%ab%e5%b3%a1%e8%b0%b7&form=hpcapt&filters=HpDate:"20251012_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251013_HinterseeWaterfall"&FORM=HPQUIZ "必应主页测验 2025 10月 13")
-[下载480](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_800x480.jpg&rf=LaDigue_800x480.jpg "温巴赫峡谷瀑布，巴伐利亚州，德国")
-[下载720](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_1280x720.jpg&rf=LaDigue_1280x720.jpg "温巴赫峡谷瀑布，巴伐利亚州，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "温巴赫峡谷瀑布，巴伐利亚州，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_UHD.jpg&rf=LaDigue_UHD.jpg "温巴赫峡谷瀑布，巴伐利亚州，德国")
 
 ---
