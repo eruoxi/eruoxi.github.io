@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月30日：蹄声、色彩与传承
+#### 杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度（© f9photos/Getty Images）
+
+![蹄声、色彩与传承](https://cn.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_800x480.jpg&rf=LaDigue_800x480.jpg "蹄声、色彩与传承")
+
+每到秋季，印度拉贾斯坦邦的沙漠小镇普什卡都会因一场普什卡骆驼节而热闹非凡。这一节庆与印度教的卡提克月相对应，通常在公历10月下旬至11月初举行。今年的庆典自今日起至11月5日，成为了当地一年中最令人期待的季节。
+
+骆驼奶比牛奶略咸，维生素C含量是牛奶的三倍，富含铁、不饱和脂肪酸和B族维生素。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%aa%86%e9%a9%bc&form=hpcapt&filters=HpDate:"20251029_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251030_PushkarFair"&FORM=HPQUIZ "必应主页测验 2025 10月 30")
+[下载480](https://cn.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_800x480.jpg&rf=LaDigue_800x480.jpg "杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度")
+[下载720](https://cn.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_1280x720.jpg&rf=LaDigue_1280x720.jpg "杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度")
+[下载1080](https://cn.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_UHD.jpg&rf=LaDigue_UHD.jpg "杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度")
+
+---
 ### 10月29日：时光扎根
 #### 法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙（© Lukas Jonaitis/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧亚猞猁，西伯利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚猞猁，西伯利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚猞猁，西伯利亚")
-
----
-### 10月15日：孢子奇遇记
-#### 紫蜡蘑，西贝克，华盛顿州，美国（© Danita Delimont/Shutterstock）
-
-![孢子奇遇记](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_800x480.jpg&rf=LaDigue_800x480.jpg "孢子奇遇记")
-
-你知道吗？蘑菇也有属于自己的节日。每年的10月15日是“全国蘑菇日”，这一天邀请我们走进它们奇妙的世界。比如图中的紫蜡蘑，又称“紫晶欺骗菇”。它在幼年时紫色明艳、光彩夺目，但随着时间和环境的变化，颜色逐渐褪去，辨认起来就不那么容易了。尽管外表娇嫩而多变，这种宝石般的真菌不仅可以食用，还在生态系统中发挥着重要作用。
-
-因为它那鲜艳的紫水晶色会随着年龄增长和风吹雨打逐渐褪去，从而难以辨认，所以有了“欺骗者”这个俗名。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%b4%ab%e8%9c%a1%e8%98%91&form=hpcapt&filters=HpDate:"20251014_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251015_AmethystLaccaria"&FORM=HPQUIZ "必应主页测验 2025 10月 15")
-[下载480](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_800x480.jpg&rf=LaDigue_800x480.jpg "紫蜡蘑，西贝克，华盛顿州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_1280x720.jpg&rf=LaDigue_1280x720.jpg "紫蜡蘑，西贝克，华盛顿州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "紫蜡蘑，西贝克，华盛顿州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_UHD.jpg&rf=LaDigue_UHD.jpg "紫蜡蘑，西贝克，华盛顿州，美国")
 
 ---
