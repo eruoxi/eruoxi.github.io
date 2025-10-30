@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月31日：在万圣节的魔咒之下
+#### 布兰城堡入口, 布拉索夫, 罗马尼亚（© blue sky in my pocket/Getty Images）
+
+![在万圣节的魔咒之下](https://cn.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_800x480.jpg&rf=LaDigue_800x480.jpg "在万圣节的魔咒之下")
+
+今夜，万圣节的魔咒笼罩大地——而地球上仅有少数地方能与罗马尼亚的布兰城堡比肩，承载着如此深邃的谜团。这座建于14世纪的堡垒历经战火洗礼，见证君王更迭与帝国兴衰。但在此地，传说比历史更响亮。这座城堡坐落于以阴森传说闻名的特兰西瓦尼亚与昔日由弗拉德三世·德古拉统治的瓦拉几亚之间，散发着令人心悸的遗迹气息。弗拉德的残暴名声启发了布拉姆·斯托克1897年创作的小说《德古拉》。尽管故事背景并非布兰城堡，但它巍峨的轮廓与关于弗拉德幽灵出没的传闻，让真实与传说交织模糊，永远将这座城堡与人类最持久的传说之一紧密相连。
+
+第二次世界大战期间，伊莱安娜公主将布兰城堡改造成了伤兵医院，她本人曾接受过护士培训。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e5%85%b0%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20251030_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 31")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251031_BranCastle"&FORM=HPQUIZ "必应主页测验 2025 10月 31")
+[下载480](https://cn.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_800x480.jpg&rf=LaDigue_800x480.jpg "布兰城堡入口, 布拉索夫, 罗马尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_1280x720.jpg&rf=LaDigue_1280x720.jpg "布兰城堡入口, 布拉索夫, 罗马尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布兰城堡入口, 布拉索夫, 罗马尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_UHD.jpg&rf=LaDigue_UHD.jpg "布兰城堡入口, 布拉索夫, 罗马尼亚")
+
+---
 ### 10月30日：蹄声、色彩与传承
 #### 杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度（© f9photos/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗克河瀑布，上半岛，密歇根州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗克河瀑布，上半岛，密歇根州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_UHD.jpg&rf=LaDigue_UHD.jpg "罗克河瀑布，上半岛，密歇根州，美国")
-
----
-### 10月16日：幽灵之猫
-#### 欧亚猞猁，西伯利亚（© Mario Plechaty Photograph/Shutterstock）
-
-![幽灵之猫](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_800x480.jpg&rf=LaDigue_800x480.jpg "幽灵之猫")
-
-想象一只能在森林中悄然隐去的猫科动物——这就是欧亚猞猁。它耳尖上的簇毛和锐利的目光令人过目难忘。作为四种猞猁中体型最大的一种，它体长可达42 英寸，肩高可达30英寸，身形矫健，兼具力量与敏捷。厚实的脚掌不仅能帮助它悄无声息地移动，还像雪鞋一样分散体重，使其能在厚厚的积雪中追逐猎物。它大多在夜间出没，白天则隐匿在灌木丛或岩石洞穴中，夜幕降临才悄然出击，捕猎鹿、野兔和松鼠。
-
-在一些文化中认为猞猁拥有超自然的视力，甚至能看穿坚实的物体。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e4%ba%9a%e7%8c%9e%e7%8c%81&form=hpcapt&filters=HpDate:"20251015_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251016_SiberianLynx"&FORM=HPQUIZ "必应主页测验 2025 10月 16")
-[下载480](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_800x480.jpg&rf=LaDigue_800x480.jpg "欧亚猞猁，西伯利亚")
-[下载720](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧亚猞猁，西伯利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚猞猁，西伯利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚猞猁，西伯利亚")
 
 ---
