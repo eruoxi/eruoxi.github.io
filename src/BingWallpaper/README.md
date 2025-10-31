@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月01日：古老血脉的兽群
+#### 野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国（© Cheryl Ramalho/Getty Images）
+
+![古老血脉的兽群](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_800x480.jpg&rf=LaDigue_800x480.jpg "古老血脉的兽群")
+
+野牛体现了一种矛盾：巨大的力量与沉静的气质并存。这些体型庞大的动物体重可达200​​0磅，身高6英尺（约1.8米），成群结队地漫游在北美的草原和河谷。这张照片拍摄于怀俄明州的黄石国家公园，它们的数量曾达数千万头，但在19世纪几乎灭绝——这一灭绝事件重塑了生态系统，扰乱了人们的生活方式。
+
+黄石公园的野牛非常特殊，因为它们是美国公共土地上最大的野牛种群。制定符合蒙大拿州法律的检疫计划，对于将黄石公园中未感染布鲁氏菌病的野牛纳入保护区至关重要。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%bb%84%e7%9f%b3%e5%85%ac%e5%9b%ad%e7%9a%84%e9%87%8e%e7%89%9b%e7%be%a4&form=hpcapt&filters=HpDate:"20251031_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251101_BisonSprings"&FORM=HPQUIZ "必应主页测验 2025 11月 1")
+[下载480](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_800x480.jpg&rf=LaDigue_800x480.jpg "野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_1280x720.jpg&rf=LaDigue_1280x720.jpg "野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_UHD.jpg&rf=LaDigue_UHD.jpg "野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国")
+
+---
 ### 10月31日：在万圣节的魔咒之下
 #### 布兰城堡入口, 布拉索夫, 罗马尼亚（© blue sky in my pocket/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_1280x720.jpg&rf=LaDigue_1280x720.jpg "西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_UHD.jpg&rf=LaDigue_UHD.jpg "西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国")
-
----
-### 10月17日：爱上密歇根
-#### 罗克河瀑布，上半岛，密歇根州，美国（© Matt Anderson Photography/Getty Images）
-
-![爱上密歇根](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_800x480.jpg&rf=LaDigue_800x480.jpg "爱上密歇根")
-
-密歇根州罗克河峡谷深处，罗克河瀑布在冰川雕琢的景观中悄然显现，周遭密林环绕，层层历史沉淀。在上半岛这片土地上，人类足迹绵延数千年：原住民阿尔冈昆语族之后，法国与英国探险者接踵而至；19世纪采矿与伐木业繁荣时期，芬兰、瑞典及法裔加拿大移民在此定居。如今这片人烟稀少的区域仅容纳着密歇根州3%的居民，森林与瀑布依旧保留着近乎原始的宁静。
-
-该森林拥有超过100英里（160公里）的海岸线。两个区域均毗邻苏必利尔湖和密歇根湖。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%af%86%e6%ad%87%e6%a0%b9%e5%b7%9e%e7%bd%97%e5%85%8b%e6%b2%b3%e8%8d%92%e9%87%8e&form=hpcapt&filters=HpDate:"20251016_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251017_RockRiverFalls"&FORM=HPQUIZ "必应主页测验 2025 10月 17")
-[下载480](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_800x480.jpg&rf=LaDigue_800x480.jpg "罗克河瀑布，上半岛，密歇根州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗克河瀑布，上半岛，密歇根州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗克河瀑布，上半岛，密歇根州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_UHD.jpg&rf=LaDigue_UHD.jpg "罗克河瀑布，上半岛，密歇根州，美国")
 
 ---
