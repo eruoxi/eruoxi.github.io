@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月02日：竹林吐纳清气，枫叶绚烂如火
+#### 岚山缤纷的枫叶与竹林, 京都, 日本（© DoctorEgg/Getty Images）
+
+![竹林吐纳清气，枫叶绚烂如火](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_800x480.jpg&rf=LaDigue_800x480.jpg "竹林吐纳清气，枫叶绚烂如火")
+
+今日，我们前往京都岚山地区，这里以迷人的四季风光闻名于世。此处，鲜艳的日本红枫与静谧的竹林交织出色彩与宁静的和谐画卷。这些以纤细深裂叶片著称的枫树，每逢秋日便幻化成炽烈的红、橙、金三色，吸引着全球游客纷至沓来。它们不仅因绝美姿态备受推崇，更承载着象征优雅、平和与生命无常的文化意蕴。
+
+岚山在四月初和十一月下半月最有吸引力（也最繁忙），此时樱花和秋色通常达到顶峰。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%ba%ac%e9%83%bd%e5%b2%9a%e5%b1%b1&form=hpcapt&filters=HpDate:"20251101_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251102_KyotoMaple"&FORM=HPQUIZ "必应主页测验 2025 11月 2")
+[下载480](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_800x480.jpg&rf=LaDigue_800x480.jpg "岚山缤纷的枫叶与竹林, 京都, 日本")
+[下载720](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_1280x720.jpg&rf=LaDigue_1280x720.jpg "岚山缤纷的枫叶与竹林, 京都, 日本")
+[下载1080](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "岚山缤纷的枫叶与竹林, 京都, 日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_UHD.jpg&rf=LaDigue_UHD.jpg "岚山缤纷的枫叶与竹林, 京都, 日本")
+
+---
 ### 11月01日：古老血脉的兽群
 #### 野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国（© Cheryl Ramalho/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_1280x720.jpg&rf=LaDigue_1280x720.jpg "即将收获的苹果，明尼苏达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "即将收获的苹果，明尼苏达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_UHD.jpg&rf=LaDigue_UHD.jpg "即将收获的苹果，明尼苏达州，美国")
-
----
-### 10月18日：那座铭记往昔的山丘
-#### 西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国（© dbstockphotoa/Getty Images）
-
-![那座铭记往昔的山丘](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_800x480.jpg&rf=LaDigue_800x480.jpg "那座铭记往昔的山丘")
-
-每年十月的第三个星期六是国际考古日，它鼓励我们“深入地表”，探索尘封的历史与文明的根源。该纪念日由美国考古学会（AIA）于2011年设立，如今世界各地通过举办活动、组织参观和亲身体验挖掘等方式来庆祝。
-
-这座山丘的用途至今仍是谜团，尽管已有多种推测被提出。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e8%80%83%e5%8f%a4%e6%97%a5&form=hpcapt&filters=HpDate:"20251017_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251018_SilburyHill"&FORM=HPQUIZ "必应主页测验 2025 10月 18")
-[下载480](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_800x480.jpg&rf=LaDigue_800x480.jpg "西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国")
-[下载720](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_1280x720.jpg&rf=LaDigue_1280x720.jpg "西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_UHD.jpg&rf=LaDigue_UHD.jpg "西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国")
 
 ---
