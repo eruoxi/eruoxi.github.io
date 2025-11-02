@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月03日：随波轻舞
+#### 在太平洋中游泳的水母, 格雷罗, 墨西哥（© Christian Vizl/TANDEM Stills + Motion）
+
+![随波轻舞](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_800x480.jpg&rf=LaDigue_800x480.jpg "随波轻舞")
+
+它们没有大脑、骨骼，甚至没有心脏，却已在地球海洋中游弋了五亿年。今天，世界水母日，这些摇曳生姿的奇妙生物终于迎来了属于它们的高光时刻——至少在海底世界如此。这一节日旨在推动保护水母栖息地，抵御污染、富营养化径流和海洋酸化等威胁。
+
+水母至少存在了5亿年，甚至可能有 7 亿年甚至更久，这使它们成为最古老的多器官动物群。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b0%b4%e6%af%8d&form=hpcapt&filters=HpDate:"20251102_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251103_MexicoJelly"&FORM=HPQUIZ "必应主页测验 2025 11月 3")
+[下载480](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_800x480.jpg&rf=LaDigue_800x480.jpg "在太平洋中游泳的水母, 格雷罗, 墨西哥")
+[下载720](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_1280x720.jpg&rf=LaDigue_1280x720.jpg "在太平洋中游泳的水母, 格雷罗, 墨西哥")
+[下载1080](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在太平洋中游泳的水母, 格雷罗, 墨西哥")
+[下载UHD](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_UHD.jpg&rf=LaDigue_UHD.jpg "在太平洋中游泳的水母, 格雷罗, 墨西哥")
+
+---
 ### 11月02日：竹林吐纳清气，枫叶绚烂如火
 #### 岚山缤纷的枫叶与竹林, 京都, 日本（© DoctorEgg/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_1280x720.jpg&rf=LaDigue_1280x720.jpg "霍氏树懒，厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "霍氏树懒，厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_UHD.jpg&rf=LaDigue_UHD.jpg "霍氏树懒，厄瓜多尔")
-
----
-### 10月19日：痴迷科学
-#### 即将收获的苹果，明尼苏达州，美国（© Tammi Mild/Getty Images）
-
-![痴迷科学](https://cn.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_800x480.jpg&rf=LaDigue_800x480.jpg "痴迷科学")
-
-在明尼苏达州，秋天不仅是红叶纷飞的季节，更是苹果飘香的时节。从八月中旬到十月下旬，全州各地的果园都敞开大门，迎接前来采摘的游客，园里种满了蜜脆、哈拉尔森等数十种苹果，每一品种都因风味、耐寒性和口感而闻名。今日图片定格了这一瞬间：枝头挂满成熟的果实，静待采收。
-
-苹果通过丝绸之路等早期贸易路线从中亚传播开来，先抵达古代中国，继而传入波斯，最终影响了古希腊和古罗马。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%94%b6%e8%8e%b7%e8%8b%b9%e6%9e%9c%e7%9a%84%e5%ad%a3%e8%8a%82&form=hpcapt&filters=HpDate:"20251018_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251019_AppleHarvest"&FORM=HPQUIZ "必应主页测验 2025 10月 19")
-[下载480](https://cn.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_800x480.jpg&rf=LaDigue_800x480.jpg "即将收获的苹果，明尼苏达州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_1280x720.jpg&rf=LaDigue_1280x720.jpg "即将收获的苹果，明尼苏达州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "即将收获的苹果，明尼苏达州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_UHD.jpg&rf=LaDigue_UHD.jpg "即将收获的苹果，明尼苏达州，美国")
 
 ---
