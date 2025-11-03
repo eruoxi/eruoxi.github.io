@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月04日：小心空隙，桥面将开启！
+#### 塔桥, 伦敦, 英格兰（© Nick Brundle Photography/Getty Images）
+
+![小心空隙，桥面将开启！](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_800x480.jpg&rf=LaDigue_800x480.jpg "小心空隙，桥面将开启！")
+
+有些桥梁只是连接两岸，而伦敦塔桥则连接着历史、工程与戏剧张力。自1894年起，这座伦敦地标矗立于伦敦塔旁，横跨泰晤士河，既能振奋人心，又能疏导交通。双塔矗立，蓝白相间的漆面，以及能像巨型吊桥般开启的活动桥面，塔桥不仅是交通解决方案，更像是一位舞台表演者。
+
+塔桥上拥有令人惊叹的高层步道，步道连接南北塔，从泰晤士河上方42米处，从东到西，可欣赏伦敦令人叹为观止的全景。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bc%a6%e6%95%a6%e5%a1%94%e6%a1%a5&form=hpcapt&filters=HpDate:"20251103_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251104_TowerBridgeUK"&FORM=HPQUIZ "必应主页测验 2025 11月 4")
+[下载480](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_800x480.jpg&rf=LaDigue_800x480.jpg "塔桥, 伦敦, 英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_1280x720.jpg&rf=LaDigue_1280x720.jpg "塔桥, 伦敦, 英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔桥, 伦敦, 英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_UHD.jpg&rf=LaDigue_UHD.jpg "塔桥, 伦敦, 英格兰")
+
+---
 ### 11月03日：随波轻舞
 #### 在太平洋中游泳的水母, 格雷罗, 墨西哥（© Christian Vizl/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_1280x720.jpg&rf=LaDigue_1280x720.jpg "哥斯达黎加的厚嘴巨嘴鸟")
 [下载1080](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哥斯达黎加的厚嘴巨嘴鸟")
 [下载UHD](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_UHD.jpg&rf=LaDigue_UHD.jpg "哥斯达黎加的厚嘴巨嘴鸟")
-
----
-### 10月20日：慢节奏的生活
-#### 霍氏树懒，厄瓜多尔（© Murray Cooper/Minden Pictures）
-
-![慢节奏的生活](https://cn.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_800x480.jpg&rf=LaDigue_800x480.jpg "慢节奏的生活")
-
-你是否曾幻想过整天什么都不做，只是悠闲地发发呆？对树懒来说，这就是它们的日常。每年的国际树懒日，正是为了向这些慢节奏的动物致敬，也提醒我们：生活不一定总要匆匆忙忙。树懒是一种生活在中美洲和南美洲的树栖哺乳动物。它们行动缓慢，不是因为懒惰，而是一种聪明的生存策略。缓慢的动作不仅帮助它们节省能量，还能避开天敌的注意。更有趣的是，树懒的毛发上常年生长着藻类，使它们在树冠中呈现绿色伪装，进一步增强了隐蔽性。图中展示的是霍氏树懒，它是树懒家族中典型的“慢生活”代表。它们几乎整天挂在树上，只有在需要换树时才会缓缓爬到地面。
-
-树懒的力量约为人类的三倍，它们能紧紧抓住树枝，足以抵御美洲豹的袭击。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%a0%91%e6%87%92%e6%97%a5&form=hpcapt&filters=HpDate:"20251019_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251020_HoffmansSloth"&FORM=HPQUIZ "必应主页测验 2025 10月 20")
-[下载480](https://cn.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_800x480.jpg&rf=LaDigue_800x480.jpg "霍氏树懒，厄瓜多尔")
-[下载720](https://cn.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_1280x720.jpg&rf=LaDigue_1280x720.jpg "霍氏树懒，厄瓜多尔")
-[下载1080](https://cn.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "霍氏树懒，厄瓜多尔")
-[下载UHD](https://cn.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_UHD.jpg&rf=LaDigue_UHD.jpg "霍氏树懒，厄瓜多尔")
 
 ---
