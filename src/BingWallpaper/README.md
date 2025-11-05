@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月06日：满天心愿
+#### 哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国（© MR. ANUJAK JAIMOOK/Getty Images）
+
+![满天心愿](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_800x480.jpg&rf=LaDigue_800x480.jpg "满天心愿")
+
+如果一盏天灯能承载你的心愿，你会许下什么？今晚，在泰国北部，义蓬节为你带来这样的机会。这个延续数百年的兰纳传统，在农历十二月举行，人们点亮孔明灯以纪念佛陀。相传每一盏灯都能带走厄运，照亮通往美好未来的道路。孩子们扶稳灯架，长者低声祈福，成百上千的灯火缓缓升起，越过树梢，点亮夜空。同一轮满月下，南方的水灯节也在进行，烛光点点的花船在水面缓缓漂流。
+
+天灯这个名字来源于中国，又可以叫孔明灯。它是一种古老的汉族手工艺品，属于高空明火飞行物。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b8%85%e8%bf%88%e7%81%af%e4%bc%9a&form=hpcapt&filters=HpDate:"20251105_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251106_LanternsThailand"&FORM=HPQUIZ "必应主页测验 2025 11月 6")
+[下载480](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_800x480.jpg&rf=LaDigue_800x480.jpg "哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国")
+[下载720](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_1280x720.jpg&rf=LaDigue_1280x720.jpg "哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国")
+[下载1080](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_UHD.jpg&rf=LaDigue_UHD.jpg "哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国")
+
+---
 ### 11月05日：秋天来了，你开心吗？
 #### 佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙（© David Santiago Garcia/DEEPOL by plainpicture）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度")
 [下载1080](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_UHD.jpg&rf=LaDigue_UHD.jpg "雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度")
-
----
-### 10月22日：刻在石头上
-#### 贝洛格拉齐克石林，保加利亚（© EvaL Miko/Shutterstock）
-
-![刻在石头上](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_800x480.jpg&rf=LaDigue_800x480.jpg "刻在石头上")
-
-在保加利亚巴尔干山脉西麓，贝洛格拉奇克石林如同一座天然画廊，每一块岩石都诉说着独特的故事。这些砂岩与石灰岩柱经过数百万年的风化与侵蚀，形成了千姿百态的奇特造型，当地人坚信其中有些轮廓酷似人物、动物，甚至完整的场景。因此，这些岩石也被赋予了富有想象力的名字，如"骑手岩"、"女学生岩"、"僧侣岩"等。在这片土地上，辨认岩石形状就像在玩一场大自然版的猜谜游戏，既有趣又充满惊喜。
-
-2009年1月，贝洛格拉奇克石林被提名为保加利亚参与"新七大自然奇观"评选活动的候选地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%b4%9d%e6%b4%9b%e6%a0%bc%e6%8b%89%e9%bd%90%e5%85%8b%e7%9f%b3%e6%9e%97&form=hpcapt&filters=HpDate:"20251021_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251022_BulgariaRocks"&FORM=HPQUIZ "必应主页测验 2025 10月 22")
-[下载480](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_800x480.jpg&rf=LaDigue_800x480.jpg "贝洛格拉齐克石林，保加利亚")
-[下载720](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_1280x720.jpg&rf=LaDigue_1280x720.jpg "贝洛格拉齐克石林，保加利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "贝洛格拉齐克石林，保加利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_UHD.jpg&rf=LaDigue_UHD.jpg "贝洛格拉齐克石林，保加利亚")
 
 ---
