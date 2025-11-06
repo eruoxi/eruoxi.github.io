@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月07日：魅力十足的巨型动物
+#### 丘吉尔的北极熊，曼尼托巴省，加拿大（© karen crewe/Getty Images）
+
+![魅力十足的巨型动物](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_800x480.jpg&rf=LaDigue_800x480.jpg "魅力十足的巨型动物")
+
+北极熊是一种大型熊类，原产于北极及其附近地区。加拿大曼尼托巴省的丘吉尔是一个北极熊出没的地方。每年秋天，数百只北极熊聚集在这里，等待海湾结冰，以便再次捕猎海豹——它们的主要食物来源。有没有想过它们是如何保暖的？厚厚的脂肪层和浓密的底毛可以锁住热量。它们游过后，不易缠结的毛发会被甩干，天然油脂可以防止皮毛结冻。遗憾的是，气温升高会延缓结冰过程，迫使北极熊禁食更长时间。为了应对延迟，它们会休息、保存能量，有时还会在附近游荡。科学家们追踪它们的行踪，以了解迁徙模式每年的变化。北极熊周在纪念这些哺乳动物的同时，也提醒我们，它们的未来取决于我们如何应对全球变暖。
+
+北极熊的眼睛靠近头顶，这可以使它们在水面游泳时眼睛露出水面。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%9e%81%e7%86%8a&form=hpcapt&filters=HpDate:"20251106_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251107_WillowBear"&FORM=HPQUIZ "必应主页测验 2025 11月 7")
+[下载480](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_800x480.jpg&rf=LaDigue_800x480.jpg "丘吉尔的北极熊，曼尼托巴省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_1280x720.jpg&rf=LaDigue_1280x720.jpg "丘吉尔的北极熊，曼尼托巴省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丘吉尔的北极熊，曼尼托巴省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_UHD.jpg&rf=LaDigue_UHD.jpg "丘吉尔的北极熊，曼尼托巴省，加拿大")
+
+---
 ### 11月06日：满天心愿
 #### 哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国（© MR. ANUJAK JAIMOOK/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_1280x720.jpg&rf=LaDigue_1280x720.jpg "玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_UHD.jpg&rf=LaDigue_UHD.jpg "玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国")
-
----
-### 10月23日：雪中深情
-#### 雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度（© Oriol Alamany/naturepl.com）
-
-![雪中深情](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_800x480.jpg&rf=LaDigue_800x480.jpg "雪中深情")
-
-你可曾尝试在野外寻找雪豹的踪迹？它被称为"山中幽灵"绝非空穴来风——你更可能看到它的爪印，而不是它本尊的身影。但每年10月23日，这位神秘的高原猎手会走到聚光灯下，因为这一天是专为它设立的“国际雪豹日”，旨在呼吁保护这种难得一见的掠食者及其崎岖的栖息地。
-
-2021年，该物种被列入中国《国家重点保护野生动物名录》，属于国家一级保护野生动物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e9%9b%aa%e8%b1%b9%e6%97%a5&form=hpcapt&filters=HpDate:"20251022_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251023_SnowLeopard"&FORM=HPQUIZ "必应主页测验 2025 10月 23")
-[下载480](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_800x480.jpg&rf=LaDigue_800x480.jpg "雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度")
-[下载720](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度")
-[下载1080](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_UHD.jpg&rf=LaDigue_UHD.jpg "雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度")
 
 ---
