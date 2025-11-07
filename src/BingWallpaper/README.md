@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月08日：班登的明星岩石
+#### 班登海滩的海蚀柱，俄勒冈州，美国（© Grant Ordelheide/TANDEM Stills + Motion）
+
+![班登的明星岩石](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_800x480.jpg&rf=LaDigue_800x480.jpg "班登的明星岩石")
+
+驶出101号公路，俄勒冈州的班登便迎来了来访者，这里弥漫着咸咸的空气和轻柔的港口钟声。这座小镇始建于19世纪50年代，最初只是个小聚居地，后来发展成为木材和鲑鱼捕捞中心。蔓越莓成为当地的主要作物，至今仍是每年九月蔓越莓节的庆祝活动。老城区的木板路咖啡馆和画廊反映了那段历史，而科基尔河灯塔则矗立在布拉兹海滩，经过修复，依然屹立在那里，提醒着人们当年它曾指引船只的航向。
+
+海蚀柱在中国的沿海地区常可见到。大连的黑石礁、北戴河的鹰角石、山东青岛的石老人,以及东南的部分沿海地区亦有分布．
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bf%84%e5%8b%92%e5%86%88%e5%b7%9e%e7%8f%ad%e7%99%bb&form=hpcapt&filters=HpDate:"20251107_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251108_BandonBeach"&FORM=HPQUIZ "必应主页测验 2025 11月 8")
+[下载480](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_800x480.jpg&rf=LaDigue_800x480.jpg "班登海滩的海蚀柱，俄勒冈州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_1280x720.jpg&rf=LaDigue_1280x720.jpg "班登海滩的海蚀柱，俄勒冈州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "班登海滩的海蚀柱，俄勒冈州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_UHD.jpg&rf=LaDigue_UHD.jpg "班登海滩的海蚀柱，俄勒冈州，美国")
+
+---
 ### 11月07日：魅力十足的巨型动物
 #### 丘吉尔的北极熊，曼尼托巴省，加拿大（© karen crewe/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_1280x720.jpg&rf=LaDigue_1280x720.jpg "马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰")
 [下载1080](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_UHD.jpg&rf=LaDigue_UHD.jpg "马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰")
-
----
-### 10月24日：从“灰色幽灵”到幽灵传说
-#### 玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国（© Kit Leong/Shutterstock）
-
-![从“灰色幽灵”到幽灵传说](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_800x480.jpg&rf=LaDigue_800x480.jpg "从“灰色幽灵”到幽灵传说")
-
-她注定不会被遗忘。1936年，“玛丽女王号” 首次横渡大西洋时，便夺尽风采。这艘装饰艺术风格的巨轮打破了航速纪录，承载过无数名流、皇室成员与政要。二战期间，她的身份从“海上宫殿”骤然转变为“灰色幽灵”，奢华尽数褪去，取而代之的是装载盟军部队的使命。1967年，航行30年后，她退役停泊在加州长滩。如今，她的甲板化身为酒店走廊、导览展区，成为一座活生生的海事历史纪念碑。
-
-尽管在大萧条时期遭遇经济困境，导致建造一度停工数年，但冠达航运公司在建造“玛丽女王号”（最初被称为 534 号工程）时依旧不惜工本。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8e%9b%e4%b8%bd%e7%9a%87%e5%90%8e%e5%8f%b7&form=hpcapt&filters=HpDate:"20251023_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251024_QueenMary"&FORM=HPQUIZ "必应主页测验 2025 10月 24")
-[下载480](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_800x480.jpg&rf=LaDigue_800x480.jpg "玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_1280x720.jpg&rf=LaDigue_1280x720.jpg "玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_UHD.jpg&rf=LaDigue_UHD.jpg "玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国")
 
 ---
