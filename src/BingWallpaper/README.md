@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月09日：从前有一颗星星
+#### 礁湖星云中的星际云，由哈勃太空望远镜拍摄（© ESA/NASA）
+
+![从前有一颗星星](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_800x480.jpg&rf=LaDigue_800x480.jpg "从前有一颗星星")
+
+宇宙生机勃勃，生生不息。图中的礁湖星云中，一个名为NGC 6530的星团正在孕育新生恒星，这光芒提醒着我们，宇宙的起源早已交织其中。它距离我们约4350光年，已有数百万年历史，目前仍处于恒星形成的早期阶段。
+
+礁湖星云中存在着一些被称为“博克球状体（Bok globules）（Burnham）的暗星云，成为最值得注意的特征之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%a4%81%e6%b9%96%e6%98%9f%e4%ba%91&form=hpcapt&filters=HpDate:"20251108_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251109_LagoonNebula"&FORM=HPQUIZ "必应主页测验 2025 11月 9")
+[下载480](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_800x480.jpg&rf=LaDigue_800x480.jpg "礁湖星云中的星际云，由哈勃太空望远镜拍摄")
+[下载720](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_1280x720.jpg&rf=LaDigue_1280x720.jpg "礁湖星云中的星际云，由哈勃太空望远镜拍摄")
+[下载1080](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "礁湖星云中的星际云，由哈勃太空望远镜拍摄")
+[下载UHD](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_UHD.jpg&rf=LaDigue_UHD.jpg "礁湖星云中的星际云，由哈勃太空望远镜拍摄")
+
+---
 ### 11月08日：班登的明星岩石
 #### 班登海滩的海蚀柱，俄勒冈州，美国（© Grant Ordelheide/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_1280x720.jpg&rf=LaDigue_1280x720.jpg "北卡罗来纳州的南瓜农场, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北卡罗来纳州的南瓜农场, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_UHD.jpg&rf=LaDigue_UHD.jpg "北卡罗来纳州的南瓜农场, 美国")
-
----
-### 10月25日：芬兰的活泥炭地
-#### 马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰（© romikatarina/Shutterstock）
-
-![芬兰的活泥炭地](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_800x480.jpg&rf=LaDigue_800x480.jpg "芬兰的活泥炭地")
-
-芬兰的沼泽大多是由泥炭地组成，它们源自大约 12,000 年前上一个冰河时期结束后，沉积物与苔藓不断堆积、分解而成。
-
-芬兰的沼泽大多是由泥炭地组成，它们源自大约 12,000 年前上一个冰河时期结束后，沉积物与苔藓不断堆积、分解而成。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b2%bc%e6%b3%bd%e7%94%9f%e6%80%81%e7%b3%bb%e7%bb%9f&form=hpcapt&filters=HpDate:"20251024_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251025_MartimoaapaFinland"&FORM=HPQUIZ "必应主页测验 2025 10月 25")
-[下载480](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_800x480.jpg&rf=LaDigue_800x480.jpg "马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰")
-[下载720](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_1280x720.jpg&rf=LaDigue_1280x720.jpg "马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰")
-[下载1080](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_UHD.jpg&rf=LaDigue_UHD.jpg "马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰")
 
 ---
