@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月10日：草原之下的生命
+#### 土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国（© Greg Vaughn/Getty Images）
+
+![草原之下的生命](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_800x480.jpg&rf=LaDigue_800x480.jpg "草原之下的生命")
+
+47年前的11月10日，南达科他州一片荒凉的草原被正式列入美国自然遗产名录。由风与水共同雕琢而成的劣地国家公园于 1978 年从国家纪念地升级为国家公园，获得更强的保护级别。公园内的悬崖与尖塔矗立在化石层之上，那些化石揭示了远古时代的犀牛、骆驼以及曾覆盖此地的亚热带海洋。然而，这座公园不仅是通往过去的窗口，它也守护着美国现存最大、最完整的混生草原生态系统之一。
+
+白河劣地作为重要的古生物学资源，其历史可追溯至当地原住民对这片土地的传统认知。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a3%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20251109_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251110_PrairieDogTown"&FORM=HPQUIZ "必应主页测验 2025 11月 10")
+[下载480](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_800x480.jpg&rf=LaDigue_800x480.jpg "土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_1280x720.jpg&rf=LaDigue_1280x720.jpg "土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_UHD.jpg&rf=LaDigue_UHD.jpg "土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国")
+
+---
 ### 11月09日：从前有一颗星星
 #### 礁湖星云中的星际云，由哈勃太空望远镜拍摄（© ESA/NASA）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_1280x720.jpg&rf=LaDigue_1280x720.jpg "被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国")
 [下载1080](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_UHD.jpg&rf=LaDigue_UHD.jpg "被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国")
-
----
-### 10月26日：南瓜日，今日登场！
-#### 北卡罗来纳州的南瓜农场, 美国（© Matthew H Irvin/Getty Images）
-
-![南瓜日，今日登场！](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_800x480.jpg&rf=LaDigue_800x480.jpg "南瓜日，今日登场！")
-
-没有什么比一片等待采摘的南瓜田更能代表秋天了。这些圆滚滚的南瓜出现在南瓜派、门廊装饰、拿铁和游行中。美国一些地方更是把对南瓜的喜爱推向极致——伊利诺伊州莫顿镇自称为“世界南瓜之都”，因为其产量高且与罐装南瓜产业联系紧密。新罕布什尔州则紧随其后，将南瓜定为州水果。
-
-2020 年，美国人均南瓜消费量为 6.44 磅。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%97%e7%93%9c&form=hpcapt&filters=HpDate:"20251025_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251026_PumpkinFarm"&FORM=HPQUIZ "必应主页测验 2025 10月 26")
-[下载480](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_800x480.jpg&rf=LaDigue_800x480.jpg "北卡罗来纳州的南瓜农场, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_1280x720.jpg&rf=LaDigue_1280x720.jpg "北卡罗来纳州的南瓜农场, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北卡罗来纳州的南瓜农场, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_UHD.jpg&rf=LaDigue_UHD.jpg "北卡罗来纳州的南瓜农场, 美国")
 
 ---
