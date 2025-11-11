@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月12日：条条大路通罗马
+#### 斗兽场鸟瞰图，罗马，意大利（© Nico De Pasquale Photography/Getty Images）
+
+![条条大路通罗马](https://cn.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_800x480.jpg&rf=LaDigue_800x480.jpg "条条大路通罗马")
+
+觉得现代体育赛事已经足够精彩了吗？在古罗马时代，观众们坐在斗兽场中目睹的表演要激烈得多。这座宏伟的圆形露天竞技场由罗马皇帝韦斯帕先于公元72年下令建造，其子提图斯于公元80年完工。与早期依山而建、借助地形支撑的剧场不同，罗马斗兽场完全独立矗立，是一座自成体系的建筑奇迹。斗兽场由石块与混凝土建成，拱门与穹顶结构支撑着可容纳多达5万名观众的竞技场。角斗士的搏斗、异国野兽的展示，甚至模拟海战，都令观众热血沸腾地下的升降机与暗门让场景转换瞬息万变，充满戏剧张力。
+
+从1928年到2000年的夏季奥运会奖牌上，都印有由朱塞佩·卡西奥利设计的图案：罗马斗兽场的形象。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%bd%97%e9%a9%ac%e6%96%97%e5%85%bd%e5%9c%ba&form=hpcapt&filters=HpDate:"20251111_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251112_ColosseumRome"&FORM=HPQUIZ "必应主页测验 2025 11月 12")
+[下载480](https://cn.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_800x480.jpg&rf=LaDigue_800x480.jpg "斗兽场鸟瞰图，罗马，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_1280x720.jpg&rf=LaDigue_1280x720.jpg "斗兽场鸟瞰图，罗马，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斗兽场鸟瞰图，罗马，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_UHD.jpg&rf=LaDigue_UHD.jpg "斗兽场鸟瞰图，罗马，意大利")
+
+---
 ### 11月11日：传奇之地
 #### 条顿堡森林的伊克斯坦岩石层，德国（© Michael Sroka/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_1280x720.jpg&rf=LaDigue_1280x720.jpg "法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙")
 [下载1080](https://cn.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_UHD.jpg&rf=LaDigue_UHD.jpg "法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙")
-
----
-### 10月28日：通往石之奇境的大门
-#### 安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克（© Kseniya_Milner/Getty Images）
-
-![通往石之奇境的大门](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_800x480.jpg&rf=LaDigue_800x480.jpg "通往石之奇境的大门")
-
-从18世纪的最早来访者，到大火烧出小径的故事，这座“岩石之城”一直在诉说着生存的传奇。阿德尔什帕赫–特普利采岩石群位于捷克赫拉德茨–克拉洛韦州，是中欧最大的砂岩迷宫。几个世纪以来，这片悬崖与通道一直被森林覆盖，直到一场大火将树林烧尽，岩石的拱门、塔楼和蜿蜒的廊道才从灰烬中显露出来。最初的徒步小径由此开辟。不久之后，探险家和诗人用石刻铭文留下了他们的印记，描绘出一个既狂野又迷人的目的地。
-
-受中世纪神学的影响，哥特式建筑常给人神秘而幽暗的氛围，甚至带来一种浪漫的“死亡气息”，让人沉浸在其独特的魅力之中，不断追随、改进，最终形成了庞大的体系。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%93%a5%e7%89%b9%e5%bc%8f%e6%8b%b1%e9%97%a8&form=hpcapt&filters=HpDate:"20251027_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251028_TepliceRocks"&FORM=HPQUIZ "必应主页测验 2025 10月 28")
-[下载480](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_800x480.jpg&rf=LaDigue_800x480.jpg "安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克")
-[下载720](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_1280x720.jpg&rf=LaDigue_1280x720.jpg "安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克")
-[下载1080](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克")
-[下载UHD](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_UHD.jpg&rf=LaDigue_UHD.jpg "安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克")
 
 ---
