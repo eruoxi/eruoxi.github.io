@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月13日：星光下的颤动之树
+#### 夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚（© Wim van den Heever/naturepl.com）
+
+![星光下的颤动之树](https://cn.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_800x480.jpg&rf=LaDigue_800x480.jpg "星光下的颤动之树")
+
+在地球上所有的植物中，箭袋树或许最像来自未来的生命。它们分布于非洲南部，尤其是纳米比亚的干旱地区。虽然名字里有“树”，但它其实是一种芦荟属植物，经过漫长岁月的适应，能在炙热的沙漠中顽强生存。厚实的树干储存水分，分枝则能反射热量，帮助它抵御极端环境。箭袋树可高达7米，有的寿命超过百年，是沙漠生态系统中不可或缺的一环。在几乎没有其他树木的荒原上，它为鸟类提供了珍贵的栖息与筑巢之所。
+
+在当地的原住民桑人语言中，箭袋树被称为 choje。它的英文名被意为“箭袋树”源于桑人的一种传统：他们会将这种植物中空的枝干掏空，用来制作轻便的箭袋。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ae%ad%e8%a2%8b%e6%a0%91&form=hpcapt&filters=HpDate:"20251112_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251113_AloeDichotoma"&FORM=HPQUIZ "必应主页测验 2025 11月 13")
+[下载480](https://cn.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_800x480.jpg&rf=LaDigue_800x480.jpg "夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚")
+[下载720](https://cn.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_1280x720.jpg&rf=LaDigue_1280x720.jpg "夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚")
+[下载1080](https://cn.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_UHD.jpg&rf=LaDigue_UHD.jpg "夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚")
+
+---
 ### 11月12日：条条大路通罗马
 #### 斗兽场鸟瞰图，罗马，意大利（© Nico De Pasquale Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_1280x720.jpg&rf=LaDigue_1280x720.jpg "杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度")
 [下载1080](https://cn.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_UHD.jpg&rf=LaDigue_UHD.jpg "杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度")
-
----
-### 10月29日：时光扎根
-#### 法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙（© Lukas Jonaitis/Shutterstock）
-
-![时光扎根](https://cn.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_800x480.jpg&rf=LaDigue_800x480.jpg "时光扎根")
-
-葡萄牙的马德拉岛位于本土西南约600英里处，这里隐藏着一片与众不同的森林。在岛的北坡上坐落着法纳尔森林，薄雾在古老的月桂树间飘荡。这些树是马德拉岛亚热带常绿林的一部分，亚热带常绿林是曾经广泛分布的月桂树林的杰出遗迹。它是现存规模最大的同类森林，其中约90%被认定为原始林。这里孕育着独特的动植物群，包括马德拉长趾鸽等特有物种，堪称一座活着的自然历史博物馆。
-
-这是马德拉岛和加那利群岛月桂林中的常见树种，富含精油，刚砍伐时木材会散发出刺鼻气味。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%91%a1%e8%90%84%e7%89%99%e9%a9%ac%e5%be%b7%e6%8b%89%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20251028_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251029_FanalForest"&FORM=HPQUIZ "必应主页测验 2025 10月 29")
-[下载480](https://cn.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_800x480.jpg&rf=LaDigue_800x480.jpg "法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙")
-[下载720](https://cn.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_1280x720.jpg&rf=LaDigue_1280x720.jpg "法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙")
-[下载1080](https://cn.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_UHD.jpg&rf=LaDigue_UHD.jpg "法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙")
 
 ---
