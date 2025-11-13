@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月14日：快节奏时代，别忘了慢下来
+#### 海牛妈妈和幼崽，水晶河，佛罗里达州，美国（© Gregory Sweeney/Getty Images）
+
+![快节奏时代，别忘了慢下来](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_800x480.jpg&rf=LaDigue_800x480.jpg "快节奏时代，别忘了慢下来")
+
+11月不仅是火鸡大餐和南瓜派的季节，它还有一个特别的主题——海牛保护宣传月。相比翻腾的海豚和抢镜的鲨鱼，海牛凭借“什么都不做”赢得了人们的喜爱，这就是它们的独特魅力。
+
+海牛科目前仅存三种物种，分别是亚马逊海牛、西印度海牛和西非海牛，它们是海牛目仅存的四种物种中的三种。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e7%89%9b&form=hpcapt&filters=HpDate:"20251113_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251114_ManateeBaby"&FORM=HPQUIZ "必应主页测验 2025 11月 14")
+[下载480](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_800x480.jpg&rf=LaDigue_800x480.jpg "海牛妈妈和幼崽，水晶河，佛罗里达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_1280x720.jpg&rf=LaDigue_1280x720.jpg "海牛妈妈和幼崽，水晶河，佛罗里达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海牛妈妈和幼崽，水晶河，佛罗里达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_UHD.jpg&rf=LaDigue_UHD.jpg "海牛妈妈和幼崽，水晶河，佛罗里达州，美国")
+
+---
 ### 11月13日：星光下的颤动之树
 #### 夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚（© Wim van den Heever/naturepl.com）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_1280x720.jpg&rf=LaDigue_1280x720.jpg "布兰城堡入口, 布拉索夫, 罗马尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布兰城堡入口, 布拉索夫, 罗马尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_UHD.jpg&rf=LaDigue_UHD.jpg "布兰城堡入口, 布拉索夫, 罗马尼亚")
-
----
-### 10月30日：蹄声、色彩与传承
-#### 杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度（© f9photos/Getty Images）
-
-![蹄声、色彩与传承](https://cn.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_800x480.jpg&rf=LaDigue_800x480.jpg "蹄声、色彩与传承")
-
-每到秋季，印度拉贾斯坦邦的沙漠小镇普什卡都会因一场普什卡骆驼节而热闹非凡。这一节庆与印度教的卡提克月相对应，通常在公历10月下旬至11月初举行。今年的庆典自今日起至11月5日，成为了当地一年中最令人期待的季节。
-
-骆驼奶比牛奶略咸，维生素C含量是牛奶的三倍，富含铁、不饱和脂肪酸和B族维生素。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%aa%86%e9%a9%bc&form=hpcapt&filters=HpDate:"20251029_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251030_PushkarFair"&FORM=HPQUIZ "必应主页测验 2025 10月 30")
-[下载480](https://cn.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_800x480.jpg&rf=LaDigue_800x480.jpg "杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度")
-[下载720](https://cn.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_1280x720.jpg&rf=LaDigue_1280x720.jpg "杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度")
-[下载1080](https://cn.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_UHD.jpg&rf=LaDigue_UHD.jpg "杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度")
 
 ---
