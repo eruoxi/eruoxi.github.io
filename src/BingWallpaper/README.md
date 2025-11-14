@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月15日：像日光那样“弯道飞驰”
+#### 秋天的伊吕波坂，日光市，栃木县，日本（© oneinchpunch/Shutterstock）
+
+![像日光那样“弯道飞驰”](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_ZH-CN8146412245_800x480.jpg&rf=LaDigue_800x480.jpg "像日光那样“弯道飞驰”")
+
+秋天是伊吕波坂最耀眼的季节，正如今日画面所示。从10月下旬到11月上旬，枫叶的红、银杏的金、落叶松的黄层层叠叠，铺满山坡。蜿蜒的道路一路通向日光的著名景点：攀登至顶，便可抵达赤地平原。这里有缆车可俯瞰中禅寺湖和气势磅礴的华严瀑布。山顶的中禅寺湖静谧如镜，与盘旋的山路形成鲜明对比，而瀑布在下方轰鸣奔泻。几个世纪前，朝圣者沿着这条路前往神社与寺院，如今旅行者依旧踏上同样的路径，只是相机快门声取代了虔诚的诵经声。
+
+这条山路名叫“伊吕波坂”，名字源自日本古老的假名顺序“伊吕波”。过去它有多达48个发卡弯，每一个弯道都对应着一个假名字符，仿佛把文字铺展在群山之间。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a0%83%e6%9c%a8%e5%8e%bf%e6%97%a5%e5%85%89%e5%b8%82&form=hpcapt&filters=HpDate:"20251114_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251115_IrohazakaAutumn"&FORM=HPQUIZ "必应主页测验 2025 11月 15")
+[下载480](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_ZH-CN8146412245_800x480.jpg&rf=LaDigue_800x480.jpg "秋天的伊吕波坂，日光市，栃木县，日本")
+[下载720](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_ZH-CN8146412245_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋天的伊吕波坂，日光市，栃木县，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_ZH-CN8146412245_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋天的伊吕波坂，日光市，栃木县，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_ZH-CN8146412245_UHD.jpg&rf=LaDigue_UHD.jpg "秋天的伊吕波坂，日光市，栃木县，日本")
+
+---
 ### 11月14日：快节奏时代，别忘了慢下来
 #### 海牛妈妈和幼崽，水晶河，佛罗里达州，美国（© Gregory Sweeney/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_1280x720.jpg&rf=LaDigue_1280x720.jpg "野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_UHD.jpg&rf=LaDigue_UHD.jpg "野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国")
-
----
-### 10月31日：在万圣节的魔咒之下
-#### 布兰城堡入口, 布拉索夫, 罗马尼亚（© blue sky in my pocket/Getty Images）
-
-![在万圣节的魔咒之下](https://cn.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_800x480.jpg&rf=LaDigue_800x480.jpg "在万圣节的魔咒之下")
-
-今夜，万圣节的魔咒笼罩大地——而地球上仅有少数地方能与罗马尼亚的布兰城堡比肩，承载着如此深邃的谜团。这座建于14世纪的堡垒历经战火洗礼，见证君王更迭与帝国兴衰。但在此地，传说比历史更响亮。这座城堡坐落于以阴森传说闻名的特兰西瓦尼亚与昔日由弗拉德三世·德古拉统治的瓦拉几亚之间，散发着令人心悸的遗迹气息。弗拉德的残暴名声启发了布拉姆·斯托克1897年创作的小说《德古拉》。尽管故事背景并非布兰城堡，但它巍峨的轮廓与关于弗拉德幽灵出没的传闻，让真实与传说交织模糊，永远将这座城堡与人类最持久的传说之一紧密相连。
-
-第二次世界大战期间，伊莱安娜公主将布兰城堡改造成了伤兵医院，她本人曾接受过护士培训。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e5%85%b0%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20251030_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 10月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251031_BranCastle"&FORM=HPQUIZ "必应主页测验 2025 10月 31")
-[下载480](https://cn.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_800x480.jpg&rf=LaDigue_800x480.jpg "布兰城堡入口, 布拉索夫, 罗马尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_1280x720.jpg&rf=LaDigue_1280x720.jpg "布兰城堡入口, 布拉索夫, 罗马尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布兰城堡入口, 布拉索夫, 罗马尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_UHD.jpg&rf=LaDigue_UHD.jpg "布兰城堡入口, 布拉索夫, 罗马尼亚")
 
 ---
