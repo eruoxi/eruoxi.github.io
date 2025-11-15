@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月16日：承载过往的篇章
+#### 里昂的一条穿廊，法国（© TPopova/Getty Images）
+
+![承载过往的篇章](https://cn.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_800x480.jpg&rf=LaDigue_800x480.jpg "承载过往的篇章")
+
+在法国里昂，你不只是简单地走过街巷，而是像在城市的脉络中轻盈滑行。这里的穿廊，是一条条隐秘的通道，蜿蜒穿梭于庭院与建筑之间，将简单的散步变成一场寻宝之旅。它们曾是最早的捷径，帮助居民避雨、搬运货物，或悄然穿过中世纪街区。如今，这些通道更多承载的是探索的乐趣。它们的历史可追溯至公元四世纪，在文艺复兴时期更显重要——当时丝绸商人利用这些通道，将珍贵织物从作坊安全运送到河边，免受风雨侵扰。二战期间，抵抗运动战士也曾借助这些通道作为秘密逃生路线。走进里昂，你会发现，每一条穿廊都藏着故事，每一次转角都可能遇见历史的回声。
+
+“Traboules”一词源自拉丁语transambulare，经通俗拉丁语演变为trabulare，意为“穿廊”。它指的是一种隐秘的拱顶通道，主要分布在法国里昂。这些通道最初是丝绸制造商和其他商贩用来运输产品的捷径。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%87%8c%e6%98%82%e7%9a%84%e7%a9%bf%e5%bb%8a&form=hpcapt&filters=HpDate:"20251115_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251116_LyonTraboules"&FORM=HPQUIZ "必应主页测验 2025 11月 16")
+[下载480](https://cn.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_800x480.jpg&rf=LaDigue_800x480.jpg "里昂的一条穿廊，法国")
+[下载720](https://cn.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_1280x720.jpg&rf=LaDigue_1280x720.jpg "里昂的一条穿廊，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "里昂的一条穿廊，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_UHD.jpg&rf=LaDigue_UHD.jpg "里昂的一条穿廊，法国")
+
+---
 ### 11月15日：像日光那样“弯道飞驰”
 #### 秋天的伊吕波坂，日光市，栃木县，日本（© oneinchpunch/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_1280x720.jpg&rf=LaDigue_1280x720.jpg "岚山缤纷的枫叶与竹林, 京都, 日本")
 [下载1080](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "岚山缤纷的枫叶与竹林, 京都, 日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_UHD.jpg&rf=LaDigue_UHD.jpg "岚山缤纷的枫叶与竹林, 京都, 日本")
-
----
-### 11月01日：古老血脉的兽群
-#### 野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国（© Cheryl Ramalho/Getty Images）
-
-![古老血脉的兽群](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_800x480.jpg&rf=LaDigue_800x480.jpg "古老血脉的兽群")
-
-野牛体现了一种矛盾：巨大的力量与沉静的气质并存。这些体型庞大的动物体重可达200​​0磅，身高6英尺（约1.8米），成群结队地漫游在北美的草原和河谷。这张照片拍摄于怀俄明州的黄石国家公园，它们的数量曾达数千万头，但在19世纪几乎灭绝——这一灭绝事件重塑了生态系统，扰乱了人们的生活方式。
-
-黄石公园的野牛非常特殊，因为它们是美国公共土地上最大的野牛种群。制定符合蒙大拿州法律的检疫计划，对于将黄石公园中未感染布鲁氏菌病的野牛纳入保护区至关重要。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%bb%84%e7%9f%b3%e5%85%ac%e5%9b%ad%e7%9a%84%e9%87%8e%e7%89%9b%e7%be%a4&form=hpcapt&filters=HpDate:"20251031_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251101_BisonSprings"&FORM=HPQUIZ "必应主页测验 2025 11月 1")
-[下载480](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_800x480.jpg&rf=LaDigue_800x480.jpg "野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_1280x720.jpg&rf=LaDigue_1280x720.jpg "野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_UHD.jpg&rf=LaDigue_UHD.jpg "野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国")
 
 ---
