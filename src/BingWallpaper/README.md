@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月17日：小径在召唤
+#### 谢南多厄国家公园的秋色，弗吉尼亚州，美国（© Michael Ver Sprill/Getty Images）
+
+![小径在召唤](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_800x480.jpg&rf=LaDigue_800x480.jpg "小径在召唤")
+
+谢南多厄国家公园，弗吉尼亚州的山间瑰宝。蓝岭山脉在此披上最华美的盛装：金黄的山核桃树、绯红的枫树，以及镀上青铜色的橡树。十一月的空气愈发清冽，秋日的余晖低声细语，悄悄停留在山坡上。沿着天际线公路缓缓前行，105英里的蜿蜒公路带你俯瞰云海翻涌，云影在山谷间轻轻流动，像思绪在天空漂移。这里还有超过500 英里的步道，沿着小径，你会走进瀑布奔流的深谷，登上触碰天际的高峰。石人峰、鹰嘴峰、暗谷瀑布——每处皆是石与叶谱写的诗篇，静待游人的脚步与风声共鸣。
+
+该公园最著名的景点当属天际线公路，这条全长105英里（169公里）的道路沿着山脊贯穿整个公园，风景壮丽，四季皆宜。此外，阿巴拉契亚步道中长达101英里（163公里）的路段也位于此公园内。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%b0%a2%e5%8d%97%e5%a4%9a%e5%8e%84%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20251116_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251117_ShenandoahTrail"&FORM=HPQUIZ "必应主页测验 2025 11月 17")
+[下载480](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_800x480.jpg&rf=LaDigue_800x480.jpg "谢南多厄国家公园的秋色，弗吉尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_1280x720.jpg&rf=LaDigue_1280x720.jpg "谢南多厄国家公园的秋色，弗吉尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "谢南多厄国家公园的秋色，弗吉尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_UHD.jpg&rf=LaDigue_UHD.jpg "谢南多厄国家公园的秋色，弗吉尼亚州，美国")
+
+---
 ### 11月16日：承载过往的篇章
 #### 里昂的一条穿廊，法国（© TPopova/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_1280x720.jpg&rf=LaDigue_1280x720.jpg "在太平洋中游泳的水母, 格雷罗, 墨西哥")
 [下载1080](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在太平洋中游泳的水母, 格雷罗, 墨西哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_UHD.jpg&rf=LaDigue_UHD.jpg "在太平洋中游泳的水母, 格雷罗, 墨西哥")
-
----
-### 11月02日：竹林吐纳清气，枫叶绚烂如火
-#### 岚山缤纷的枫叶与竹林, 京都, 日本（© DoctorEgg/Getty Images）
-
-![竹林吐纳清气，枫叶绚烂如火](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_800x480.jpg&rf=LaDigue_800x480.jpg "竹林吐纳清气，枫叶绚烂如火")
-
-今日，我们前往京都岚山地区，这里以迷人的四季风光闻名于世。此处，鲜艳的日本红枫与静谧的竹林交织出色彩与宁静的和谐画卷。这些以纤细深裂叶片著称的枫树，每逢秋日便幻化成炽烈的红、橙、金三色，吸引着全球游客纷至沓来。它们不仅因绝美姿态备受推崇，更承载着象征优雅、平和与生命无常的文化意蕴。
-
-岚山在四月初和十一月下半月最有吸引力（也最繁忙），此时樱花和秋色通常达到顶峰。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%ba%ac%e9%83%bd%e5%b2%9a%e5%b1%b1&form=hpcapt&filters=HpDate:"20251101_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251102_KyotoMaple"&FORM=HPQUIZ "必应主页测验 2025 11月 2")
-[下载480](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_800x480.jpg&rf=LaDigue_800x480.jpg "岚山缤纷的枫叶与竹林, 京都, 日本")
-[下载720](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_1280x720.jpg&rf=LaDigue_1280x720.jpg "岚山缤纷的枫叶与竹林, 京都, 日本")
-[下载1080](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "岚山缤纷的枫叶与竹林, 京都, 日本")
-[下载UHD](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_UHD.jpg&rf=LaDigue_UHD.jpg "岚山缤纷的枫叶与竹林, 京都, 日本")
 
 ---
