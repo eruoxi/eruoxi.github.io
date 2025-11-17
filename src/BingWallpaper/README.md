@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月18日：秋日里的羽翼明星
+#### 雄性棕胁秋沙鸭，俄勒冈州，美国（© Eric Vogt/TANDEM Stills + Motion）
+
+![秋日里的羽翼明星](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_800x480.jpg&rf=LaDigue_800x480.jpg "秋日里的羽翼明星")
+
+每到秋季，俄勒冈州静谧的水道就成了棕胁秋沙鸭的季节性驿站——它们是北美特有的小型潜水鸭，潜水灵活，能迅速扎入水下捕捉鱼类和其他猎物。雄性棕胁秋沙鸭最显眼，头顶扇形白冠，深色头部，体侧呈栗棕色；雌鸭则呈灰褐色，冠羽较小。俄勒冈的湖泊和湿地为这些鸟类提供了安全的觅食地，它们在迁徙或越冬途中会在此停留。
+
+棕胁秋沙鸭常在树洞中筑巢，有时还会搬进啄木鸟遗留下来的旧巢穴。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a3%95%e8%83%81%e7%a7%8b%e6%b2%99%e9%b8%ad&form=hpcapt&filters=HpDate:"20251117_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251118_AutumnMerganser"&FORM=HPQUIZ "必应主页测验 2025 11月 18")
+[下载480](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_800x480.jpg&rf=LaDigue_800x480.jpg "雄性棕胁秋沙鸭，俄勒冈州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_1280x720.jpg&rf=LaDigue_1280x720.jpg "雄性棕胁秋沙鸭，俄勒冈州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雄性棕胁秋沙鸭，俄勒冈州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_UHD.jpg&rf=LaDigue_UHD.jpg "雄性棕胁秋沙鸭，俄勒冈州，美国")
+
+---
 ### 11月17日：小径在召唤
 #### 谢南多厄国家公园的秋色，弗吉尼亚州，美国（© Michael Ver Sprill/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_1280x720.jpg&rf=LaDigue_1280x720.jpg "塔桥, 伦敦, 英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔桥, 伦敦, 英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_UHD.jpg&rf=LaDigue_UHD.jpg "塔桥, 伦敦, 英格兰")
-
----
-### 11月03日：随波轻舞
-#### 在太平洋中游泳的水母, 格雷罗, 墨西哥（© Christian Vizl/TANDEM Stills + Motion）
-
-![随波轻舞](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_800x480.jpg&rf=LaDigue_800x480.jpg "随波轻舞")
-
-它们没有大脑、骨骼，甚至没有心脏，却已在地球海洋中游弋了五亿年。今天，世界水母日，这些摇曳生姿的奇妙生物终于迎来了属于它们的高光时刻——至少在海底世界如此。这一节日旨在推动保护水母栖息地，抵御污染、富营养化径流和海洋酸化等威胁。
-
-水母至少存在了5亿年，甚至可能有 7 亿年甚至更久，这使它们成为最古老的多器官动物群。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b0%b4%e6%af%8d&form=hpcapt&filters=HpDate:"20251102_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251103_MexicoJelly"&FORM=HPQUIZ "必应主页测验 2025 11月 3")
-[下载480](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_800x480.jpg&rf=LaDigue_800x480.jpg "在太平洋中游泳的水母, 格雷罗, 墨西哥")
-[下载720](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_1280x720.jpg&rf=LaDigue_1280x720.jpg "在太平洋中游泳的水母, 格雷罗, 墨西哥")
-[下载1080](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在太平洋中游泳的水母, 格雷罗, 墨西哥")
-[下载UHD](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_UHD.jpg&rf=LaDigue_UHD.jpg "在太平洋中游泳的水母, 格雷罗, 墨西哥")
 
 ---
