@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月19日：石头与符号，诉说一个民族的故事
+#### 匈牙利国会大厦，布达佩斯，匈牙利（© Alexander Spatari/Getty Images）
+
+![石头与符号，诉说一个民族的故事](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_800x480.jpg&rf=LaDigue_800x480.jpg "石头与符号，诉说一个民族的故事")
+
+走近一点，细节便开始诉说——每一块石头、每一座尖塔、每一尊雕像都仿佛藏着自己的故事。匈牙利议会大厦诞生于19世纪末，设计初衷是展现国家的雄心，将哥特复兴的典雅与独具匈牙利特色的元素巧妙融合。建筑师伊姆雷·施泰因德尔的构想历经二十余年，由逾千名工匠共同完成。中央穹顶高达315英尺（约96米），寓意1896年匈牙利建国千年纪念。整座建筑于1904年竣工，至今仍以恢宏之姿矗立在布达佩斯天际线，成为匈牙利力量的象征。
+
+匈牙利议会大厦融合多种风格，哥特式设计源自维也纳市政厅，穹顶等文艺复兴元素则取材于维也纳的胜利圣母教堂。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8c%88%e7%89%99%e5%88%a9%e5%9b%bd%e4%bc%9a%e5%a4%a7%e5%8e%a6&form=hpcapt&filters=HpDate:"20251118_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251119_BudapestParliament"&FORM=HPQUIZ "必应主页测验 2025 11月 19")
+[下载480](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_800x480.jpg&rf=LaDigue_800x480.jpg "匈牙利国会大厦，布达佩斯，匈牙利")
+[下载720](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_1280x720.jpg&rf=LaDigue_1280x720.jpg "匈牙利国会大厦，布达佩斯，匈牙利")
+[下载1080](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "匈牙利国会大厦，布达佩斯，匈牙利")
+[下载UHD](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_UHD.jpg&rf=LaDigue_UHD.jpg "匈牙利国会大厦，布达佩斯，匈牙利")
+
+---
 ### 11月18日：秋日里的羽翼明星
 #### 雄性棕胁秋沙鸭，俄勒冈州，美国（© Eric Vogt/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_1280x720.jpg&rf=LaDigue_1280x720.jpg "佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_UHD.jpg&rf=LaDigue_UHD.jpg "佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙")
-
----
-### 11月04日：小心空隙，桥面将开启！
-#### 塔桥, 伦敦, 英格兰（© Nick Brundle Photography/Getty Images）
-
-![小心空隙，桥面将开启！](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_800x480.jpg&rf=LaDigue_800x480.jpg "小心空隙，桥面将开启！")
-
-有些桥梁只是连接两岸，而伦敦塔桥则连接着历史、工程与戏剧张力。自1894年起，这座伦敦地标矗立于伦敦塔旁，横跨泰晤士河，既能振奋人心，又能疏导交通。双塔矗立，蓝白相间的漆面，以及能像巨型吊桥般开启的活动桥面，塔桥不仅是交通解决方案，更像是一位舞台表演者。
-
-塔桥上拥有令人惊叹的高层步道，步道连接南北塔，从泰晤士河上方42米处，从东到西，可欣赏伦敦令人叹为观止的全景。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bc%a6%e6%95%a6%e5%a1%94%e6%a1%a5&form=hpcapt&filters=HpDate:"20251103_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251104_TowerBridgeUK"&FORM=HPQUIZ "必应主页测验 2025 11月 4")
-[下载480](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_800x480.jpg&rf=LaDigue_800x480.jpg "塔桥, 伦敦, 英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_1280x720.jpg&rf=LaDigue_1280x720.jpg "塔桥, 伦敦, 英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔桥, 伦敦, 英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_UHD.jpg&rf=LaDigue_UHD.jpg "塔桥, 伦敦, 英格兰")
 
 ---
