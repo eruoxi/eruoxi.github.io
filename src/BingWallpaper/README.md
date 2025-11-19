@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月20日：颂扬保护与美
+#### 查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西（© Marcio Dufranc/Getty Images）
+
+![颂扬保护与美](https://cn.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_800x480.jpg&rf=LaDigue_800x480.jpg "颂扬保护与美")
+
+查帕达迪亚曼蒂纳国家公园拥有宛如梦境般的自然美景，该公园创建于1985年，今年迎来了其40周年的保护纪念日。这座位于巴伊亚州腹地的公园，拥有约15.2万公顷的壮丽景观，是巴西最令人惊叹的生态旅游目的地之一。
+
+该公园被列为世界自然保护联盟（IUCN）保护区类别II（国家公园）。其宗旨在于保护具有重大生态价值和景观美感的自然生态系统，同时促进科学研究、环境教育、户外休闲活动及生态旅游的发展。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%9f%a5%e5%b8%95%e8%be%be-%e8%bf%aa%e4%ba%9a%e6%9b%bc%e8%92%82%e9%82%a3%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20251119_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251120_PondCave"&FORM=HPQUIZ "必应主页测验 2025 11月 20")
+[下载480](https://cn.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_800x480.jpg&rf=LaDigue_800x480.jpg "查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_1280x720.jpg&rf=LaDigue_1280x720.jpg "查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_UHD.jpg&rf=LaDigue_UHD.jpg "查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西")
+
+---
 ### 11月19日：石头与符号，诉说一个民族的故事
 #### 匈牙利国会大厦，布达佩斯，匈牙利（© Alexander Spatari/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_1280x720.jpg&rf=LaDigue_1280x720.jpg "哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国")
 [下载1080](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_UHD.jpg&rf=LaDigue_UHD.jpg "哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国")
-
----
-### 11月05日：秋天来了，你开心吗？
-#### 佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙（© David Santiago Garcia/DEEPOL by plainpicture）
-
-![秋天来了，你开心吗？](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_800x480.jpg&rf=LaDigue_800x480.jpg "秋天来了，你开心吗？")
-
-西班牙的阿拉贡地区，一般让人想到的是阳光和灌木，而不是森林的阴凉与静谧。然而，当你沿着蒙卡约山坡向上攀登，故事会出现意想不到的转折：一片浓密、低语的山毛榉林悄然迎面而来。这座山犹如气候过山车：山脚是地中海灌木，半山腰是橡树和松林，再往上，霎时间你便置身佩尼亚罗亚，这片山毛榉仙境仿佛在宣告："由我来演绎秋天吧！"
-
-对于游客、徒步旅行者和好奇的游客来说，公园的一大亮点是它所拥有的真菌世界。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e8%90%a8%e6%8b%89%e6%88%88%e8%90%a8&form=hpcapt&filters=HpDate:"20251104_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251105_MoncayoAutumn"&FORM=HPQUIZ "必应主页测验 2025 11月 5")
-[下载480](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_800x480.jpg&rf=LaDigue_800x480.jpg "佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_1280x720.jpg&rf=LaDigue_1280x720.jpg "佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_UHD.jpg&rf=LaDigue_UHD.jpg "佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙")
 
 ---
