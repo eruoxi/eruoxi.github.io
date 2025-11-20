@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月21日：带着“你好”的问候
+#### 罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国（© Vicki Jauron, Babylon and Beyond Photography/Getty Images）
+
+![带着“你好”的问候](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_800x480.jpg&rf=LaDigue_800x480.jpg "带着“你好”的问候")
+
+每只港海豹身上都有独一无二的斑点花纹：浅色背景上点缀深色斑，或深色底上布满浅色斑。它们的体色从棕黑到浅褐、灰色不等，腹部通常颜色较浅。这只拍摄于纽约长岛罗伯特·摩西州立公园的港海豹，似乎正在用自己的方式传递友好，一次挥动，一份好心情。这正是每年11月21日 “世界问候日” 所倡导的精神。这个充满善意的节日诞生于1973年，由两位美国兄弟布莱恩和迈克尔·麦考马克发起，作为对全球紧张局势的和平回应。那一年，他们用七种语言向世界各国领导人寄出1360封信，邀请他们参与首次庆祝活动。两人的信念简单却有力：沟通能够守护和平。 如今，已有180多个国家的人们参与其中。
+
+每只港海豹身上都有独一无二的斑点花纹：浅色背景上点缀深色斑，或深色底上布满浅色斑。它们的体色从棕黑到浅褐、灰色不等，腹部通常颜色较浅。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b8%af%e6%b5%b7%e8%b1%b9&form=hpcapt&filters=HpDate:"20251120_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251121_SealWaving"&FORM=HPQUIZ "必应主页测验 2025 11月 21")
+[下载480](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_800x480.jpg&rf=LaDigue_800x480.jpg "罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_UHD.jpg&rf=LaDigue_UHD.jpg "罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国")
+
+---
 ### 11月20日：颂扬保护与美
 #### 查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西（© Marcio Dufranc/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_1280x720.jpg&rf=LaDigue_1280x720.jpg "丘吉尔的北极熊，曼尼托巴省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丘吉尔的北极熊，曼尼托巴省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_UHD.jpg&rf=LaDigue_UHD.jpg "丘吉尔的北极熊，曼尼托巴省，加拿大")
-
----
-### 11月06日：满天心愿
-#### 哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国（© MR. ANUJAK JAIMOOK/Getty Images）
-
-![满天心愿](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_800x480.jpg&rf=LaDigue_800x480.jpg "满天心愿")
-
-如果一盏天灯能承载你的心愿，你会许下什么？今晚，在泰国北部，义蓬节为你带来这样的机会。这个延续数百年的兰纳传统，在农历十二月举行，人们点亮孔明灯以纪念佛陀。相传每一盏灯都能带走厄运，照亮通往美好未来的道路。孩子们扶稳灯架，长者低声祈福，成百上千的灯火缓缓升起，越过树梢，点亮夜空。同一轮满月下，南方的水灯节也在进行，烛光点点的花船在水面缓缓漂流。
-
-天灯这个名字来源于中国，又可以叫孔明灯。它是一种古老的汉族手工艺品，属于高空明火飞行物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b8%85%e8%bf%88%e7%81%af%e4%bc%9a&form=hpcapt&filters=HpDate:"20251105_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251106_LanternsThailand"&FORM=HPQUIZ "必应主页测验 2025 11月 6")
-[下载480](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_800x480.jpg&rf=LaDigue_800x480.jpg "哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国")
-[下载720](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_1280x720.jpg&rf=LaDigue_1280x720.jpg "哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国")
-[下载1080](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国")
-[下载UHD](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_UHD.jpg&rf=LaDigue_UHD.jpg "哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国")
 
 ---
