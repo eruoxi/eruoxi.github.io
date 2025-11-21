@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月22日：守护江河的佛像
+#### 乐山大佛, 四川, 中国（© www.anotherdayattheoffice.org/Getty Images）
+
+![守护江河的佛像](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_800x480.jpg&rf=LaDigue_800x480.jpg "守护江河的佛像")
+
+世上有许多巨像，但没有一座能与乐山大佛相比。它坐落于中国四川省岷江、青衣江与大渡河三江汇流处的峭壁之上，是古代工程学的奇迹。建造始于公元713年，由一位名叫海通的僧人发起，他希望佛像的存在能平息险恶的水流，庇护来往的船只。据传，当工程因资金短缺而停滞时，海通为表诚心，甚至挖去了自己的双眼。整项工程历时约90年，直至他去世多年后才告完工。这尊佛像高达71米，是世界上最大的石刻佛像。其双肩宽约28米，耳长近7米，每只脚掌的长度超过8.5米。佛像内部设有隐蔽的排水系统，能有效防止雨水侵蚀，也因此得以在 1200多年的岁月里屹立不倒。
+
+在乐山大佛的头部后侧、两耳之间，隐藏着一套巧妙而先进的排水系统，用以防止雨水侵蚀。这一巧妙的设计，这也是它历经千年仍得以保存完好的重要原因之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b9%90%e5%b1%b1%e5%a4%a7%e4%bd%9b&form=hpcapt&filters=HpDate:"20251121_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251122_LeshanBuddha"&FORM=HPQUIZ "必应主页测验 2025 11月 22")
+[下载480](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_800x480.jpg&rf=LaDigue_800x480.jpg "乐山大佛, 四川, 中国")
+[下载720](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_1280x720.jpg&rf=LaDigue_1280x720.jpg "乐山大佛, 四川, 中国")
+[下载1080](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乐山大佛, 四川, 中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_UHD.jpg&rf=LaDigue_UHD.jpg "乐山大佛, 四川, 中国")
+
+---
 ### 11月21日：带着“你好”的问候
 #### 罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国（© Vicki Jauron, Babylon and Beyond Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_1280x720.jpg&rf=LaDigue_1280x720.jpg "班登海滩的海蚀柱，俄勒冈州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "班登海滩的海蚀柱，俄勒冈州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_UHD.jpg&rf=LaDigue_UHD.jpg "班登海滩的海蚀柱，俄勒冈州，美国")
-
----
-### 11月07日：魅力十足的巨型动物
-#### 丘吉尔的北极熊，曼尼托巴省，加拿大（© karen crewe/Getty Images）
-
-![魅力十足的巨型动物](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_800x480.jpg&rf=LaDigue_800x480.jpg "魅力十足的巨型动物")
-
-北极熊是一种大型熊类，原产于北极及其附近地区。加拿大曼尼托巴省的丘吉尔是一个北极熊出没的地方。每年秋天，数百只北极熊聚集在这里，等待海湾结冰，以便再次捕猎海豹——它们的主要食物来源。有没有想过它们是如何保暖的？厚厚的脂肪层和浓密的底毛可以锁住热量。它们游过后，不易缠结的毛发会被甩干，天然油脂可以防止皮毛结冻。遗憾的是，气温升高会延缓结冰过程，迫使北极熊禁食更长时间。为了应对延迟，它们会休息、保存能量，有时还会在附近游荡。科学家们追踪它们的行踪，以了解迁徙模式每年的变化。北极熊周在纪念这些哺乳动物的同时，也提醒我们，它们的未来取决于我们如何应对全球变暖。
-
-北极熊的眼睛靠近头顶，这可以使它们在水面游泳时眼睛露出水面。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%9e%81%e7%86%8a&form=hpcapt&filters=HpDate:"20251106_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251107_WillowBear"&FORM=HPQUIZ "必应主页测验 2025 11月 7")
-[下载480](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_800x480.jpg&rf=LaDigue_800x480.jpg "丘吉尔的北极熊，曼尼托巴省，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_1280x720.jpg&rf=LaDigue_1280x720.jpg "丘吉尔的北极熊，曼尼托巴省，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丘吉尔的北极熊，曼尼托巴省，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_UHD.jpg&rf=LaDigue_UHD.jpg "丘吉尔的北极熊，曼尼托巴省，加拿大")
 
 ---
