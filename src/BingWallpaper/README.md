@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月23日：大自然的秘密代码
+#### 马达加斯加菊石化石（© ThomasLENNE/Shutterstock）
+
+![大自然的秘密代码](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的秘密代码")
+
+仔细观察这块菊石化石。它那优雅盘旋的螺壳，曾是史前海洋生物的家，如今却蕴藏着一个数学的秘密：螺旋结构。每一个新的壳室都比前一个按比例增大，保持着恒定的生长比，这种规律常被认为与斐波那契数列密切相关。
+
+意大利数学家莱昂纳多·波纳奇，即人们熟知的斐波那契，于1202年在著作《算盘书》中首次将斐波那契数列的概念引入西欧。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%90%e6%b3%a2%e9%82%a3%e5%a5%91%e6%95%b0%e5%88%97&form=hpcapt&filters=HpDate:"20251122_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251123_MadgascarAmmonite"&FORM=HPQUIZ "必应主页测验 2025 11月 23")
+[下载480](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_800x480.jpg&rf=LaDigue_800x480.jpg "马达加斯加菊石化石")
+[下载720](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_1280x720.jpg&rf=LaDigue_1280x720.jpg "马达加斯加菊石化石")
+[下载1080](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马达加斯加菊石化石")
+[下载UHD](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_UHD.jpg&rf=LaDigue_UHD.jpg "马达加斯加菊石化石")
+
+---
 ### 11月22日：守护江河的佛像
 #### 乐山大佛, 四川, 中国（© www.anotherdayattheoffice.org/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_1280x720.jpg&rf=LaDigue_1280x720.jpg "礁湖星云中的星际云，由哈勃太空望远镜拍摄")
 [下载1080](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "礁湖星云中的星际云，由哈勃太空望远镜拍摄")
 [下载UHD](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_UHD.jpg&rf=LaDigue_UHD.jpg "礁湖星云中的星际云，由哈勃太空望远镜拍摄")
-
----
-### 11月08日：班登的明星岩石
-#### 班登海滩的海蚀柱，俄勒冈州，美国（© Grant Ordelheide/TANDEM Stills + Motion）
-
-![班登的明星岩石](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_800x480.jpg&rf=LaDigue_800x480.jpg "班登的明星岩石")
-
-驶出101号公路，俄勒冈州的班登便迎来了来访者，这里弥漫着咸咸的空气和轻柔的港口钟声。这座小镇始建于19世纪50年代，最初只是个小聚居地，后来发展成为木材和鲑鱼捕捞中心。蔓越莓成为当地的主要作物，至今仍是每年九月蔓越莓节的庆祝活动。老城区的木板路咖啡馆和画廊反映了那段历史，而科基尔河灯塔则矗立在布拉兹海滩，经过修复，依然屹立在那里，提醒着人们当年它曾指引船只的航向。
-
-海蚀柱在中国的沿海地区常可见到。大连的黑石礁、北戴河的鹰角石、山东青岛的石老人,以及东南的部分沿海地区亦有分布．
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bf%84%e5%8b%92%e5%86%88%e5%b7%9e%e7%8f%ad%e7%99%bb&form=hpcapt&filters=HpDate:"20251107_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251108_BandonBeach"&FORM=HPQUIZ "必应主页测验 2025 11月 8")
-[下载480](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_800x480.jpg&rf=LaDigue_800x480.jpg "班登海滩的海蚀柱，俄勒冈州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_1280x720.jpg&rf=LaDigue_1280x720.jpg "班登海滩的海蚀柱，俄勒冈州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "班登海滩的海蚀柱，俄勒冈州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_UHD.jpg&rf=LaDigue_UHD.jpg "班登海滩的海蚀柱，俄勒冈州，美国")
 
 ---
