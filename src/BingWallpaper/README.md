@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月24日：岩石中的秘密
+#### 瓜廖尔堡, ‌中央邦, 印度（© ImagesofIndia/Shutterstock）
+
+![岩石中的秘密](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_800x480.jpg&rf=LaDigue_800x480.jpg "岩石中的秘密")
+
+位于印度中央邦的瓜廖尔，不仅是一座城市，更是印度历史篇章中浓墨重彩的一页。高耸入云的瓜廖尔堡建于公元6世纪是一座历经无数王朝兴衰、充满传奇色彩的山地堡垒。凭借其坚固与宏伟，这座堡垒被誉为“印度的直布罗陀”，并曾获莫卧儿皇帝巴布尔盛赞，称其为“印度所有堡垒中的明珠”。从托马尔王朝到莫卧儿王朝，瓜廖尔堡见证了无数权力更迭、战争纷争与宫廷秘事，也流传着关于隐藏宝藏的神秘传说。
+
+堡垒内部还坐落着多处历史建筑，其中包括由马多·拉奥·辛迪亚于1897年创办的辛迪亚学校，最初仅面向印度诸侯和贵族之子开放的精英学府。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%93%9c%e5%bb%96%e5%b0%94%e5%a0%a1%e5%8d%b0%e5%ba%a6%e4%b8%ad%e5%a4%ae%e9%82%a6&form=hpcapt&filters=HpDate:"20251123_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251124_GwailorFort"&FORM=HPQUIZ "必应主页测验 2025 11月 24")
+[下载480](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_800x480.jpg&rf=LaDigue_800x480.jpg "瓜廖尔堡, ‌中央邦, 印度")
+[下载720](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓜廖尔堡, ‌中央邦, 印度")
+[下载1080](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓜廖尔堡, ‌中央邦, 印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_UHD.jpg&rf=LaDigue_UHD.jpg "瓜廖尔堡, ‌中央邦, 印度")
+
+---
 ### 11月23日：大自然的秘密代码
 #### 马达加斯加菊石化石（© ThomasLENNE/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_1280x720.jpg&rf=LaDigue_1280x720.jpg "土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_UHD.jpg&rf=LaDigue_UHD.jpg "土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国")
-
----
-### 11月09日：从前有一颗星星
-#### 礁湖星云中的星际云，由哈勃太空望远镜拍摄（© ESA/NASA）
-
-![从前有一颗星星](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_800x480.jpg&rf=LaDigue_800x480.jpg "从前有一颗星星")
-
-宇宙生机勃勃，生生不息。图中的礁湖星云中，一个名为NGC 6530的星团正在孕育新生恒星，这光芒提醒着我们，宇宙的起源早已交织其中。它距离我们约4350光年，已有数百万年历史，目前仍处于恒星形成的早期阶段。
-
-礁湖星云中存在着一些被称为“博克球状体（Bok globules）（Burnham）的暗星云，成为最值得注意的特征之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a4%81%e6%b9%96%e6%98%9f%e4%ba%91&form=hpcapt&filters=HpDate:"20251108_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251109_LagoonNebula"&FORM=HPQUIZ "必应主页测验 2025 11月 9")
-[下载480](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_800x480.jpg&rf=LaDigue_800x480.jpg "礁湖星云中的星际云，由哈勃太空望远镜拍摄")
-[下载720](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_1280x720.jpg&rf=LaDigue_1280x720.jpg "礁湖星云中的星际云，由哈勃太空望远镜拍摄")
-[下载1080](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "礁湖星云中的星际云，由哈勃太空望远镜拍摄")
-[下载UHD](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_UHD.jpg&rf=LaDigue_UHD.jpg "礁湖星云中的星际云，由哈勃太空望远镜拍摄")
 
 ---
