@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月25日：爱情、幸运与硬币
+#### 罗马的特雷维喷泉, 意大利（© Nico De Pasquale Photography/Getty Images）
+
+![爱情、幸运与硬币](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_800x480.jpg&rf=LaDigue_800x480.jpg "爱情、幸运与硬币")
+
+你是否听过比掌声更响亮的硬币碰撞声？这正是意大利罗马的特莱维喷泉的独特旋律。一个历史、希望与自拍杆交织的地方。喷泉建于1762年，标志着古罗马最早的引水渠之一维尔戈水道的终点，这条水道至今仍在供水。名称“特莱维”源自意大利语 Tre Vie，意为“三条道路”，象征它所处的三路交汇之地。喷泉由建筑师尼古拉·萨尔维设计，后由朱塞佩·潘尼尼完成。这座高达86英尺的巴洛克式杰作，是罗马最大的喷泉，也是世界上最著名的喷泉之一。其雕塑群描绘了海神奥克阿诺斯的威严形象，周围环绕着特里同与骏马，展现出壮丽的神话气势。
+
+并非所有人都知道，在喷泉右侧稍远处有一个小型长方形水池，里面有两处细小的出水口，这便是恋人之泉。据说，年轻的情侣若在此饮水，便能永结同心，彼此忠贞不渝。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%89%b9%e9%9b%b7%e7%bb%b4%e5%96%b7%e6%b3%89&form=hpcapt&filters=HpDate:"20251124_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251125_TreviFountain"&FORM=HPQUIZ "必应主页测验 2025 11月 25")
+[下载480](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_800x480.jpg&rf=LaDigue_800x480.jpg "罗马的特雷维喷泉, 意大利")
+[下载720](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗马的特雷维喷泉, 意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗马的特雷维喷泉, 意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_UHD.jpg&rf=LaDigue_UHD.jpg "罗马的特雷维喷泉, 意大利")
+
+---
 ### 11月24日：岩石中的秘密
 #### 瓜廖尔堡, ‌中央邦, 印度（© ImagesofIndia/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_1280x720.jpg&rf=LaDigue_1280x720.jpg "条顿堡森林的伊克斯坦岩石层，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "条顿堡森林的伊克斯坦岩石层，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_UHD.jpg&rf=LaDigue_UHD.jpg "条顿堡森林的伊克斯坦岩石层，德国")
-
----
-### 11月10日：草原之下的生命
-#### 土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国（© Greg Vaughn/Getty Images）
-
-![草原之下的生命](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_800x480.jpg&rf=LaDigue_800x480.jpg "草原之下的生命")
-
-47年前的11月10日，南达科他州一片荒凉的草原被正式列入美国自然遗产名录。由风与水共同雕琢而成的劣地国家公园于 1978 年从国家纪念地升级为国家公园，获得更强的保护级别。公园内的悬崖与尖塔矗立在化石层之上，那些化石揭示了远古时代的犀牛、骆驼以及曾覆盖此地的亚热带海洋。然而，这座公园不仅是通往过去的窗口，它也守护着美国现存最大、最完整的混生草原生态系统之一。
-
-白河劣地作为重要的古生物学资源，其历史可追溯至当地原住民对这片土地的传统认知。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a3%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20251109_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251110_PrairieDogTown"&FORM=HPQUIZ "必应主页测验 2025 11月 10")
-[下载480](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_800x480.jpg&rf=LaDigue_800x480.jpg "土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_1280x720.jpg&rf=LaDigue_1280x720.jpg "土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_UHD.jpg&rf=LaDigue_UHD.jpg "土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国")
 
 ---
