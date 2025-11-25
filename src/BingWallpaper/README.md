@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月26日：让树叶诉说历史
+#### 特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙（© cinoby/Getty Images）
+
+![让树叶诉说历史](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_800x480.jpg&rf=LaDigue_800x480.jpg "让树叶诉说历史")
+
+古老而充满生机，扭曲却坚韧不拔，橄榄树可以存活超过一千年。即便树干伤痕累累、内部中空，它们依然年复一年抽出新叶，成为记录风霜、旱灾与烈火的生命见证。2019年，联合国教科文组织将11月26日定为世界橄榄树日，以纪念这种自约公元前6000年起就被人类栽培的树种。橄榄自古以来不仅承载着实用价值，也蕴含着深刻的象征意义：橄榄油被用于涂抹仪式、医药与日常食用；橄榄叶编织的花环曾加冕奥运冠军；而橄榄枝，更成为延续至今的和平象征。
+
+每棵成年的橄榄树根据其健康状况和特性，每年可产橄榄15至45公斤。为了维持产量，通常建议每隔三到四年进行一次修剪，保留更健康、年轻的枝条，让生命力得以延续。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a9%84%e6%a6%84%e6%a0%91&form=hpcapt&filters=HpDate:"20251125_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251126_OliveGrove"&FORM=HPQUIZ "必应主页测验 2025 11月 26")
+[下载480](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_800x480.jpg&rf=LaDigue_800x480.jpg "特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_1280x720.jpg&rf=LaDigue_1280x720.jpg "特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_UHD.jpg&rf=LaDigue_UHD.jpg "特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙")
+
+---
 ### 11月25日：爱情、幸运与硬币
 #### 罗马的特雷维喷泉, 意大利（© Nico De Pasquale Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_1280x720.jpg&rf=LaDigue_1280x720.jpg "斗兽场鸟瞰图，罗马，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斗兽场鸟瞰图，罗马，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_UHD.jpg&rf=LaDigue_UHD.jpg "斗兽场鸟瞰图，罗马，意大利")
-
----
-### 11月11日：传奇之地
-#### 条顿堡森林的伊克斯坦岩石层，德国（© Michael Sroka/Getty Images）
-
-![传奇之地](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_800x480.jpg&rf=LaDigue_800x480.jpg "传奇之地")
-
-在德国北莱茵-威斯特法伦州的霍恩-巴特迈因贝格附近，条顿堡森林的腹地矗立着壮丽的埃克斯特恩岩石群。这些砂岩石柱形成于约7,000万年前，是德国最重要的自然与文化地标之一。高达35米的岩柱以其独特的形态与深厚的历史底蕴吸引着无数游客。早在中世纪，这里就被用作宗教祭祀之地，这一点从12世纪刻在岩石上的下十字架像浮雕中可见一斑，这是阿尔卑斯山以北最古老的此类浮雕。
-
-直到17世纪，这座山脊的官方名称仍是奥斯宁。1616 年，人们为了纪念公元9年的条顿堡森林战役，将其改名为“条顿堡森林”。不过，学者普遍认为这场战役很可能实际发生在卡尔克里泽。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9d%a1%e9%a1%bf%e5%a0%a1%e6%9e%97%e5%b1%b1&form=hpcapt&filters=HpDate:"20251110_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251111_ExternsteineSunset"&FORM=HPQUIZ "必应主页测验 2025 11月 11")
-[下载480](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_800x480.jpg&rf=LaDigue_800x480.jpg "条顿堡森林的伊克斯坦岩石层，德国")
-[下载720](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_1280x720.jpg&rf=LaDigue_1280x720.jpg "条顿堡森林的伊克斯坦岩石层，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "条顿堡森林的伊克斯坦岩石层，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_UHD.jpg&rf=LaDigue_UHD.jpg "条顿堡森林的伊克斯坦岩石层，德国")
 
 ---
