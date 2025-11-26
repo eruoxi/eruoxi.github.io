@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月27日：潮起潮落的坚守
+#### 伊斯特本码头, 东萨塞克斯郡, 英格兰（© Tolga_TEZCAN/Getty Images）
+
+![潮起潮落的坚守](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_800x480.jpg&rf=LaDigue_800x480.jpg "潮起潮落的坚守")
+
+作为英国海滨的地标之一，伊斯特本码头不仅掀起浪花，更在浪潮中屹立了150余年。它于 1870年正式开放，这座维多利亚时代的奇迹经历了风暴、火灾，甚至战争的洗礼。码头优雅地伸向英吉利海峡，最初作为蒸汽船的停靠点，后来随着时间的推移，逐渐演变为一处可以漫步于海面之上，在游戏机前投入几枚硬币，收获几段美好回忆的休闲胜地。
+
+第二次世界大战期间，伊斯特本码头的尽头安装了机枪平台，这座原本轻松欢快的海滨游乐地一度化身为抵御敌军登陆的防御工事。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bc%8a%e6%96%af%e7%89%b9%e6%9c%ac%e7%a0%81%e5%a4%b4&form=hpcapt&filters=HpDate:"20251126_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251127_PierOfEastbourne2025"&FORM=HPQUIZ "必应主页测验 2025 11月 27")
+[下载480](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_800x480.jpg&rf=LaDigue_800x480.jpg "伊斯特本码头, 东萨塞克斯郡, 英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_1280x720.jpg&rf=LaDigue_1280x720.jpg "伊斯特本码头, 东萨塞克斯郡, 英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊斯特本码头, 东萨塞克斯郡, 英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_UHD.jpg&rf=LaDigue_UHD.jpg "伊斯特本码头, 东萨塞克斯郡, 英格兰")
+
+---
 ### 11月26日：让树叶诉说历史
 #### 特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙（© cinoby/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_1280x720.jpg&rf=LaDigue_1280x720.jpg "夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚")
 [下载1080](https://cn.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_UHD.jpg&rf=LaDigue_UHD.jpg "夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚")
-
----
-### 11月12日：条条大路通罗马
-#### 斗兽场鸟瞰图，罗马，意大利（© Nico De Pasquale Photography/Getty Images）
-
-![条条大路通罗马](https://cn.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_800x480.jpg&rf=LaDigue_800x480.jpg "条条大路通罗马")
-
-觉得现代体育赛事已经足够精彩了吗？在古罗马时代，观众们坐在斗兽场中目睹的表演要激烈得多。这座宏伟的圆形露天竞技场由罗马皇帝韦斯帕先于公元72年下令建造，其子提图斯于公元80年完工。与早期依山而建、借助地形支撑的剧场不同，罗马斗兽场完全独立矗立，是一座自成体系的建筑奇迹。斗兽场由石块与混凝土建成，拱门与穹顶结构支撑着可容纳多达5万名观众的竞技场。角斗士的搏斗、异国野兽的展示，甚至模拟海战，都令观众热血沸腾地下的升降机与暗门让场景转换瞬息万变，充满戏剧张力。
-
-从1928年到2000年的夏季奥运会奖牌上，都印有由朱塞佩·卡西奥利设计的图案：罗马斗兽场的形象。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%bd%97%e9%a9%ac%e6%96%97%e5%85%bd%e5%9c%ba&form=hpcapt&filters=HpDate:"20251111_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251112_ColosseumRome"&FORM=HPQUIZ "必应主页测验 2025 11月 12")
-[下载480](https://cn.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_800x480.jpg&rf=LaDigue_800x480.jpg "斗兽场鸟瞰图，罗马，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_1280x720.jpg&rf=LaDigue_1280x720.jpg "斗兽场鸟瞰图，罗马，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斗兽场鸟瞰图，罗马，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_UHD.jpg&rf=LaDigue_UHD.jpg "斗兽场鸟瞰图，罗马，意大利")
 
 ---
