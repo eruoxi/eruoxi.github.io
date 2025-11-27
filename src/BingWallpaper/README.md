@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月28日：白色回响
+#### 瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利（© ClickAlps/Alamy）
+
+![白色回响](https://cn.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_800x480.jpg&rf=LaDigue_800x480.jpg "白色回响")
+
+伦巴第大区的亚当洛公园深处，瓦尔·布兰德特静卧于雪的怀抱，冬日的静谧在此化作诗意的低语。我们身处科尔泰诺·高尔基小镇，这座以诺贝尔医学奖得主高尔基命名的小镇，承载着他的记忆与荣耀。这里不仅有科学的印记，更有自然的纯美，是历史与风景交织的圣地。
+
+卡米洛·高尔基是首位荣获诺贝尔医学奖的意大利人，该奖项于1906年授予他，以表彰其在神经系统研究领域的发现。他因发现对细胞功能至关重要的高尔基体而闻名于世。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e5%b8%83%e9%9b%b7%e8%a5%bf%e4%ba%9a&form=hpcapt&filters=HpDate:"20251127_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251128_InvernoItalia"&FORM=HPQUIZ "必应主页测验 2025 11月 28")
+[下载480](https://cn.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_800x480.jpg&rf=LaDigue_800x480.jpg "瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利")
+[下载720](https://cn.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_UHD.jpg&rf=LaDigue_UHD.jpg "瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利")
+
+---
 ### 11月27日：潮起潮落的坚守
 #### 伊斯特本码头, 东萨塞克斯郡, 英格兰（© Tolga_TEZCAN/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_1280x720.jpg&rf=LaDigue_1280x720.jpg "海牛妈妈和幼崽，水晶河，佛罗里达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海牛妈妈和幼崽，水晶河，佛罗里达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_UHD.jpg&rf=LaDigue_UHD.jpg "海牛妈妈和幼崽，水晶河，佛罗里达州，美国")
-
----
-### 11月13日：星光下的颤动之树
-#### 夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚（© Wim van den Heever/naturepl.com）
-
-![星光下的颤动之树](https://cn.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_800x480.jpg&rf=LaDigue_800x480.jpg "星光下的颤动之树")
-
-在地球上所有的植物中，箭袋树或许最像来自未来的生命。它们分布于非洲南部，尤其是纳米比亚的干旱地区。虽然名字里有“树”，但它其实是一种芦荟属植物，经过漫长岁月的适应，能在炙热的沙漠中顽强生存。厚实的树干储存水分，分枝则能反射热量，帮助它抵御极端环境。箭袋树可高达7米，有的寿命超过百年，是沙漠生态系统中不可或缺的一环。在几乎没有其他树木的荒原上，它为鸟类提供了珍贵的栖息与筑巢之所。
-
-在当地的原住民桑人语言中，箭袋树被称为 choje。它的英文名被意为“箭袋树”源于桑人的一种传统：他们会将这种植物中空的枝干掏空，用来制作轻便的箭袋。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ae%ad%e8%a2%8b%e6%a0%91&form=hpcapt&filters=HpDate:"20251112_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251113_AloeDichotoma"&FORM=HPQUIZ "必应主页测验 2025 11月 13")
-[下载480](https://cn.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_800x480.jpg&rf=LaDigue_800x480.jpg "夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚")
-[下载720](https://cn.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_1280x720.jpg&rf=LaDigue_1280x720.jpg "夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚")
-[下载1080](https://cn.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_UHD.jpg&rf=LaDigue_UHD.jpg "夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚")
 
 ---
