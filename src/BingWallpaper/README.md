@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月01日：冰雪凝息之处
+#### 冰山上天然形成的拱门, 南极洲（© Gabrielle/Adobe Stock）
+
+![冰雪凝息之处](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_800x480.jpg&rf=LaDigue_800x480.jpg "冰雪凝息之处")
+
+有些照片定格了自然的宏伟瞬间，而真正出色的作品更能揭示深层的故事：在一帧之中，力量与脆弱的微妙平衡，提醒我们地球的脆弱与伟大。今日这张展现南极冰山天然拱门的照片正是如此，它开启了关于宏伟、脆弱、环境与未来的对话。
+
+《南极条约》将南极确立为和平与科学研究的保护区，最初由12个国家签署并生效。如今，已有50多个国家认可这一条约。它奠定了数十年来科学探索与成果的基石。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%97%e6%9e%81%e6%97%a5&form=hpcapt&filters=HpDate:"20251130_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251201_AntarcticArch"&FORM=HPQUIZ "必应主页测验 2025 12月 1")
+[下载480](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_800x480.jpg&rf=LaDigue_800x480.jpg "冰山上天然形成的拱门, 南极洲")
+[下载720](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_1280x720.jpg&rf=LaDigue_1280x720.jpg "冰山上天然形成的拱门, 南极洲")
+[下载1080](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冰山上天然形成的拱门, 南极洲")
+[下载UHD](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_UHD.jpg&rf=LaDigue_UHD.jpg "冰山上天然形成的拱门, 南极洲")
+
+---
 ### 11月30日：一路闪耀
 #### 莱比锡圣诞集市, 德国（© Krzysztof Baranowski/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_1280x720.jpg&rf=LaDigue_1280x720.jpg "谢南多厄国家公园的秋色，弗吉尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "谢南多厄国家公园的秋色，弗吉尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_UHD.jpg&rf=LaDigue_UHD.jpg "谢南多厄国家公园的秋色，弗吉尼亚州，美国")
-
----
-### 11月16日：承载过往的篇章
-#### 里昂的一条穿廊，法国（© TPopova/Getty Images）
-
-![承载过往的篇章](https://cn.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_800x480.jpg&rf=LaDigue_800x480.jpg "承载过往的篇章")
-
-在法国里昂，你不只是简单地走过街巷，而是像在城市的脉络中轻盈滑行。这里的穿廊，是一条条隐秘的通道，蜿蜒穿梭于庭院与建筑之间，将简单的散步变成一场寻宝之旅。它们曾是最早的捷径，帮助居民避雨、搬运货物，或悄然穿过中世纪街区。如今，这些通道更多承载的是探索的乐趣。它们的历史可追溯至公元四世纪，在文艺复兴时期更显重要——当时丝绸商人利用这些通道，将珍贵织物从作坊安全运送到河边，免受风雨侵扰。二战期间，抵抗运动战士也曾借助这些通道作为秘密逃生路线。走进里昂，你会发现，每一条穿廊都藏着故事，每一次转角都可能遇见历史的回声。
-
-“Traboules”一词源自拉丁语transambulare，经通俗拉丁语演变为trabulare，意为“穿廊”。它指的是一种隐秘的拱顶通道，主要分布在法国里昂。这些通道最初是丝绸制造商和其他商贩用来运输产品的捷径。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%87%8c%e6%98%82%e7%9a%84%e7%a9%bf%e5%bb%8a&form=hpcapt&filters=HpDate:"20251115_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251116_LyonTraboules"&FORM=HPQUIZ "必应主页测验 2025 11月 16")
-[下载480](https://cn.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_800x480.jpg&rf=LaDigue_800x480.jpg "里昂的一条穿廊，法国")
-[下载720](https://cn.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_1280x720.jpg&rf=LaDigue_1280x720.jpg "里昂的一条穿廊，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "里昂的一条穿廊，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_UHD.jpg&rf=LaDigue_UHD.jpg "里昂的一条穿廊，法国")
 
 ---
