@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月02日：一景胜千言
+#### 柳树湖与布莱克本山, 兰格尔－圣伊利亚斯国家公园暨保护区, 阿拉斯加州, 美国（© Patrick J. Endres/Getty Images）
+
+![一景胜千言](https://cn.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_800x480.jpg&rf=LaDigue_800x480.jpg "一景胜千言")
+
+1980年12月2日，美国通过《阿拉斯加国家利益土地保护法》，为自然保护史写下浓重一笔。这项具有划时代意义的法律使阿拉斯加逾1.04亿英亩的荒野获得永久保护，图中所示的兰格尔-圣埃利亚斯国家公园暨保护区因此成为美国最大的国家公园。该法不仅守护壮丽的生态，也延续原住民的传统，真正实现自然与人文的和谐共生。
+
+该公园和保护区面积超过瑞士国土，从阿拉斯加湾一路延展至内陆，海拔自海平面攀升至近6000米，造就了丰富的生命栖息地。这里，巍峨的群峰披着永恒的冰雪，冰川与冰原在阳光下闪耀，仿佛时间凝固的世界。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e4%bc%8a%e5%88%a9%e4%ba%9a%e6%96%af%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20251201_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251202_WillowLake"&FORM=HPQUIZ "必应主页测验 2025 12月 2")
+[下载480](https://cn.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_800x480.jpg&rf=LaDigue_800x480.jpg "柳树湖与布莱克本山, 兰格尔－圣伊利亚斯国家公园暨保护区, 阿拉斯加州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_1280x720.jpg&rf=LaDigue_1280x720.jpg "柳树湖与布莱克本山, 兰格尔－圣伊利亚斯国家公园暨保护区, 阿拉斯加州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "柳树湖与布莱克本山, 兰格尔－圣伊利亚斯国家公园暨保护区, 阿拉斯加州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_UHD.jpg&rf=LaDigue_UHD.jpg "柳树湖与布莱克本山, 兰格尔－圣伊利亚斯国家公园暨保护区, 阿拉斯加州, 美国")
+
+---
 ### 12月01日：冰雪凝息之处
 #### 冰山上天然形成的拱门, 南极洲（© Gabrielle/Adobe Stock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_1280x720.jpg&rf=LaDigue_1280x720.jpg "雄性棕胁秋沙鸭，俄勒冈州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雄性棕胁秋沙鸭，俄勒冈州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_UHD.jpg&rf=LaDigue_UHD.jpg "雄性棕胁秋沙鸭，俄勒冈州，美国")
-
----
-### 11月17日：小径在召唤
-#### 谢南多厄国家公园的秋色，弗吉尼亚州，美国（© Michael Ver Sprill/Getty Images）
-
-![小径在召唤](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_800x480.jpg&rf=LaDigue_800x480.jpg "小径在召唤")
-
-谢南多厄国家公园，弗吉尼亚州的山间瑰宝。蓝岭山脉在此披上最华美的盛装：金黄的山核桃树、绯红的枫树，以及镀上青铜色的橡树。十一月的空气愈发清冽，秋日的余晖低声细语，悄悄停留在山坡上。沿着天际线公路缓缓前行，105英里的蜿蜒公路带你俯瞰云海翻涌，云影在山谷间轻轻流动，像思绪在天空漂移。这里还有超过500 英里的步道，沿着小径，你会走进瀑布奔流的深谷，登上触碰天际的高峰。石人峰、鹰嘴峰、暗谷瀑布——每处皆是石与叶谱写的诗篇，静待游人的脚步与风声共鸣。
-
-该公园最著名的景点当属天际线公路，这条全长105英里（169公里）的道路沿着山脊贯穿整个公园，风景壮丽，四季皆宜。此外，阿巴拉契亚步道中长达101英里（163公里）的路段也位于此公园内。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%b0%a2%e5%8d%97%e5%a4%9a%e5%8e%84%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20251116_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251117_ShenandoahTrail"&FORM=HPQUIZ "必应主页测验 2025 11月 17")
-[下载480](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_800x480.jpg&rf=LaDigue_800x480.jpg "谢南多厄国家公园的秋色，弗吉尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_1280x720.jpg&rf=LaDigue_1280x720.jpg "谢南多厄国家公园的秋色，弗吉尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "谢南多厄国家公园的秋色，弗吉尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_UHD.jpg&rf=LaDigue_UHD.jpg "谢南多厄国家公园的秋色，弗吉尼亚州，美国")
 
 ---
