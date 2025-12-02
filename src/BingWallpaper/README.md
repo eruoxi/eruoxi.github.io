@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月03日：曙光中的鹤影
+#### 日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国（© Jack Dykinga/Minden Pictures）
+
+![曙光中的鹤影](https://cn.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_800x480.jpg&rf=LaDigue_800x480.jpg "曙光中的鹤影")
+
+每年十二月，晨光初露，响亮的鹤鸣声在阿帕奇森林国家野生动物保护区的沼泽间回荡。这片占地5.7万英亩的新墨西哥中部圣地，即将上演一场震撼心灵的自然盛景——沙丘鹤结束季节性迁徙，重返故地。不久，成千上万只雪雁和其他候鸟也将加入，振翅高飞，天空被生命的律动与鸣声填满。
+
+沙丘鹤以植物为主食，但会根据环境条件摄取多种食物。它们常低着头，用喙在地面翻找种子和其他食物，活动范围包括浅水湿地的植被区以及各种旱地栖息地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b2%99%e4%b8%98%e9%b9%a4&form=hpcapt&filters=HpDate:"20251202_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251203_BosqueCranes"&FORM=HPQUIZ "必应主页测验 2025 12月 3")
+[下载480](https://cn.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_800x480.jpg&rf=LaDigue_800x480.jpg "日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国")
+
+---
 ### 12月02日：一景胜千言
 #### 柳树湖与布莱克本山, 兰格尔－圣伊利亚斯国家公园暨保护区, 阿拉斯加州, 美国（© Patrick J. Endres/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_1280x720.jpg&rf=LaDigue_1280x720.jpg "匈牙利国会大厦，布达佩斯，匈牙利")
 [下载1080](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "匈牙利国会大厦，布达佩斯，匈牙利")
 [下载UHD](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_UHD.jpg&rf=LaDigue_UHD.jpg "匈牙利国会大厦，布达佩斯，匈牙利")
-
----
-### 11月18日：秋日里的羽翼明星
-#### 雄性棕胁秋沙鸭，俄勒冈州，美国（© Eric Vogt/TANDEM Stills + Motion）
-
-![秋日里的羽翼明星](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_800x480.jpg&rf=LaDigue_800x480.jpg "秋日里的羽翼明星")
-
-每到秋季，俄勒冈州静谧的水道就成了棕胁秋沙鸭的季节性驿站——它们是北美特有的小型潜水鸭，潜水灵活，能迅速扎入水下捕捉鱼类和其他猎物。雄性棕胁秋沙鸭最显眼，头顶扇形白冠，深色头部，体侧呈栗棕色；雌鸭则呈灰褐色，冠羽较小。俄勒冈的湖泊和湿地为这些鸟类提供了安全的觅食地，它们在迁徙或越冬途中会在此停留。
-
-棕胁秋沙鸭常在树洞中筑巢，有时还会搬进啄木鸟遗留下来的旧巢穴。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a3%95%e8%83%81%e7%a7%8b%e6%b2%99%e9%b8%ad&form=hpcapt&filters=HpDate:"20251117_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251118_AutumnMerganser"&FORM=HPQUIZ "必应主页测验 2025 11月 18")
-[下载480](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_800x480.jpg&rf=LaDigue_800x480.jpg "雄性棕胁秋沙鸭，俄勒冈州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_1280x720.jpg&rf=LaDigue_1280x720.jpg "雄性棕胁秋沙鸭，俄勒冈州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雄性棕胁秋沙鸭，俄勒冈州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_UHD.jpg&rf=LaDigue_UHD.jpg "雄性棕胁秋沙鸭，俄勒冈州，美国")
 
 ---
