@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月04日：为生存而疾驰
+#### 马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚（© Andy Rouse/naturepl.com）
+
+![为生存而疾驰](https://cn.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_800x480.jpg&rf=LaDigue_800x480.jpg "为生存而疾驰")
+
+在肯尼亚西南部的马赛马拉国家保护区，一只猎豹立于高高的白蚁丘上，凝视辽阔草原。它的身形流畅，疾驰时可达每小时70英里，堪称陆地速度之王。修长的四肢与柔韧的脊柱让它爆发出惊人的力量，尾巴则在追猎中稳住身形。今天是“国际猎豹日”，这个节日的到来再合适不过。如今，野外猎豹数量已不足7100只，它们是非洲最脆弱的大型猫科动物之一。
+
+目前，猎豹的分布范围仅剩下历史栖息地的约10%。虽然它们仍在多个地区出现，但数量极为稀少，且栖息地呈高度碎片化。非洲南部和东部是猎豹种群的重要据点。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8c%8e%e8%b1%b9&form=hpcapt&filters=HpDate:"20251203_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251204_CheetahMound"&FORM=HPQUIZ "必应主页测验 2025 12月 4")
+[下载480](https://cn.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_800x480.jpg&rf=LaDigue_800x480.jpg "马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_1280x720.jpg&rf=LaDigue_1280x720.jpg "马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚")
+
+---
 ### 12月03日：曙光中的鹤影
 #### 日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国（© Jack Dykinga/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_1280x720.jpg&rf=LaDigue_1280x720.jpg "查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_UHD.jpg&rf=LaDigue_UHD.jpg "查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西")
-
----
-### 11月19日：石头与符号，诉说一个民族的故事
-#### 匈牙利国会大厦，布达佩斯，匈牙利（© Alexander Spatari/Getty Images）
-
-![石头与符号，诉说一个民族的故事](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_800x480.jpg&rf=LaDigue_800x480.jpg "石头与符号，诉说一个民族的故事")
-
-走近一点，细节便开始诉说——每一块石头、每一座尖塔、每一尊雕像都仿佛藏着自己的故事。匈牙利议会大厦诞生于19世纪末，设计初衷是展现国家的雄心，将哥特复兴的典雅与独具匈牙利特色的元素巧妙融合。建筑师伊姆雷·施泰因德尔的构想历经二十余年，由逾千名工匠共同完成。中央穹顶高达315英尺（约96米），寓意1896年匈牙利建国千年纪念。整座建筑于1904年竣工，至今仍以恢宏之姿矗立在布达佩斯天际线，成为匈牙利力量的象征。
-
-匈牙利议会大厦融合多种风格，哥特式设计源自维也纳市政厅，穹顶等文艺复兴元素则取材于维也纳的胜利圣母教堂。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8c%88%e7%89%99%e5%88%a9%e5%9b%bd%e4%bc%9a%e5%a4%a7%e5%8e%a6&form=hpcapt&filters=HpDate:"20251118_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251119_BudapestParliament"&FORM=HPQUIZ "必应主页测验 2025 11月 19")
-[下载480](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_800x480.jpg&rf=LaDigue_800x480.jpg "匈牙利国会大厦，布达佩斯，匈牙利")
-[下载720](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_1280x720.jpg&rf=LaDigue_1280x720.jpg "匈牙利国会大厦，布达佩斯，匈牙利")
-[下载1080](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "匈牙利国会大厦，布达佩斯，匈牙利")
-[下载UHD](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_UHD.jpg&rf=LaDigue_UHD.jpg "匈牙利国会大厦，布达佩斯，匈牙利")
 
 ---
