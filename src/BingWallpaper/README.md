@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月05日：绘制星图的城市
+#### 科潘的玛雅遗址，洪都拉斯（© diegograndi/Getty Images）
+
+![绘制星图的城市](https://cn.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_800x480.jpg&rf=LaDigue_800x480.jpg "绘制星图的城市")
+
+在洪都拉斯西部一片静谧山谷中，坐落着科潘古城的遗址，这座城市曾是古代玛雅文明的璀璨明珠。在这座城市里，天空既是罗盘，又是日历，指引着天象，塑造了庙宇的方向、仪式的时间与人们的生活节奏。公元426年左右，来自玛雅腹地的勇士基尼奇·亚什·库克·莫建立了科潘，并开创了王室王朝。此后，科潘成为玛雅艺术、天文学与政治权力的中心。
+
+自2010年以来，考古学家在科潘遗址持续开展发掘与研究。这些发现共同揭示出，科潘是古典玛雅文明中政治上灵活、象征意义深远的中心，其历史叙事也在每一次新发现中不断延伸。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e6%bd%98%e7%8e%9b%e9%9b%85%e9%81%97%e5%9d%80&form=hpcapt&filters=HpDate:"20251204_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251205_CopanRuins"&FORM=HPQUIZ "必应主页测验 2025 12月 5")
+[下载480](https://cn.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_800x480.jpg&rf=LaDigue_800x480.jpg "科潘的玛雅遗址，洪都拉斯")
+[下载720](https://cn.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_1280x720.jpg&rf=LaDigue_1280x720.jpg "科潘的玛雅遗址，洪都拉斯")
+[下载1080](https://cn.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科潘的玛雅遗址，洪都拉斯")
+[下载UHD](https://cn.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_UHD.jpg&rf=LaDigue_UHD.jpg "科潘的玛雅遗址，洪都拉斯")
+
+---
 ### 12月04日：为生存而疾驰
 #### 马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚（© Andy Rouse/naturepl.com）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_UHD.jpg&rf=LaDigue_UHD.jpg "罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国")
-
----
-### 11月20日：颂扬保护与美
-#### 查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西（© Marcio Dufranc/Getty Images）
-
-![颂扬保护与美](https://cn.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_800x480.jpg&rf=LaDigue_800x480.jpg "颂扬保护与美")
-
-查帕达迪亚曼蒂纳国家公园拥有宛如梦境般的自然美景，该公园创建于1985年，今年迎来了其40周年的保护纪念日。这座位于巴伊亚州腹地的公园，拥有约15.2万公顷的壮丽景观，是巴西最令人惊叹的生态旅游目的地之一。
-
-该公园被列为世界自然保护联盟（IUCN）保护区类别II（国家公园）。其宗旨在于保护具有重大生态价值和景观美感的自然生态系统，同时促进科学研究、环境教育、户外休闲活动及生态旅游的发展。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9f%a5%e5%b8%95%e8%be%be-%e8%bf%aa%e4%ba%9a%e6%9b%bc%e8%92%82%e9%82%a3%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20251119_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251120_PondCave"&FORM=HPQUIZ "必应主页测验 2025 11月 20")
-[下载480](https://cn.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_800x480.jpg&rf=LaDigue_800x480.jpg "查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西")
-[下载720](https://cn.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_1280x720.jpg&rf=LaDigue_1280x720.jpg "查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西")
-[下载1080](https://cn.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西")
-[下载UHD](https://cn.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_UHD.jpg&rf=LaDigue_UHD.jpg "查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西")
 
 ---
