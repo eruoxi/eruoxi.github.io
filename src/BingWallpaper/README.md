@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月06日：佛罗里达州的生命湿地
+#### 大沼泽地国家公园的蜘蛛网，佛罗里达州，美国（© Troy Harrison/Getty Images）
+
+![佛罗里达州的生命湿地](https://cn.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_800x480.jpg&rf=LaDigue_800x480.jpg "佛罗里达州的生命湿地")
+
+在美国的最南端，延展着一片与众不同的自然奇景：大沼泽地。它既不是典型的沼泽，也不是河流，而是一片缓慢流动、浅而宽广的水域，从平坦的草原向南漂移，最终注入佛罗里达湾，它将森林、湿地、红树林与沿海草原连成一个庞大而复杂的亚热带生态网络。栖息着包括短吻鳄、海牛及濒危的佛罗里达美洲狮在内的数百种生物。1947年12月6日，美国设立了大沼泽地国家公园，保护面积超过150万英亩，并首次将保护重点从单一地标转向整体生态系统的保育。
+
+在佛罗里达州南部的大沼泽地国家公园内，有几处非常适合观测夜空的区域。最佳观测点位于公园偏远的南部和西部，如弗拉明戈与万岛群等地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e6%b2%bc%e6%b3%bd%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20251205_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251206_EvergladesSunrise"&FORM=HPQUIZ "必应主页测验 2025 12月 6")
+[下载480](https://cn.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_800x480.jpg&rf=LaDigue_800x480.jpg "大沼泽地国家公园的蜘蛛网，佛罗里达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_1280x720.jpg&rf=LaDigue_1280x720.jpg "大沼泽地国家公园的蜘蛛网，佛罗里达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大沼泽地国家公园的蜘蛛网，佛罗里达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_UHD.jpg&rf=LaDigue_UHD.jpg "大沼泽地国家公园的蜘蛛网，佛罗里达州，美国")
+
+---
 ### 12月05日：绘制星图的城市
 #### 科潘的玛雅遗址，洪都拉斯（© diegograndi/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_1280x720.jpg&rf=LaDigue_1280x720.jpg "乐山大佛, 四川, 中国")
 [下载1080](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乐山大佛, 四川, 中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_UHD.jpg&rf=LaDigue_UHD.jpg "乐山大佛, 四川, 中国")
-
----
-### 11月21日：带着“你好”的问候
-#### 罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国（© Vicki Jauron, Babylon and Beyond Photography/Getty Images）
-
-![带着“你好”的问候](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_800x480.jpg&rf=LaDigue_800x480.jpg "带着“你好”的问候")
-
-每只港海豹身上都有独一无二的斑点花纹：浅色背景上点缀深色斑，或深色底上布满浅色斑。它们的体色从棕黑到浅褐、灰色不等，腹部通常颜色较浅。这只拍摄于纽约长岛罗伯特·摩西州立公园的港海豹，似乎正在用自己的方式传递友好，一次挥动，一份好心情。这正是每年11月21日 “世界问候日” 所倡导的精神。这个充满善意的节日诞生于1973年，由两位美国兄弟布莱恩和迈克尔·麦考马克发起，作为对全球紧张局势的和平回应。那一年，他们用七种语言向世界各国领导人寄出1360封信，邀请他们参与首次庆祝活动。两人的信念简单却有力：沟通能够守护和平。 如今，已有180多个国家的人们参与其中。
-
-每只港海豹身上都有独一无二的斑点花纹：浅色背景上点缀深色斑，或深色底上布满浅色斑。它们的体色从棕黑到浅褐、灰色不等，腹部通常颜色较浅。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b8%af%e6%b5%b7%e8%b1%b9&form=hpcapt&filters=HpDate:"20251120_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251121_SealWaving"&FORM=HPQUIZ "必应主页测验 2025 11月 21")
-[下载480](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_800x480.jpg&rf=LaDigue_800x480.jpg "罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_UHD.jpg&rf=LaDigue_UHD.jpg "罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国")
 
 ---
