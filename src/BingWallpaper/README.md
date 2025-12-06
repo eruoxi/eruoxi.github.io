@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月07日：雪落下的声音
+#### 雪中的故宫，中国北京（© Ian.CuiYi/Getty Images）
+
+![雪落下的声音](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_800x480.jpg&rf=LaDigue_800x480.jpg "雪落下的声音")
+
+今天是中国传统二十四节气中的大雪节气。大雪的到来预示着气温将逐渐降低，冬季降水量也将增加。大雪期间，中国大部分地区已进入严冬，北方部分地区的气温甚至会降至零度以下。北方大地呈现出“万里冰封”的壮丽景象，而南方则展现出“雪花飘舞，万物银装素裹”的迷人景色。
+
+紫禁城是世界上规模最大、保存最完好的古代木构建筑群之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e9%9b%aa%e8%8a%82%e6%b0%94&form=hpcapt&filters=HpDate:"20251206_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251207_TheGreatSnowY25"&FORM=HPQUIZ "必应主页测验 2025 12月 7")
+[下载480](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_800x480.jpg&rf=LaDigue_800x480.jpg "雪中的故宫，中国北京")
+[下载720](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪中的故宫，中国北京")
+[下载1080](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪中的故宫，中国北京")
+[下载UHD](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_UHD.jpg&rf=LaDigue_UHD.jpg "雪中的故宫，中国北京")
+
+---
 ### 12月06日：佛罗里达州的生命湿地
 #### 大沼泽地国家公园的蜘蛛网，佛罗里达州，美国（© Troy Harrison/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_1280x720.jpg&rf=LaDigue_1280x720.jpg "马达加斯加菊石化石")
 [下载1080](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马达加斯加菊石化石")
 [下载UHD](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_UHD.jpg&rf=LaDigue_UHD.jpg "马达加斯加菊石化石")
-
----
-### 11月22日：守护江河的佛像
-#### 乐山大佛, 四川, 中国（© www.anotherdayattheoffice.org/Getty Images）
-
-![守护江河的佛像](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_800x480.jpg&rf=LaDigue_800x480.jpg "守护江河的佛像")
-
-世上有许多巨像，但没有一座能与乐山大佛相比。它坐落于中国四川省岷江、青衣江与大渡河三江汇流处的峭壁之上，是古代工程学的奇迹。建造始于公元713年，由一位名叫海通的僧人发起，他希望佛像的存在能平息险恶的水流，庇护来往的船只。据传，当工程因资金短缺而停滞时，海通为表诚心，甚至挖去了自己的双眼。整项工程历时约90年，直至他去世多年后才告完工。这尊佛像高达71米，是世界上最大的石刻佛像。其双肩宽约28米，耳长近7米，每只脚掌的长度超过8.5米。佛像内部设有隐蔽的排水系统，能有效防止雨水侵蚀，也因此得以在 1200多年的岁月里屹立不倒。
-
-在乐山大佛的头部后侧、两耳之间，隐藏着一套巧妙而先进的排水系统，用以防止雨水侵蚀。这一巧妙的设计，这也是它历经千年仍得以保存完好的重要原因之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b9%90%e5%b1%b1%e5%a4%a7%e4%bd%9b&form=hpcapt&filters=HpDate:"20251121_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251122_LeshanBuddha"&FORM=HPQUIZ "必应主页测验 2025 11月 22")
-[下载480](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_800x480.jpg&rf=LaDigue_800x480.jpg "乐山大佛, 四川, 中国")
-[下载720](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_1280x720.jpg&rf=LaDigue_1280x720.jpg "乐山大佛, 四川, 中国")
-[下载1080](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乐山大佛, 四川, 中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_UHD.jpg&rf=LaDigue_UHD.jpg "乐山大佛, 四川, 中国")
 
 ---
