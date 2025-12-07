@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月08日：一切安详，一切明亮
+#### 多马索的建筑上的圣诞彩灯，科莫湖，意大利（© Roberto Moiola/Getty Images）
+
+![一切安详，一切明亮](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_800x480.jpg&rf=LaDigue_800x480.jpg "一切安详，一切明亮")
+
+当意大利科莫湖上闪烁的灯光比星辰更耀眼时，你就会知道，圣诞节已在多马索登场。这个昔日的渔村，如今每到冬季便化身为闪亮的节日舞台：粉彩色的房屋、古老的教堂与湖畔别墅被光带缠绕，交织成一幅梦幻的圣诞画卷。
+
+科莫湖，又名拉里奥湖，是意大利伦巴第大区的一座冰川湖。它是意大利第三大湖，仅次于加尔达湖和马焦雷湖。湖深超过400米，是欧洲最深的湖泊之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e8%8e%ab%e6%b9%96&form=hpcapt&filters=HpDate:"20251207_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251208_ComoChristmas"&FORM=HPQUIZ "必应主页测验 2025 12月 8")
+[下载480](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_800x480.jpg&rf=LaDigue_800x480.jpg "多马索的建筑上的圣诞彩灯，科莫湖，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_1280x720.jpg&rf=LaDigue_1280x720.jpg "多马索的建筑上的圣诞彩灯，科莫湖，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多马索的建筑上的圣诞彩灯，科莫湖，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_UHD.jpg&rf=LaDigue_UHD.jpg "多马索的建筑上的圣诞彩灯，科莫湖，意大利")
+
+---
 ### 12月07日：雪落下的声音
 #### 雪中的故宫，中国北京（© Ian.CuiYi/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓜廖尔堡, ‌中央邦, 印度")
 [下载1080](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓜廖尔堡, ‌中央邦, 印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_UHD.jpg&rf=LaDigue_UHD.jpg "瓜廖尔堡, ‌中央邦, 印度")
-
----
-### 11月23日：大自然的秘密代码
-#### 马达加斯加菊石化石（© ThomasLENNE/Shutterstock）
-
-![大自然的秘密代码](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的秘密代码")
-
-仔细观察这块菊石化石。它那优雅盘旋的螺壳，曾是史前海洋生物的家，如今却蕴藏着一个数学的秘密：螺旋结构。每一个新的壳室都比前一个按比例增大，保持着恒定的生长比，这种规律常被认为与斐波那契数列密切相关。
-
-意大利数学家莱昂纳多·波纳奇，即人们熟知的斐波那契，于1202年在著作《算盘书》中首次将斐波那契数列的概念引入西欧。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%90%e6%b3%a2%e9%82%a3%e5%a5%91%e6%95%b0%e5%88%97&form=hpcapt&filters=HpDate:"20251122_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251123_MadgascarAmmonite"&FORM=HPQUIZ "必应主页测验 2025 11月 23")
-[下载480](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_800x480.jpg&rf=LaDigue_800x480.jpg "马达加斯加菊石化石")
-[下载720](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_1280x720.jpg&rf=LaDigue_1280x720.jpg "马达加斯加菊石化石")
-[下载1080](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马达加斯加菊石化石")
-[下载UHD](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_UHD.jpg&rf=LaDigue_UHD.jpg "马达加斯加菊石化石")
 
 ---
