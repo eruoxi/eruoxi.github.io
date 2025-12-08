@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月09日：说“茄子”……或者“青草”
+#### 原驼，北角，瓦尔德斯半岛, 阿根廷（© Sylvain Cordier/naturepl.com）
+
+![说“茄子”……或者“青草”](https://cn.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_800x480.jpg&rf=LaDigue_800x480.jpg "说“茄子”……或者“青草”")
+
+如果说羊驼是安第斯山脉中悠闲的明星，那么它们的表亲原驼，就是巴塔哥尼亚的自由精灵。而还有什么日子比“全国羊驼日”更适合让它们成为焦点呢？原驼与羊驼、美洲驼和小羊驼同属骆驼科，但与那些被驯化的亲戚不同，它们依然保留着野性的天性。它们主要分布在阿根廷、智利、秘鲁和玻利维亚的高原地带，天生适应高海拔的生活。厚实的皮毛让它们能抵御寒冷的山风，而柔软的脚掌则能在岩石地形上稳稳立足，连山羊都会为之叹服。
+
+原驼是当今南美洲最大的本土陆生哺乳动物之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8e%9f%e9%a9%bc&form=hpcapt&filters=HpDate:"20251208_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251209_LlamaDay"&FORM=HPQUIZ "必应主页测验 2025 12月 9")
+[下载480](https://cn.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_800x480.jpg&rf=LaDigue_800x480.jpg "原驼，北角，瓦尔德斯半岛, 阿根廷")
+[下载720](https://cn.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_1280x720.jpg&rf=LaDigue_1280x720.jpg "原驼，北角，瓦尔德斯半岛, 阿根廷")
+[下载1080](https://cn.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "原驼，北角，瓦尔德斯半岛, 阿根廷")
+[下载UHD](https://cn.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_UHD.jpg&rf=LaDigue_UHD.jpg "原驼，北角，瓦尔德斯半岛, 阿根廷")
+
+---
 ### 12月08日：一切安详，一切明亮
 #### 多马索的建筑上的圣诞彩灯，科莫湖，意大利（© Roberto Moiola/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗马的特雷维喷泉, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗马的特雷维喷泉, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_UHD.jpg&rf=LaDigue_UHD.jpg "罗马的特雷维喷泉, 意大利")
-
----
-### 11月24日：岩石中的秘密
-#### 瓜廖尔堡, ‌中央邦, 印度（© ImagesofIndia/Shutterstock）
-
-![岩石中的秘密](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_800x480.jpg&rf=LaDigue_800x480.jpg "岩石中的秘密")
-
-位于印度中央邦的瓜廖尔，不仅是一座城市，更是印度历史篇章中浓墨重彩的一页。高耸入云的瓜廖尔堡建于公元6世纪是一座历经无数王朝兴衰、充满传奇色彩的山地堡垒。凭借其坚固与宏伟，这座堡垒被誉为“印度的直布罗陀”，并曾获莫卧儿皇帝巴布尔盛赞，称其为“印度所有堡垒中的明珠”。从托马尔王朝到莫卧儿王朝，瓜廖尔堡见证了无数权力更迭、战争纷争与宫廷秘事，也流传着关于隐藏宝藏的神秘传说。
-
-堡垒内部还坐落着多处历史建筑，其中包括由马多·拉奥·辛迪亚于1897年创办的辛迪亚学校，最初仅面向印度诸侯和贵族之子开放的精英学府。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%93%9c%e5%bb%96%e5%b0%94%e5%a0%a1%e5%8d%b0%e5%ba%a6%e4%b8%ad%e5%a4%ae%e9%82%a6&form=hpcapt&filters=HpDate:"20251123_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251124_GwailorFort"&FORM=HPQUIZ "必应主页测验 2025 11月 24")
-[下载480](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_800x480.jpg&rf=LaDigue_800x480.jpg "瓜廖尔堡, ‌中央邦, 印度")
-[下载720](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓜廖尔堡, ‌中央邦, 印度")
-[下载1080](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓜廖尔堡, ‌中央邦, 印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_UHD.jpg&rf=LaDigue_UHD.jpg "瓜廖尔堡, ‌中央邦, 印度")
 
 ---
