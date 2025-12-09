@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月10日：文化交汇之地
+#### 科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙（© Elena Zolotova/Getty Images）
+
+![文化交汇之地](https://cn.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_800x480.jpg&rf=LaDigue_800x480.jpg "文化交汇之地")
+
+科尔多瓦清真寺大教堂是一部凝固在石头中的编年史，诉说着西班牙层叠交融的历史。它最初由日耳曼的西哥特人建造为一座教堂，公元784年，科尔多瓦倭马亚酋长国的创建者阿卜杜·拉赫曼一世将其改建为清真寺。其宏伟的柱式大厅由一排排石柱支撑，最著名的便是那交错的红白相间拱券。如今，殿内仍保留着 850 多根石柱，其中许多取材自古罗马和早期西哥特建筑。
+
+科尔多瓦是一座文化底蕴深厚、历史遗迹遍布的城市。不同的民族曾在此繁衍生息，他们留下的众多文明印记，使这座城市在西方历史中占据了独特的地位。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e5%b0%94%e5%a4%9a%e7%93%a6%e6%b8%85%e7%9c%9f%e5%af%ba%e5%a4%a7%e6%95%99%e5%a0%82&form=hpcapt&filters=HpDate:"20251209_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251210_CordobaCathedral"&FORM=HPQUIZ "必应主页测验 2025 12月 10")
+[下载480](https://cn.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_800x480.jpg&rf=LaDigue_800x480.jpg "科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_1280x720.jpg&rf=LaDigue_1280x720.jpg "科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_UHD.jpg&rf=LaDigue_UHD.jpg "科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙")
+
+---
 ### 12月09日：说“茄子”……或者“青草”
 #### 原驼，北角，瓦尔德斯半岛, 阿根廷（© Sylvain Cordier/naturepl.com）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_1280x720.jpg&rf=LaDigue_1280x720.jpg "特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_UHD.jpg&rf=LaDigue_UHD.jpg "特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙")
-
----
-### 11月25日：爱情、幸运与硬币
-#### 罗马的特雷维喷泉, 意大利（© Nico De Pasquale Photography/Getty Images）
-
-![爱情、幸运与硬币](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_800x480.jpg&rf=LaDigue_800x480.jpg "爱情、幸运与硬币")
-
-你是否听过比掌声更响亮的硬币碰撞声？这正是意大利罗马的特莱维喷泉的独特旋律。一个历史、希望与自拍杆交织的地方。喷泉建于1762年，标志着古罗马最早的引水渠之一维尔戈水道的终点，这条水道至今仍在供水。名称“特莱维”源自意大利语 Tre Vie，意为“三条道路”，象征它所处的三路交汇之地。喷泉由建筑师尼古拉·萨尔维设计，后由朱塞佩·潘尼尼完成。这座高达86英尺的巴洛克式杰作，是罗马最大的喷泉，也是世界上最著名的喷泉之一。其雕塑群描绘了海神奥克阿诺斯的威严形象，周围环绕着特里同与骏马，展现出壮丽的神话气势。
-
-并非所有人都知道，在喷泉右侧稍远处有一个小型长方形水池，里面有两处细小的出水口，这便是恋人之泉。据说，年轻的情侣若在此饮水，便能永结同心，彼此忠贞不渝。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%89%b9%e9%9b%b7%e7%bb%b4%e5%96%b7%e6%b3%89&form=hpcapt&filters=HpDate:"20251124_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251125_TreviFountain"&FORM=HPQUIZ "必应主页测验 2025 11月 25")
-[下载480](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_800x480.jpg&rf=LaDigue_800x480.jpg "罗马的特雷维喷泉, 意大利")
-[下载720](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_1280x720.jpg&rf=LaDigue_1280x720.jpg "罗马的特雷维喷泉, 意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗马的特雷维喷泉, 意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_UHD.jpg&rf=LaDigue_UHD.jpg "罗马的特雷维喷泉, 意大利")
 
 ---
