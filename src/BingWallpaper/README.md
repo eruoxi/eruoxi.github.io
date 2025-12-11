@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月12日：点亮节日的红色植物
+#### 有斑点的一品红（© DigiPub/Getty Images）
+
+![点亮节日的红色植物](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_800x480.jpg&rf=LaDigue_800x480.jpg "点亮节日的红色植物")
+
+有些植物只是静静地待在窗台上，而一品红却注定要闪耀。它鲜艳夺目，红得像鲁道夫的鼻尖，是十二月的明星，甚至拥有自己的节日——12月12日的一品红日。在成为圣诞装饰之前，这种灌木经历了漫长旅程。很久以前，它生长在墨西哥的野地，阿兹特克人用它制染料、做药材。直到19世纪20年代，美国外交官乔尔·罗伯茨·波因塞特被它的魅力吸引，将它带回家。之后的故事，便是历史与植物学的篇章。
+
+在墨西哥，一品红被称为"圣诞夜之花"，自17世纪起，它便成为圣诞庆典的传统装饰。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%80%e5%93%81%e7%ba%a2&form=hpcapt&filters=HpDate:"20251211_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251212_SpeckledPoinsettia"&FORM=HPQUIZ "必应主页测验 2025 12月 12")
+[下载480](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_800x480.jpg&rf=LaDigue_800x480.jpg "有斑点的一品红")
+[下载720](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_1280x720.jpg&rf=LaDigue_1280x720.jpg "有斑点的一品红")
+[下载1080](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "有斑点的一品红")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_UHD.jpg&rf=LaDigue_UHD.jpg "有斑点的一品红")
+
+---
 ### 12月11日：天地相接之处
 #### 从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔（© shoults/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_UHD.jpg&rf=LaDigue_UHD.jpg "瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利")
-
----
-### 11月27日：潮起潮落的坚守
-#### 伊斯特本码头, 东萨塞克斯郡, 英格兰（© Tolga_TEZCAN/Getty Images）
-
-![潮起潮落的坚守](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_800x480.jpg&rf=LaDigue_800x480.jpg "潮起潮落的坚守")
-
-作为英国海滨的地标之一，伊斯特本码头不仅掀起浪花，更在浪潮中屹立了150余年。它于 1870年正式开放，这座维多利亚时代的奇迹经历了风暴、火灾，甚至战争的洗礼。码头优雅地伸向英吉利海峡，最初作为蒸汽船的停靠点，后来随着时间的推移，逐渐演变为一处可以漫步于海面之上，在游戏机前投入几枚硬币，收获几段美好回忆的休闲胜地。
-
-第二次世界大战期间，伊斯特本码头的尽头安装了机枪平台，这座原本轻松欢快的海滨游乐地一度化身为抵御敌军登陆的防御工事。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bc%8a%e6%96%af%e7%89%b9%e6%9c%ac%e7%a0%81%e5%a4%b4&form=hpcapt&filters=HpDate:"20251126_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251127_PierOfEastbourne2025"&FORM=HPQUIZ "必应主页测验 2025 11月 27")
-[下载480](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_800x480.jpg&rf=LaDigue_800x480.jpg "伊斯特本码头, 东萨塞克斯郡, 英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_1280x720.jpg&rf=LaDigue_1280x720.jpg "伊斯特本码头, 东萨塞克斯郡, 英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊斯特本码头, 东萨塞克斯郡, 英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_UHD.jpg&rf=LaDigue_UHD.jpg "伊斯特本码头, 东萨塞克斯郡, 英格兰")
 
 ---
