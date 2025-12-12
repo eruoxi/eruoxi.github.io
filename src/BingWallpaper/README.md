@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月13日：冰封的倒影
+#### 默塞德河, 优胜美地国家公园, 加利福尼亚, 美国（© Ron and Patty Thomas/Getty Images）
+
+![冰封的倒影](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_800x480.jpg&rf=LaDigue_800x480.jpg "冰封的倒影")
+
+每一幅杰作都需要点睛之笔。而优胜美地的点睛之笔便是默塞德河。作为美国国家级“野生与风景河流”之一，这条水系起源于内华达山脉高处，汇集雪水，蜿蜒145英里，穿过优胜美地山谷，流入加州中央谷地。
+
+默塞德河的主支流是夏季休闲的好去处，这里可以游泳、徒步、钓鱼、漂流、淘金、露营，享受各种户外乐趣。由于海拔较低，冬季也非常适合来一场轻松的日间徒步。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%bb%98%e5%a1%9e%e5%be%b7%e6%b2%b3&form=hpcapt&filters=HpDate:"20251212_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251213_YosemiteWinter"&FORM=HPQUIZ "必应主页测验 2025 12月 13")
+[下载480](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_800x480.jpg&rf=LaDigue_800x480.jpg "默塞德河, 优胜美地国家公园, 加利福尼亚, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_1280x720.jpg&rf=LaDigue_1280x720.jpg "默塞德河, 优胜美地国家公园, 加利福尼亚, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "默塞德河, 优胜美地国家公园, 加利福尼亚, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_UHD.jpg&rf=LaDigue_UHD.jpg "默塞德河, 优胜美地国家公园, 加利福尼亚, 美国")
+
+---
 ### 12月12日：点亮节日的红色植物
 #### 有斑点的一品红（© DigiPub/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_1280x720.jpg&rf=LaDigue_1280x720.jpg "荷兰梵高国家森林公园的马鹿雄鹿, 荷兰")
 [下载1080](https://cn.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "荷兰梵高国家森林公园的马鹿雄鹿, 荷兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_UHD.jpg&rf=LaDigue_UHD.jpg "荷兰梵高国家森林公园的马鹿雄鹿, 荷兰")
-
----
-### 11月28日：白色回响
-#### 瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利（© ClickAlps/Alamy）
-
-![白色回响](https://cn.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_800x480.jpg&rf=LaDigue_800x480.jpg "白色回响")
-
-伦巴第大区的亚当洛公园深处，瓦尔·布兰德特静卧于雪的怀抱，冬日的静谧在此化作诗意的低语。我们身处科尔泰诺·高尔基小镇，这座以诺贝尔医学奖得主高尔基命名的小镇，承载着他的记忆与荣耀。这里不仅有科学的印记，更有自然的纯美，是历史与风景交织的圣地。
-
-卡米洛·高尔基是首位荣获诺贝尔医学奖的意大利人，该奖项于1906年授予他，以表彰其在神经系统研究领域的发现。他因发现对细胞功能至关重要的高尔基体而闻名于世。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e5%b8%83%e9%9b%b7%e8%a5%bf%e4%ba%9a&form=hpcapt&filters=HpDate:"20251127_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251128_InvernoItalia"&FORM=HPQUIZ "必应主页测验 2025 11月 28")
-[下载480](https://cn.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_800x480.jpg&rf=LaDigue_800x480.jpg "瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利")
-[下载720](https://cn.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_UHD.jpg&rf=LaDigue_UHD.jpg "瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利")
 
 ---
