@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月14日：假日鸟类大比拼
+#### 簇山雀栖息在松枝上, 马萨诸塞州, 美国（© Tim Laman/NPL/Minden Pictures）
+
+![假日鸟类大比拼](https://cn.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_800x480.jpg&rf=LaDigue_800x480.jpg "假日鸟类大比拼")
+
+每年十二月，成千上万的人放下包装纸，拿起望远镜，走向户外，参与一项别样的节日传统：奥杜邦圣诞观鸟活动。人们不再追逐折扣商品，而是用铅笔代替铅弹，踏上寻鸟之旅。这个传统始于1900年，由鸟类学家弗兰克·M·查普曼发起，为圣诞节期间盛行的"狩猎赛"提供了和平替代方案。当时人们比拼射杀动物的数量，而查普曼提出更美好的构想：不如数一数它们。一个多世纪后，这个简单的转变已发展成全球历史最悠久的公民科学项目。
+
+簇山雀性格活跃，叫声不断，还会对其他鸟类的警觉声作出反应。它们常结成小群，称作“鸟群”或“盗鸟群”，觅食时常与山雀及其他雀形鸟类同行。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%b0%87%e5%b1%b1%e9%9b%80&form=hpcapt&filters=HpDate:"20251213_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251214_TuftedTitmouse"&FORM=HPQUIZ "必应主页测验 2025 12月 14")
+[下载480](https://cn.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_800x480.jpg&rf=LaDigue_800x480.jpg "簇山雀栖息在松枝上, 马萨诸塞州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_1280x720.jpg&rf=LaDigue_1280x720.jpg "簇山雀栖息在松枝上, 马萨诸塞州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "簇山雀栖息在松枝上, 马萨诸塞州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_UHD.jpg&rf=LaDigue_UHD.jpg "簇山雀栖息在松枝上, 马萨诸塞州, 美国")
+
+---
 ### 12月13日：冰封的倒影
 #### 默塞德河, 优胜美地国家公园, 加利福尼亚, 美国（© Ron and Patty Thomas/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_1280x720.jpg&rf=LaDigue_1280x720.jpg "莱比锡圣诞集市, 德国")
 [下载1080](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莱比锡圣诞集市, 德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_UHD.jpg&rf=LaDigue_UHD.jpg "莱比锡圣诞集市, 德国")
-
----
-### 11月29日：哎呀，好冷啊！
-#### 荷兰梵高国家森林公园的马鹿雄鹿, 荷兰（© CreativeNature_nl/Getty Images）
-
-![哎呀，好冷啊！](https://cn.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_800x480.jpg&rf=LaDigue_800x480.jpg "哎呀，好冷啊！")
-
-想象一下，在一片21平方英里的开阔土地，野生动物自由穿梭，一头雄鹿昂首炫耀着它的鹿角王冠。1909年，安东·克勒勒与海伦娜·克勒勒·穆勒在荷兰海尔德兰开启了一个梦想：建造一座私人庄园，后来成为了梵高国家森林公园。他们的理念是让艺术融入自然，于是将雕塑与景观相结合——亨利·摩尔的《三种直立动机》伫立在潘佩尔瑟沙地，比利时建筑师亨利·范德维尔德设计的总统斯泰恩石凳静静守候，众多艺术作品点缀其间。
-
-荷兰梵高国家森林公园建立的初衷，是为了保护分布在荒原和林地上的500种植物。同时，这里也是红鹿、狍子以及众多野生动物的栖息地，公园致力于守护它们的家园。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a2%b5%e9%ab%98%e5%9b%bd%e5%ae%b6%e6%a3%ae%e6%9e%97%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20251128_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251129_DeerVeluwe"&FORM=HPQUIZ "必应主页测验 2025 11月 29")
-[下载480](https://cn.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_800x480.jpg&rf=LaDigue_800x480.jpg "荷兰梵高国家森林公园的马鹿雄鹿, 荷兰")
-[下载720](https://cn.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_1280x720.jpg&rf=LaDigue_1280x720.jpg "荷兰梵高国家森林公园的马鹿雄鹿, 荷兰")
-[下载1080](https://cn.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "荷兰梵高国家森林公园的马鹿雄鹿, 荷兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_UHD.jpg&rf=LaDigue_UHD.jpg "荷兰梵高国家森林公园的马鹿雄鹿, 荷兰")
 
 ---
