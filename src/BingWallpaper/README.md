@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月15日：静谧水波，闪耀灯影
+#### 斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰（© Amith Nag Photography/Getty Images）
+
+![静谧水波，闪耀灯影](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_800x480.jpg&rf=LaDigue_800x480.jpg "静谧水波，闪耀灯影")
+
+你有没有想过，运河如何影响城市的演变？几千年来，人们修筑运河，用于运输、控水和连接各地。从古代美索不达米亚和埃及，到中世纪的欧洲，运河让威尼斯、布鲁日等城市成为繁荣的贸易枢纽。到了17世纪，荷兰更进一步，规划出影响城市格局的水道，阿姆斯特丹便是其中的典范。
+
+阿姆斯特丹市政府计划在2030年前实现完全零排放，并致力于在2050年前成为循环利用、气候中和且具备气候适应能力的城市。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e5%a7%86%e6%96%af%e7%89%b9%e4%b8%b9%e8%bf%90%e6%b2%b3&form=hpcapt&filters=HpDate:"20251214_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251215_AmsterdamLights"&FORM=HPQUIZ "必应主页测验 2025 12月 15")
+[下载480](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_800x480.jpg&rf=LaDigue_800x480.jpg "斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰")
+[下载720](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰")
+[下载1080](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_UHD.jpg&rf=LaDigue_UHD.jpg "斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰")
+
+---
 ### 12月14日：假日鸟类大比拼
 #### 簇山雀栖息在松枝上, 马萨诸塞州, 美国（© Tim Laman/NPL/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_1280x720.jpg&rf=LaDigue_1280x720.jpg "冰山上天然形成的拱门, 南极洲")
 [下载1080](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冰山上天然形成的拱门, 南极洲")
 [下载UHD](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_UHD.jpg&rf=LaDigue_UHD.jpg "冰山上天然形成的拱门, 南极洲")
-
----
-### 11月30日：一路闪耀
-#### 莱比锡圣诞集市, 德国（© Krzysztof Baranowski/Getty Images）
-
-![一路闪耀](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_800x480.jpg&rf=LaDigue_800x480.jpg "一路闪耀")
-
-你知道567年前的圣诞集市，人们都买些什么吗？不是昂贵的饰品，也不是精致的纪念品，而是蜡烛、香料、本地特产、针织品和玩具。莱比锡的圣诞集市始于1458年，很快成为商人和当地居民最喜爱的去处。如今，这个集市遍布历史老城，约有300个摊位，汇聚文化与美食，是德国规模最大的圣诞集市之一。想象一下，街道上商贩的叫卖声此起彼伏，孩子们追随着蜂蜜姜饼的甜香奔跑。这里是人们聚在一起庆祝冬季、边喝热红酒边聊新闻的地方。圣诞集市从来不仅仅是购物，它更是一种逃离日常的温暖仪式。
-
-除了奥古斯特广场上的童话世界，38米高的摩天轮还能让你俯瞰整座莱比锡，视野独一无二。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8e%b1%e6%af%94%e9%94%a1&form=hpcapt&filters=HpDate:"20251129_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 11月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251130_LeipzigMarket"&FORM=HPQUIZ "必应主页测验 2025 11月 30")
-[下载480](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_800x480.jpg&rf=LaDigue_800x480.jpg "莱比锡圣诞集市, 德国")
-[下载720](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_1280x720.jpg&rf=LaDigue_1280x720.jpg "莱比锡圣诞集市, 德国")
-[下载1080](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莱比锡圣诞集市, 德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_UHD.jpg&rf=LaDigue_UHD.jpg "莱比锡圣诞集市, 德国")
 
 ---
