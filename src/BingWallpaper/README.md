@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月16日：小帽子，大能量
+#### 圣诞市场上的手工小矮人（© Veronika Seppanen/Shutterstock）
+
+![小帽子，大能量](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_800x480.jpg&rf=LaDigue_800x480.jpg "小帽子，大能量")
+
+长胡子、红帽子，每年圣诞都要分走圣诞老人的一点光彩。来认识一下圣诞地精吧——瑞典叫‘tomte’，挪威称‘nisse’，各地习俗各不相同。源于北欧传说，这些小精灵守护家园与农场，陪伴人们度过漫长黑夜。但有个前提：待他们友善些，否则他们会恶作剧。圣诞夜一碗热腾腾的粥，是地精最爱的礼物。据说他们能带来好运与笑声，甚至可能和你花园里的小矮人打成一片，因为他们长得很像。
+
+圣诞袜的起源可追溯至圣尼古拉斯将礼物放入鞋中的传说，后来逐渐演变为炉边传统。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e8%af%9e%e5%9c%b0%e7%b2%be&form=hpcapt&filters=HpDate:"20251215_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251216_ChristmasGnomes"&FORM=HPQUIZ "必应主页测验 2025 12月 16")
+[下载480](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞市场上的手工小矮人")
+[下载720](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣诞市场上的手工小矮人")
+[下载1080](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣诞市场上的手工小矮人")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_UHD.jpg&rf=LaDigue_UHD.jpg "圣诞市场上的手工小矮人")
+
+---
 ### 12月15日：静谧水波，闪耀灯影
 #### 斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰（© Amith Nag Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_1280x720.jpg&rf=LaDigue_1280x720.jpg "柳树湖与布莱克本山, 兰格尔－圣伊利亚斯国家公园暨保护区, 阿拉斯加州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "柳树湖与布莱克本山, 兰格尔－圣伊利亚斯国家公园暨保护区, 阿拉斯加州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_UHD.jpg&rf=LaDigue_UHD.jpg "柳树湖与布莱克本山, 兰格尔－圣伊利亚斯国家公园暨保护区, 阿拉斯加州, 美国")
-
----
-### 12月01日：冰雪凝息之处
-#### 冰山上天然形成的拱门, 南极洲（© Gabrielle/Adobe Stock）
-
-![冰雪凝息之处](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_800x480.jpg&rf=LaDigue_800x480.jpg "冰雪凝息之处")
-
-有些照片定格了自然的宏伟瞬间，而真正出色的作品更能揭示深层的故事：在一帧之中，力量与脆弱的微妙平衡，提醒我们地球的脆弱与伟大。今日这张展现南极冰山天然拱门的照片正是如此，它开启了关于宏伟、脆弱、环境与未来的对话。
-
-《南极条约》将南极确立为和平与科学研究的保护区，最初由12个国家签署并生效。如今，已有50多个国家认可这一条约。它奠定了数十年来科学探索与成果的基石。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%97%e6%9e%81%e6%97%a5&form=hpcapt&filters=HpDate:"20251130_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251201_AntarcticArch"&FORM=HPQUIZ "必应主页测验 2025 12月 1")
-[下载480](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_800x480.jpg&rf=LaDigue_800x480.jpg "冰山上天然形成的拱门, 南极洲")
-[下载720](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_1280x720.jpg&rf=LaDigue_1280x720.jpg "冰山上天然形成的拱门, 南极洲")
-[下载1080](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冰山上天然形成的拱门, 南极洲")
-[下载UHD](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_UHD.jpg&rf=LaDigue_UHD.jpg "冰山上天然形成的拱门, 南极洲")
 
 ---
