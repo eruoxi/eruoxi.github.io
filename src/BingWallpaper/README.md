@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月17日：皮毛、霜冻和盛宴
+#### 在诺森伯兰郡的欧亚红松鼠, 英格兰（© Michael_Conrad/Getty Images）
+
+![皮毛、霜冻和盛宴](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_800x480.jpg&rf=LaDigue_800x480.jpg "皮毛、霜冻和盛宴")
+
+谁能抗拒这张软乎乎的小脸？一只欧亚红松鼠栖息在积雪覆盖的松枝上，前爪紧紧抓着松果，仿佛那是世上最后的美食。这些灵巧的小家伙全年忙碌：夏季采集坚果、种子和菌类，冬季则靠储存的松果维持生活。
+
+红松鼠只要挺过第一个寒冬，通常能活3年左右。有的能活到7岁，而在圈养状态下，其寿命可延长至10年。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e4%ba%9a%e7%ba%a2%e6%9d%be%e9%bc%a0&form=hpcapt&filters=HpDate:"20251216_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251217_FrostySquirrel"&FORM=HPQUIZ "必应主页测验 2025 12月 17")
+[下载480](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_800x480.jpg&rf=LaDigue_800x480.jpg "在诺森伯兰郡的欧亚红松鼠, 英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_1280x720.jpg&rf=LaDigue_1280x720.jpg "在诺森伯兰郡的欧亚红松鼠, 英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在诺森伯兰郡的欧亚红松鼠, 英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_UHD.jpg&rf=LaDigue_UHD.jpg "在诺森伯兰郡的欧亚红松鼠, 英格兰")
+
+---
 ### 12月16日：小帽子，大能量
 #### 圣诞市场上的手工小矮人（© Veronika Seppanen/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国")
-
----
-### 12月02日：一景胜千言
-#### 柳树湖与布莱克本山, 兰格尔－圣伊利亚斯国家公园暨保护区, 阿拉斯加州, 美国（© Patrick J. Endres/Getty Images）
-
-![一景胜千言](https://cn.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_800x480.jpg&rf=LaDigue_800x480.jpg "一景胜千言")
-
-1980年12月2日，美国通过《阿拉斯加国家利益土地保护法》，为自然保护史写下浓重一笔。这项具有划时代意义的法律使阿拉斯加逾1.04亿英亩的荒野获得永久保护，图中所示的兰格尔-圣埃利亚斯国家公园暨保护区因此成为美国最大的国家公园。该法不仅守护壮丽的生态，也延续原住民的传统，真正实现自然与人文的和谐共生。
-
-该公园和保护区面积超过瑞士国土，从阿拉斯加湾一路延展至内陆，海拔自海平面攀升至近6000米，造就了丰富的生命栖息地。这里，巍峨的群峰披着永恒的冰雪，冰川与冰原在阳光下闪耀，仿佛时间凝固的世界。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e4%bc%8a%e5%88%a9%e4%ba%9a%e6%96%af%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20251201_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251202_WillowLake"&FORM=HPQUIZ "必应主页测验 2025 12月 2")
-[下载480](https://cn.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_800x480.jpg&rf=LaDigue_800x480.jpg "柳树湖与布莱克本山, 兰格尔－圣伊利亚斯国家公园暨保护区, 阿拉斯加州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_1280x720.jpg&rf=LaDigue_1280x720.jpg "柳树湖与布莱克本山, 兰格尔－圣伊利亚斯国家公园暨保护区, 阿拉斯加州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "柳树湖与布莱克本山, 兰格尔－圣伊利亚斯国家公园暨保护区, 阿拉斯加州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_UHD.jpg&rf=LaDigue_UHD.jpg "柳树湖与布莱克本山, 兰格尔－圣伊利亚斯国家公园暨保护区, 阿拉斯加州, 美国")
 
 ---
