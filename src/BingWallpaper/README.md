@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月18日：犹他州的时光层叠
+#### 太阳神庙，圆顶礁国家公园, 犹他州, 美国（© Austin Cronnelly/TANDEM Stills + Motion）
+
+![犹他州的时光层叠](https://cn.bing.com/th?id=OHR.CathedralValley_ZH-CN5237441521_800x480.jpg&rf=LaDigue_800x480.jpg "犹他州的时光层叠")
+
+数百万年的岩层沉积，伴随地壳的巨大弯曲，造就了这片沙漠独一无二的地质窗口。这里是犹他州的圆顶礁国家公园，砂岩峭壁与峡谷像一本打开的历史书，记录着地球的沧桑。1971年12月18日，它被正式列为国家公园。今日的图片聚焦大教堂谷的砂岩巨石，其中包括壮丽的“太阳神殿”，彰显这片景观的非凡魅力。
+
+圆顶礁国家公园涵盖多种生态区，包括高海拔、凉爽的常绿林峰，植被茂密的河岸地带，以及干燥炎热的沙漠。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%86%e9%a1%b6%e7%a4%81%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20251217_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251218_CathedralValley"&FORM=HPQUIZ "必应主页测验 2025 12月 18")
+[下载480](https://cn.bing.com/th?id=OHR.CathedralValley_ZH-CN5237441521_800x480.jpg&rf=LaDigue_800x480.jpg "太阳神庙，圆顶礁国家公园, 犹他州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.CathedralValley_ZH-CN5237441521_1280x720.jpg&rf=LaDigue_1280x720.jpg "太阳神庙，圆顶礁国家公园, 犹他州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CathedralValley_ZH-CN5237441521_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "太阳神庙，圆顶礁国家公园, 犹他州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CathedralValley_ZH-CN5237441521_UHD.jpg&rf=LaDigue_UHD.jpg "太阳神庙，圆顶礁国家公园, 犹他州, 美国")
+
+---
 ### 12月17日：皮毛、霜冻和盛宴
 #### 在诺森伯兰郡的欧亚红松鼠, 英格兰（© Michael_Conrad/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_1280x720.jpg&rf=LaDigue_1280x720.jpg "马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚")
-
----
-### 12月03日：曙光中的鹤影
-#### 日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国（© Jack Dykinga/Minden Pictures）
-
-![曙光中的鹤影](https://cn.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_800x480.jpg&rf=LaDigue_800x480.jpg "曙光中的鹤影")
-
-每年十二月，晨光初露，响亮的鹤鸣声在阿帕奇森林国家野生动物保护区的沼泽间回荡。这片占地5.7万英亩的新墨西哥中部圣地，即将上演一场震撼心灵的自然盛景——沙丘鹤结束季节性迁徙，重返故地。不久，成千上万只雪雁和其他候鸟也将加入，振翅高飞，天空被生命的律动与鸣声填满。
-
-沙丘鹤以植物为主食，但会根据环境条件摄取多种食物。它们常低着头，用喙在地面翻找种子和其他食物，活动范围包括浅水湿地的植被区以及各种旱地栖息地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b2%99%e4%b8%98%e9%b9%a4&form=hpcapt&filters=HpDate:"20251202_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251203_BosqueCranes"&FORM=HPQUIZ "必应主页测验 2025 12月 3")
-[下载480](https://cn.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_800x480.jpg&rf=LaDigue_800x480.jpg "日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国")
 
 ---
