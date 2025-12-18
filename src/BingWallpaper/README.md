@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月19日：高山的悠久历史
+#### 博尔米奥的雪景，伦巴第大区，意大利（© Roberto Moiola/Getty Images）
+
+![高山的悠久历史](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_800x480.jpg&rf=LaDigue_800x480.jpg "高山的悠久历史")
+
+博尔米奥位于意大利北部伦巴第大区的阿尔卑斯山中，靠近斯泰尔维奥山口。这片地势险峻的山地数百年来连接着不同山谷中的社区，塑造了当地人生活与迁徙的方式。今日图片中的冬季景观，正映照出这座高山小镇的地理特征与它与群峰之间延续千年的纽带。
+
+博尔米奥保留着独特的中世纪古镇中心，吸引着众多游客。它也将成为2026年冬季奥运会高山滑雪项目的举办地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e5%8d%9a%e5%b0%94%e7%b1%b3%e5%a5%a5&form=hpcapt&filters=HpDate:"20251218_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251219_BormioItaly"&FORM=HPQUIZ "必应主页测验 2025 12月 19")
+[下载480](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_800x480.jpg&rf=LaDigue_800x480.jpg "博尔米奥的雪景，伦巴第大区，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_1280x720.jpg&rf=LaDigue_1280x720.jpg "博尔米奥的雪景，伦巴第大区，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博尔米奥的雪景，伦巴第大区，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_UHD.jpg&rf=LaDigue_UHD.jpg "博尔米奥的雪景，伦巴第大区，意大利")
+
+---
 ### 12月18日：犹他州的时光层叠
 #### 太阳神庙，圆顶礁国家公园, 犹他州, 美国（© Austin Cronnelly/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_1280x720.jpg&rf=LaDigue_1280x720.jpg "科潘的玛雅遗址，洪都拉斯")
 [下载1080](https://cn.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科潘的玛雅遗址，洪都拉斯")
 [下载UHD](https://cn.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_UHD.jpg&rf=LaDigue_UHD.jpg "科潘的玛雅遗址，洪都拉斯")
-
----
-### 12月04日：为生存而疾驰
-#### 马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚（© Andy Rouse/naturepl.com）
-
-![为生存而疾驰](https://cn.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_800x480.jpg&rf=LaDigue_800x480.jpg "为生存而疾驰")
-
-在肯尼亚西南部的马赛马拉国家保护区，一只猎豹立于高高的白蚁丘上，凝视辽阔草原。它的身形流畅，疾驰时可达每小时70英里，堪称陆地速度之王。修长的四肢与柔韧的脊柱让它爆发出惊人的力量，尾巴则在追猎中稳住身形。今天是“国际猎豹日”，这个节日的到来再合适不过。如今，野外猎豹数量已不足7100只，它们是非洲最脆弱的大型猫科动物之一。
-
-目前，猎豹的分布范围仅剩下历史栖息地的约10%。虽然它们仍在多个地区出现，但数量极为稀少，且栖息地呈高度碎片化。非洲南部和东部是猎豹种群的重要据点。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8c%8e%e8%b1%b9&form=hpcapt&filters=HpDate:"20251203_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251204_CheetahMound"&FORM=HPQUIZ "必应主页测验 2025 12月 4")
-[下载480](https://cn.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_800x480.jpg&rf=LaDigue_800x480.jpg "马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_1280x720.jpg&rf=LaDigue_1280x720.jpg "马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚")
 
 ---
