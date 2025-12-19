@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月20日：闪烁的纸星星
+#### 圣诞星形灯笼，德国（© artas/Getty Images）
+
+![闪烁的纸星星](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_800x480.jpg&rf=LaDigue_800x480.jpg "闪烁的纸星星")
+
+随着圣诞临近，星形灯笼开始在各处亮起：闪烁在阳台上，点亮橱窗，照亮集市摊位。它们的光芒穿透漫长的冬夜，为街道和家中带来欢乐、色彩与节日的温暖。然而，这些节日装饰背后，有着一个和它们的光芒一样迷人的故事。
+
+尽管“圣诞之星”已成为节日中最受喜爱的象征之一，但它所代表的“伯利恒之星”在《圣经》中其实只被提及过一次。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%91%a9%e6%8b%89%e7%bb%b4%e4%ba%9a%e4%b9%8b%e6%98%9f&form=hpcapt&filters=HpDate:"20251219_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251220_StarLanterns"&FORM=HPQUIZ "必应主页测验 2025 12月 20")
+[下载480](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞星形灯笼，德国")
+[下载720](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣诞星形灯笼，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣诞星形灯笼，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_UHD.jpg&rf=LaDigue_UHD.jpg "圣诞星形灯笼，德国")
+
+---
 ### 12月19日：高山的悠久历史
 #### 博尔米奥的雪景，伦巴第大区，意大利（© Roberto Moiola/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_1280x720.jpg&rf=LaDigue_1280x720.jpg "大沼泽地国家公园的蜘蛛网，佛罗里达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大沼泽地国家公园的蜘蛛网，佛罗里达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_UHD.jpg&rf=LaDigue_UHD.jpg "大沼泽地国家公园的蜘蛛网，佛罗里达州，美国")
-
----
-### 12月05日：绘制星图的城市
-#### 科潘的玛雅遗址，洪都拉斯（© diegograndi/Getty Images）
-
-![绘制星图的城市](https://cn.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_800x480.jpg&rf=LaDigue_800x480.jpg "绘制星图的城市")
-
-在洪都拉斯西部一片静谧山谷中，坐落着科潘古城的遗址，这座城市曾是古代玛雅文明的璀璨明珠。在这座城市里，天空既是罗盘，又是日历，指引着天象，塑造了庙宇的方向、仪式的时间与人们的生活节奏。公元426年左右，来自玛雅腹地的勇士基尼奇·亚什·库克·莫建立了科潘，并开创了王室王朝。此后，科潘成为玛雅艺术、天文学与政治权力的中心。
-
-自2010年以来，考古学家在科潘遗址持续开展发掘与研究。这些发现共同揭示出，科潘是古典玛雅文明中政治上灵活、象征意义深远的中心，其历史叙事也在每一次新发现中不断延伸。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e6%bd%98%e7%8e%9b%e9%9b%85%e9%81%97%e5%9d%80&form=hpcapt&filters=HpDate:"20251204_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251205_CopanRuins"&FORM=HPQUIZ "必应主页测验 2025 12月 5")
-[下载480](https://cn.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_800x480.jpg&rf=LaDigue_800x480.jpg "科潘的玛雅遗址，洪都拉斯")
-[下载720](https://cn.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_1280x720.jpg&rf=LaDigue_1280x720.jpg "科潘的玛雅遗址，洪都拉斯")
-[下载1080](https://cn.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科潘的玛雅遗址，洪都拉斯")
-[下载UHD](https://cn.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_UHD.jpg&rf=LaDigue_UHD.jpg "科潘的玛雅遗址，洪都拉斯")
 
 ---
