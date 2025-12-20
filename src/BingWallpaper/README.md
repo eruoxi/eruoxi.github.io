@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月21日：美丽的雾凇景色
+#### 美丽的雾凇景色，大庆市，黑龙江省，中国（© Dashu Xinganling/shutterstock）
+
+![美丽的雾凇景色](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_800x480.jpg&rf=LaDigue_800x480.jpg "美丽的雾凇景色")
+
+当2025年的冬至如期而至，北国大地被银装素裹，东北的雾凇奇景更添了几分童话般的浪漫。漫步在雾凇林中，脚下是松软的积雪，发出细微的沙沙声，仿佛是大自然最轻柔的私语。空气中弥漫着清新的气息，仿佛能净化一切尘埃，让人心旷神怡。
+
+雾凇可分为两种：一种是晶状雾凇，一种是粒状雾凇。中国是世界上记载雾凇最早的国家，早在春秋时代成书的《春秋》中就有记载。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%86%ac%e8%87%b3&form=hpcapt&filters=HpDate:"20251220_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251221_WintersolsticeY25"&FORM=HPQUIZ "必应主页测验 2025 12月 21")
+[下载480](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_800x480.jpg&rf=LaDigue_800x480.jpg "美丽的雾凇景色，大庆市，黑龙江省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_1280x720.jpg&rf=LaDigue_1280x720.jpg "美丽的雾凇景色，大庆市，黑龙江省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美丽的雾凇景色，大庆市，黑龙江省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_UHD.jpg&rf=LaDigue_UHD.jpg "美丽的雾凇景色，大庆市，黑龙江省，中国")
+
+---
 ### 12月20日：闪烁的纸星星
 #### 圣诞星形灯笼，德国（© artas/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪中的故宫，中国北京")
 [下载1080](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪中的故宫，中国北京")
 [下载UHD](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_UHD.jpg&rf=LaDigue_UHD.jpg "雪中的故宫，中国北京")
-
----
-### 12月06日：佛罗里达州的生命湿地
-#### 大沼泽地国家公园的蜘蛛网，佛罗里达州，美国（© Troy Harrison/Getty Images）
-
-![佛罗里达州的生命湿地](https://cn.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_800x480.jpg&rf=LaDigue_800x480.jpg "佛罗里达州的生命湿地")
-
-在美国的最南端，延展着一片与众不同的自然奇景：大沼泽地。它既不是典型的沼泽，也不是河流，而是一片缓慢流动、浅而宽广的水域，从平坦的草原向南漂移，最终注入佛罗里达湾，它将森林、湿地、红树林与沿海草原连成一个庞大而复杂的亚热带生态网络。栖息着包括短吻鳄、海牛及濒危的佛罗里达美洲狮在内的数百种生物。1947年12月6日，美国设立了大沼泽地国家公园，保护面积超过150万英亩，并首次将保护重点从单一地标转向整体生态系统的保育。
-
-在佛罗里达州南部的大沼泽地国家公园内，有几处非常适合观测夜空的区域。最佳观测点位于公园偏远的南部和西部，如弗拉明戈与万岛群等地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e6%b2%bc%e6%b3%bd%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20251205_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251206_EvergladesSunrise"&FORM=HPQUIZ "必应主页测验 2025 12月 6")
-[下载480](https://cn.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_800x480.jpg&rf=LaDigue_800x480.jpg "大沼泽地国家公园的蜘蛛网，佛罗里达州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_1280x720.jpg&rf=LaDigue_1280x720.jpg "大沼泽地国家公园的蜘蛛网，佛罗里达州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大沼泽地国家公园的蜘蛛网，佛罗里达州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_UHD.jpg&rf=LaDigue_UHD.jpg "大沼泽地国家公园的蜘蛛网，佛罗里达州，美国")
 
 ---
