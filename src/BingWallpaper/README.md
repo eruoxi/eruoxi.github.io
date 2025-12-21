@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月22日：历史与现代的交融
+#### 法兰克福老桥，德国（© diegograndi/Getty Images）
+
+![历史与现代的交融](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_800x480.jpg&rf=LaDigue_800x480.jpg "历史与现代的交融")
+
+位于德国中心地带的法兰克福是一座以现代天际线与历史古城交织闻名的活力都市。老桥是其中的标志性建筑之一，自中世纪以来便横跨美因河，是这座城市现存最古老的河上通道之一。几个世纪以来，它一直是重要的贸易通道。如今的老桥建于1912至1926年间，将老城区与萨克森豪森区连接起来，从这里能欣赏到壮丽的“美因哈顿”天际线与法兰克福大教堂，这是传统与现代融合的象征。尤其在日落时分，更是格外迷人。
+
+自1222年在官方文件中首次被提及以来，法兰克福的发展一直深受这座桥的影响。几个世纪以来，老桥至少被毁坏和重建了18次。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%95%e5%85%b0%e5%85%8b%e7%a6%8f%e8%80%81%e6%a1%a5&form=hpcapt&filters=HpDate:"20251221_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251222_FrankfurtAlteBruecke"&FORM=HPQUIZ "必应主页测验 2025 12月 22")
+[下载480](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_800x480.jpg&rf=LaDigue_800x480.jpg "法兰克福老桥，德国")
+[下载720](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_1280x720.jpg&rf=LaDigue_1280x720.jpg "法兰克福老桥，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "法兰克福老桥，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_UHD.jpg&rf=LaDigue_UHD.jpg "法兰克福老桥，德国")
+
+---
 ### 12月21日：美丽的雾凇景色
 #### 美丽的雾凇景色，大庆市，黑龙江省，中国（© Dashu Xinganling/shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_1280x720.jpg&rf=LaDigue_1280x720.jpg "多马索的建筑上的圣诞彩灯，科莫湖，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多马索的建筑上的圣诞彩灯，科莫湖，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_UHD.jpg&rf=LaDigue_UHD.jpg "多马索的建筑上的圣诞彩灯，科莫湖，意大利")
-
----
-### 12月07日：雪落下的声音
-#### 雪中的故宫，中国北京（© Ian.CuiYi/Getty Images）
-
-![雪落下的声音](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_800x480.jpg&rf=LaDigue_800x480.jpg "雪落下的声音")
-
-今天是中国传统二十四节气中的大雪节气。大雪的到来预示着气温将逐渐降低，冬季降水量也将增加。大雪期间，中国大部分地区已进入严冬，北方部分地区的气温甚至会降至零度以下。北方大地呈现出“万里冰封”的壮丽景象，而南方则展现出“雪花飘舞，万物银装素裹”的迷人景色。
-
-紫禁城是世界上规模最大、保存最完好的古代木构建筑群之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e9%9b%aa%e8%8a%82%e6%b0%94&form=hpcapt&filters=HpDate:"20251206_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251207_TheGreatSnowY25"&FORM=HPQUIZ "必应主页测验 2025 12月 7")
-[下载480](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_800x480.jpg&rf=LaDigue_800x480.jpg "雪中的故宫，中国北京")
-[下载720](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪中的故宫，中国北京")
-[下载1080](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪中的故宫，中国北京")
-[下载UHD](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_UHD.jpg&rf=LaDigue_UHD.jpg "雪中的故宫，中国北京")
 
 ---
