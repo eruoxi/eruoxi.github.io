@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月23日：当节日的魔法踩着蹄声而来
+#### 冬雪中的驯鹿，拉普兰德，芬兰（© Roberto Moiola/Getty Images）
+
+![当节日的魔法踩着蹄声而来](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_800x480.jpg&rf=LaDigue_800x480.jpg "当节日的魔法踩着蹄声而来")
+
+很少有动物能像驯鹿那样唤起节日的魔力。驯鹿也被称为北美驯鹿，是不折不扣的“圣诞精神图腾”。自从克莱门特·克拉克·摩尔在1823年的诗作《圣尼古拉来访记》中为它们安排了拉雪橇的角色后，驯鹿便成为圣诞故事中不可缺少的动物明星。而且它们天生适合这份工作。它们的蹄子在冬季会收缩，露出能抓地的边缘，而在温暖的月份则会膨胀，以获得更好的抓地力。这还不足以让你感到惊叹？想想看，驯鹿体内并没有传统意义的“生物钟”。它们通过调节控制睡眠的褪黑激素来适应极地的极昼与极夜，使它们能够在无尽的黑夜中保持清醒，完成“送礼物”般的长途跋涉。驯鹿能托着圣诞老人飞行，在陆地上奔跑如风，在冰冷水域中也能轻松游动，这都得益于它们强健的体魄和优秀的游泳能力。成年雄性体重可达550磅，一对鹿角甚至可延展至55英寸，最多长出44个枝叉，堪称天然王冠。今日图片拍摄于芬兰，在那里，驯鹿的数量甚至多于人类。它们悠然漫步于这片古老土地，如同它们所代表的节日精神一样永恒不朽。
+
+野生驯鹿的寿命可达15年，而由人工照料下的驯鹿寿命甚至可延长至20年。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%af%e9%b9%bf&form=hpcapt&filters=HpDate:"20251222_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251223_ReindeerFinland"&FORM=HPQUIZ "必应主页测验 2025 12月 23")
+[下载480](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_800x480.jpg&rf=LaDigue_800x480.jpg "冬雪中的驯鹿，拉普兰德，芬兰")
+[下载720](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_1280x720.jpg&rf=LaDigue_1280x720.jpg "冬雪中的驯鹿，拉普兰德，芬兰")
+[下载1080](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冬雪中的驯鹿，拉普兰德，芬兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_UHD.jpg&rf=LaDigue_UHD.jpg "冬雪中的驯鹿，拉普兰德，芬兰")
+
+---
 ### 12月22日：历史与现代的交融
 #### 法兰克福老桥，德国（© diegograndi/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_1280x720.jpg&rf=LaDigue_1280x720.jpg "原驼，北角，瓦尔德斯半岛, 阿根廷")
 [下载1080](https://cn.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "原驼，北角，瓦尔德斯半岛, 阿根廷")
 [下载UHD](https://cn.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_UHD.jpg&rf=LaDigue_UHD.jpg "原驼，北角，瓦尔德斯半岛, 阿根廷")
-
----
-### 12月08日：一切安详，一切明亮
-#### 多马索的建筑上的圣诞彩灯，科莫湖，意大利（© Roberto Moiola/Getty Images）
-
-![一切安详，一切明亮](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_800x480.jpg&rf=LaDigue_800x480.jpg "一切安详，一切明亮")
-
-当意大利科莫湖上闪烁的灯光比星辰更耀眼时，你就会知道，圣诞节已在多马索登场。这个昔日的渔村，如今每到冬季便化身为闪亮的节日舞台：粉彩色的房屋、古老的教堂与湖畔别墅被光带缠绕，交织成一幅梦幻的圣诞画卷。
-
-科莫湖，又名拉里奥湖，是意大利伦巴第大区的一座冰川湖。它是意大利第三大湖，仅次于加尔达湖和马焦雷湖。湖深超过400米，是欧洲最深的湖泊之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e8%8e%ab%e6%b9%96&form=hpcapt&filters=HpDate:"20251207_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251208_ComoChristmas"&FORM=HPQUIZ "必应主页测验 2025 12月 8")
-[下载480](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_800x480.jpg&rf=LaDigue_800x480.jpg "多马索的建筑上的圣诞彩灯，科莫湖，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_1280x720.jpg&rf=LaDigue_1280x720.jpg "多马索的建筑上的圣诞彩灯，科莫湖，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多马索的建筑上的圣诞彩灯，科莫湖，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_UHD.jpg&rf=LaDigue_UHD.jpg "多马索的建筑上的圣诞彩灯，科莫湖，意大利")
 
 ---
