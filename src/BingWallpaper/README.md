@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月24日：流动的传统
+#### 巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国（© mauritius images GmbH/Alamy）
+
+![流动的传统](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_800x480.jpg&rf=LaDigue_800x480.jpg "流动的传统")
+
+随着平安夜的到来，数以百万计的人们拥抱那些将我们与根源相连的习俗，或者接触全新的文化。如今日图片中所见的那样，在德国巴伐利亚阿尔卑斯山的雪景中，节日灯光在寒冬中闪耀；而在地球的另一端，比如加勒比海、澳大利亚或巴西，耀眼阳光洒在金色海滩上，圣诞节的画面则截然不同
+
+传统的圣诞节点心包括姜饼、德国圣诞果脯面包、奶油酥饼，以及杏仁软糖。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b9%b3%e5%ae%89%e5%a4%9c&form=hpcapt&filters=HpDate:"20251223_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251224_ElmauChapel"&FORM=HPQUIZ "必应主页测验 2025 12月 24")
+[下载480](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_800x480.jpg&rf=LaDigue_800x480.jpg "巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国")
+[下载720](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_UHD.jpg&rf=LaDigue_UHD.jpg "巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国")
+
+---
 ### 12月23日：当节日的魔法踩着蹄声而来
 #### 冬雪中的驯鹿，拉普兰德，芬兰（© Roberto Moiola/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_1280x720.jpg&rf=LaDigue_1280x720.jpg "科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_UHD.jpg&rf=LaDigue_UHD.jpg "科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙")
-
----
-### 12月09日：说“茄子”……或者“青草”
-#### 原驼，北角，瓦尔德斯半岛, 阿根廷（© Sylvain Cordier/naturepl.com）
-
-![说“茄子”……或者“青草”](https://cn.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_800x480.jpg&rf=LaDigue_800x480.jpg "说“茄子”……或者“青草”")
-
-如果说羊驼是安第斯山脉中悠闲的明星，那么它们的表亲原驼，就是巴塔哥尼亚的自由精灵。而还有什么日子比“全国羊驼日”更适合让它们成为焦点呢？原驼与羊驼、美洲驼和小羊驼同属骆驼科，但与那些被驯化的亲戚不同，它们依然保留着野性的天性。它们主要分布在阿根廷、智利、秘鲁和玻利维亚的高原地带，天生适应高海拔的生活。厚实的皮毛让它们能抵御寒冷的山风，而柔软的脚掌则能在岩石地形上稳稳立足，连山羊都会为之叹服。
-
-原驼是当今南美洲最大的本土陆生哺乳动物之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8e%9f%e9%a9%bc&form=hpcapt&filters=HpDate:"20251208_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251209_LlamaDay"&FORM=HPQUIZ "必应主页测验 2025 12月 9")
-[下载480](https://cn.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_800x480.jpg&rf=LaDigue_800x480.jpg "原驼，北角，瓦尔德斯半岛, 阿根廷")
-[下载720](https://cn.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_1280x720.jpg&rf=LaDigue_1280x720.jpg "原驼，北角，瓦尔德斯半岛, 阿根廷")
-[下载1080](https://cn.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "原驼，北角，瓦尔德斯半岛, 阿根廷")
-[下载UHD](https://cn.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_UHD.jpg&rf=LaDigue_UHD.jpg "原驼，北角，瓦尔德斯半岛, 阿根廷")
 
 ---
