@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月25日：微缩世界，无尽奇想
+#### 海德堡圣诞市场上的雪球，德国（© George Pachantouris/Getty Images）
+
+![微缩世界，无尽奇想](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_800x480.jpg&rf=LaDigue_800x480.jpg "微缩世界，无尽奇想")
+
+在德国海德堡的冬日天空下，集市摊位间闪烁着一只只雪花水晶球，每个玻璃球都以微缩世界的形式捕捉着节日的氛围。如今的圣诞节一个关于信仰、光明与团聚的基督教庆典，邀请我们在一年中最寒冷的日子里迎来温暖与欢乐。在世界各地，窗台上的烛光温柔摇曳，花环装点着街巷与家门，常青树装饰一新，枝头挂满饰品，树下的礼物静静等待被打开。
+
+在大多数西方国家，圣诞节是一年中商业活动最为冷清的一天；几乎所有零售店、商铺和公共机构都会关门停业，几乎所有行业也都会暂停运作，无论法律是否有此规定。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e8%af%9e%e8%8a%82&form=hpcapt&filters=HpDate:"20251224_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251225_SantaGlobe"&FORM=HPQUIZ "必应主页测验 2025 12月 25")
+[下载480](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_800x480.jpg&rf=LaDigue_800x480.jpg "海德堡圣诞市场上的雪球，德国")
+[下载720](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_1280x720.jpg&rf=LaDigue_1280x720.jpg "海德堡圣诞市场上的雪球，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海德堡圣诞市场上的雪球，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_UHD.jpg&rf=LaDigue_UHD.jpg "海德堡圣诞市场上的雪球，德国")
+
+---
 ### 12月24日：流动的传统
 #### 巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国（© mauritius images GmbH/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EverestGlow_ZH-CN4985720231_1280x720.jpg&rf=LaDigue_1280x720.jpg "从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔")
 [下载1080](https://cn.bing.com/th?id=OHR.EverestGlow_ZH-CN4985720231_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.EverestGlow_ZH-CN4985720231_UHD.jpg&rf=LaDigue_UHD.jpg "从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔")
-
----
-### 12月10日：文化交汇之地
-#### 科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙（© Elena Zolotova/Getty Images）
-
-![文化交汇之地](https://cn.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_800x480.jpg&rf=LaDigue_800x480.jpg "文化交汇之地")
-
-科尔多瓦清真寺大教堂是一部凝固在石头中的编年史，诉说着西班牙层叠交融的历史。它最初由日耳曼的西哥特人建造为一座教堂，公元784年，科尔多瓦倭马亚酋长国的创建者阿卜杜·拉赫曼一世将其改建为清真寺。其宏伟的柱式大厅由一排排石柱支撑，最著名的便是那交错的红白相间拱券。如今，殿内仍保留着 850 多根石柱，其中许多取材自古罗马和早期西哥特建筑。
-
-科尔多瓦是一座文化底蕴深厚、历史遗迹遍布的城市。不同的民族曾在此繁衍生息，他们留下的众多文明印记，使这座城市在西方历史中占据了独特的地位。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e5%b0%94%e5%a4%9a%e7%93%a6%e6%b8%85%e7%9c%9f%e5%af%ba%e5%a4%a7%e6%95%99%e5%a0%82&form=hpcapt&filters=HpDate:"20251209_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251210_CordobaCathedral"&FORM=HPQUIZ "必应主页测验 2025 12月 10")
-[下载480](https://cn.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_800x480.jpg&rf=LaDigue_800x480.jpg "科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_1280x720.jpg&rf=LaDigue_1280x720.jpg "科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_UHD.jpg&rf=LaDigue_UHD.jpg "科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙")
 
 ---
