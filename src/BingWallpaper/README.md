@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月26日：打破盒子的传统
+#### 索尔兹伯里大教堂，威尔特郡，英格兰（© Julian Elliott Photography/Getty Images）
+
+![打破盒子的传统](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_800x480.jpg&rf=LaDigue_800x480.jpg "打破盒子的传统")
+
+节礼日的妙处在于，它不需要你费心操劳：没有倒计时的喧嚣，没有拆礼物的惊喜，更不用临时奔波买电池。这是一个罕见的节日，仿佛在轻声说：“坐下来，吃掉剩菜，给自己一点时间。”每年12月26日，英国及部分英联邦国家都会庆祝这个节日，它像是一场圣诞狂欢后的温柔缓冲。节礼日的起源可追溯至维多利亚时代，当时人们会为工人和商贩准备“圣诞礼盒”，作为谢意，礼盒里可能是硬币，也可能是生活用品。教堂也参与其中，开启施舍箱，将捐赠分发给有需要的人。
+
+据《牛津英语词典》记载，这一用法最早出现在1743年的英国，定义为"圣诞节次日"，并说明"传统上，这一天商人、雇员等会……"
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8a%82%e7%a4%bc%e6%97%a5&form=hpcapt&filters=HpDate:"20251225_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251226_WiltshireDawn"&FORM=HPQUIZ "必应主页测验 2025 12月 26")
+[下载480](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_800x480.jpg&rf=LaDigue_800x480.jpg "索尔兹伯里大教堂，威尔特郡，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_1280x720.jpg&rf=LaDigue_1280x720.jpg "索尔兹伯里大教堂，威尔特郡，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "索尔兹伯里大教堂，威尔特郡，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_UHD.jpg&rf=LaDigue_UHD.jpg "索尔兹伯里大教堂，威尔特郡，英格兰")
+
+---
 ### 12月25日：微缩世界，无尽奇想
 #### 海德堡圣诞市场上的雪球，德国（© George Pachantouris/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_1280x720.jpg&rf=LaDigue_1280x720.jpg "有斑点的一品红")
 [下载1080](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "有斑点的一品红")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_UHD.jpg&rf=LaDigue_UHD.jpg "有斑点的一品红")
-
----
-### 12月11日：天地相接之处
-#### 从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔（© shoults/Alamy）
-
-![天地相接之处](https://cn.bing.com/th?id=OHR.EverestGlow_ZH-CN4985720231_800x480.jpg&rf=LaDigue_800x480.jpg "天地相接之处")
-
-每年12月11日，我们庆祝“国际山岳日”， 以此致敬塑造地球的雄伟山脉与哺育生命的冰川。从起伏的阿尔卑斯山到巍峨的喜马拉雅，山地覆盖了地球陆地面积的近四分之一，栖息着全球约 15% 的人口与近一半的生物多样性热点地区。世界最高峰珠穆朗玛峰，海拔逾29,000英尺，象征着人类的追求与自然的壮丽。其冰川滋养着无数河流，维系着数以百万计的生命，证明了山脉不仅是风景，更是地球的生命线。
-
-位于珠穆朗玛峰北坡脚下的绒布河由冰川融水汇成。近年随着冰川加速融化，径流量明显增加，为下游地区提供了更多水资源。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8f%a0%e7%a9%86%e6%9c%97%e7%8e%9b%e5%b3%b0&form=hpcapt&filters=HpDate:"20251210_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251211_EverestGlow"&FORM=HPQUIZ "必应主页测验 2025 12月 11")
-[下载480](https://cn.bing.com/th?id=OHR.EverestGlow_ZH-CN4985720231_800x480.jpg&rf=LaDigue_800x480.jpg "从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔")
-[下载720](https://cn.bing.com/th?id=OHR.EverestGlow_ZH-CN4985720231_1280x720.jpg&rf=LaDigue_1280x720.jpg "从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔")
-[下载1080](https://cn.bing.com/th?id=OHR.EverestGlow_ZH-CN4985720231_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔")
-[下载UHD](https://cn.bing.com/th?id=OHR.EverestGlow_ZH-CN4985720231_UHD.jpg&rf=LaDigue_UHD.jpg "从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔")
 
 ---
