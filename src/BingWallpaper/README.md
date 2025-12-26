@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月27日：冬之碎片
+#### 苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国（© wanderluster/Getty Images）
+
+![冬之碎片](https://cn.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_800x480.jpg&rf=LaDigue_800x480.jpg "冬之碎片")
+
+在明尼苏达的苏必利尔湖，冬季来临时，湖岸会出现一种名为“板冰”的奇特景象：薄冰在温度变化下破裂，随风漂移并堆叠，最终形成倾斜的冰片，如同玻璃碎片般闪耀。蓝色与银色交织的半透明冰面在阳光下折射出锐利的光影，使湖边看起来更像艺术雕塑，而非冰封。
+
+苏必利尔湖是全球面积最大的淡水湖，水量则位居第三，仅次于西伯利亚的贝加尔湖和东非的坦噶尼喀湖。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%98%8e%e5%b0%bc%e8%8b%8f%e8%be%be%e5%b7%9e%e8%8b%8f%e5%bf%85%e5%88%a9%e5%b0%94%e6%b9%96&form=hpcapt&filters=HpDate:"20251226_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251227_SuperiorIceMN"&FORM=HPQUIZ "必应主页测验 2025 12月 27")
+[下载480](https://cn.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_800x480.jpg&rf=LaDigue_800x480.jpg "苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_1280x720.jpg&rf=LaDigue_1280x720.jpg "苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_UHD.jpg&rf=LaDigue_UHD.jpg "苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国")
+
+---
 ### 12月26日：打破盒子的传统
 #### 索尔兹伯里大教堂，威尔特郡，英格兰（© Julian Elliott Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_1280x720.jpg&rf=LaDigue_1280x720.jpg "默塞德河, 优胜美地国家公园, 加利福尼亚, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "默塞德河, 优胜美地国家公园, 加利福尼亚, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_UHD.jpg&rf=LaDigue_UHD.jpg "默塞德河, 优胜美地国家公园, 加利福尼亚, 美国")
-
----
-### 12月12日：点亮节日的红色植物
-#### 有斑点的一品红（© DigiPub/Getty Images）
-
-![点亮节日的红色植物](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_800x480.jpg&rf=LaDigue_800x480.jpg "点亮节日的红色植物")
-
-有些植物只是静静地待在窗台上，而一品红却注定要闪耀。它鲜艳夺目，红得像鲁道夫的鼻尖，是十二月的明星，甚至拥有自己的节日——12月12日的一品红日。在成为圣诞装饰之前，这种灌木经历了漫长旅程。很久以前，它生长在墨西哥的野地，阿兹特克人用它制染料、做药材。直到19世纪20年代，美国外交官乔尔·罗伯茨·波因塞特被它的魅力吸引，将它带回家。之后的故事，便是历史与植物学的篇章。
-
-在墨西哥，一品红被称为"圣诞夜之花"，自17世纪起，它便成为圣诞庆典的传统装饰。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%80%e5%93%81%e7%ba%a2&form=hpcapt&filters=HpDate:"20251211_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251212_SpeckledPoinsettia"&FORM=HPQUIZ "必应主页测验 2025 12月 12")
-[下载480](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_800x480.jpg&rf=LaDigue_800x480.jpg "有斑点的一品红")
-[下载720](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_1280x720.jpg&rf=LaDigue_1280x720.jpg "有斑点的一品红")
-[下载1080](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "有斑点的一品红")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_UHD.jpg&rf=LaDigue_UHD.jpg "有斑点的一品红")
 
 ---
