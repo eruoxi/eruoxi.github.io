@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月28日：仍存野性
+#### 马达加斯加的黑白环尾狐猴（© Cyrielle Beaubois/Getty Images）
+
+![仍存野性](https://cn.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_800x480.jpg&rf=LaDigue_800x480.jpg "仍存野性")
+
+《濒危物种法》颁布至今已51年，其宗旨依然明确：保护濒临灭绝的物种，守护它们赖以生存的栖息地。该法案于1973年签署，成为全球最强有力的保护法律之一，影响力远超美国本土。它证明了当科学研究与执法行动协同时，物种复苏便成为可能。尤其对于那些命运系于国际关注的物种，这种影响更为深远。马达加斯加的黑白环尾狐猴就是典型代表。许多人因动画片《马达加斯加》认识狐猴，但现实中的它们却面临严酷的生存困境。这种外形醒目的灵长类动物已被列为极危物种，只能在日益破碎的森林中艰难存活，栖息地丧失始终是它们挥之不去的威胁。
+
+黑白环尾狐猴拥有一种少见的特性：雌性在群体中占据主导，无论是在进食时，还是在其他社交场合。这种雌性优势也出现在其他长毛狐猴、环尾狐猴以及红长毛狐猴身上。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%bb%91%e7%99%bd%e7%8e%af%e5%b0%be%e7%8b%90%e7%8c%b4&form=hpcapt&filters=HpDate:"20251227_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251228_RuffedLemur"&FORM=HPQUIZ "必应主页测验 2025 12月 28")
+[下载480](https://cn.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_800x480.jpg&rf=LaDigue_800x480.jpg "马达加斯加的黑白环尾狐猴")
+[下载720](https://cn.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_1280x720.jpg&rf=LaDigue_1280x720.jpg "马达加斯加的黑白环尾狐猴")
+[下载1080](https://cn.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马达加斯加的黑白环尾狐猴")
+[下载UHD](https://cn.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_UHD.jpg&rf=LaDigue_UHD.jpg "马达加斯加的黑白环尾狐猴")
+
+---
 ### 12月27日：冬之碎片
 #### 苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国（© wanderluster/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_1280x720.jpg&rf=LaDigue_1280x720.jpg "簇山雀栖息在松枝上, 马萨诸塞州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "簇山雀栖息在松枝上, 马萨诸塞州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_UHD.jpg&rf=LaDigue_UHD.jpg "簇山雀栖息在松枝上, 马萨诸塞州, 美国")
-
----
-### 12月13日：冰封的倒影
-#### 默塞德河, 优胜美地国家公园, 加利福尼亚, 美国（© Ron and Patty Thomas/Getty Images）
-
-![冰封的倒影](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_800x480.jpg&rf=LaDigue_800x480.jpg "冰封的倒影")
-
-每一幅杰作都需要点睛之笔。而优胜美地的点睛之笔便是默塞德河。作为美国国家级“野生与风景河流”之一，这条水系起源于内华达山脉高处，汇集雪水，蜿蜒145英里，穿过优胜美地山谷，流入加州中央谷地。
-
-默塞德河的主支流是夏季休闲的好去处，这里可以游泳、徒步、钓鱼、漂流、淘金、露营，享受各种户外乐趣。由于海拔较低，冬季也非常适合来一场轻松的日间徒步。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%bb%98%e5%a1%9e%e5%be%b7%e6%b2%b3&form=hpcapt&filters=HpDate:"20251212_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251213_YosemiteWinter"&FORM=HPQUIZ "必应主页测验 2025 12月 13")
-[下载480](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_800x480.jpg&rf=LaDigue_800x480.jpg "默塞德河, 优胜美地国家公园, 加利福尼亚, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_1280x720.jpg&rf=LaDigue_1280x720.jpg "默塞德河, 优胜美地国家公园, 加利福尼亚, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "默塞德河, 优胜美地国家公园, 加利福尼亚, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_UHD.jpg&rf=LaDigue_UHD.jpg "默塞德河, 优胜美地国家公园, 加利福尼亚, 美国")
 
 ---
