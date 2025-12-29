@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月30日：新太阳的诞生
+#### 晨光透过结霜的树木洒下，瑞典（© Schon/Getty Images）
+
+![新太阳的诞生](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_800x480.jpg&rf=LaDigue_800x480.jpg "新太阳的诞生")
+
+冬季也总是有一些令人流连忘返的景色，例如瑞典的这片树林，就像踏入了一个银白的童话世界。高大的树木身披厚厚的霜雪外衣，像是忠诚的卫士，静静地伫立。每阳光透过树枝的缝隙洒下，形成一道道金色的光线，与洁白的雪相互交织，营造出一种如梦似幻的氛围。雪花在阳光的照耀下闪烁着晶莹的光芒，像是无数颗细碎的钻石，镶嵌在这银白的世界里。
+
+在瑞典，从10月到次年3月你可挑战凛冽冬夜，回报将是自然界最壮观的景象之一——北极光。这些红，绿，紫色的光幕时常在天空中翩翩起舞起舞。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e5%8d%8a%e7%90%83%e7%9a%84%e5%86%ac%e5%ad%a3&form=hpcapt&filters=HpDate:"20251229_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251230_SwedenSolstice"&FORM=HPQUIZ "必应主页测验 2025 12月 30")
+[下载480](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_800x480.jpg&rf=LaDigue_800x480.jpg "晨光透过结霜的树木洒下，瑞典")
+[下载720](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_1280x720.jpg&rf=LaDigue_1280x720.jpg "晨光透过结霜的树木洒下，瑞典")
+[下载1080](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "晨光透过结霜的树木洒下，瑞典")
+[下载UHD](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_UHD.jpg&rf=LaDigue_UHD.jpg "晨光透过结霜的树木洒下，瑞典")
+
+---
 ### 12月29日：一座比城市更悠久的教堂
 #### 阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其（© Kenan Talas/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣诞市场上的手工小矮人")
 [下载1080](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣诞市场上的手工小矮人")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_UHD.jpg&rf=LaDigue_UHD.jpg "圣诞市场上的手工小矮人")
-
----
-### 12月15日：静谧水波，闪耀灯影
-#### 斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰（© Amith Nag Photography/Getty Images）
-
-![静谧水波，闪耀灯影](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_800x480.jpg&rf=LaDigue_800x480.jpg "静谧水波，闪耀灯影")
-
-你有没有想过，运河如何影响城市的演变？几千年来，人们修筑运河，用于运输、控水和连接各地。从古代美索不达米亚和埃及，到中世纪的欧洲，运河让威尼斯、布鲁日等城市成为繁荣的贸易枢纽。到了17世纪，荷兰更进一步，规划出影响城市格局的水道，阿姆斯特丹便是其中的典范。
-
-阿姆斯特丹市政府计划在2030年前实现完全零排放，并致力于在2050年前成为循环利用、气候中和且具备气候适应能力的城市。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e5%a7%86%e6%96%af%e7%89%b9%e4%b8%b9%e8%bf%90%e6%b2%b3&form=hpcapt&filters=HpDate:"20251214_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251215_AmsterdamLights"&FORM=HPQUIZ "必应主页测验 2025 12月 15")
-[下载480](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_800x480.jpg&rf=LaDigue_800x480.jpg "斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰")
-[下载720](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰")
-[下载1080](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_UHD.jpg&rf=LaDigue_UHD.jpg "斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰")
 
 ---
