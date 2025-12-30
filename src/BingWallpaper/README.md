@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 12月31日：柏林，新年之桥
+#### 除夕夜，奥伯鲍姆桥，柏林，德国（© spreephoto.de/Getty Images）
+
+![柏林，新年之桥](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_800x480.jpg&rf=LaDigue_800x480.jpg "柏林，新年之桥")
+
+三、二、一……等等，先按下暂停键。新年还没到，但柏林的奥伯鲍姆桥仿佛已经提前按下了“庆祝”按钮。今晚，这座桥不再只是河上的通道，而是一条通往新年的跑道：引擎低鸣，烟花预热，人群齐声练习着那句“新年快乐！”
+
+新年的脚步由时区决定。最先跨入新年的，是国际日期变更线以西的太平洋岛屿：基里巴斯的莱恩群岛、萨摩亚，以及汤加。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%99%a4%e5%a4%95%e5%a4%9c&form=hpcapt&filters=HpDate:"20251230_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 31")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251231_GermanyNewYear"&FORM=HPQUIZ "必应主页测验 2025 12月 31")
+[下载480](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_800x480.jpg&rf=LaDigue_800x480.jpg "除夕夜，奥伯鲍姆桥，柏林，德国")
+[下载720](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_1280x720.jpg&rf=LaDigue_1280x720.jpg "除夕夜，奥伯鲍姆桥，柏林，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "除夕夜，奥伯鲍姆桥，柏林，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_UHD.jpg&rf=LaDigue_UHD.jpg "除夕夜，奥伯鲍姆桥，柏林，德国")
+
+---
 ### 12月30日：新太阳的诞生
 #### 晨光透过结霜的树木洒下，瑞典（© Schon/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_1280x720.jpg&rf=LaDigue_1280x720.jpg "在诺森伯兰郡的欧亚红松鼠, 英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在诺森伯兰郡的欧亚红松鼠, 英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_UHD.jpg&rf=LaDigue_UHD.jpg "在诺森伯兰郡的欧亚红松鼠, 英格兰")
-
----
-### 12月16日：小帽子，大能量
-#### 圣诞市场上的手工小矮人（© Veronika Seppanen/Shutterstock）
-
-![小帽子，大能量](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_800x480.jpg&rf=LaDigue_800x480.jpg "小帽子，大能量")
-
-长胡子、红帽子，每年圣诞都要分走圣诞老人的一点光彩。来认识一下圣诞地精吧——瑞典叫‘tomte’，挪威称‘nisse’，各地习俗各不相同。源于北欧传说，这些小精灵守护家园与农场，陪伴人们度过漫长黑夜。但有个前提：待他们友善些，否则他们会恶作剧。圣诞夜一碗热腾腾的粥，是地精最爱的礼物。据说他们能带来好运与笑声，甚至可能和你花园里的小矮人打成一片，因为他们长得很像。
-
-圣诞袜的起源可追溯至圣尼古拉斯将礼物放入鞋中的传说，后来逐渐演变为炉边传统。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e8%af%9e%e5%9c%b0%e7%b2%be&form=hpcapt&filters=HpDate:"20251215_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251216_ChristmasGnomes"&FORM=HPQUIZ "必应主页测验 2025 12月 16")
-[下载480](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞市场上的手工小矮人")
-[下载720](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣诞市场上的手工小矮人")
-[下载1080](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣诞市场上的手工小矮人")
-[下载UHD](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_UHD.jpg&rf=LaDigue_UHD.jpg "圣诞市场上的手工小矮人")
 
 ---
