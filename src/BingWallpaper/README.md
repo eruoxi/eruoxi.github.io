@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月01日：伸个懒腰，迈向新年！
+#### 正在睡觉的北极狐（© Chansak Joe/Getty Images）
+
+![伸个懒腰，迈向新年！](https://cn.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_800x480.jpg&rf=LaDigue_800x480.jpg "伸个懒腰，迈向新年！")
+
+是否感觉需要补足整整一年的休息？今日图片上的这只北极狐懂你，它正窝在冰原岩石间，享受惬意时光。无论新年伴随寒风还是暖阳而来，请给自己五分钟，让身体舒展，再迎接接下来的365天。
+
+格里高利历在儒略历的基础上优化了闰年制度，让历法更精准，避免季节随时间逐渐错位。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%85%83%e6%97%a6&form=hpcapt&filters=HpDate:"20251231_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260101_NewYearFox"&FORM=HPQUIZ "必应主页测验 2026 1月 1")
+[下载480](https://cn.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_800x480.jpg&rf=LaDigue_800x480.jpg "正在睡觉的北极狐")
+[下载720](https://cn.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_1280x720.jpg&rf=LaDigue_1280x720.jpg "正在睡觉的北极狐")
+[下载1080](https://cn.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "正在睡觉的北极狐")
+[下载UHD](https://cn.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_UHD.jpg&rf=LaDigue_UHD.jpg "正在睡觉的北极狐")
+
+---
 ### 12月31日：柏林，新年之桥
 #### 除夕夜，奥伯鲍姆桥，柏林，德国（© spreephoto.de/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CathedralValley_ZH-CN5237441521_1280x720.jpg&rf=LaDigue_1280x720.jpg "太阳神庙，圆顶礁国家公园, 犹他州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CathedralValley_ZH-CN5237441521_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "太阳神庙，圆顶礁国家公园, 犹他州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CathedralValley_ZH-CN5237441521_UHD.jpg&rf=LaDigue_UHD.jpg "太阳神庙，圆顶礁国家公园, 犹他州, 美国")
-
----
-### 12月17日：皮毛、霜冻和盛宴
-#### 在诺森伯兰郡的欧亚红松鼠, 英格兰（© Michael_Conrad/Getty Images）
-
-![皮毛、霜冻和盛宴](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_800x480.jpg&rf=LaDigue_800x480.jpg "皮毛、霜冻和盛宴")
-
-谁能抗拒这张软乎乎的小脸？一只欧亚红松鼠栖息在积雪覆盖的松枝上，前爪紧紧抓着松果，仿佛那是世上最后的美食。这些灵巧的小家伙全年忙碌：夏季采集坚果、种子和菌类，冬季则靠储存的松果维持生活。
-
-红松鼠只要挺过第一个寒冬，通常能活3年左右。有的能活到7岁，而在圈养状态下，其寿命可延长至10年。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e4%ba%9a%e7%ba%a2%e6%9d%be%e9%bc%a0&form=hpcapt&filters=HpDate:"20251216_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251217_FrostySquirrel"&FORM=HPQUIZ "必应主页测验 2025 12月 17")
-[下载480](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_800x480.jpg&rf=LaDigue_800x480.jpg "在诺森伯兰郡的欧亚红松鼠, 英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_1280x720.jpg&rf=LaDigue_1280x720.jpg "在诺森伯兰郡的欧亚红松鼠, 英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在诺森伯兰郡的欧亚红松鼠, 英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_UHD.jpg&rf=LaDigue_UHD.jpg "在诺森伯兰郡的欧亚红松鼠, 英格兰")
 
 ---
