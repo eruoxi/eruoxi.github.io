@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月03日：传奇故事前的篇章
+#### 劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士（© pongnathee kluaythong/Getty Images）
+
+![传奇故事前的篇章](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_800x480.jpg&rf=LaDigue_800x480.jpg "传奇故事前的篇章")
+
+今日图片带我们走进瑞士劳特布隆嫩小镇，静谧山谷间，远处的施陶巴赫瀑布在阳光下闪烁。1911年，年轻的托尔金曾在徒步旅行中穿越这里，那时他还未成为《魔戒》和《霍比特人》的作者。巍峨的峭壁、银白的瀑流和清冽的山风，深深印刻在他的记忆中，被认为启发了他笔下的瑞文戴尔——中土世界中隐秘的精灵圣地。
+
+劳特布隆嫩山谷以翼装低空跳伞胜地著称，峡谷狭长、岩壁陡峭，共有13个合法跳伞点，吸引世界各地的冒险者前来挑战。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%bd%e9%99%b6%e5%b7%b4%e8%b5%ab%e7%80%91%e5%b8%83&form=hpcapt&filters=HpDate:"20260102_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260103_LauterbrunnenValley"&FORM=HPQUIZ "必应主页测验 2026 1月 3")
+[下载480](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_800x480.jpg&rf=LaDigue_800x480.jpg "劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士")
+[下载720](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_1280x720.jpg&rf=LaDigue_1280x720.jpg "劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士")
+[下载1080](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士")
+[下载UHD](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_UHD.jpg&rf=LaDigue_UHD.jpg "劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士")
+
+---
 ### 01月02日：威尼斯的灵魂
 #### 威尼斯鸟瞰图, 意大利（© Clement Leonard/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣诞星形灯笼，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣诞星形灯笼，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_UHD.jpg&rf=LaDigue_UHD.jpg "圣诞星形灯笼，德国")
-
----
-### 12月19日：高山的悠久历史
-#### 博尔米奥的雪景，伦巴第大区，意大利（© Roberto Moiola/Getty Images）
-
-![高山的悠久历史](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_800x480.jpg&rf=LaDigue_800x480.jpg "高山的悠久历史")
-
-博尔米奥位于意大利北部伦巴第大区的阿尔卑斯山中，靠近斯泰尔维奥山口。这片地势险峻的山地数百年来连接着不同山谷中的社区，塑造了当地人生活与迁徙的方式。今日图片中的冬季景观，正映照出这座高山小镇的地理特征与它与群峰之间延续千年的纽带。
-
-博尔米奥保留着独特的中世纪古镇中心，吸引着众多游客。它也将成为2026年冬季奥运会高山滑雪项目的举办地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e5%8d%9a%e5%b0%94%e7%b1%b3%e5%a5%a5&form=hpcapt&filters=HpDate:"20251218_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251219_BormioItaly"&FORM=HPQUIZ "必应主页测验 2025 12月 19")
-[下载480](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_800x480.jpg&rf=LaDigue_800x480.jpg "博尔米奥的雪景，伦巴第大区，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_1280x720.jpg&rf=LaDigue_1280x720.jpg "博尔米奥的雪景，伦巴第大区，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博尔米奥的雪景，伦巴第大区，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_UHD.jpg&rf=LaDigue_UHD.jpg "博尔米奥的雪景，伦巴第大区，意大利")
 
 ---
