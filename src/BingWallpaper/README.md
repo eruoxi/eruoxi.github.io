@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月04日：王者视野
+#### 国王山, 楚加奇山脉, 阿拉斯加, 美国（© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion）
+
+![王者视野](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_800x480.jpg&rf=LaDigue_800x480.jpg "王者视野")
+
+在阿拉斯加楚加奇山脉，国王山不仅仅是远方的轮廓，它的雄浑之美足以让人停下脚步凝视。海拔逾5800英尺，坐落在帕尔默东北约22英里，俯瞰格伦公路第75英里段，这条公路因壮丽景观而闻名。山体的坡面刻满冰川遗痕，沟谷与山脊如同天然的冒险乐园。
+
+国王山的气温可能骤降至极低水平，最低可降至零下4°F（约零下20 °C）。最佳的游览或攀登时节通常在5月至6月，这段时间天气更为宜人。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a5%9a%e5%8a%a0%e5%a5%87%e5%b1%b1%e8%84%89&form=hpcapt&filters=HpDate:"20260103_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260104_KingMountain"&FORM=HPQUIZ "必应主页测验 2026 1月 4")
+[下载480](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_800x480.jpg&rf=LaDigue_800x480.jpg "国王山, 楚加奇山脉, 阿拉斯加, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_1280x720.jpg&rf=LaDigue_1280x720.jpg "国王山, 楚加奇山脉, 阿拉斯加, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "国王山, 楚加奇山脉, 阿拉斯加, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_UHD.jpg&rf=LaDigue_UHD.jpg "国王山, 楚加奇山脉, 阿拉斯加, 美国")
+
+---
 ### 01月03日：传奇故事前的篇章
 #### 劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士（© pongnathee kluaythong/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_1280x720.jpg&rf=LaDigue_1280x720.jpg "美丽的雾凇景色，大庆市，黑龙江省，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美丽的雾凇景色，大庆市，黑龙江省，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_UHD.jpg&rf=LaDigue_UHD.jpg "美丽的雾凇景色，大庆市，黑龙江省，中国")
-
----
-### 12月20日：闪烁的纸星星
-#### 圣诞星形灯笼，德国（© artas/Getty Images）
-
-![闪烁的纸星星](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_800x480.jpg&rf=LaDigue_800x480.jpg "闪烁的纸星星")
-
-随着圣诞临近，星形灯笼开始在各处亮起：闪烁在阳台上，点亮橱窗，照亮集市摊位。它们的光芒穿透漫长的冬夜，为街道和家中带来欢乐、色彩与节日的温暖。然而，这些节日装饰背后，有着一个和它们的光芒一样迷人的故事。
-
-尽管“圣诞之星”已成为节日中最受喜爱的象征之一，但它所代表的“伯利恒之星”在《圣经》中其实只被提及过一次。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%91%a9%e6%8b%89%e7%bb%b4%e4%ba%9a%e4%b9%8b%e6%98%9f&form=hpcapt&filters=HpDate:"20251219_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251220_StarLanterns"&FORM=HPQUIZ "必应主页测验 2025 12月 20")
-[下载480](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞星形灯笼，德国")
-[下载720](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣诞星形灯笼，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣诞星形灯笼，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_UHD.jpg&rf=LaDigue_UHD.jpg "圣诞星形灯笼，德国")
 
 ---
