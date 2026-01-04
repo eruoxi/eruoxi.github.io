@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月05日：高角羚群紧急戒备
+#### 一群高角羚, 隆多洛齐野生动物保护区, 南非（© Mint Images/Getty Images）
+
+![高角羚群紧急戒备](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_800x480.jpg&rf=LaDigue_800x480.jpg "高角羚群紧急戒备")
+
+隆多洛齐野生动物保护区的独特之处，不仅在于草原上的野生动物，更在于其坚守了近百年的守护。自1926年起，这片58平方英里的土地持续支持着野生动物研究工作，并监测着动物在自然栖息地中的行为。它坐落于萨比桑私人保护区，是非洲五大兽的栖息地，并与克鲁格国家公园相连，构建开放的生态系统，让象群、犀牛、狮子、豹、斑马和众多羚羊物种得以在无围栏阻隔的广袤天地间自由迁徙。
+
+根据国际自然保护联盟（IUCN）的分类，高角羚整体并不处于危险状态，被列为“无危”物种。但黑脸高角羚情况不同，它被认定为“易危”物种，截至2008年，野外数量估计不到1000只。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%ab%98%e8%a7%92%e7%be%9a&form=hpcapt&filters=HpDate:"20260104_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260105_ImpalaRooibok"&FORM=HPQUIZ "必应主页测验 2026 1月 5")
+[下载480](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_800x480.jpg&rf=LaDigue_800x480.jpg "一群高角羚, 隆多洛齐野生动物保护区, 南非")
+[下载720](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_1280x720.jpg&rf=LaDigue_1280x720.jpg "一群高角羚, 隆多洛齐野生动物保护区, 南非")
+[下载1080](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一群高角羚, 隆多洛齐野生动物保护区, 南非")
+[下载UHD](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_UHD.jpg&rf=LaDigue_UHD.jpg "一群高角羚, 隆多洛齐野生动物保护区, 南非")
+
+---
 ### 01月04日：王者视野
 #### 国王山, 楚加奇山脉, 阿拉斯加, 美国（© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_1280x720.jpg&rf=LaDigue_1280x720.jpg "法兰克福老桥，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "法兰克福老桥，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_UHD.jpg&rf=LaDigue_UHD.jpg "法兰克福老桥，德国")
-
----
-### 12月21日：美丽的雾凇景色
-#### 美丽的雾凇景色，大庆市，黑龙江省，中国（© Dashu Xinganling/shutterstock）
-
-![美丽的雾凇景色](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_800x480.jpg&rf=LaDigue_800x480.jpg "美丽的雾凇景色")
-
-当2025年的冬至如期而至，北国大地被银装素裹，东北的雾凇奇景更添了几分童话般的浪漫。漫步在雾凇林中，脚下是松软的积雪，发出细微的沙沙声，仿佛是大自然最轻柔的私语。空气中弥漫着清新的气息，仿佛能净化一切尘埃，让人心旷神怡。
-
-雾凇可分为两种：一种是晶状雾凇，一种是粒状雾凇。中国是世界上记载雾凇最早的国家，早在春秋时代成书的《春秋》中就有记载。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%86%ac%e8%87%b3&form=hpcapt&filters=HpDate:"20251220_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251221_WintersolsticeY25"&FORM=HPQUIZ "必应主页测验 2025 12月 21")
-[下载480](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_800x480.jpg&rf=LaDigue_800x480.jpg "美丽的雾凇景色，大庆市，黑龙江省，中国")
-[下载720](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_1280x720.jpg&rf=LaDigue_1280x720.jpg "美丽的雾凇景色，大庆市，黑龙江省，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美丽的雾凇景色，大庆市，黑龙江省，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_UHD.jpg&rf=LaDigue_UHD.jpg "美丽的雾凇景色，大庆市，黑龙江省，中国")
 
 ---
