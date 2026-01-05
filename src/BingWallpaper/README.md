@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月06日：努克的慵懒时光
+#### 努克, 格陵兰（© nevereverro/Getty Images）
+
+![努克的慵懒时光](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_800x480.jpg&rf=LaDigue_800x480.jpg "努克的慵懒时光")
+
+想象一下，日常通勤途中，映入眼底的是峡湾风光、漂移的冰块，以及天际舞动的极光——这不是梦，而是努克的日常。作为格陵兰的首都，这座小而灵动的北极城市，将因纽特文化与北欧现代气息交织融合。它的故事始于1728年，由丹麦-挪威传教士汉斯·埃格德创建，最初的名字叫“Godthaab”，寓意“美好希望”。
+
+努克虽是小镇，却发展了贸易、商业、航运等产业。与格陵兰大部分地区一样，努克高度依赖丹麦的资金支持与整体拨款。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8a%aa%e5%85%8b%e6%a0%bc%e9%99%b5%e5%85%b0%e5%b2%9b&form=hpcapt&filters=HpDate:"20260105_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260106_NuukGreenland"&FORM=HPQUIZ "必应主页测验 2026 1月 6")
+[下载480](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_800x480.jpg&rf=LaDigue_800x480.jpg "努克, 格陵兰")
+[下载720](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_1280x720.jpg&rf=LaDigue_1280x720.jpg "努克, 格陵兰")
+[下载1080](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "努克, 格陵兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_UHD.jpg&rf=LaDigue_UHD.jpg "努克, 格陵兰")
+
+---
 ### 01月05日：高角羚群紧急戒备
 #### 一群高角羚, 隆多洛齐野生动物保护区, 南非（© Mint Images/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_1280x720.jpg&rf=LaDigue_1280x720.jpg "冬雪中的驯鹿，拉普兰德，芬兰")
 [下载1080](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冬雪中的驯鹿，拉普兰德，芬兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_UHD.jpg&rf=LaDigue_UHD.jpg "冬雪中的驯鹿，拉普兰德，芬兰")
-
----
-### 12月22日：历史与现代的交融
-#### 法兰克福老桥，德国（© diegograndi/Getty Images）
-
-![历史与现代的交融](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_800x480.jpg&rf=LaDigue_800x480.jpg "历史与现代的交融")
-
-位于德国中心地带的法兰克福是一座以现代天际线与历史古城交织闻名的活力都市。老桥是其中的标志性建筑之一，自中世纪以来便横跨美因河，是这座城市现存最古老的河上通道之一。几个世纪以来，它一直是重要的贸易通道。如今的老桥建于1912至1926年间，将老城区与萨克森豪森区连接起来，从这里能欣赏到壮丽的“美因哈顿”天际线与法兰克福大教堂，这是传统与现代融合的象征。尤其在日落时分，更是格外迷人。
-
-自1222年在官方文件中首次被提及以来，法兰克福的发展一直深受这座桥的影响。几个世纪以来，老桥至少被毁坏和重建了18次。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b3%95%e5%85%b0%e5%85%8b%e7%a6%8f%e8%80%81%e6%a1%a5&form=hpcapt&filters=HpDate:"20251221_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251222_FrankfurtAlteBruecke"&FORM=HPQUIZ "必应主页测验 2025 12月 22")
-[下载480](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_800x480.jpg&rf=LaDigue_800x480.jpg "法兰克福老桥，德国")
-[下载720](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_1280x720.jpg&rf=LaDigue_1280x720.jpg "法兰克福老桥，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "法兰克福老桥，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_UHD.jpg&rf=LaDigue_UHD.jpg "法兰克福老桥，德国")
 
 ---
