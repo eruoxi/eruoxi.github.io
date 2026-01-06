@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月07日：古老岩石的传奇
+#### 拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国（© Jim Patterson/TANDEM Stills + Motion）
+
+![古老岩石的传奇](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_800x480.jpg&rf=LaDigue_800x480.jpg "古老岩石的传奇")
+
+今天，让我们重新审视时间的尺度。古岩石日，揭开地球深藏的秘密：亿万年的风沙、海洋与火焰，塑造了我们脚下的世界。在犹他州拱门国家公园，透过北窗眺望炮塔拱门，仿佛凝视一段漫长的史诗。如今的拱门由恩特拉达砂岩构成，而那些砂岩曾是流动的沙丘和浅海，经过漫长侵蚀才雕刻出如今的拱形。可即便如此，这些地质构造仍算年轻。地壳在板块、侵蚀与火山的轮回中不断重生，唯有古老的大陆地盾守护着真正的远古。加拿大的阿卡斯塔片麻岩，约有40亿年历史，是目前已知最古老、仍扎根原处的岩石。
+
+自2000年以来，拱门国家公园持续开展古生物野外研究，发现了多处新的重要化石点。这里的化石种类丰富，包括脊椎动物、无脊椎动物、植物，以及记录生物活动的痕迹化石。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%8b%b1%e9%97%a8%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260106_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260107_OldRockArch"&FORM=HPQUIZ "必应主页测验 2026 1月 7")
+[下载480](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_800x480.jpg&rf=LaDigue_800x480.jpg "拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_1280x720.jpg&rf=LaDigue_1280x720.jpg "拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_UHD.jpg&rf=LaDigue_UHD.jpg "拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国")
+
+---
 ### 01月06日：努克的慵懒时光
 #### 努克, 格陵兰（© nevereverro/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_UHD.jpg&rf=LaDigue_UHD.jpg "巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国")
-
----
-### 12月23日：当节日的魔法踩着蹄声而来
-#### 冬雪中的驯鹿，拉普兰德，芬兰（© Roberto Moiola/Getty Images）
-
-![当节日的魔法踩着蹄声而来](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_800x480.jpg&rf=LaDigue_800x480.jpg "当节日的魔法踩着蹄声而来")
-
-很少有动物能像驯鹿那样唤起节日的魔力。驯鹿也被称为北美驯鹿，是不折不扣的“圣诞精神图腾”。自从克莱门特·克拉克·摩尔在1823年的诗作《圣尼古拉来访记》中为它们安排了拉雪橇的角色后，驯鹿便成为圣诞故事中不可缺少的动物明星。而且它们天生适合这份工作。它们的蹄子在冬季会收缩，露出能抓地的边缘，而在温暖的月份则会膨胀，以获得更好的抓地力。这还不足以让你感到惊叹？想想看，驯鹿体内并没有传统意义的“生物钟”。它们通过调节控制睡眠的褪黑激素来适应极地的极昼与极夜，使它们能够在无尽的黑夜中保持清醒，完成“送礼物”般的长途跋涉。驯鹿能托着圣诞老人飞行，在陆地上奔跑如风，在冰冷水域中也能轻松游动，这都得益于它们强健的体魄和优秀的游泳能力。成年雄性体重可达550磅，一对鹿角甚至可延展至55英寸，最多长出44个枝叉，堪称天然王冠。今日图片拍摄于芬兰，在那里，驯鹿的数量甚至多于人类。它们悠然漫步于这片古老土地，如同它们所代表的节日精神一样永恒不朽。
-
-野生驯鹿的寿命可达15年，而由人工照料下的驯鹿寿命甚至可延长至20年。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%af%e9%b9%bf&form=hpcapt&filters=HpDate:"20251222_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251223_ReindeerFinland"&FORM=HPQUIZ "必应主页测验 2025 12月 23")
-[下载480](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_800x480.jpg&rf=LaDigue_800x480.jpg "冬雪中的驯鹿，拉普兰德，芬兰")
-[下载720](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_1280x720.jpg&rf=LaDigue_1280x720.jpg "冬雪中的驯鹿，拉普兰德，芬兰")
-[下载1080](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冬雪中的驯鹿，拉普兰德，芬兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_UHD.jpg&rf=LaDigue_UHD.jpg "冬雪中的驯鹿，拉普兰德，芬兰")
 
 ---
