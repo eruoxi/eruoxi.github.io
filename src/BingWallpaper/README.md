@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月08日：废墟之上，椋鸟群舞
+#### 椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰（© Philip Reeve/Photodisc/Getty Images）
+
+![废墟之上，椋鸟群舞](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_800x480.jpg&rf=LaDigue_800x480.jpg "废墟之上，椋鸟群舞")
+
+椋鸟是天生的“舞台明星”，它们深谙抢镜之道：羽毛在阳光下闪烁绿紫光泽，叫声里还夹杂着模仿的趣味。椋鸟原产于欧亚大陆，如今已遍布全球。19世纪，一位痴迷莎士比亚作品的鸟类爱好者，将椋鸟引入纽约中央公园，从此开启了它们的美洲传奇。
+
+椋鸟的鸣声丰富而复杂，它们甚至会把周围的声音融入自己的叫声，从汽车警报到人类的语音节奏，无所不包。更令人惊讶的是，它们能凭叫声辨认特定的同伴。这种能力，使椋鸟成为科学家探索语言起源的重要线索。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a4%8b%e9%b8%9f&form=hpcapt&filters=HpDate:"20260107_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260108_StarlingBrighton2025"&FORM=HPQUIZ "必应主页测验 2026 1月 8")
+[下载480](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_800x480.jpg&rf=LaDigue_800x480.jpg "椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_1280x720.jpg&rf=LaDigue_1280x720.jpg "椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_UHD.jpg&rf=LaDigue_UHD.jpg "椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰")
+
+---
 ### 01月07日：古老岩石的传奇
 #### 拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国（© Jim Patterson/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_1280x720.jpg&rf=LaDigue_1280x720.jpg "海德堡圣诞市场上的雪球，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海德堡圣诞市场上的雪球，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_UHD.jpg&rf=LaDigue_UHD.jpg "海德堡圣诞市场上的雪球，德国")
-
----
-### 12月24日：流动的传统
-#### 巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国（© mauritius images GmbH/Alamy）
-
-![流动的传统](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_800x480.jpg&rf=LaDigue_800x480.jpg "流动的传统")
-
-随着平安夜的到来，数以百万计的人们拥抱那些将我们与根源相连的习俗，或者接触全新的文化。如今日图片中所见的那样，在德国巴伐利亚阿尔卑斯山的雪景中，节日灯光在寒冬中闪耀；而在地球的另一端，比如加勒比海、澳大利亚或巴西，耀眼阳光洒在金色海滩上，圣诞节的画面则截然不同
-
-传统的圣诞节点心包括姜饼、德国圣诞果脯面包、奶油酥饼，以及杏仁软糖。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b9%b3%e5%ae%89%e5%a4%9c&form=hpcapt&filters=HpDate:"20251223_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251224_ElmauChapel"&FORM=HPQUIZ "必应主页测验 2025 12月 24")
-[下载480](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_800x480.jpg&rf=LaDigue_800x480.jpg "巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国")
-[下载720](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_UHD.jpg&rf=LaDigue_UHD.jpg "巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国")
 
 ---
