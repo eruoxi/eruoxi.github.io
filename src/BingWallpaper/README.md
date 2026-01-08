@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月09日：时光在此处茁壮成长
+#### 缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国（© photo by canderson/Getty Images）
+
+![时光在此处茁壮成长](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_800x480.jpg&rf=LaDigue_800x480.jpg "时光在此处茁壮成长")
+
+走进巨人的国度吧。试着像拥抱一位温柔的巨人那样，把双臂环在红杉粗壮的树干上，触摸蕴藏着千年智慧的时间年轮。欢迎来到缪尔树林国家纪念地——它在1908年的今天正式诞生，坐落于旧金山北部，是一座由海岸红杉构成的壮丽殿堂。这里的红杉是地球上最高的树木，其中一棵高达约258英尺，相当于43个人从头到脚叠加的高度。这些树大多已经600到800岁，有的甚至跨越了千年。但对于一个最长能活到2000年的物种来说，它们依然算是“年轻的巨人”。在这片幽深的原始森林中，每一棵高耸入云的红杉都是时间的见证者，也是一位静默的守护者。
+
+自1908年被正式列为国家纪念地以来，这片原始林地便既是生命的避所，也是自然的课堂，悄然展现着人类与这片活力大地的深层纽带。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%bc%aa%e5%b0%94%e6%a0%91%e6%9e%97%e5%9b%bd%e5%ae%b6%e4%bf%9d%e6%8a%a4%e5%8c%ba&form=hpcapt&filters=HpDate:"20260108_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260109_MuirWoodsMonument"&FORM=HPQUIZ "必应主页测验 2026 1月 9")
+[下载480](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_800x480.jpg&rf=LaDigue_800x480.jpg "缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_1280x720.jpg&rf=LaDigue_1280x720.jpg "缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_UHD.jpg&rf=LaDigue_UHD.jpg "缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国")
+
+---
 ### 01月08日：废墟之上，椋鸟群舞
 #### 椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰（© Philip Reeve/Photodisc/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_1280x720.jpg&rf=LaDigue_1280x720.jpg "索尔兹伯里大教堂，威尔特郡，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "索尔兹伯里大教堂，威尔特郡，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_UHD.jpg&rf=LaDigue_UHD.jpg "索尔兹伯里大教堂，威尔特郡，英格兰")
-
----
-### 12月25日：微缩世界，无尽奇想
-#### 海德堡圣诞市场上的雪球，德国（© George Pachantouris/Getty Images）
-
-![微缩世界，无尽奇想](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_800x480.jpg&rf=LaDigue_800x480.jpg "微缩世界，无尽奇想")
-
-在德国海德堡的冬日天空下，集市摊位间闪烁着一只只雪花水晶球，每个玻璃球都以微缩世界的形式捕捉着节日的氛围。如今的圣诞节一个关于信仰、光明与团聚的基督教庆典，邀请我们在一年中最寒冷的日子里迎来温暖与欢乐。在世界各地，窗台上的烛光温柔摇曳，花环装点着街巷与家门，常青树装饰一新，枝头挂满饰品，树下的礼物静静等待被打开。
-
-在大多数西方国家，圣诞节是一年中商业活动最为冷清的一天；几乎所有零售店、商铺和公共机构都会关门停业，几乎所有行业也都会暂停运作，无论法律是否有此规定。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e8%af%9e%e8%8a%82&form=hpcapt&filters=HpDate:"20251224_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251225_SantaGlobe"&FORM=HPQUIZ "必应主页测验 2025 12月 25")
-[下载480](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_800x480.jpg&rf=LaDigue_800x480.jpg "海德堡圣诞市场上的雪球，德国")
-[下载720](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_1280x720.jpg&rf=LaDigue_1280x720.jpg "海德堡圣诞市场上的雪球，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海德堡圣诞市场上的雪球，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_UHD.jpg&rf=LaDigue_UHD.jpg "海德堡圣诞市场上的雪球，德国")
 
 ---
