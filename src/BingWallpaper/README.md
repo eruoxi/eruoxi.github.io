@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月10日：纯粹的瑞士魔力
+#### 日出时分，马特洪峰的倒影映照在斯特利湖中, 采尔马特, 瑞士（© Andy Trowbridge/naturepl.com）
+
+![纯粹的瑞士魔力](https://cn.bing.com/th?id=OHR.MatterhornSunrise_ZH-CN3171879631_800x480.jpg&rf=LaDigue_800x480.jpg "纯粹的瑞士魔力")
+
+鲜有景致能像马特洪峰倒映在斯特利湖如镜的湖面上那般，完美呈现阿尔卑斯的灵魂。这座传奇山峰耸立在瑞士与意大利边境，海拔高达14,692英尺，象征着大自然的壮美与冒险精神，吸引着世界各地的攀登者、徒步者与追梦人。
+
+马特洪峰的首次攀登发生在 1865 年。当时的队伍中，有四人不幸罹难。但这并未阻止后来者，无数登山者依旧以登顶它为目标。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e7%89%b9%e6%b4%aa%e5%b3%b0&form=hpcapt&filters=HpDate:"20260109_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260110_MatterhornSunrise"&FORM=HPQUIZ "必应主页测验 2026 1月 10")
+[下载480](https://cn.bing.com/th?id=OHR.MatterhornSunrise_ZH-CN3171879631_800x480.jpg&rf=LaDigue_800x480.jpg "日出时分，马特洪峰的倒影映照在斯特利湖中, 采尔马特, 瑞士")
+[下载720](https://cn.bing.com/th?id=OHR.MatterhornSunrise_ZH-CN3171879631_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时分，马特洪峰的倒影映照在斯特利湖中, 采尔马特, 瑞士")
+[下载1080](https://cn.bing.com/th?id=OHR.MatterhornSunrise_ZH-CN3171879631_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时分，马特洪峰的倒影映照在斯特利湖中, 采尔马特, 瑞士")
+[下载UHD](https://cn.bing.com/th?id=OHR.MatterhornSunrise_ZH-CN3171879631_UHD.jpg&rf=LaDigue_UHD.jpg "日出时分，马特洪峰的倒影映照在斯特利湖中, 采尔马特, 瑞士")
+
+---
 ### 01月09日：时光在此处茁壮成长
 #### 缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国（© photo by canderson/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_1280x720.jpg&rf=LaDigue_1280x720.jpg "苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_UHD.jpg&rf=LaDigue_UHD.jpg "苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国")
-
----
-### 12月26日：打破盒子的传统
-#### 索尔兹伯里大教堂，威尔特郡，英格兰（© Julian Elliott Photography/Getty Images）
-
-![打破盒子的传统](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_800x480.jpg&rf=LaDigue_800x480.jpg "打破盒子的传统")
-
-节礼日的妙处在于，它不需要你费心操劳：没有倒计时的喧嚣，没有拆礼物的惊喜，更不用临时奔波买电池。这是一个罕见的节日，仿佛在轻声说：“坐下来，吃掉剩菜，给自己一点时间。”每年12月26日，英国及部分英联邦国家都会庆祝这个节日，它像是一场圣诞狂欢后的温柔缓冲。节礼日的起源可追溯至维多利亚时代，当时人们会为工人和商贩准备“圣诞礼盒”，作为谢意，礼盒里可能是硬币，也可能是生活用品。教堂也参与其中，开启施舍箱，将捐赠分发给有需要的人。
-
-据《牛津英语词典》记载，这一用法最早出现在1743年的英国，定义为"圣诞节次日"，并说明"传统上，这一天商人、雇员等会……"
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8a%82%e7%a4%bc%e6%97%a5&form=hpcapt&filters=HpDate:"20251225_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251226_WiltshireDawn"&FORM=HPQUIZ "必应主页测验 2025 12月 26")
-[下载480](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_800x480.jpg&rf=LaDigue_800x480.jpg "索尔兹伯里大教堂，威尔特郡，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_1280x720.jpg&rf=LaDigue_1280x720.jpg "索尔兹伯里大教堂，威尔特郡，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "索尔兹伯里大教堂，威尔特郡，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_UHD.jpg&rf=LaDigue_UHD.jpg "索尔兹伯里大教堂，威尔特郡，英格兰")
 
 ---
