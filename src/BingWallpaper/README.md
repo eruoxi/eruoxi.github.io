@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月11日：从抗拒到绽放
+#### 舍夫沙万的蓝色墙壁, 摩洛哥（© AnetteAndersen/Getty Images）
+
+![从抗拒到绽放](https://cn.bing.com/th?id=OHR.BlueMorocco_ZH-CN3296596109_800x480.jpg&rf=LaDigue_800x480.jpg "从抗拒到绽放")
+
+1944年1月11日，摩洛哥迈出了通往自由的关键一步。当天，66位民族领袖共同签署《独立宣言》，要求结束法国和西班牙的殖民统治，并明确表达国家拥有主权的正当权利。这份宣言在苏丹穆罕默德五世的支持下递交，不仅呈交给殖民当局，也送达了美国、英国以及前苏联的代表，向世界传达出摩洛哥争取独立的呼声与全球自决潮流息息相关。尽管随后遭到打压与镇压，独立运动仍顽强坚持。直到1956年，摩洛哥终于实现完全独立，这一历史节点也成为北非地区迈向自主新时代的重要转折。
+
+舍夫沙万那一整片深浅交织的蓝墙，总能勾起游客的好奇。关于为何要把墙漆成蓝色，流传着多种说法，其中最广为人知的一种解释是：蓝色能驱赶蚊虫。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%91%a9%e6%b4%9b%e5%93%a5%e8%88%8d%e5%a4%ab%e6%b2%99%e4%b8%87&form=hpcapt&filters=HpDate:"20260110_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260111_BlueMorocco"&FORM=HPQUIZ "必应主页测验 2026 1月 11")
+[下载480](https://cn.bing.com/th?id=OHR.BlueMorocco_ZH-CN3296596109_800x480.jpg&rf=LaDigue_800x480.jpg "舍夫沙万的蓝色墙壁, 摩洛哥")
+[下载720](https://cn.bing.com/th?id=OHR.BlueMorocco_ZH-CN3296596109_1280x720.jpg&rf=LaDigue_1280x720.jpg "舍夫沙万的蓝色墙壁, 摩洛哥")
+[下载1080](https://cn.bing.com/th?id=OHR.BlueMorocco_ZH-CN3296596109_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "舍夫沙万的蓝色墙壁, 摩洛哥")
+[下载UHD](https://cn.bing.com/th?id=OHR.BlueMorocco_ZH-CN3296596109_UHD.jpg&rf=LaDigue_UHD.jpg "舍夫沙万的蓝色墙壁, 摩洛哥")
+
+---
 ### 01月10日：纯粹的瑞士魔力
 #### 日出时分，马特洪峰的倒影映照在斯特利湖中, 采尔马特, 瑞士（© Andy Trowbridge/naturepl.com）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_1280x720.jpg&rf=LaDigue_1280x720.jpg "马达加斯加的黑白环尾狐猴")
 [下载1080](https://cn.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马达加斯加的黑白环尾狐猴")
 [下载UHD](https://cn.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_UHD.jpg&rf=LaDigue_UHD.jpg "马达加斯加的黑白环尾狐猴")
-
----
-### 12月27日：冬之碎片
-#### 苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国（© wanderluster/Getty Images）
-
-![冬之碎片](https://cn.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_800x480.jpg&rf=LaDigue_800x480.jpg "冬之碎片")
-
-在明尼苏达的苏必利尔湖，冬季来临时，湖岸会出现一种名为“板冰”的奇特景象：薄冰在温度变化下破裂，随风漂移并堆叠，最终形成倾斜的冰片，如同玻璃碎片般闪耀。蓝色与银色交织的半透明冰面在阳光下折射出锐利的光影，使湖边看起来更像艺术雕塑，而非冰封。
-
-苏必利尔湖是全球面积最大的淡水湖，水量则位居第三，仅次于西伯利亚的贝加尔湖和东非的坦噶尼喀湖。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%98%8e%e5%b0%bc%e8%8b%8f%e8%be%be%e5%b7%9e%e8%8b%8f%e5%bf%85%e5%88%a9%e5%b0%94%e6%b9%96&form=hpcapt&filters=HpDate:"20251226_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251227_SuperiorIceMN"&FORM=HPQUIZ "必应主页测验 2025 12月 27")
-[下载480](https://cn.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_800x480.jpg&rf=LaDigue_800x480.jpg "苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_1280x720.jpg&rf=LaDigue_1280x720.jpg "苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_UHD.jpg&rf=LaDigue_UHD.jpg "苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国")
 
 ---
