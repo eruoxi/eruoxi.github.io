@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月12日：水獭之国爱沙尼亚
+#### 欧亚水獭和幼崽, 爱沙尼亚（© Sven Zacek/naturepl.com）
+
+![水獭之国爱沙尼亚](https://cn.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_800x480.jpg&rf=LaDigue_800x480.jpg "水獭之国爱沙尼亚")
+
+真正吸引人的，并不是雪地里那串脚印，而是那些从洞口探出头来的小家伙——脸上挂着一层白白的霜，好像刚刚意识到“啊，这就是冬天啊”。在欧洲想看欧亚水獭，爱沙尼亚是再合适不过的地方：清洁的河流、开阔的湿地，还有食物充足的海岸线，都让它们在这里自在生息。这个受保护的物种也因此在2024年被选为当地的“年度动物”。尽管欧亚水獭在全球范围内仍被视为近危，但在爱沙尼亚，它们的数量却一路回升——从千禧年前后仅约300只的低谷，增长到近些年大约2000只，悄悄写下了一段复苏故事。
+
+欧亚水獭和其他鼬科动物一样，力量远比体型看上去更强，足以制服比自己大得多的猎物。它们偶尔甚至会捕猎体型庞大的水鸟，比如成年的灰雁。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e4%ba%9a%e6%b0%b4%e7%8d%ad&form=hpcapt&filters=HpDate:"20260111_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260112_SnowOtters"&FORM=HPQUIZ "必应主页测验 2026 1月 12")
+[下载480](https://cn.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_800x480.jpg&rf=LaDigue_800x480.jpg "欧亚水獭和幼崽, 爱沙尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧亚水獭和幼崽, 爱沙尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚水獭和幼崽, 爱沙尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚水獭和幼崽, 爱沙尼亚")
+
+---
 ### 01月11日：从抗拒到绽放
 #### 舍夫沙万的蓝色墙壁, 摩洛哥（© AnetteAndersen/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其")
 [下载1080](https://cn.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其")
 [下载UHD](https://cn.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_UHD.jpg&rf=LaDigue_UHD.jpg "阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其")
-
----
-### 12月28日：仍存野性
-#### 马达加斯加的黑白环尾狐猴（© Cyrielle Beaubois/Getty Images）
-
-![仍存野性](https://cn.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_800x480.jpg&rf=LaDigue_800x480.jpg "仍存野性")
-
-《濒危物种法》颁布至今已51年，其宗旨依然明确：保护濒临灭绝的物种，守护它们赖以生存的栖息地。该法案于1973年签署，成为全球最强有力的保护法律之一，影响力远超美国本土。它证明了当科学研究与执法行动协同时，物种复苏便成为可能。尤其对于那些命运系于国际关注的物种，这种影响更为深远。马达加斯加的黑白环尾狐猴就是典型代表。许多人因动画片《马达加斯加》认识狐猴，但现实中的它们却面临严酷的生存困境。这种外形醒目的灵长类动物已被列为极危物种，只能在日益破碎的森林中艰难存活，栖息地丧失始终是它们挥之不去的威胁。
-
-黑白环尾狐猴拥有一种少见的特性：雌性在群体中占据主导，无论是在进食时，还是在其他社交场合。这种雌性优势也出现在其他长毛狐猴、环尾狐猴以及红长毛狐猴身上。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%bb%91%e7%99%bd%e7%8e%af%e5%b0%be%e7%8b%90%e7%8c%b4&form=hpcapt&filters=HpDate:"20251227_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251228_RuffedLemur"&FORM=HPQUIZ "必应主页测验 2025 12月 28")
-[下载480](https://cn.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_800x480.jpg&rf=LaDigue_800x480.jpg "马达加斯加的黑白环尾狐猴")
-[下载720](https://cn.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_1280x720.jpg&rf=LaDigue_1280x720.jpg "马达加斯加的黑白环尾狐猴")
-[下载1080](https://cn.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马达加斯加的黑白环尾狐猴")
-[下载UHD](https://cn.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_UHD.jpg&rf=LaDigue_UHD.jpg "马达加斯加的黑白环尾狐猴")
 
 ---
