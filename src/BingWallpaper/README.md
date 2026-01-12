@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月13日：苹果韵，旧时光
+#### 克卢伊德谷, 威尔士（© Valerie Blencowe/Getty Images）
+
+![苹果韵，旧时光](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_800x480.jpg&rf=LaDigue_800x480.jpg "苹果韵，旧时光")
+
+大多数人会在一月的第一周就完成新年计划。然而威尔士有个迷人的传统，人们总会说：“等等，我们还有一场庆祝活动。”于是便有了“Hen Galan”——“旧新年”的庆祝活动，每年1月13日，在威尔士的几处乡地举行，尤其以格温山谷最为知名。这个日子源自古老的儒略历，虽然英国其他地方早就换成格里高利历了，但这里的人依旧沿用老传统。
+
+克卢伊德谷生长的丹比赫李子几乎与威尔士的土地融为一体，这片土地被认为是全英国最富饶、最天然的沃土之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%94%e5%a3%ab%e5%85%8b%e5%8d%a2%e4%bc%8a%e5%be%b7%e8%b0%b7&form=hpcapt&filters=HpDate:"20260112_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260113_WalesWinter"&FORM=HPQUIZ "必应主页测验 2026 1月 13")
+[下载480](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_800x480.jpg&rf=LaDigue_800x480.jpg "克卢伊德谷, 威尔士")
+[下载720](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_1280x720.jpg&rf=LaDigue_1280x720.jpg "克卢伊德谷, 威尔士")
+[下载1080](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克卢伊德谷, 威尔士")
+[下载UHD](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_UHD.jpg&rf=LaDigue_UHD.jpg "克卢伊德谷, 威尔士")
+
+---
 ### 01月12日：水獭之国爱沙尼亚
 #### 欧亚水獭和幼崽, 爱沙尼亚（© Sven Zacek/naturepl.com）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_1280x720.jpg&rf=LaDigue_1280x720.jpg "晨光透过结霜的树木洒下，瑞典")
 [下载1080](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "晨光透过结霜的树木洒下，瑞典")
 [下载UHD](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_UHD.jpg&rf=LaDigue_UHD.jpg "晨光透过结霜的树木洒下，瑞典")
-
----
-### 12月29日：一座比城市更悠久的教堂
-#### 阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其（© Kenan Talas/Getty Images）
-
-![一座比城市更悠久的教堂](https://cn.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_800x480.jpg&rf=LaDigue_800x480.jpg "一座比城市更悠久的教堂")
-
-在土耳其东部与亚美尼亚接壤的边境地带，一片风吹草低的台地上，阿尼古城遗址在荒野中清晰浮现。千年前，这里是丝绸之路上的繁华都城，城墙巍峨，街市喧闹，商旅往来不息，文化在此交汇。如今，风声取代了人声，但那沧桑的轮廓，仍默默诉说着昔日的辉煌。
-
-公元961年至1045年间，这里曾是巴格拉图尼王朝亚美尼亚王国的首都，其疆域涵盖现今亚美尼亚大部分地区及土耳其东部。这座传奇之城常被誉为"千座教堂之城"，但实际教堂数量远不及此。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%9f%e8%80%b3%e5%85%b6%e9%98%bf%e5%b0%bc%e9%81%97%e5%9d%80&form=hpcapt&filters=HpDate:"20251228_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251229_AniTurkey"&FORM=HPQUIZ "必应主页测验 2025 12月 29")
-[下载480](https://cn.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_800x480.jpg&rf=LaDigue_800x480.jpg "阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其")
-[下载720](https://cn.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其")
-[下载1080](https://cn.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其")
-[下载UHD](https://cn.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_UHD.jpg&rf=LaDigue_UHD.jpg "阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其")
 
 ---
