@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月14日：帕拉米蒂的历史之阶
+#### 帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊（© George Pachantouris/Getty Images）
+
+![帕拉米蒂的历史之阶](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_800x480.jpg&rf=LaDigue_800x480.jpg "帕拉米蒂的历史之阶")
+
+爬楼梯日定于每年一月的第二个星期三，这个日子鼓励大家在日常里多动一动：少坐电梯，多爬几级楼梯，或者抽空去走走、骑骑车。虽然都是小动作，却能慢慢养成更健康的生活方式。在如今空气污染加重、许多人又有慢性肺病的情况下，这些看似简单的动作显得尤为重要。
+
+这些曾经在威尼斯人与土耳其人统治下改名多次的堡垒，最终又被希腊人重新命名。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%95%e6%8b%89%e7%b1%b3%e8%92%82%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20260113_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260114_PalamidiFortress"&FORM=HPQUIZ "必应主页测验 2026 1月 14")
+[下载480](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_800x480.jpg&rf=LaDigue_800x480.jpg "帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊")
+[下载720](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_UHD.jpg&rf=LaDigue_UHD.jpg "帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊")
+
+---
 ### 01月13日：苹果韵，旧时光
 #### 克卢伊德谷, 威尔士（© Valerie Blencowe/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_1280x720.jpg&rf=LaDigue_1280x720.jpg "除夕夜，奥伯鲍姆桥，柏林，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "除夕夜，奥伯鲍姆桥，柏林，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_UHD.jpg&rf=LaDigue_UHD.jpg "除夕夜，奥伯鲍姆桥，柏林，德国")
-
----
-### 12月30日：新太阳的诞生
-#### 晨光透过结霜的树木洒下，瑞典（© Schon/Getty Images）
-
-![新太阳的诞生](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_800x480.jpg&rf=LaDigue_800x480.jpg "新太阳的诞生")
-
-冬季也总是有一些令人流连忘返的景色，例如瑞典的这片树林，就像踏入了一个银白的童话世界。高大的树木身披厚厚的霜雪外衣，像是忠诚的卫士，静静地伫立。每阳光透过树枝的缝隙洒下，形成一道道金色的光线，与洁白的雪相互交织，营造出一种如梦似幻的氛围。雪花在阳光的照耀下闪烁着晶莹的光芒，像是无数颗细碎的钻石，镶嵌在这银白的世界里。
-
-在瑞典，从10月到次年3月你可挑战凛冽冬夜，回报将是自然界最壮观的景象之一——北极光。这些红，绿，紫色的光幕时常在天空中翩翩起舞起舞。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e5%8d%8a%e7%90%83%e7%9a%84%e5%86%ac%e5%ad%a3&form=hpcapt&filters=HpDate:"20251229_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251230_SwedenSolstice"&FORM=HPQUIZ "必应主页测验 2025 12月 30")
-[下载480](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_800x480.jpg&rf=LaDigue_800x480.jpg "晨光透过结霜的树木洒下，瑞典")
-[下载720](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_1280x720.jpg&rf=LaDigue_1280x720.jpg "晨光透过结霜的树木洒下，瑞典")
-[下载1080](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "晨光透过结霜的树木洒下，瑞典")
-[下载UHD](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_UHD.jpg&rf=LaDigue_UHD.jpg "晨光透过结霜的树木洒下，瑞典")
 
 ---
