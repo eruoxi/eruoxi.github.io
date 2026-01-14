@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月15日：小村庄，大视野
+#### 雷讷渔村, 挪威（© Roberto Moiola/Cavan Images/SuperStock）
+
+![小村庄，大视野](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_800x480.jpg&rf=LaDigue_800x480.jpg "小村庄，大视野")
+
+深藏在挪威北极圈的雷讷，宛如明信片上令人难以置信的梦幻之地，让人第一眼就怀疑它是否真实存在。这个仅有300余名居民的小渔村，因陡峭的山峰、安静的峡湾，以及沿着海岸散落的亮红色渔人小屋（rorbuer）而闻名。尽管渔村规模不大，雷讷每年仍吸引着成千上万的游客前来探访。
+
+如今，小镇已基本从渔业转向旅游业，昔日的渔民小屋被改装成精品酒店客房，特色餐厅也纷纷开业。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%9b%b7%e8%ae%b7&form=hpcapt&filters=HpDate:"20260114_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260115_ReineSunrise"&FORM=HPQUIZ "必应主页测验 2026 1月 15")
+[下载480](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_800x480.jpg&rf=LaDigue_800x480.jpg "雷讷渔村, 挪威")
+[下载720](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_1280x720.jpg&rf=LaDigue_1280x720.jpg "雷讷渔村, 挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷讷渔村, 挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_UHD.jpg&rf=LaDigue_UHD.jpg "雷讷渔村, 挪威")
+
+---
 ### 01月14日：帕拉米蒂的历史之阶
 #### 帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊（© George Pachantouris/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_1280x720.jpg&rf=LaDigue_1280x720.jpg "正在睡觉的北极狐")
 [下载1080](https://cn.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "正在睡觉的北极狐")
 [下载UHD](https://cn.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_UHD.jpg&rf=LaDigue_UHD.jpg "正在睡觉的北极狐")
-
----
-### 12月31日：柏林，新年之桥
-#### 除夕夜，奥伯鲍姆桥，柏林，德国（© spreephoto.de/Getty Images）
-
-![柏林，新年之桥](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_800x480.jpg&rf=LaDigue_800x480.jpg "柏林，新年之桥")
-
-三、二、一……等等，先按下暂停键。新年还没到，但柏林的奥伯鲍姆桥仿佛已经提前按下了“庆祝”按钮。今晚，这座桥不再只是河上的通道，而是一条通往新年的跑道：引擎低鸣，烟花预热，人群齐声练习着那句“新年快乐！”
-
-新年的脚步由时区决定。最先跨入新年的，是国际日期变更线以西的太平洋岛屿：基里巴斯的莱恩群岛、萨摩亚，以及汤加。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%99%a4%e5%a4%95%e5%a4%9c&form=hpcapt&filters=HpDate:"20251230_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2025 12月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20251231_GermanyNewYear"&FORM=HPQUIZ "必应主页测验 2025 12月 31")
-[下载480](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_800x480.jpg&rf=LaDigue_800x480.jpg "除夕夜，奥伯鲍姆桥，柏林，德国")
-[下载720](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_1280x720.jpg&rf=LaDigue_1280x720.jpg "除夕夜，奥伯鲍姆桥，柏林，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "除夕夜，奥伯鲍姆桥，柏林，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_UHD.jpg&rf=LaDigue_UHD.jpg "除夕夜，奥伯鲍姆桥，柏林，德国")
 
 ---
