@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月16日：眼神对上了
+#### 埃托沙国家公园的豹子，纳米比亚（© Norbert Achtelik/Cavan Images）
+
+![眼神对上了](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_800x480.jpg&rf=LaDigue_800x480.jpg "眼神对上了")
+
+看过野生动物纪录片的人，都记得那一幕：镜头滑过安静的草原，风声微动，下一秒，一只猎豹悄然浮现于草影间，仿佛它原本就是那片风景的一部分。这样无声的登场，就是猎豹的生存之道——精准、隐秘、像影子一样游走于草叶与树枝间。猎豹身形紧实而轻盈，既能攀上树梢，也能在大地上疾驰，而它们身上那独一无二的玫瑰斑纹，从清晨到夜色，都是最完美的伪装。
+
+埃托沙国家公园位于纳米比亚西北部，是非洲面积最大的国家公园之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%b1%b9%e5%ad%90&form=hpcapt&filters=HpDate:"20260115_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260116_EtoshaLeopard"&FORM=HPQUIZ "必应主页测验 2026 1月 16")
+[下载480](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_800x480.jpg&rf=LaDigue_800x480.jpg "埃托沙国家公园的豹子，纳米比亚")
+[下载720](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃托沙国家公园的豹子，纳米比亚")
+[下载1080](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃托沙国家公园的豹子，纳米比亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_UHD.jpg&rf=LaDigue_UHD.jpg "埃托沙国家公园的豹子，纳米比亚")
+
+---
 ### 01月15日：小村庄，大视野
 #### 雷讷渔村, 挪威（© Roberto Moiola/Cavan Images/SuperStock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.VeniceView_ZH-CN3088407995_1280x720.jpg&rf=LaDigue_1280x720.jpg "威尼斯鸟瞰图, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.VeniceView_ZH-CN3088407995_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "威尼斯鸟瞰图, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.VeniceView_ZH-CN3088407995_UHD.jpg&rf=LaDigue_UHD.jpg "威尼斯鸟瞰图, 意大利")
-
----
-### 01月01日：伸个懒腰，迈向新年！
-#### 正在睡觉的北极狐（© Chansak Joe/Getty Images）
-
-![伸个懒腰，迈向新年！](https://cn.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_800x480.jpg&rf=LaDigue_800x480.jpg "伸个懒腰，迈向新年！")
-
-是否感觉需要补足整整一年的休息？今日图片上的这只北极狐懂你，它正窝在冰原岩石间，享受惬意时光。无论新年伴随寒风还是暖阳而来，请给自己五分钟，让身体舒展，再迎接接下来的365天。
-
-格里高利历在儒略历的基础上优化了闰年制度，让历法更精准，避免季节随时间逐渐错位。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%85%83%e6%97%a6&form=hpcapt&filters=HpDate:"20251231_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260101_NewYearFox"&FORM=HPQUIZ "必应主页测验 2026 1月 1")
-[下载480](https://cn.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_800x480.jpg&rf=LaDigue_800x480.jpg "正在睡觉的北极狐")
-[下载720](https://cn.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_1280x720.jpg&rf=LaDigue_1280x720.jpg "正在睡觉的北极狐")
-[下载1080](https://cn.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "正在睡觉的北极狐")
-[下载UHD](https://cn.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_UHD.jpg&rf=LaDigue_UHD.jpg "正在睡觉的北极狐")
 
 ---
