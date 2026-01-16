@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月17日：普雷比希托广场上的穹顶
+#### 保罗圣方济圣殿，那不勒斯，意大利（© javarman3/Getty Images）
+
+![普雷比希托广场上的穹顶](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_800x480.jpg&rf=LaDigue_800x480.jpg "普雷比希托广场上的穹顶")
+
+走进意大利那不勒斯的任意一座大广场，城市的历史便会在眼前次第展开。拱廊、长长的柱廊、带着古典气息的圆顶争相吸引你的目光。街道风格不断变换——紧凑的巴洛克立面与开阔的新古典主义庭院交替出现。继续向前，你会来到一处宽阔的广场，广场上矗立着一座乍看之下仿佛来自古罗马的建筑。这便是位于普雷比希托广场西侧的保罗圣方济圣殿。
+
+在那不勒斯，保罗圣方济圣殿既是珍贵的城市文化遗产，也是新古典主义建筑中的瑰丽巨作。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%82%a3%e4%b8%8d%e5%8b%92%e6%96%af%e4%bf%9d%e7%bd%97%e5%9c%a3%e8%8a%b3%e6%b5%8e%e5%9c%a3%e6%ae%bf&form=hpcapt&filters=HpDate:"20260116_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260117_NaplesBasilica"&FORM=HPQUIZ "必应主页测验 2026 1月 17")
+[下载480](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_800x480.jpg&rf=LaDigue_800x480.jpg "保罗圣方济圣殿，那不勒斯，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_1280x720.jpg&rf=LaDigue_1280x720.jpg "保罗圣方济圣殿，那不勒斯，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "保罗圣方济圣殿，那不勒斯，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_UHD.jpg&rf=LaDigue_UHD.jpg "保罗圣方济圣殿，那不勒斯，意大利")
+
+---
 ### 01月16日：眼神对上了
 #### 埃托沙国家公园的豹子，纳米比亚（© Norbert Achtelik/Cavan Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_1280x720.jpg&rf=LaDigue_1280x720.jpg "劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士")
 [下载1080](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士")
 [下载UHD](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_UHD.jpg&rf=LaDigue_UHD.jpg "劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士")
-
----
-### 01月02日：威尼斯的灵魂
-#### 威尼斯鸟瞰图, 意大利（© Clement Leonard/Getty Images）
-
-![威尼斯的灵魂](https://cn.bing.com/th?id=OHR.VeniceView_ZH-CN3088407995_800x480.jpg&rf=LaDigue_800x480.jpg "威尼斯的灵魂")
-
-从高空俯瞰威尼斯，宛如一幅迷人的水上画卷，但这座意大利瑰宝真正的魅力，藏在古老墙垣与曲折水巷之间。公元5世纪，它在潟湖中的一簇岛屿上诞生，由沼泽蜕变为海上霸主。中世纪时期，威尼斯成为连接欧洲与东方的重要贸易枢纽，财富与文化在此交织。如今，哥特式宫殿、文艺复兴艺术，以及圣马可大教堂、公爵宫、里亚托桥等地标，仍在诉说这座城市的辉煌历史。
-
-威尼斯的灵魂，古老而迷人，由118座岛屿织成水上锦图，400余座桥梁将它们串联。纵横的运河如脉络般流淌，贡多拉与船只穿梭不止，宛若一场永恒的奇迹。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e5%a8%81%e5%b0%bc%e6%96%af&form=hpcapt&filters=HpDate:"20260101_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260102_VeniceView"&FORM=HPQUIZ "必应主页测验 2026 1月 2")
-[下载480](https://cn.bing.com/th?id=OHR.VeniceView_ZH-CN3088407995_800x480.jpg&rf=LaDigue_800x480.jpg "威尼斯鸟瞰图, 意大利")
-[下载720](https://cn.bing.com/th?id=OHR.VeniceView_ZH-CN3088407995_1280x720.jpg&rf=LaDigue_1280x720.jpg "威尼斯鸟瞰图, 意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.VeniceView_ZH-CN3088407995_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "威尼斯鸟瞰图, 意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.VeniceView_ZH-CN3088407995_UHD.jpg&rf=LaDigue_UHD.jpg "威尼斯鸟瞰图, 意大利")
 
 ---
