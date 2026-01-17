@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月18日：伪装成沙漠的奇境
+#### 白沙国家公园，新墨西哥州，美国（© Francesco Carucci/Getty Images）
+
+![伪装成沙漠的奇境](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_800x480.jpg&rf=LaDigue_800x480.jpg "伪装成沙漠的奇境")
+
+如果把《冰雪奇缘》里的冰换成白沙，画面大概就会像新墨西哥州的白沙国家公园——一望无际的洁白沙丘，乍看之下仿佛仍带着冰雪的凉意。193 年的今天，这里被设立为国家纪念地，用来保护一种罕见的地质奇观：世界最大的石膏沙丘群。这些沙丘由石膏晶体在数千年的风化中逐渐破碎堆积而成，形成了明亮起伏的沙浪，即使在盛夏也依然触手冰凉。
+
+这片石膏沙丘是世界上同类地貌中规模最大的，沙层深度约30英尺（9.1米），沙丘最高可达60英尺（18米），蕴含的石膏砂总量约达45亿短吨（41亿公吨）。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%99%bd%e6%b2%99%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260117_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260118_WhiteSandsNM"&FORM=HPQUIZ "必应主页测验 2026 1月 18")
+[下载480](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_800x480.jpg&rf=LaDigue_800x480.jpg "白沙国家公园，新墨西哥州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_1280x720.jpg&rf=LaDigue_1280x720.jpg "白沙国家公园，新墨西哥州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "白沙国家公园，新墨西哥州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_UHD.jpg&rf=LaDigue_UHD.jpg "白沙国家公园，新墨西哥州，美国")
+
+---
 ### 01月17日：普雷比希托广场上的穹顶
 #### 保罗圣方济圣殿，那不勒斯，意大利（© javarman3/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_1280x720.jpg&rf=LaDigue_1280x720.jpg "国王山, 楚加奇山脉, 阿拉斯加, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "国王山, 楚加奇山脉, 阿拉斯加, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_UHD.jpg&rf=LaDigue_UHD.jpg "国王山, 楚加奇山脉, 阿拉斯加, 美国")
-
----
-### 01月03日：传奇故事前的篇章
-#### 劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士（© pongnathee kluaythong/Getty Images）
-
-![传奇故事前的篇章](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_800x480.jpg&rf=LaDigue_800x480.jpg "传奇故事前的篇章")
-
-今日图片带我们走进瑞士劳特布隆嫩小镇，静谧山谷间，远处的施陶巴赫瀑布在阳光下闪烁。1911年，年轻的托尔金曾在徒步旅行中穿越这里，那时他还未成为《魔戒》和《霍比特人》的作者。巍峨的峭壁、银白的瀑流和清冽的山风，深深印刻在他的记忆中，被认为启发了他笔下的瑞文戴尔——中土世界中隐秘的精灵圣地。
-
-劳特布隆嫩山谷以翼装低空跳伞胜地著称，峡谷狭长、岩壁陡峭，共有13个合法跳伞点，吸引世界各地的冒险者前来挑战。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%bd%e9%99%b6%e5%b7%b4%e8%b5%ab%e7%80%91%e5%b8%83&form=hpcapt&filters=HpDate:"20260102_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260103_LauterbrunnenValley"&FORM=HPQUIZ "必应主页测验 2026 1月 3")
-[下载480](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_800x480.jpg&rf=LaDigue_800x480.jpg "劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士")
-[下载720](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_1280x720.jpg&rf=LaDigue_1280x720.jpg "劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士")
-[下载1080](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士")
-[下载UHD](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_UHD.jpg&rf=LaDigue_UHD.jpg "劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士")
 
 ---
