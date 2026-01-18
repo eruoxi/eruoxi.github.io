@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月19日：大自然的波普艺术
+#### 亚伯拉罕湖冰封景象，艾伯塔省，加拿大（© Luis F Arevalo/Getty Images）
+
+![大自然的波普艺术](https://cn.bing.com/th?id=OHR.BubblesAbraham_ZH-CN7203734882_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的波普艺术")
+
+湖面看似繁忙，却静得出奇。洁白的气泡一层层叠在透明的冰下，仿佛时间在某个化学反应的中途被按下了暂停键。奇特吗？当然。不过那份神秘感，也只存在于你还没走近它之前。这里就是亚伯拉罕湖，加拿大阿尔伯塔省最大的水库，位于加拿大落基山脉前缘的库特尼平原地带。严冬来临时，正是这片水域将上升中的气体半途冻结，造就了这幅冰封气泡的奇景。
+
+如果你在初冬前往亚伯拉罕湖，观赏冰泡的最佳地点，就是湖区名为“牧师角”的那一段水域。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%ba%9a%e4%bc%af%e6%8b%89%e7%bd%95%e6%b9%96&form=hpcapt&filters=HpDate:"20260118_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260119_BubblesAbraham"&FORM=HPQUIZ "必应主页测验 2026 1月 19")
+[下载480](https://cn.bing.com/th?id=OHR.BubblesAbraham_ZH-CN7203734882_800x480.jpg&rf=LaDigue_800x480.jpg "亚伯拉罕湖冰封景象，艾伯塔省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.BubblesAbraham_ZH-CN7203734882_1280x720.jpg&rf=LaDigue_1280x720.jpg "亚伯拉罕湖冰封景象，艾伯塔省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.BubblesAbraham_ZH-CN7203734882_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亚伯拉罕湖冰封景象，艾伯塔省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.BubblesAbraham_ZH-CN7203734882_UHD.jpg&rf=LaDigue_UHD.jpg "亚伯拉罕湖冰封景象，艾伯塔省，加拿大")
+
+---
 ### 01月18日：伪装成沙漠的奇境
 #### 白沙国家公园，新墨西哥州，美国（© Francesco Carucci/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_1280x720.jpg&rf=LaDigue_1280x720.jpg "一群高角羚, 隆多洛齐野生动物保护区, 南非")
 [下载1080](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一群高角羚, 隆多洛齐野生动物保护区, 南非")
 [下载UHD](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_UHD.jpg&rf=LaDigue_UHD.jpg "一群高角羚, 隆多洛齐野生动物保护区, 南非")
-
----
-### 01月04日：王者视野
-#### 国王山, 楚加奇山脉, 阿拉斯加, 美国（© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion）
-
-![王者视野](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_800x480.jpg&rf=LaDigue_800x480.jpg "王者视野")
-
-在阿拉斯加楚加奇山脉，国王山不仅仅是远方的轮廓，它的雄浑之美足以让人停下脚步凝视。海拔逾5800英尺，坐落在帕尔默东北约22英里，俯瞰格伦公路第75英里段，这条公路因壮丽景观而闻名。山体的坡面刻满冰川遗痕，沟谷与山脊如同天然的冒险乐园。
-
-国王山的气温可能骤降至极低水平，最低可降至零下4°F（约零下20 °C）。最佳的游览或攀登时节通常在5月至6月，这段时间天气更为宜人。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a5%9a%e5%8a%a0%e5%a5%87%e5%b1%b1%e8%84%89&form=hpcapt&filters=HpDate:"20260103_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260104_KingMountain"&FORM=HPQUIZ "必应主页测验 2026 1月 4")
-[下载480](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_800x480.jpg&rf=LaDigue_800x480.jpg "国王山, 楚加奇山脉, 阿拉斯加, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_1280x720.jpg&rf=LaDigue_1280x720.jpg "国王山, 楚加奇山脉, 阿拉斯加, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "国王山, 楚加奇山脉, 阿拉斯加, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_UHD.jpg&rf=LaDigue_UHD.jpg "国王山, 楚加奇山脉, 阿拉斯加, 美国")
 
 ---
