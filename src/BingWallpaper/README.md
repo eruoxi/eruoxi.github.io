@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月20日：冬季里的呆萌小可爱
+#### 栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省（© Visual China Group/Getty Images）
+
+![冬季里的呆萌小可爱](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_800x480.jpg&rf=LaDigue_800x480.jpg "冬季里的呆萌小可爱")
+
+大寒（Dahan）是二十四节气中的最后一个节气。它意味着一年中最寒冷的时刻。大寒过后，立春开始，标志着新一轮节气的开始。 随着大寒的临近，过年的喜庆气氛也随之浓厚起来。大寒节气往往与年末相吻合，许多相关习俗都蕴含着辞旧迎新的寓意。
+
+它们常在取食时发出细微而尖细的“吇吇”声（sii-sii-sii）。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e5%af%92%e8%8a%82%e6%b0%94&form=hpcapt&filters=HpDate:"20260119_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260120_TheGreatColdY25"&FORM=HPQUIZ "必应主页测验 2026 1月 20")
+[下载480](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_800x480.jpg&rf=LaDigue_800x480.jpg "栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省")
+[下载720](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_1280x720.jpg&rf=LaDigue_1280x720.jpg "栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省")
+[下载1080](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省")
+[下载UHD](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_UHD.jpg&rf=LaDigue_UHD.jpg "栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省")
+
+---
 ### 01月19日：大自然的波普艺术
 #### 亚伯拉罕湖冰封景象，艾伯塔省，加拿大（© Luis F Arevalo/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_1280x720.jpg&rf=LaDigue_1280x720.jpg "努克, 格陵兰")
 [下载1080](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "努克, 格陵兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_UHD.jpg&rf=LaDigue_UHD.jpg "努克, 格陵兰")
-
----
-### 01月05日：高角羚群紧急戒备
-#### 一群高角羚, 隆多洛齐野生动物保护区, 南非（© Mint Images/Getty Images）
-
-![高角羚群紧急戒备](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_800x480.jpg&rf=LaDigue_800x480.jpg "高角羚群紧急戒备")
-
-隆多洛齐野生动物保护区的独特之处，不仅在于草原上的野生动物，更在于其坚守了近百年的守护。自1926年起，这片58平方英里的土地持续支持着野生动物研究工作，并监测着动物在自然栖息地中的行为。它坐落于萨比桑私人保护区，是非洲五大兽的栖息地，并与克鲁格国家公园相连，构建开放的生态系统，让象群、犀牛、狮子、豹、斑马和众多羚羊物种得以在无围栏阻隔的广袤天地间自由迁徙。
-
-根据国际自然保护联盟（IUCN）的分类，高角羚整体并不处于危险状态，被列为“无危”物种。但黑脸高角羚情况不同，它被认定为“易危”物种，截至2008年，野外数量估计不到1000只。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%ab%98%e8%a7%92%e7%be%9a&form=hpcapt&filters=HpDate:"20260104_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260105_ImpalaRooibok"&FORM=HPQUIZ "必应主页测验 2026 1月 5")
-[下载480](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_800x480.jpg&rf=LaDigue_800x480.jpg "一群高角羚, 隆多洛齐野生动物保护区, 南非")
-[下载720](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_1280x720.jpg&rf=LaDigue_1280x720.jpg "一群高角羚, 隆多洛齐野生动物保护区, 南非")
-[下载1080](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一群高角羚, 隆多洛齐野生动物保护区, 南非")
-[下载UHD](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_UHD.jpg&rf=LaDigue_UHD.jpg "一群高角羚, 隆多洛齐野生动物保护区, 南非")
 
 ---
