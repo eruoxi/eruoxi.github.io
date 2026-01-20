@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月21日：冬日白雪中的一抹红
+#### 欧亚红松鼠（© Galina Jacyna/Getty Images）
+
+![冬日白雪中的一抹红](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_800x480.jpg&rf=LaDigue_800x480.jpg "冬日白雪中的一抹红")
+
+画面里，一只欧亚红松鼠蹲在雪地上，披着冬日特有的浓密绒毛，耳尖的小簇毛格外惹眼。它们原生于欧洲和亚洲部分地区的森林，主要以种子、坚果和真菌为食，把粮食分散藏在林中各处，并在高高的树洞里垒起巢窝，安度漫长寒冬。
+
+欧亚红松鼠会在高高的树上，用树枝与树叶织出一个圆圆的“drey”巢穴，像个藏在枝丛间的小球窝。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e4%ba%9a%e7%ba%a2%e6%9d%be%e9%bc%a0&form=hpcapt&filters=HpDate:"20260120_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260121_BerrySquirrel"&FORM=HPQUIZ "必应主页测验 2026 1月 21")
+[下载480](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_800x480.jpg&rf=LaDigue_800x480.jpg "欧亚红松鼠")
+[下载720](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧亚红松鼠")
+[下载1080](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚红松鼠")
+[下载UHD](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚红松鼠")
+
+---
 ### 01月20日：冬季里的呆萌小可爱
 #### 栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省（© Visual China Group/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_1280x720.jpg&rf=LaDigue_1280x720.jpg "拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_UHD.jpg&rf=LaDigue_UHD.jpg "拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国")
-
----
-### 01月06日：努克的慵懒时光
-#### 努克, 格陵兰（© nevereverro/Getty Images）
-
-![努克的慵懒时光](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_800x480.jpg&rf=LaDigue_800x480.jpg "努克的慵懒时光")
-
-想象一下，日常通勤途中，映入眼底的是峡湾风光、漂移的冰块，以及天际舞动的极光——这不是梦，而是努克的日常。作为格陵兰的首都，这座小而灵动的北极城市，将因纽特文化与北欧现代气息交织融合。它的故事始于1728年，由丹麦-挪威传教士汉斯·埃格德创建，最初的名字叫“Godthaab”，寓意“美好希望”。
-
-努克虽是小镇，却发展了贸易、商业、航运等产业。与格陵兰大部分地区一样，努克高度依赖丹麦的资金支持与整体拨款。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8a%aa%e5%85%8b%e6%a0%bc%e9%99%b5%e5%85%b0%e5%b2%9b&form=hpcapt&filters=HpDate:"20260105_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260106_NuukGreenland"&FORM=HPQUIZ "必应主页测验 2026 1月 6")
-[下载480](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_800x480.jpg&rf=LaDigue_800x480.jpg "努克, 格陵兰")
-[下载720](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_1280x720.jpg&rf=LaDigue_1280x720.jpg "努克, 格陵兰")
-[下载1080](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "努克, 格陵兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_UHD.jpg&rf=LaDigue_UHD.jpg "努克, 格陵兰")
 
 ---
