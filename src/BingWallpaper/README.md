@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月22日：波西米亚温泉故事
+#### 卡罗维瓦利，波西米亚，捷克共和国（© Henryk Sadura/Getty Images）
+
+![波西米亚温泉故事](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_800x480.jpg&rf=LaDigue_800x480.jpg "波西米亚温泉故事")
+
+在今天的图片中，冬意已悄悄落在捷克的卡罗维瓦利，这座坐落于浅色山谷中的城市，因山间温泉而闻名。关于这座城市的起源，可追溯到14世纪：据说当时的波希米亚国王、后来成为神圣罗马帝国皇帝的查理四世路经此地，恰好遇见一池冒着白雾的温热泉水。正是这次邂逅，引领波希米亚这片宁静的山谷走上了温泉疗养圣地的道路。
+
+这座城市以举办卡罗维瓦利国际电影节而闻名，该电影节是世界上历史最悠久的电影节之一，也是欧洲最重要的电影盛事之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e7%bd%97%e7%bb%b4%e7%93%a6%e5%88%a9&form=hpcapt&filters=HpDate:"20260121_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260122_KarlovyVary"&FORM=HPQUIZ "必应主页测验 2026 1月 22")
+[下载480](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_800x480.jpg&rf=LaDigue_800x480.jpg "卡罗维瓦利，波西米亚，捷克共和国")
+[下载720](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡罗维瓦利，波西米亚，捷克共和国")
+[下载1080](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡罗维瓦利，波西米亚，捷克共和国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_UHD.jpg&rf=LaDigue_UHD.jpg "卡罗维瓦利，波西米亚，捷克共和国")
+
+---
 ### 01月21日：冬日白雪中的一抹红
 #### 欧亚红松鼠（© Galina Jacyna/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_1280x720.jpg&rf=LaDigue_1280x720.jpg "椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_UHD.jpg&rf=LaDigue_UHD.jpg "椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰")
-
----
-### 01月07日：古老岩石的传奇
-#### 拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国（© Jim Patterson/TANDEM Stills + Motion）
-
-![古老岩石的传奇](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_800x480.jpg&rf=LaDigue_800x480.jpg "古老岩石的传奇")
-
-今天，让我们重新审视时间的尺度。古岩石日，揭开地球深藏的秘密：亿万年的风沙、海洋与火焰，塑造了我们脚下的世界。在犹他州拱门国家公园，透过北窗眺望炮塔拱门，仿佛凝视一段漫长的史诗。如今的拱门由恩特拉达砂岩构成，而那些砂岩曾是流动的沙丘和浅海，经过漫长侵蚀才雕刻出如今的拱形。可即便如此，这些地质构造仍算年轻。地壳在板块、侵蚀与火山的轮回中不断重生，唯有古老的大陆地盾守护着真正的远古。加拿大的阿卡斯塔片麻岩，约有40亿年历史，是目前已知最古老、仍扎根原处的岩石。
-
-自2000年以来，拱门国家公园持续开展古生物野外研究，发现了多处新的重要化石点。这里的化石种类丰富，包括脊椎动物、无脊椎动物、植物，以及记录生物活动的痕迹化石。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%8b%b1%e9%97%a8%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260106_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260107_OldRockArch"&FORM=HPQUIZ "必应主页测验 2026 1月 7")
-[下载480](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_800x480.jpg&rf=LaDigue_800x480.jpg "拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_1280x720.jpg&rf=LaDigue_1280x720.jpg "拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_UHD.jpg&rf=LaDigue_UHD.jpg "拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国")
 
 ---
