@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月23日：霜雪中的盛宴
+#### 绵羊在雪地里吃草，冰岛（© Christophe Lehenaff/Getty Images）
+
+![霜雪中的盛宴](https://cn.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_800x480.jpg&rf=LaDigue_800x480.jpg "霜雪中的盛宴")
+
+一月寒意袭来时，冰岛人会借由“仲冬节”寻回温暖与传统。这个节日以北欧神话中的冬之精灵“托里”为名，起初是一场向诸神献祭、祈求度过漫冬的祭宴。如今，它演变成一场既带着古老气息，又洋溢欢聚之情的文化盛会。
+
+19世纪末，一群冰岛学生复兴了“仲冬节”。二战结束后，民族主义推动文化复兴，冰岛人也让这项古老传统重新受到关注，甚至重新登上了各地餐厅的菜单。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%86%b0%e5%b2%9b%e4%bb%b2%e5%86%ac%e8%8a%82&form=hpcapt&filters=HpDate:"20260122_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260123_IcelandSheep"&FORM=HPQUIZ "必应主页测验 2026 1月 23")
+[下载480](https://cn.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_800x480.jpg&rf=LaDigue_800x480.jpg "绵羊在雪地里吃草，冰岛")
+[下载720](https://cn.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_1280x720.jpg&rf=LaDigue_1280x720.jpg "绵羊在雪地里吃草，冰岛")
+[下载1080](https://cn.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "绵羊在雪地里吃草，冰岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_UHD.jpg&rf=LaDigue_UHD.jpg "绵羊在雪地里吃草，冰岛")
+
+---
 ### 01月22日：波西米亚温泉故事
 #### 卡罗维瓦利，波西米亚，捷克共和国（© Henryk Sadura/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_1280x720.jpg&rf=LaDigue_1280x720.jpg "缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_UHD.jpg&rf=LaDigue_UHD.jpg "缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国")
-
----
-### 01月08日：废墟之上，椋鸟群舞
-#### 椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰（© Philip Reeve/Photodisc/Getty Images）
-
-![废墟之上，椋鸟群舞](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_800x480.jpg&rf=LaDigue_800x480.jpg "废墟之上，椋鸟群舞")
-
-椋鸟是天生的“舞台明星”，它们深谙抢镜之道：羽毛在阳光下闪烁绿紫光泽，叫声里还夹杂着模仿的趣味。椋鸟原产于欧亚大陆，如今已遍布全球。19世纪，一位痴迷莎士比亚作品的鸟类爱好者，将椋鸟引入纽约中央公园，从此开启了它们的美洲传奇。
-
-椋鸟的鸣声丰富而复杂，它们甚至会把周围的声音融入自己的叫声，从汽车警报到人类的语音节奏，无所不包。更令人惊讶的是，它们能凭叫声辨认特定的同伴。这种能力，使椋鸟成为科学家探索语言起源的重要线索。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a4%8b%e9%b8%9f&form=hpcapt&filters=HpDate:"20260107_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260108_StarlingBrighton2025"&FORM=HPQUIZ "必应主页测验 2026 1月 8")
-[下载480](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_800x480.jpg&rf=LaDigue_800x480.jpg "椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_1280x720.jpg&rf=LaDigue_1280x720.jpg "椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_UHD.jpg&rf=LaDigue_UHD.jpg "椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰")
 
 ---
