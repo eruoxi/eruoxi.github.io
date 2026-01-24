@@ -1,4 +1,38 @@
 ## Bing Wallpaper(最近15天)
+### 01月25日：传统熠熠生辉
+#### 伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰（© Alister Firth/Alamy）
+
+![传统熠熠生辉](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_800x480.jpg&rf=LaDigue_800x480.jpg "传统熠熠生辉")
+
+每年1月25日，苏格兰人及世界各地喜爱伯恩斯的人们都会举杯庆祝，纪念这位深受爱戴的民族诗人。伯恩斯之夜的宴席温暖而有趣：主菜是香气浓郁的哈吉斯，搭配芜菁泥和土豆泥；其间穿插伯恩斯诗句的朗诵，再来一口威士忌，这场庆典最终总在《友谊地久天长》的合唱里被推向高潮。即使人在海外，也能轻松延续这份传统：摆盘、诵诗、举杯，让节日的温暖自然蔓延开来。
+
+罗伯特·伯恩斯，这位出身于苏格兰艾尔郡的农夫兼诗人，在英国文学史上留下了深刻印记。他的代表作《友谊地久天长》家喻户晓，而他所写的诗歌以苏格兰民谣的旋律、以及对自由与民主的颂扬而备受推崇。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8b%8f%e6%a0%bc%e5%85%b0%e5%8d%97%e8%89%be%e5%b0%94%e9%83%a1&form=hpcapt&filters=HpDate:"20260124_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260125_BurnsPark"&FORM=HPQUIZ "必应主页测验 2026 1月 25")
+[下载480](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_800x480.jpg&rf=LaDigue_800x480.jpg "伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰")
+[下载720](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_1280x720.jpg&rf=LaDigue_1280x720.jpg "伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_UHD.jpg&rf=LaDigue_UHD.jpg "伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰")
+
+---
+### 01月24日：瑞士山间的短逃离
+#### 阿尔卑斯山脉的安德马特小镇，瑞士（© Xantana/Getty Images）
+
+![瑞士山间的短逃离](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_800x480.jpg&rf=LaDigue_800x480.jpg "瑞士山间的短逃离")
+
+安德马特坐落于海拔约4,715英尺的乌尔塞伦山谷，被壮丽的阿尔卑斯山脉环绕，是瑞士最迷人的小镇之一。自古以来，它便是交通与文化的交汇点，由圣哥达、福尔卡和奥伯阿尔卑三大山口贯通，使这里成为贯穿南北、连结文化的重要门户。
+
+安德马特的群山因其野雪地形和深雪特性而广受欢迎。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%91%9e%e5%a3%ab%e5%ae%89%e5%be%b7%e9%a9%ac%e7%89%b9%e5%b0%8f%e9%95%87&form=hpcapt&filters=HpDate:"20260123_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260124_AndermattSwiss"&FORM=HPQUIZ "必应主页测验 2026 1月 24")
+[下载480](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔卑斯山脉的安德马特小镇，瑞士")
+[下载720](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔卑斯山脉的安德马特小镇，瑞士")
+[下载1080](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔卑斯山脉的安德马特小镇，瑞士")
+[下载UHD](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔卑斯山脉的安德马特小镇，瑞士")
+
+---
 ### 01月23日：霜雪中的盛宴
 #### 绵羊在雪地里吃草，冰岛（© Christophe Lehenaff/Getty Images）
 
@@ -218,39 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BlueMorocco_ZH-CN3296596109_1280x720.jpg&rf=LaDigue_1280x720.jpg "舍夫沙万的蓝色墙壁, 摩洛哥")
 [下载1080](https://cn.bing.com/th?id=OHR.BlueMorocco_ZH-CN3296596109_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "舍夫沙万的蓝色墙壁, 摩洛哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.BlueMorocco_ZH-CN3296596109_UHD.jpg&rf=LaDigue_UHD.jpg "舍夫沙万的蓝色墙壁, 摩洛哥")
-
----
-### 01月10日：纯粹的瑞士魔力
-#### 日出时分，马特洪峰的倒影映照在斯特利湖中, 采尔马特, 瑞士（© Andy Trowbridge/naturepl.com）
-
-![纯粹的瑞士魔力](https://cn.bing.com/th?id=OHR.MatterhornSunrise_ZH-CN3171879631_800x480.jpg&rf=LaDigue_800x480.jpg "纯粹的瑞士魔力")
-
-鲜有景致能像马特洪峰倒映在斯特利湖如镜的湖面上那般，完美呈现阿尔卑斯的灵魂。这座传奇山峰耸立在瑞士与意大利边境，海拔高达14,692英尺，象征着大自然的壮美与冒险精神，吸引着世界各地的攀登者、徒步者与追梦人。
-
-马特洪峰的首次攀登发生在 1865 年。当时的队伍中，有四人不幸罹难。但这并未阻止后来者，无数登山者依旧以登顶它为目标。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e7%89%b9%e6%b4%aa%e5%b3%b0&form=hpcapt&filters=HpDate:"20260109_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260110_MatterhornSunrise"&FORM=HPQUIZ "必应主页测验 2026 1月 10")
-[下载480](https://cn.bing.com/th?id=OHR.MatterhornSunrise_ZH-CN3171879631_800x480.jpg&rf=LaDigue_800x480.jpg "日出时分，马特洪峰的倒影映照在斯特利湖中, 采尔马特, 瑞士")
-[下载720](https://cn.bing.com/th?id=OHR.MatterhornSunrise_ZH-CN3171879631_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时分，马特洪峰的倒影映照在斯特利湖中, 采尔马特, 瑞士")
-[下载1080](https://cn.bing.com/th?id=OHR.MatterhornSunrise_ZH-CN3171879631_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时分，马特洪峰的倒影映照在斯特利湖中, 采尔马特, 瑞士")
-[下载UHD](https://cn.bing.com/th?id=OHR.MatterhornSunrise_ZH-CN3171879631_UHD.jpg&rf=LaDigue_UHD.jpg "日出时分，马特洪峰的倒影映照在斯特利湖中, 采尔马特, 瑞士")
-
----
-### 01月09日：时光在此处茁壮成长
-#### 缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国（© photo by canderson/Getty Images）
-
-![时光在此处茁壮成长](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_800x480.jpg&rf=LaDigue_800x480.jpg "时光在此处茁壮成长")
-
-走进巨人的国度吧。试着像拥抱一位温柔的巨人那样，把双臂环在红杉粗壮的树干上，触摸蕴藏着千年智慧的时间年轮。欢迎来到缪尔树林国家纪念地——它在1908年的今天正式诞生，坐落于旧金山北部，是一座由海岸红杉构成的壮丽殿堂。这里的红杉是地球上最高的树木，其中一棵高达约258英尺，相当于43个人从头到脚叠加的高度。这些树大多已经600到800岁，有的甚至跨越了千年。但对于一个最长能活到2000年的物种来说，它们依然算是“年轻的巨人”。在这片幽深的原始森林中，每一棵高耸入云的红杉都是时间的见证者，也是一位静默的守护者。
-
-自1908年被正式列为国家纪念地以来，这片原始林地便既是生命的避所，也是自然的课堂，悄然展现着人类与这片活力大地的深层纽带。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%bc%aa%e5%b0%94%e6%a0%91%e6%9e%97%e5%9b%bd%e5%ae%b6%e4%bf%9d%e6%8a%a4%e5%8c%ba&form=hpcapt&filters=HpDate:"20260108_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260109_MuirWoodsMonument"&FORM=HPQUIZ "必应主页测验 2026 1月 9")
-[下载480](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_800x480.jpg&rf=LaDigue_800x480.jpg "缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_1280x720.jpg&rf=LaDigue_1280x720.jpg "缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_UHD.jpg&rf=LaDigue_UHD.jpg "缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国")
 
 ---
