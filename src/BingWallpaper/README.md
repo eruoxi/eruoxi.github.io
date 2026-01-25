@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月26日：巴伐利亚的瑰宝
+#### 新天鹅堡，巴伐利亚州，德国（© www.fredconcha.com @ All Rights Reserved/Getty Images）
+
+![巴伐利亚的瑰宝](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_800x480.jpg&rf=LaDigue_800x480.jpg "巴伐利亚的瑰宝")
+
+新天鹅堡的诞生源于巴伐利亚国王路德维希二世的浪漫构想——一个由中世纪神话与歌剧场景交织而成的梦境居所。城堡隐身于山林之间，塔尖纤细，精巧的石饰让整座建筑宛如漂浮在山谷之上。虽然建造始于十九世纪，但这座宫殿始终未完全竣工，因此也增添了一层淡淡的神秘。
+
+新天鹅堡不仅是德国的标志性建筑，也是迪士尼城堡的灵感源头，因此又被称为“灰姑娘城堡”。作为德国拍摄次数最多的建筑，它也是最受游客喜爱的景点之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%b0%e5%a4%a9%e9%b9%85%e5%a0%a1&form=hpcapt&filters=HpDate:"20260125_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260126_NeuschwansteinWinter"&FORM=HPQUIZ "必应主页测验 2026 1月 26")
+[下载480](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_800x480.jpg&rf=LaDigue_800x480.jpg "新天鹅堡，巴伐利亚州，德国")
+[下载720](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_1280x720.jpg&rf=LaDigue_1280x720.jpg "新天鹅堡，巴伐利亚州，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "新天鹅堡，巴伐利亚州，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_UHD.jpg&rf=LaDigue_UHD.jpg "新天鹅堡，巴伐利亚州，德国")
+
+---
 ### 01月25日：传统熠熠生辉
 #### 伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰（© Alister Firth/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧亚水獭和幼崽, 爱沙尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚水獭和幼崽, 爱沙尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚水獭和幼崽, 爱沙尼亚")
-
----
-### 01月11日：从抗拒到绽放
-#### 舍夫沙万的蓝色墙壁, 摩洛哥（© AnetteAndersen/Getty Images）
-
-![从抗拒到绽放](https://cn.bing.com/th?id=OHR.BlueMorocco_ZH-CN3296596109_800x480.jpg&rf=LaDigue_800x480.jpg "从抗拒到绽放")
-
-1944年1月11日，摩洛哥迈出了通往自由的关键一步。当天，66位民族领袖共同签署《独立宣言》，要求结束法国和西班牙的殖民统治，并明确表达国家拥有主权的正当权利。这份宣言在苏丹穆罕默德五世的支持下递交，不仅呈交给殖民当局，也送达了美国、英国以及前苏联的代表，向世界传达出摩洛哥争取独立的呼声与全球自决潮流息息相关。尽管随后遭到打压与镇压，独立运动仍顽强坚持。直到1956年，摩洛哥终于实现完全独立，这一历史节点也成为北非地区迈向自主新时代的重要转折。
-
-舍夫沙万那一整片深浅交织的蓝墙，总能勾起游客的好奇。关于为何要把墙漆成蓝色，流传着多种说法，其中最广为人知的一种解释是：蓝色能驱赶蚊虫。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%91%a9%e6%b4%9b%e5%93%a5%e8%88%8d%e5%a4%ab%e6%b2%99%e4%b8%87&form=hpcapt&filters=HpDate:"20260110_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260111_BlueMorocco"&FORM=HPQUIZ "必应主页测验 2026 1月 11")
-[下载480](https://cn.bing.com/th?id=OHR.BlueMorocco_ZH-CN3296596109_800x480.jpg&rf=LaDigue_800x480.jpg "舍夫沙万的蓝色墙壁, 摩洛哥")
-[下载720](https://cn.bing.com/th?id=OHR.BlueMorocco_ZH-CN3296596109_1280x720.jpg&rf=LaDigue_1280x720.jpg "舍夫沙万的蓝色墙壁, 摩洛哥")
-[下载1080](https://cn.bing.com/th?id=OHR.BlueMorocco_ZH-CN3296596109_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "舍夫沙万的蓝色墙壁, 摩洛哥")
-[下载UHD](https://cn.bing.com/th?id=OHR.BlueMorocco_ZH-CN3296596109_UHD.jpg&rf=LaDigue_UHD.jpg "舍夫沙万的蓝色墙壁, 摩洛哥")
 
 ---
