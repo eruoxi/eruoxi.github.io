@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月27日：羽翼预告：前方有鹈鹕
+#### 卷羽鹈鹕，凯尔基尼湖，希腊（© Guy Edwardes/naturepl.com）
+
+![羽翼预告：前方有鹈鹕](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_800x480.jpg&rf=LaDigue_800x480.jpg "羽翼预告：前方有鹈鹕")
+
+在冬日的凯尔基尼湖，你能捕捉到欧洲最震撼的卷羽鹈鹕身影。它们巨大的身形在平静的湖面上成群滑行，沉稳而优雅，令人难以忽视。卷羽鹈鹕翼展超过10英尺，是世界上体型最大的飞行鸟类之一。得益于凯尔基尼湖稳定的冬季气候，你可以近距离欣赏它们的巨大身姿、优雅姿态，以及群体滑行时那种令人着迷的默契。
+
+成年的卷羽鹈鹕羽色呈灰白色，头后方长着一撮卷曲、略显凌乱的冠羽，因此得名“卷羽鹈鹕”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%b7%e7%be%bd%e9%b9%88%e9%b9%95&form=hpcapt&filters=HpDate:"20260126_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260127_DalmationPelicans"&FORM=HPQUIZ "必应主页测验 2026 1月 27")
+[下载480](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_800x480.jpg&rf=LaDigue_800x480.jpg "卷羽鹈鹕，凯尔基尼湖，希腊")
+[下载720](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_1280x720.jpg&rf=LaDigue_1280x720.jpg "卷羽鹈鹕，凯尔基尼湖，希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卷羽鹈鹕，凯尔基尼湖，希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_UHD.jpg&rf=LaDigue_UHD.jpg "卷羽鹈鹕，凯尔基尼湖，希腊")
+
+---
 ### 01月26日：巴伐利亚的瑰宝
 #### 新天鹅堡，巴伐利亚州，德国（© www.fredconcha.com @ All Rights Reserved/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_1280x720.jpg&rf=LaDigue_1280x720.jpg "克卢伊德谷, 威尔士")
 [下载1080](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克卢伊德谷, 威尔士")
 [下载UHD](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_UHD.jpg&rf=LaDigue_UHD.jpg "克卢伊德谷, 威尔士")
-
----
-### 01月12日：水獭之国爱沙尼亚
-#### 欧亚水獭和幼崽, 爱沙尼亚（© Sven Zacek/naturepl.com）
-
-![水獭之国爱沙尼亚](https://cn.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_800x480.jpg&rf=LaDigue_800x480.jpg "水獭之国爱沙尼亚")
-
-真正吸引人的，并不是雪地里那串脚印，而是那些从洞口探出头来的小家伙——脸上挂着一层白白的霜，好像刚刚意识到“啊，这就是冬天啊”。在欧洲想看欧亚水獭，爱沙尼亚是再合适不过的地方：清洁的河流、开阔的湿地，还有食物充足的海岸线，都让它们在这里自在生息。这个受保护的物种也因此在2024年被选为当地的“年度动物”。尽管欧亚水獭在全球范围内仍被视为近危，但在爱沙尼亚，它们的数量却一路回升——从千禧年前后仅约300只的低谷，增长到近些年大约2000只，悄悄写下了一段复苏故事。
-
-欧亚水獭和其他鼬科动物一样，力量远比体型看上去更强，足以制服比自己大得多的猎物。它们偶尔甚至会捕猎体型庞大的水鸟，比如成年的灰雁。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e4%ba%9a%e6%b0%b4%e7%8d%ad&form=hpcapt&filters=HpDate:"20260111_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260112_SnowOtters"&FORM=HPQUIZ "必应主页测验 2026 1月 12")
-[下载480](https://cn.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_800x480.jpg&rf=LaDigue_800x480.jpg "欧亚水獭和幼崽, 爱沙尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧亚水獭和幼崽, 爱沙尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚水獭和幼崽, 爱沙尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚水獭和幼崽, 爱沙尼亚")
 
 ---
