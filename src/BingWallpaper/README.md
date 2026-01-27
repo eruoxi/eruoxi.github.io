@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月28日：随河而行
+#### 旺格努伊国家公园，雷塔鲁克，新西兰（© Matthew Micah Wright/Getty Images）
+
+![随河而行](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_800x480.jpg&rf=LaDigue_800x480.jpg "随河而行")
+
+旺格努伊国家公园呈现了新西兰最具特色的河流景观。自1986年建立起，它便以约286平方英里的面积横跨北岛中部。旺格努伊河在茂密的森林中缓缓弯曲前行，静默而深远。虽然其本身不在公园的正式范围内，但它几乎塑造了周遭的一切，包括“旺格努伊之旅”——新西兰著名的“伟大步道”之一。
+
+河流本身不在国家公园范围内，却因“旺格努伊之旅”而广受欢迎——这是一条备受喜爱的划舟路线，也是新西兰“伟大步道”之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%b0%e8%a5%bf%e5%85%b0%e6%97%ba%e6%a0%bc%e5%8a%aa%e4%bc%8a%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260127_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260128_WhanganuiPark"&FORM=HPQUIZ "必应主页测验 2026 1月 28")
+[下载480](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_800x480.jpg&rf=LaDigue_800x480.jpg "旺格努伊国家公园，雷塔鲁克，新西兰")
+[下载720](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_1280x720.jpg&rf=LaDigue_1280x720.jpg "旺格努伊国家公园，雷塔鲁克，新西兰")
+[下载1080](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "旺格努伊国家公园，雷塔鲁克，新西兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_UHD.jpg&rf=LaDigue_UHD.jpg "旺格努伊国家公园，雷塔鲁克，新西兰")
+
+---
 ### 01月27日：羽翼预告：前方有鹈鹕
 #### 卷羽鹈鹕，凯尔基尼湖，希腊（© Guy Edwardes/naturepl.com）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_UHD.jpg&rf=LaDigue_UHD.jpg "帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊")
-
----
-### 01月13日：苹果韵，旧时光
-#### 克卢伊德谷, 威尔士（© Valerie Blencowe/Getty Images）
-
-![苹果韵，旧时光](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_800x480.jpg&rf=LaDigue_800x480.jpg "苹果韵，旧时光")
-
-大多数人会在一月的第一周就完成新年计划。然而威尔士有个迷人的传统，人们总会说：“等等，我们还有一场庆祝活动。”于是便有了“Hen Galan”——“旧新年”的庆祝活动，每年1月13日，在威尔士的几处乡地举行，尤其以格温山谷最为知名。这个日子源自古老的儒略历，虽然英国其他地方早就换成格里高利历了，但这里的人依旧沿用老传统。
-
-克卢伊德谷生长的丹比赫李子几乎与威尔士的土地融为一体，这片土地被认为是全英国最富饶、最天然的沃土之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%94%e5%a3%ab%e5%85%8b%e5%8d%a2%e4%bc%8a%e5%be%b7%e8%b0%b7&form=hpcapt&filters=HpDate:"20260112_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260113_WalesWinter"&FORM=HPQUIZ "必应主页测验 2026 1月 13")
-[下载480](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_800x480.jpg&rf=LaDigue_800x480.jpg "克卢伊德谷, 威尔士")
-[下载720](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_1280x720.jpg&rf=LaDigue_1280x720.jpg "克卢伊德谷, 威尔士")
-[下载1080](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克卢伊德谷, 威尔士")
-[下载UHD](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_UHD.jpg&rf=LaDigue_UHD.jpg "克卢伊德谷, 威尔士")
 
 ---
