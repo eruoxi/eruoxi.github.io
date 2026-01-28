@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月29日：密尔沃基的传奇故事
+#### 密尔沃基市政厅的八层开放式中庭，威斯康星州，美国（© lavin photography/Getty Images）
+
+![密尔沃基的传奇故事](https://cn.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_800x480.jpg&rf=LaDigue_800x480.jpg "密尔沃基的传奇故事")
+
+走在密尔沃基市中心，你很可能会在某个瞬间抬头，被一座高塔深深吸引——那便是标志性的市政厅。密尔沃基市政厅于1895年完工，是一座高耸的弗拉芒文艺复兴式建筑，不仅在天际线上格外醒目，更是这座城市的象征。近八十年里，它一直是密尔沃基的最高点，直到1973年才被超越。市政厅由建筑师亨利·C·科赫设计，融入了鲜明的德国元素，这一点并非巧合：密尔沃基的城市性格与德国移民文化紧密相连，周围的社区也因此带着类似的底色。
+
+钟楼高达108米，建成时曾是美国第二高的建筑，仅次于华盛顿纪念碑。1973年第一威斯康星中心完工前，密尔沃基市政厅始终是这座城市的制高点。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%af%86%e5%b0%94%e6%b2%83%e5%9f%ba%e5%b8%82&form=hpcapt&filters=HpDate:"20260128_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260129_MilwaukeeHall"&FORM=HPQUIZ "必应主页测验 2026 1月 29")
+[下载480](https://cn.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_800x480.jpg&rf=LaDigue_800x480.jpg "密尔沃基市政厅的八层开放式中庭，威斯康星州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_1280x720.jpg&rf=LaDigue_1280x720.jpg "密尔沃基市政厅的八层开放式中庭，威斯康星州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "密尔沃基市政厅的八层开放式中庭，威斯康星州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_UHD.jpg&rf=LaDigue_UHD.jpg "密尔沃基市政厅的八层开放式中庭，威斯康星州，美国")
+
+---
 ### 01月28日：随河而行
 #### 旺格努伊国家公园，雷塔鲁克，新西兰（© Matthew Micah Wright/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_1280x720.jpg&rf=LaDigue_1280x720.jpg "雷讷渔村, 挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷讷渔村, 挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_UHD.jpg&rf=LaDigue_UHD.jpg "雷讷渔村, 挪威")
-
----
-### 01月14日：帕拉米蒂的历史之阶
-#### 帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊（© George Pachantouris/Getty Images）
-
-![帕拉米蒂的历史之阶](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_800x480.jpg&rf=LaDigue_800x480.jpg "帕拉米蒂的历史之阶")
-
-爬楼梯日定于每年一月的第二个星期三，这个日子鼓励大家在日常里多动一动：少坐电梯，多爬几级楼梯，或者抽空去走走、骑骑车。虽然都是小动作，却能慢慢养成更健康的生活方式。在如今空气污染加重、许多人又有慢性肺病的情况下，这些看似简单的动作显得尤为重要。
-
-这些曾经在威尼斯人与土耳其人统治下改名多次的堡垒，最终又被希腊人重新命名。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%95%e6%8b%89%e7%b1%b3%e8%92%82%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20260113_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260114_PalamidiFortress"&FORM=HPQUIZ "必应主页测验 2026 1月 14")
-[下载480](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_800x480.jpg&rf=LaDigue_800x480.jpg "帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊")
-[下载720](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊")
-[下载1080](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊")
-[下载UHD](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_UHD.jpg&rf=LaDigue_UHD.jpg "帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊")
 
 ---
