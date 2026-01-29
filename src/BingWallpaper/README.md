@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月30日：海潮退却之处
+#### 马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰（© Baxter Bradford/robertharding/Getty Images）
+
+![海潮退却之处](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_800x480.jpg&rf=LaDigue_800x480.jpg "海潮退却之处")
+
+想象一座从康沃尔海面升起的小岛，潮水退去时才会与陆地短暂相连。每天只有几小时，你可以沿着那条被无数朝圣者和渔民磨出的花岗岩堤道走到岛上。这就是位于马拉齐翁外海的圣迈克尔山，由国家信托基金管理，自17世纪起便是圣奥宾家族的住所，融合了传说、中世纪遗迹与壮阔的海岸景色。
+
+矗立在岩石高地上的城堡格外引人注目，内部收藏着盖恩斯伯勒的画作、奇彭代尔家具，以及拿破仑外套碎片等军事纪念物。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e8%bf%88%e5%85%8b%e5%b0%94%e5%b1%b1&form=hpcapt&filters=HpDate:"20260129_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260130_StMichaelsCornwall"&FORM=HPQUIZ "必应主页测验 2026 1月 30")
+[下载480](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_800x480.jpg&rf=LaDigue_800x480.jpg "马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_1280x720.jpg&rf=LaDigue_1280x720.jpg "马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_UHD.jpg&rf=LaDigue_UHD.jpg "马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰")
+
+---
 ### 01月29日：密尔沃基的传奇故事
 #### 密尔沃基市政厅的八层开放式中庭，威斯康星州，美国（© lavin photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃托沙国家公园的豹子，纳米比亚")
 [下载1080](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃托沙国家公园的豹子，纳米比亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_UHD.jpg&rf=LaDigue_UHD.jpg "埃托沙国家公园的豹子，纳米比亚")
-
----
-### 01月15日：小村庄，大视野
-#### 雷讷渔村, 挪威（© Roberto Moiola/Cavan Images/SuperStock）
-
-![小村庄，大视野](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_800x480.jpg&rf=LaDigue_800x480.jpg "小村庄，大视野")
-
-深藏在挪威北极圈的雷讷，宛如明信片上令人难以置信的梦幻之地，让人第一眼就怀疑它是否真实存在。这个仅有300余名居民的小渔村，因陡峭的山峰、安静的峡湾，以及沿着海岸散落的亮红色渔人小屋（rorbuer）而闻名。尽管渔村规模不大，雷讷每年仍吸引着成千上万的游客前来探访。
-
-如今，小镇已基本从渔业转向旅游业，昔日的渔民小屋被改装成精品酒店客房，特色餐厅也纷纷开业。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%9b%b7%e8%ae%b7&form=hpcapt&filters=HpDate:"20260114_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260115_ReineSunrise"&FORM=HPQUIZ "必应主页测验 2026 1月 15")
-[下载480](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_800x480.jpg&rf=LaDigue_800x480.jpg "雷讷渔村, 挪威")
-[下载720](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_1280x720.jpg&rf=LaDigue_1280x720.jpg "雷讷渔村, 挪威")
-[下载1080](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷讷渔村, 挪威")
-[下载UHD](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_UHD.jpg&rf=LaDigue_UHD.jpg "雷讷渔村, 挪威")
 
 ---
