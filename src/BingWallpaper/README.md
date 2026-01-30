@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 01月31日：一见钟情
+#### 平原斑马, 埃托沙国家公园, 纳米比亚（© Mogens Trolle/Shutterstock）
+
+![一见钟情](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_800x480.jpg&rf=LaDigue_800x480.jpg "一见钟情")
+
+有些动物在荒野中悄悄穿行，但斑马不是。它们顶着一身醒目的黑白条纹，仿佛这是世界上最实用的“装备”——实际上也确实如此。每年的1月31日是国际斑马日，让这些黑白相间的主角从群体中走到聚光灯下，迎来属于自己的高光时刻。
+
+平原斑马是博茨瓦纳的国兽，它的条纹也出现在该国国旗上。旗上的黑白条纹同时象征着国家的种族和谐。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b9%b3%e5%8e%9f%e6%96%91%e9%a9%ac&form=hpcapt&filters=HpDate:"20260130_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 31")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260131_EtoshaZebra"&FORM=HPQUIZ "必应主页测验 2026 1月 31")
+[下载480](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_800x480.jpg&rf=LaDigue_800x480.jpg "平原斑马, 埃托沙国家公园, 纳米比亚")
+[下载720](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_1280x720.jpg&rf=LaDigue_1280x720.jpg "平原斑马, 埃托沙国家公园, 纳米比亚")
+[下载1080](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "平原斑马, 埃托沙国家公园, 纳米比亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_UHD.jpg&rf=LaDigue_UHD.jpg "平原斑马, 埃托沙国家公园, 纳米比亚")
+
+---
 ### 01月30日：海潮退却之处
 #### 马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰（© Baxter Bradford/robertharding/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_1280x720.jpg&rf=LaDigue_1280x720.jpg "保罗圣方济圣殿，那不勒斯，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "保罗圣方济圣殿，那不勒斯，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_UHD.jpg&rf=LaDigue_UHD.jpg "保罗圣方济圣殿，那不勒斯，意大利")
-
----
-### 01月16日：眼神对上了
-#### 埃托沙国家公园的豹子，纳米比亚（© Norbert Achtelik/Cavan Images）
-
-![眼神对上了](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_800x480.jpg&rf=LaDigue_800x480.jpg "眼神对上了")
-
-看过野生动物纪录片的人，都记得那一幕：镜头滑过安静的草原，风声微动，下一秒，一只猎豹悄然浮现于草影间，仿佛它原本就是那片风景的一部分。这样无声的登场，就是猎豹的生存之道——精准、隐秘、像影子一样游走于草叶与树枝间。猎豹身形紧实而轻盈，既能攀上树梢，也能在大地上疾驰，而它们身上那独一无二的玫瑰斑纹，从清晨到夜色，都是最完美的伪装。
-
-埃托沙国家公园位于纳米比亚西北部，是非洲面积最大的国家公园之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%b1%b9%e5%ad%90&form=hpcapt&filters=HpDate:"20260115_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260116_EtoshaLeopard"&FORM=HPQUIZ "必应主页测验 2026 1月 16")
-[下载480](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_800x480.jpg&rf=LaDigue_800x480.jpg "埃托沙国家公园的豹子，纳米比亚")
-[下载720](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃托沙国家公园的豹子，纳米比亚")
-[下载1080](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃托沙国家公园的豹子，纳米比亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_UHD.jpg&rf=LaDigue_UHD.jpg "埃托沙国家公园的豹子，纳米比亚")
 
 ---
