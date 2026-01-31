@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月01日：奇迹之墙
+#### 奥林达的彩色房子, 巴西（© Robert Pekar/Alamy）
+
+![奇迹之墙](https://cn.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_800x480.jpg&rf=LaDigue_800x480.jpg "奇迹之墙")
+
+在奥林达，色彩似乎自然而然融入其中。今日图片里的这座房子以大胆明亮的色调呈现，正体现了这座城市历史与创意并存的特质。奥林达建于16世纪，位于巴西东北的伯南布哥州，从殖民要塞逐步蜕变为文化名城，其独特风貌源自葡式建筑、非裔巴西文化与数百年累积的艺术气息。山坡上铺展柔和粉彩的屋墙、巴洛克教堂，以及适合悠闲漫步的狭窄鹅卵石街道。
+
+1982年，因20座美丽的巴洛克教堂、独特的自然景观和保存良好的建筑风貌，奥林达被联合国教科文组织认定为世界遗产。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e8%a5%bf%e5%a5%a5%e6%9e%97%e8%be%be&form=hpcapt&filters=HpDate:"20260131_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260201_Olinda"&FORM=HPQUIZ "必应主页测验 2026 2月 1")
+[下载480](https://cn.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_800x480.jpg&rf=LaDigue_800x480.jpg "奥林达的彩色房子, 巴西")
+[下载720](https://cn.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥林达的彩色房子, 巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥林达的彩色房子, 巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_UHD.jpg&rf=LaDigue_UHD.jpg "奥林达的彩色房子, 巴西")
+
+---
 ### 01月31日：一见钟情
 #### 平原斑马, 埃托沙国家公园, 纳米比亚（© Mogens Trolle/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_1280x720.jpg&rf=LaDigue_1280x720.jpg "白沙国家公园，新墨西哥州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "白沙国家公园，新墨西哥州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_UHD.jpg&rf=LaDigue_UHD.jpg "白沙国家公园，新墨西哥州，美国")
-
----
-### 01月17日：普雷比希托广场上的穹顶
-#### 保罗圣方济圣殿，那不勒斯，意大利（© javarman3/Getty Images）
-
-![普雷比希托广场上的穹顶](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_800x480.jpg&rf=LaDigue_800x480.jpg "普雷比希托广场上的穹顶")
-
-走进意大利那不勒斯的任意一座大广场，城市的历史便会在眼前次第展开。拱廊、长长的柱廊、带着古典气息的圆顶争相吸引你的目光。街道风格不断变换——紧凑的巴洛克立面与开阔的新古典主义庭院交替出现。继续向前，你会来到一处宽阔的广场，广场上矗立着一座乍看之下仿佛来自古罗马的建筑。这便是位于普雷比希托广场西侧的保罗圣方济圣殿。
-
-在那不勒斯，保罗圣方济圣殿既是珍贵的城市文化遗产，也是新古典主义建筑中的瑰丽巨作。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%82%a3%e4%b8%8d%e5%8b%92%e6%96%af%e4%bf%9d%e7%bd%97%e5%9c%a3%e8%8a%b3%e6%b5%8e%e5%9c%a3%e6%ae%bf&form=hpcapt&filters=HpDate:"20260116_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260117_NaplesBasilica"&FORM=HPQUIZ "必应主页测验 2026 1月 17")
-[下载480](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_800x480.jpg&rf=LaDigue_800x480.jpg "保罗圣方济圣殿，那不勒斯，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_1280x720.jpg&rf=LaDigue_1280x720.jpg "保罗圣方济圣殿，那不勒斯，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "保罗圣方济圣殿，那不勒斯，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_UHD.jpg&rf=LaDigue_UHD.jpg "保罗圣方济圣殿，那不勒斯，意大利")
 
 ---
