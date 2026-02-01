@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月02日：影子的承诺
+#### 阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利（© Raimund Linke/Getty Images）
+
+![影子的承诺](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_800x480.jpg&rf=LaDigue_800x480.jpg "影子的承诺")
+
+每年2月2日，全世界的目光都会投向那只喜欢从洞里探出头的小毛球——土拨鼠。传说如果这位“小预报员”看见了自己的影子，冬天就会再多待六周；如果没看到，春天就快到了。这项古怪又有趣的传统，让一只小小的啮齿动物摇身一变，成了名副其实的“气象明星”。
+
+土拨鼠靠脸颊上的气味腺来识别同伴，雄性土拨鼠还会利用这些气味腺来标记自己的领地范围。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e5%b0%94%e5%8d%91%e6%96%af%e5%b1%b1%e5%9c%9f%e6%8b%a8%e9%bc%a0&form=hpcapt&filters=HpDate:"20260201_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260202_AlpineMarmots"&FORM=HPQUIZ "必应主页测验 2026 2月 2")
+[下载480](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利")
+[下载720](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利")
+[下载1080](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利")
+[下载UHD](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利")
+
+---
 ### 02月01日：奇迹之墙
 #### 奥林达的彩色房子, 巴西（© Robert Pekar/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BubblesAbraham_ZH-CN7203734882_1280x720.jpg&rf=LaDigue_1280x720.jpg "亚伯拉罕湖冰封景象，艾伯塔省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.BubblesAbraham_ZH-CN7203734882_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亚伯拉罕湖冰封景象，艾伯塔省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.BubblesAbraham_ZH-CN7203734882_UHD.jpg&rf=LaDigue_UHD.jpg "亚伯拉罕湖冰封景象，艾伯塔省，加拿大")
-
----
-### 01月18日：伪装成沙漠的奇境
-#### 白沙国家公园，新墨西哥州，美国（© Francesco Carucci/Getty Images）
-
-![伪装成沙漠的奇境](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_800x480.jpg&rf=LaDigue_800x480.jpg "伪装成沙漠的奇境")
-
-如果把《冰雪奇缘》里的冰换成白沙，画面大概就会像新墨西哥州的白沙国家公园——一望无际的洁白沙丘，乍看之下仿佛仍带着冰雪的凉意。193 年的今天，这里被设立为国家纪念地，用来保护一种罕见的地质奇观：世界最大的石膏沙丘群。这些沙丘由石膏晶体在数千年的风化中逐渐破碎堆积而成，形成了明亮起伏的沙浪，即使在盛夏也依然触手冰凉。
-
-这片石膏沙丘是世界上同类地貌中规模最大的，沙层深度约30英尺（9.1米），沙丘最高可达60英尺（18米），蕴含的石膏砂总量约达45亿短吨（41亿公吨）。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%99%bd%e6%b2%99%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260117_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260118_WhiteSandsNM"&FORM=HPQUIZ "必应主页测验 2026 1月 18")
-[下载480](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_800x480.jpg&rf=LaDigue_800x480.jpg "白沙国家公园，新墨西哥州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_1280x720.jpg&rf=LaDigue_1280x720.jpg "白沙国家公园，新墨西哥州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "白沙国家公园，新墨西哥州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_UHD.jpg&rf=LaDigue_UHD.jpg "白沙国家公园，新墨西哥州，美国")
 
 ---
