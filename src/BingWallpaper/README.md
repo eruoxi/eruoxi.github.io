@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月04日：优雅掠过天际
+#### 雪中​​的红鸢（© Carl Mckie/500px/Getty Images）
+
+![优雅掠过天际](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_800x480.jpg&rf=LaDigue_800x480.jpg "优雅掠过天际")
+
+红鸢是一种格外引人注目的猛禽，红褐色的羽毛、浅色的头部，再加上一条修长的叉形尾羽，使它们在飞行中能展现出极高的操控精准度。该物种主要分布于欧洲，在英国、西班牙、法国和德国等地尤为常见。英格兰的奇尔特恩丘陵是红鸢保护工作的经典成功案例：这里的红鸢曾几近消失，直到20世纪80年代末至90年代初，从西班牙引入雏鸟放归自然后，红鸢才重新回到了这片天空。
+
+人们常误以为红鸢会捕食羊羔，但事实上，这些鸟的抓力很弱，连体型稍大的猎物都难以应付，小兔子已经是它们的极限了。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a2%e9%b8%a2%e9%b8%9f&form=hpcapt&filters=HpDate:"20260203_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260204_BigGardenBirdwatch2026"&FORM=HPQUIZ "必应主页测验 2026 2月 4")
+[下载480](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_800x480.jpg&rf=LaDigue_800x480.jpg "雪中​​的红鸢")
+[下载720](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪中​​的红鸢")
+[下载1080](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪中​​的红鸢")
+[下载UHD](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_UHD.jpg&rf=LaDigue_UHD.jpg "雪中​​的红鸢")
+
+---
 ### 02月03日：太浩湖视觉盛宴
 #### 翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国（© Bill Stevenson/Cavan Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧亚红松鼠")
 [下载1080](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚红松鼠")
 [下载UHD](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚红松鼠")
-
----
-### 01月20日：冬季里的呆萌小可爱
-#### 栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省（© Visual China Group/Getty Images）
-
-![冬季里的呆萌小可爱](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_800x480.jpg&rf=LaDigue_800x480.jpg "冬季里的呆萌小可爱")
-
-大寒（Dahan）是二十四节气中的最后一个节气。它意味着一年中最寒冷的时刻。大寒过后，立春开始，标志着新一轮节气的开始。 随着大寒的临近，过年的喜庆气氛也随之浓厚起来。大寒节气往往与年末相吻合，许多相关习俗都蕴含着辞旧迎新的寓意。
-
-它们常在取食时发出细微而尖细的“吇吇”声（sii-sii-sii）。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e5%af%92%e8%8a%82%e6%b0%94&form=hpcapt&filters=HpDate:"20260119_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260120_TheGreatColdY25"&FORM=HPQUIZ "必应主页测验 2026 1月 20")
-[下载480](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_800x480.jpg&rf=LaDigue_800x480.jpg "栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省")
-[下载720](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_1280x720.jpg&rf=LaDigue_1280x720.jpg "栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省")
-[下载1080](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省")
-[下载UHD](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_UHD.jpg&rf=LaDigue_UHD.jpg "栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省")
 
 ---
