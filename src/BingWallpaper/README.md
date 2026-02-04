@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月05日：困在网格里
+#### 戈佐岛上的盐田, 马耳他（© Marius Roman/Getty Images）
+
+![困在网格里](https://cn.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_800x480.jpg&rf=LaDigue_800x480.jpg "困在网格里")
+
+马耳他戈佐岛的什韦尼湾，总有一种魔力，能让海水、岩石与阳光呈现出一种宁静而有序的美感，令人不由得放慢脚步细看。几个世纪前，当地居民在石灰岩上开凿出层层盐池，形成数百个用来蓄海水的盆地。海水进入池中后，在阳光照射下逐渐蒸发，最终结晶成天然的地中海海盐。由于石灰岩海岸易于塑造，加上夏季温暖干燥，戈佐岛逐渐发展成重要的制盐地。每年五月左右，第一批盐晶生成，采盐季随即开始。工人们手工耙盐、清扫、堆放晾晒，最后装袋并储存在洞穴中。
+
+夏天来临时，当地岛民会收集晒成晶体的盐粒，并储存在周边的天然洞穴里。如今，不少当地商家将这种盐分装成精致的礼品罐，作为纪念品在岛上的商店售卖。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e8%80%b3%e4%bb%96%e6%88%88%e4%bd%90%e5%b2%9b+&form=hpcapt&filters=HpDate:"20260204_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260205_MaltaSalt"&FORM=HPQUIZ "必应主页测验 2026 2月 5")
+[下载480](https://cn.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_800x480.jpg&rf=LaDigue_800x480.jpg "戈佐岛上的盐田, 马耳他")
+[下载720](https://cn.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_1280x720.jpg&rf=LaDigue_1280x720.jpg "戈佐岛上的盐田, 马耳他")
+[下载1080](https://cn.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "戈佐岛上的盐田, 马耳他")
+[下载UHD](https://cn.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_UHD.jpg&rf=LaDigue_UHD.jpg "戈佐岛上的盐田, 马耳他")
+
+---
 ### 02月04日：优雅掠过天际
 #### 雪中​​的红鸢（© Carl Mckie/500px/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡罗维瓦利，波西米亚，捷克共和国")
 [下载1080](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡罗维瓦利，波西米亚，捷克共和国")
 [下载UHD](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_UHD.jpg&rf=LaDigue_UHD.jpg "卡罗维瓦利，波西米亚，捷克共和国")
-
----
-### 01月21日：冬日白雪中的一抹红
-#### 欧亚红松鼠（© Galina Jacyna/Getty Images）
-
-![冬日白雪中的一抹红](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_800x480.jpg&rf=LaDigue_800x480.jpg "冬日白雪中的一抹红")
-
-画面里，一只欧亚红松鼠蹲在雪地上，披着冬日特有的浓密绒毛，耳尖的小簇毛格外惹眼。它们原生于欧洲和亚洲部分地区的森林，主要以种子、坚果和真菌为食，把粮食分散藏在林中各处，并在高高的树洞里垒起巢窝，安度漫长寒冬。
-
-欧亚红松鼠会在高高的树上，用树枝与树叶织出一个圆圆的“drey”巢穴，像个藏在枝丛间的小球窝。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e4%ba%9a%e7%ba%a2%e6%9d%be%e9%bc%a0&form=hpcapt&filters=HpDate:"20260120_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260121_BerrySquirrel"&FORM=HPQUIZ "必应主页测验 2026 1月 21")
-[下载480](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_800x480.jpg&rf=LaDigue_800x480.jpg "欧亚红松鼠")
-[下载720](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_1280x720.jpg&rf=LaDigue_1280x720.jpg "欧亚红松鼠")
-[下载1080](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚红松鼠")
-[下载UHD](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚红松鼠")
 
 ---
