@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月06日：拉古塞拉——奥运赛季的巅峰
+#### 贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利（© Tomasz Podolski/Getty Images）
+
+![拉古塞拉——奥运赛季的巅峰](https://cn.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_800x480.jpg&rf=LaDigue_800x480.jpg "拉古塞拉——奥运赛季的巅峰")
+
+2026年冬季奥运会于今日正式拉开帷幕，而多洛米蒂山脉几乎完美诠释了这届赛事的精神。在吉奥山口上方陡然拔起的拉古塞拉峰，海拔达8514英尺，呈现出极具冲击力的高山景观，这正是米兰—科尔蒂纳2026冬季奥运会的标志性气质。这届奥运会由米兰与科尔蒂纳丹佩佐联合主办，将都市活力与深厚的阿尔卑斯山地传统融为一体。
+
+棕色的Milo与白色的Tina是一对出生在意大利群山中的白鼬兄妹，后来“决定搬到城市生活”。作为奥运会的主要吉祥物，Tina象征着艺术、音乐，以及美所带来的改变与新生。
+
+[Bing搜索](https://cn.bing.com/search?q=2026%e5%b9%b4%e5%86%ac%e5%ad%a3%e5%a5%a5%e8%bf%90%e4%bc%9a&form=hpcapt&filters=HpDate:"20260205_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260206_GiauPass"&FORM=HPQUIZ "必应主页测验 2026 2月 6")
+[下载480](https://cn.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_800x480.jpg&rf=LaDigue_800x480.jpg "贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利")
+[下载720](https://cn.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_1280x720.jpg&rf=LaDigue_1280x720.jpg "贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_UHD.jpg&rf=LaDigue_UHD.jpg "贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利")
+
+---
 ### 02月05日：困在网格里
 #### 戈佐岛上的盐田, 马耳他（© Marius Roman/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_1280x720.jpg&rf=LaDigue_1280x720.jpg "绵羊在雪地里吃草，冰岛")
 [下载1080](https://cn.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "绵羊在雪地里吃草，冰岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_UHD.jpg&rf=LaDigue_UHD.jpg "绵羊在雪地里吃草，冰岛")
-
----
-### 01月22日：波西米亚温泉故事
-#### 卡罗维瓦利，波西米亚，捷克共和国（© Henryk Sadura/Getty Images）
-
-![波西米亚温泉故事](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_800x480.jpg&rf=LaDigue_800x480.jpg "波西米亚温泉故事")
-
-在今天的图片中，冬意已悄悄落在捷克的卡罗维瓦利，这座坐落于浅色山谷中的城市，因山间温泉而闻名。关于这座城市的起源，可追溯到14世纪：据说当时的波希米亚国王、后来成为神圣罗马帝国皇帝的查理四世路经此地，恰好遇见一池冒着白雾的温热泉水。正是这次邂逅，引领波希米亚这片宁静的山谷走上了温泉疗养圣地的道路。
-
-这座城市以举办卡罗维瓦利国际电影节而闻名，该电影节是世界上历史最悠久的电影节之一，也是欧洲最重要的电影盛事之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e7%bd%97%e7%bb%b4%e7%93%a6%e5%88%a9&form=hpcapt&filters=HpDate:"20260121_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260122_KarlovyVary"&FORM=HPQUIZ "必应主页测验 2026 1月 22")
-[下载480](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_800x480.jpg&rf=LaDigue_800x480.jpg "卡罗维瓦利，波西米亚，捷克共和国")
-[下载720](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡罗维瓦利，波西米亚，捷克共和国")
-[下载1080](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡罗维瓦利，波西米亚，捷克共和国")
-[下载UHD](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_UHD.jpg&rf=LaDigue_UHD.jpg "卡罗维瓦利，波西米亚，捷克共和国")
 
 ---
