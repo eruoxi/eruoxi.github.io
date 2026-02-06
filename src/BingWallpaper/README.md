@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月07日：在盐沼与天空之间，万物静谧
+#### 玻利维亚乌尤尼盐湖（© Abstract Aerial Art/Getty Images）
+
+![在盐沼与天空之间，万物静谧](https://cn.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_800x480.jpg&rf=LaDigue_800x480.jpg "在盐沼与天空之间，万物静谧")
+
+玻利维亚的乌尤尼盐沼并不会循序渐进地展开视野，它仿佛一道由光线构成的地平线，瞬间闯入眼帘。这里是世界上最大的盐沼，面积约4000平方英里，海拔接近12000英尺。景观会随季节剧烈变化：雨季来临时，地面被薄薄的积水覆盖，化作一面巨大的天然镜子，天空与大地在倒影中融为一片耀眼的光面。
+
+这片盐沼几乎看不到野生动物和植被，唯一显眼的生命，是成片生长的巨型仙人掌。它们每年仅生长约1厘 米，最高可达12米。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8e%bb%e5%88%a9%e7%bb%b4%e4%ba%9a%e4%b9%8c%e5%b0%a4%e5%b0%bc%e7%9b%90%e6%b2%bc&form=hpcapt&filters=HpDate:"20260206_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260207_SalarUyuni"&FORM=HPQUIZ "必应主页测验 2026 2月 7")
+[下载480](https://cn.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_800x480.jpg&rf=LaDigue_800x480.jpg "玻利维亚乌尤尼盐湖")
+[下载720](https://cn.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_1280x720.jpg&rf=LaDigue_1280x720.jpg "玻利维亚乌尤尼盐湖")
+[下载1080](https://cn.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玻利维亚乌尤尼盐湖")
+[下载UHD](https://cn.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_UHD.jpg&rf=LaDigue_UHD.jpg "玻利维亚乌尤尼盐湖")
+
+---
 ### 02月06日：拉古塞拉——奥运赛季的巅峰
 #### 贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利（© Tomasz Podolski/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔卑斯山脉的安德马特小镇，瑞士")
 [下载1080](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔卑斯山脉的安德马特小镇，瑞士")
 [下载UHD](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔卑斯山脉的安德马特小镇，瑞士")
-
----
-### 01月23日：霜雪中的盛宴
-#### 绵羊在雪地里吃草，冰岛（© Christophe Lehenaff/Getty Images）
-
-![霜雪中的盛宴](https://cn.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_800x480.jpg&rf=LaDigue_800x480.jpg "霜雪中的盛宴")
-
-一月寒意袭来时，冰岛人会借由“仲冬节”寻回温暖与传统。这个节日以北欧神话中的冬之精灵“托里”为名，起初是一场向诸神献祭、祈求度过漫冬的祭宴。如今，它演变成一场既带着古老气息，又洋溢欢聚之情的文化盛会。
-
-19世纪末，一群冰岛学生复兴了“仲冬节”。二战结束后，民族主义推动文化复兴，冰岛人也让这项古老传统重新受到关注，甚至重新登上了各地餐厅的菜单。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%86%b0%e5%b2%9b%e4%bb%b2%e5%86%ac%e8%8a%82&form=hpcapt&filters=HpDate:"20260122_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260123_IcelandSheep"&FORM=HPQUIZ "必应主页测验 2026 1月 23")
-[下载480](https://cn.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_800x480.jpg&rf=LaDigue_800x480.jpg "绵羊在雪地里吃草，冰岛")
-[下载720](https://cn.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_1280x720.jpg&rf=LaDigue_1280x720.jpg "绵羊在雪地里吃草，冰岛")
-[下载1080](https://cn.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "绵羊在雪地里吃草，冰岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_UHD.jpg&rf=LaDigue_UHD.jpg "绵羊在雪地里吃草，冰岛")
 
 ---
