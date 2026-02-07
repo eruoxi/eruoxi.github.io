@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月08日：从宁静的夜晚到充满冒险的白天
+#### 科孚岛的夜晚, 希腊（© whitewizzard/Getty Images）
+
+![从宁静的夜晚到充满冒险的白天](https://cn.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_800x480.jpg&rf=LaDigue_800x480.jpg "从宁静的夜晚到充满冒险的白天")
+
+夜幕降临，希腊科孚岛展现出一种安静却耐人寻味的气息。温暖的路灯洒在石质立面上，古老的堡垒在夜色中勾勒出清晰的轮廓，狭窄的街巷层层延展，像一座仍在呼吸的迷宫老城。这里不仅保存着悠久的历史，也承载着真实的生活气息——多元文化在岁月流转中交叠，夜晚的节奏变得缓慢而从容，岛屿的生活气息，也在暗色中悄然浮现。
+
+科孚岛属于大陆型岛屿，其动物群与对岸大陆十分相似，物种丰富，涵盖哺乳动物、鸟类、爬行动物以及多样的海洋生物。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%8c%e8%85%8a%e7%a7%91%e5%ad%9a%e5%b2%9b&form=hpcapt&filters=HpDate:"20260207_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260208_CorfuGreece"&FORM=HPQUIZ "必应主页测验 2026 2月 8")
+[下载480](https://cn.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_800x480.jpg&rf=LaDigue_800x480.jpg "科孚岛的夜晚, 希腊")
+[下载720](https://cn.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_1280x720.jpg&rf=LaDigue_1280x720.jpg "科孚岛的夜晚, 希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科孚岛的夜晚, 希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_UHD.jpg&rf=LaDigue_UHD.jpg "科孚岛的夜晚, 希腊")
+
+---
 ### 02月07日：在盐沼与天空之间，万物静谧
 #### 玻利维亚乌尤尼盐湖（© Abstract Aerial Art/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_1280x720.jpg&rf=LaDigue_1280x720.jpg "伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_UHD.jpg&rf=LaDigue_UHD.jpg "伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰")
-
----
-### 01月24日：瑞士山间的短逃离
-#### 阿尔卑斯山脉的安德马特小镇，瑞士（© Xantana/Getty Images）
-
-![瑞士山间的短逃离](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_800x480.jpg&rf=LaDigue_800x480.jpg "瑞士山间的短逃离")
-
-安德马特坐落于海拔约4,715英尺的乌尔塞伦山谷，被壮丽的阿尔卑斯山脉环绕，是瑞士最迷人的小镇之一。自古以来，它便是交通与文化的交汇点，由圣哥达、福尔卡和奥伯阿尔卑三大山口贯通，使这里成为贯穿南北、连结文化的重要门户。
-
-安德马特的群山因其野雪地形和深雪特性而广受欢迎。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%91%9e%e5%a3%ab%e5%ae%89%e5%be%b7%e9%a9%ac%e7%89%b9%e5%b0%8f%e9%95%87&form=hpcapt&filters=HpDate:"20260123_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260124_AndermattSwiss"&FORM=HPQUIZ "必应主页测验 2026 1月 24")
-[下载480](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔卑斯山脉的安德马特小镇，瑞士")
-[下载720](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔卑斯山脉的安德马特小镇，瑞士")
-[下载1080](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔卑斯山脉的安德马特小镇，瑞士")
-[下载UHD](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔卑斯山脉的安德马特小镇，瑞士")
 
 ---
