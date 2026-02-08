@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月09日：斑纹流转
+#### 阿穆尔豹猫，俄罗斯（© Valeriy Maleev/naturepl.com）
+
+![斑纹流转](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_800x480.jpg&rf=LaDigue_800x480.jpg "斑纹流转")
+
+豹猫是一种体型较小的野生猫科动物，广泛分布于南亚、东南亚和东亚地区。它们体型与家猫相近，但四肢更修长、身形更为纤细，体长通常在15至30英寸之间，尾巴约7至12英寸。不同地区的成年豹猫体重差异较大，大致在1至16磅之间。外观变化也十分明显：南方种群多呈现温暖的金黄色皮毛，而分布在高纬度地区的豹猫则常拥有浅灰色皮毛，冬季时毛发会明显加厚。
+
+豹猫会游泳，但极少下水。它们的叫声与家猫相近。无论雌雄，都会通过喷洒尿液、在显眼处排便、蹭头和抓挠等方式标记领地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%b1%b9%e7%8c%ab&form=hpcapt&filters=HpDate:"20260208_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260209_LeopardCat"&FORM=HPQUIZ "必应主页测验 2026 2月 9")
+[下载480](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_800x480.jpg&rf=LaDigue_800x480.jpg "阿穆尔豹猫，俄罗斯")
+[下载720](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿穆尔豹猫，俄罗斯")
+[下载1080](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿穆尔豹猫，俄罗斯")
+[下载UHD](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_UHD.jpg&rf=LaDigue_UHD.jpg "阿穆尔豹猫，俄罗斯")
+
+---
 ### 02月08日：从宁静的夜晚到充满冒险的白天
 #### 科孚岛的夜晚, 希腊（© whitewizzard/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_1280x720.jpg&rf=LaDigue_1280x720.jpg "新天鹅堡，巴伐利亚州，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "新天鹅堡，巴伐利亚州，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_UHD.jpg&rf=LaDigue_UHD.jpg "新天鹅堡，巴伐利亚州，德国")
-
----
-### 01月25日：传统熠熠生辉
-#### 伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰（© Alister Firth/Alamy）
-
-![传统熠熠生辉](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_800x480.jpg&rf=LaDigue_800x480.jpg "传统熠熠生辉")
-
-每年1月25日，苏格兰人及世界各地喜爱伯恩斯的人们都会举杯庆祝，纪念这位深受爱戴的民族诗人。伯恩斯之夜的宴席温暖而有趣：主菜是香气浓郁的哈吉斯，搭配芜菁泥和土豆泥；其间穿插伯恩斯诗句的朗诵，再来一口威士忌，这场庆典最终总在《友谊地久天长》的合唱里被推向高潮。即使人在海外，也能轻松延续这份传统：摆盘、诵诗、举杯，让节日的温暖自然蔓延开来。
-
-罗伯特·伯恩斯，这位出身于苏格兰艾尔郡的农夫兼诗人，在英国文学史上留下了深刻印记。他的代表作《友谊地久天长》家喻户晓，而他所写的诗歌以苏格兰民谣的旋律、以及对自由与民主的颂扬而备受推崇。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8b%8f%e6%a0%bc%e5%85%b0%e5%8d%97%e8%89%be%e5%b0%94%e9%83%a1&form=hpcapt&filters=HpDate:"20260124_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260125_BurnsPark"&FORM=HPQUIZ "必应主页测验 2026 1月 25")
-[下载480](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_800x480.jpg&rf=LaDigue_800x480.jpg "伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰")
-[下载720](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_1280x720.jpg&rf=LaDigue_1280x720.jpg "伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_UHD.jpg&rf=LaDigue_UHD.jpg "伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰")
 
 ---
