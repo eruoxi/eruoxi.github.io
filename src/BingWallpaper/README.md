@@ -1,4 +1,38 @@
 ## Bing Wallpaper(最近15天)
+### 02月11日：对比之谷
+#### 死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国（© Jim Patterson/TANDEM Stills + Motion）
+
+![对比之谷](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_800x480.jpg&rf=LaDigue_800x480.jpg "对比之谷")
+
+死亡谷国家公园颠覆人们对沙漠的想象，横跨加利福尼亚州与内华达州，总面积约340万英亩，是美国面积最大的国家公园。盐沼、火山丘陵、流动沙丘与覆雪山峰交错分布，构成极端而多变的地貌。从海拔11000英尺的望远镜峰，到低于海平面282英尺的恶水盆地，这里呈现出鲜明且震撼的对比。
+
+除了震撼人心的自然景观与拓荒年代的故事，死亡谷曾长期作为一处兴盛的采矿中心。黄金白银铜钨铅锌锑和硼砂在谷地中被大量开采，留下深刻的工业印记。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%ad%bb%e8%b0%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260210_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260211_BadwaterFlats"&FORM=HPQUIZ "必应主页测验 2026 2月 11")
+[下载480](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_800x480.jpg&rf=LaDigue_800x480.jpg "死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_1280x720.jpg&rf=LaDigue_1280x720.jpg "死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_UHD.jpg&rf=LaDigue_UHD.jpg "死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国")
+
+---
+### 02月10日：海妖歌唱之处
+#### 埃斯韦德拉岛和埃斯韦德拉内尔岛，伊维萨岛，西班牙（© L. Apolli/Getty Images）
+
+![海妖歌唱之处](https://cn.bing.com/th?id=OHR.IbizaIslets_ZH-CN4580106286_800x480.jpg&rf=LaDigue_800x480.jpg "海妖歌唱之处")
+
+在西班牙伊维萨岛西南海域，矗立着两座无人居住的小岛——埃斯韦德拉和埃斯韦德拉内尔。它们属于受保护的自然保留区，以独特的生态价值和震撼的视觉效果闻名。埃斯韦德拉几乎垂直从海中升起，高约1300英尺，陡峭的石灰岩峭壁宛如一座孤立的山脉。不远处的埃斯韦德拉内尔轮廓锋利，因形似伏卧的巨龙而被称为“沉睡的巨龙”，与主岛的高峻挺拔相互映衬。
+
+埃斯韦德拉曾启发无数艺术家。1958年的美国电影《南太平洋》从中汲取灵感，1969年法国导演巴贝特·施罗德也曾在此取景拍摄电影。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bc%8a%e7%bb%b4%e8%90%a8%e5%b2%9b%e5%9f%83%e6%96%af%e7%bb%b4%e5%be%b7%e6%8b%89&form=hpcapt&filters=HpDate:"20260209_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260210_IbizaIslets"&FORM=HPQUIZ "必应主页测验 2026 2月 10")
+[下载480](https://cn.bing.com/th?id=OHR.IbizaIslets_ZH-CN4580106286_800x480.jpg&rf=LaDigue_800x480.jpg "埃斯韦德拉岛和埃斯韦德拉内尔岛，伊维萨岛，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.IbizaIslets_ZH-CN4580106286_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃斯韦德拉岛和埃斯韦德拉内尔岛，伊维萨岛，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.IbizaIslets_ZH-CN4580106286_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃斯韦德拉岛和埃斯韦德拉内尔岛，伊维萨岛，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.IbizaIslets_ZH-CN4580106286_UHD.jpg&rf=LaDigue_UHD.jpg "埃斯韦德拉岛和埃斯韦德拉内尔岛，伊维萨岛，西班牙")
+
+---
 ### 02月09日：斑纹流转
 #### 阿穆尔豹猫，俄罗斯（© Valeriy Maleev/naturepl.com）
 
@@ -218,39 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_1280x720.jpg&rf=LaDigue_1280x720.jpg "旺格努伊国家公园，雷塔鲁克，新西兰")
 [下载1080](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "旺格努伊国家公园，雷塔鲁克，新西兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_UHD.jpg&rf=LaDigue_UHD.jpg "旺格努伊国家公园，雷塔鲁克，新西兰")
-
----
-### 01月27日：羽翼预告：前方有鹈鹕
-#### 卷羽鹈鹕，凯尔基尼湖，希腊（© Guy Edwardes/naturepl.com）
-
-![羽翼预告：前方有鹈鹕](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_800x480.jpg&rf=LaDigue_800x480.jpg "羽翼预告：前方有鹈鹕")
-
-在冬日的凯尔基尼湖，你能捕捉到欧洲最震撼的卷羽鹈鹕身影。它们巨大的身形在平静的湖面上成群滑行，沉稳而优雅，令人难以忽视。卷羽鹈鹕翼展超过10英尺，是世界上体型最大的飞行鸟类之一。得益于凯尔基尼湖稳定的冬季气候，你可以近距离欣赏它们的巨大身姿、优雅姿态，以及群体滑行时那种令人着迷的默契。
-
-成年的卷羽鹈鹕羽色呈灰白色，头后方长着一撮卷曲、略显凌乱的冠羽，因此得名“卷羽鹈鹕”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%b7%e7%be%bd%e9%b9%88%e9%b9%95&form=hpcapt&filters=HpDate:"20260126_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260127_DalmationPelicans"&FORM=HPQUIZ "必应主页测验 2026 1月 27")
-[下载480](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_800x480.jpg&rf=LaDigue_800x480.jpg "卷羽鹈鹕，凯尔基尼湖，希腊")
-[下载720](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_1280x720.jpg&rf=LaDigue_1280x720.jpg "卷羽鹈鹕，凯尔基尼湖，希腊")
-[下载1080](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卷羽鹈鹕，凯尔基尼湖，希腊")
-[下载UHD](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_UHD.jpg&rf=LaDigue_UHD.jpg "卷羽鹈鹕，凯尔基尼湖，希腊")
-
----
-### 01月26日：巴伐利亚的瑰宝
-#### 新天鹅堡，巴伐利亚州，德国（© www.fredconcha.com @ All Rights Reserved/Getty Images）
-
-![巴伐利亚的瑰宝](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_800x480.jpg&rf=LaDigue_800x480.jpg "巴伐利亚的瑰宝")
-
-新天鹅堡的诞生源于巴伐利亚国王路德维希二世的浪漫构想——一个由中世纪神话与歌剧场景交织而成的梦境居所。城堡隐身于山林之间，塔尖纤细，精巧的石饰让整座建筑宛如漂浮在山谷之上。虽然建造始于十九世纪，但这座宫殿始终未完全竣工，因此也增添了一层淡淡的神秘。
-
-新天鹅堡不仅是德国的标志性建筑，也是迪士尼城堡的灵感源头，因此又被称为“灰姑娘城堡”。作为德国拍摄次数最多的建筑，它也是最受游客喜爱的景点之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%b0%e5%a4%a9%e9%b9%85%e5%a0%a1&form=hpcapt&filters=HpDate:"20260125_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260126_NeuschwansteinWinter"&FORM=HPQUIZ "必应主页测验 2026 1月 26")
-[下载480](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_800x480.jpg&rf=LaDigue_800x480.jpg "新天鹅堡，巴伐利亚州，德国")
-[下载720](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_1280x720.jpg&rf=LaDigue_1280x720.jpg "新天鹅堡，巴伐利亚州，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "新天鹅堡，巴伐利亚州，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_UHD.jpg&rf=LaDigue_UHD.jpg "新天鹅堡，巴伐利亚州，德国")
 
 ---
