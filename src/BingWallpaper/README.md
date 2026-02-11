@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月12日：聚焦进化
+#### 蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔（© Karine Aigner/TANDEM Stills + Motion）
+
+![聚焦进化](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_800x480.jpg&rf=LaDigue_800x480.jpg "聚焦进化")
+
+达尔文日纪念的不只是一位科学家的诞生，更是一场人类思维方式的转变。查尔斯·达尔文以敏锐的目光观察世界，从个体差异、生存优势到性状遗传，逐步建立起全新的科学认知。多年研究雀鸟、化石和藤壶后，他逐渐识别出其中隐藏的规律，并在1859年出版《物种起源》，首次系统提出物种通过自然选择不断演化的理论框架。
+
+在求偶时，雄性蓝脚鲣鸟会把那双醒目的蓝色脚掌当作“王牌”，配合夸张的舞步来博得雌鸟青睐。它先把脚高高抬起，在雌鸟面前昂首阔步地走动，展开一场精心设计的表演。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%93%9d%e8%84%9a%e9%b2%a3%e9%b8%9f&form=hpcapt&filters=HpDate:"20260211_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260212_DarwinBooby"&FORM=HPQUIZ "必应主页测验 2026 2月 12")
+[下载480](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_800x480.jpg&rf=LaDigue_800x480.jpg "蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔")
+[下载720](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_1280x720.jpg&rf=LaDigue_1280x720.jpg "蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔")
+[下载1080](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_UHD.jpg&rf=LaDigue_UHD.jpg "蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔")
+
+---
 ### 02月11日：对比之谷
 #### 死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国（© Jim Patterson/TANDEM Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_1280x720.jpg&rf=LaDigue_1280x720.jpg "密尔沃基市政厅的八层开放式中庭，威斯康星州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "密尔沃基市政厅的八层开放式中庭，威斯康星州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_UHD.jpg&rf=LaDigue_UHD.jpg "密尔沃基市政厅的八层开放式中庭，威斯康星州，美国")
-
----
-### 01月28日：随河而行
-#### 旺格努伊国家公园，雷塔鲁克，新西兰（© Matthew Micah Wright/Getty Images）
-
-![随河而行](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_800x480.jpg&rf=LaDigue_800x480.jpg "随河而行")
-
-旺格努伊国家公园呈现了新西兰最具特色的河流景观。自1986年建立起，它便以约286平方英里的面积横跨北岛中部。旺格努伊河在茂密的森林中缓缓弯曲前行，静默而深远。虽然其本身不在公园的正式范围内，但它几乎塑造了周遭的一切，包括“旺格努伊之旅”——新西兰著名的“伟大步道”之一。
-
-河流本身不在国家公园范围内，却因“旺格努伊之旅”而广受欢迎——这是一条备受喜爱的划舟路线，也是新西兰“伟大步道”之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%b0%e8%a5%bf%e5%85%b0%e6%97%ba%e6%a0%bc%e5%8a%aa%e4%bc%8a%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260127_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260128_WhanganuiPark"&FORM=HPQUIZ "必应主页测验 2026 1月 28")
-[下载480](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_800x480.jpg&rf=LaDigue_800x480.jpg "旺格努伊国家公园，雷塔鲁克，新西兰")
-[下载720](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_1280x720.jpg&rf=LaDigue_1280x720.jpg "旺格努伊国家公园，雷塔鲁克，新西兰")
-[下载1080](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "旺格努伊国家公园，雷塔鲁克，新西兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_UHD.jpg&rf=LaDigue_UHD.jpg "旺格努伊国家公园，雷塔鲁克，新西兰")
 
 ---
