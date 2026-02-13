@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月14日：爱意绽放
+#### 荷包牡丹（© Dorene Hookey/Cavan Images）
+
+![爱意绽放](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_800x480.jpg&rf=LaDigue_800x480.jpg "爱意绽放")
+
+情人节象征着各种关于“心”的情感——热烈的、柔和的、充满希望的，或含蓄脆弱的。在众多象征之中，鲜少有植物能像荷包牡丹如此贴切地寓意情人节。它拥有醒目的心形花朵，每逢春季便悄然绽放，植株高约2英尺，展开宽度接近30英寸，营造出一种柔和优雅、富有诗意的景致。
+
+情人节的起源可追溯至异教传统，其中最常被提及的是古罗马的卢珀卡利亚节，这一节日象征着生命以及春天的到来。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%83%85%e4%ba%ba%e8%8a%82&form=hpcapt&filters=HpDate:"20260213_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260214_ValentineHearts"&FORM=HPQUIZ "必应主页测验 2026 2月 14")
+[下载480](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_800x480.jpg&rf=LaDigue_800x480.jpg "荷包牡丹")
+[下载720](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_1280x720.jpg&rf=LaDigue_1280x720.jpg "荷包牡丹")
+[下载1080](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "荷包牡丹")
+[下载UHD](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_UHD.jpg&rf=LaDigue_UHD.jpg "荷包牡丹")
+
+---
 ### 02月13日：为拉近距离而建
 #### 连接老挝和泰国的第三座泰老友谊大桥（© chaiyut samsuk/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_1280x720.jpg&rf=LaDigue_1280x720.jpg "平原斑马, 埃托沙国家公园, 纳米比亚")
 [下载1080](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "平原斑马, 埃托沙国家公园, 纳米比亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_UHD.jpg&rf=LaDigue_UHD.jpg "平原斑马, 埃托沙国家公园, 纳米比亚")
-
----
-### 01月30日：海潮退却之处
-#### 马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰（© Baxter Bradford/robertharding/Getty Images）
-
-![海潮退却之处](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_800x480.jpg&rf=LaDigue_800x480.jpg "海潮退却之处")
-
-想象一座从康沃尔海面升起的小岛，潮水退去时才会与陆地短暂相连。每天只有几小时，你可以沿着那条被无数朝圣者和渔民磨出的花岗岩堤道走到岛上。这就是位于马拉齐翁外海的圣迈克尔山，由国家信托基金管理，自17世纪起便是圣奥宾家族的住所，融合了传说、中世纪遗迹与壮阔的海岸景色。
-
-矗立在岩石高地上的城堡格外引人注目，内部收藏着盖恩斯伯勒的画作、奇彭代尔家具，以及拿破仑外套碎片等军事纪念物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e8%bf%88%e5%85%8b%e5%b0%94%e5%b1%b1&form=hpcapt&filters=HpDate:"20260129_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260130_StMichaelsCornwall"&FORM=HPQUIZ "必应主页测验 2026 1月 30")
-[下载480](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_800x480.jpg&rf=LaDigue_800x480.jpg "马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_1280x720.jpg&rf=LaDigue_1280x720.jpg "马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_UHD.jpg&rf=LaDigue_UHD.jpg "马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰")
 
 ---
