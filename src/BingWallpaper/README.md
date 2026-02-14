@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月15日：浪涛下的歌谣
+#### 蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国（© Kiliii Fish/Cavan Images）
+
+![浪涛下的歌谣](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_800x480.jpg&rf=LaDigue_800x480.jpg "浪涛下的歌谣")
+
+世界鲸鱼日定于每年2月的第3个星期日，起源于20世纪80年代的夏威夷。当时，当地社区会庆祝座头鲸在迁徙季节重返近海。这一纪念日随后逐渐受到国际关注，尤其是在1986年国际捕鲸委员会通过商业捕鲸禁令之后，该举措成为全球鲸类保护的重要里程碑。
+
+座头鲸广泛分布于世界各大洋，在中国，它们的活动范围涵盖黄海、东海以及南海海域。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%b2%b8%e9%b1%bc&form=hpcapt&filters=HpDate:"20260214_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260215_MontereyHumpbacks"&FORM=HPQUIZ "必应主页测验 2026 2月 15")
+[下载480](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_800x480.jpg&rf=LaDigue_800x480.jpg "蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_UHD.jpg&rf=LaDigue_UHD.jpg "蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国")
+
+---
 ### 02月14日：爱意绽放
 #### 荷包牡丹（© Dorene Hookey/Cavan Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥林达的彩色房子, 巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥林达的彩色房子, 巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_UHD.jpg&rf=LaDigue_UHD.jpg "奥林达的彩色房子, 巴西")
-
----
-### 01月31日：一见钟情
-#### 平原斑马, 埃托沙国家公园, 纳米比亚（© Mogens Trolle/Shutterstock）
-
-![一见钟情](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_800x480.jpg&rf=LaDigue_800x480.jpg "一见钟情")
-
-有些动物在荒野中悄悄穿行，但斑马不是。它们顶着一身醒目的黑白条纹，仿佛这是世界上最实用的“装备”——实际上也确实如此。每年的1月31日是国际斑马日，让这些黑白相间的主角从群体中走到聚光灯下，迎来属于自己的高光时刻。
-
-平原斑马是博茨瓦纳的国兽，它的条纹也出现在该国国旗上。旗上的黑白条纹同时象征着国家的种族和谐。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b9%b3%e5%8e%9f%e6%96%91%e9%a9%ac&form=hpcapt&filters=HpDate:"20260130_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 1月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260131_EtoshaZebra"&FORM=HPQUIZ "必应主页测验 2026 1月 31")
-[下载480](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_800x480.jpg&rf=LaDigue_800x480.jpg "平原斑马, 埃托沙国家公园, 纳米比亚")
-[下载720](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_1280x720.jpg&rf=LaDigue_1280x720.jpg "平原斑马, 埃托沙国家公园, 纳米比亚")
-[下载1080](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "平原斑马, 埃托沙国家公园, 纳米比亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_UHD.jpg&rf=LaDigue_UHD.jpg "平原斑马, 埃托沙国家公园, 纳米比亚")
 
 ---
