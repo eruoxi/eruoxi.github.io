@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月16日：祝除夕团圆，新年顺遂！
+#### 庆祝春节的龙形灯笼，中国西安（© Pan Hong/Getty Images）
+
+![祝除夕团圆，新年顺遂！](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_800x480.jpg&rf=LaDigue_800x480.jpg "祝除夕团圆，新年顺遂！")
+
+除夕夜，街头的龙形灯笼正蜿蜒舒展，金鳞流转间仿佛蓄着时光的温度；而远处隐约响起的蹄声，恰似春风捎来骏马的问候——这是龙与马的相逢，是古老祥瑞与崭新朝气在岁月门楣的相会。
+
+“龙马精神”是一个富有深厚文化意蕴的中文成语，其核心含义是形容人像龙和马一样，拥有昂扬抖擞、健旺非凡的精神面貌和奋发向上的生命力。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%99%a4%e5%a4%95%e5%a4%9c&form=hpcapt&filters=HpDate:"20260215_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260216_ChineseNewYearEveY26"&FORM=HPQUIZ "必应主页测验 2026 2月 16")
+[下载480](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_800x480.jpg&rf=LaDigue_800x480.jpg "庆祝春节的龙形灯笼，中国西安")
+[下载720](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_1280x720.jpg&rf=LaDigue_1280x720.jpg "庆祝春节的龙形灯笼，中国西安")
+[下载1080](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "庆祝春节的龙形灯笼，中国西安")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_UHD.jpg&rf=LaDigue_UHD.jpg "庆祝春节的龙形灯笼，中国西安")
+
+---
 ### 02月15日：浪涛下的歌谣
 #### 蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国（© Kiliii Fish/Cavan Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利")
 [下载1080](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利")
-
----
-### 02月01日：奇迹之墙
-#### 奥林达的彩色房子, 巴西（© Robert Pekar/Alamy）
-
-![奇迹之墙](https://cn.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_800x480.jpg&rf=LaDigue_800x480.jpg "奇迹之墙")
-
-在奥林达，色彩似乎自然而然融入其中。今日图片里的这座房子以大胆明亮的色调呈现，正体现了这座城市历史与创意并存的特质。奥林达建于16世纪，位于巴西东北的伯南布哥州，从殖民要塞逐步蜕变为文化名城，其独特风貌源自葡式建筑、非裔巴西文化与数百年累积的艺术气息。山坡上铺展柔和粉彩的屋墙、巴洛克教堂，以及适合悠闲漫步的狭窄鹅卵石街道。
-
-1982年，因20座美丽的巴洛克教堂、独特的自然景观和保存良好的建筑风貌，奥林达被联合国教科文组织认定为世界遗产。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e8%a5%bf%e5%a5%a5%e6%9e%97%e8%be%be&form=hpcapt&filters=HpDate:"20260131_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260201_Olinda"&FORM=HPQUIZ "必应主页测验 2026 2月 1")
-[下载480](https://cn.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_800x480.jpg&rf=LaDigue_800x480.jpg "奥林达的彩色房子, 巴西")
-[下载720](https://cn.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥林达的彩色房子, 巴西")
-[下载1080](https://cn.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥林达的彩色房子, 巴西")
-[下载UHD](https://cn.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_UHD.jpg&rf=LaDigue_UHD.jpg "奥林达的彩色房子, 巴西")
 
 ---
