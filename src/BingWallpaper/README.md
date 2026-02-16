@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月17日：福气满满，马年大吉
+#### 中国春节传统汉字“福”（© DuKai摄影师/Getty Images）
+
+![福气满满，马年大吉](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_800x480.jpg&rf=LaDigue_800x480.jpg "福气满满，马年大吉")
+
+过年好！今天是中国民间最隆重最富有特色的传统节日之一。其实每年从腊八或小年开始，到元宵节，都称之为过年。春节期间，中国全国各地人们都举办着感恩祈福、阖家团聚、除旧布新、迎禧接福、祈求丰年为主要内容的活动。而中国农历新年也在世界各地掀起了“中国风”，春节庆祝活动内容丰富多彩，具有重要的历史、艺术和文化价值。
+
+十二生肖的起源与动物崇拜有关。最早记载与现代相同的十二生肖的传世文献是东汉王充的《论衡》。
+
+[Bing搜索](https://cn.bing.com/search?q=2026%e9%a9%ac%e5%b9%b4%e6%98%a5%e8%8a%82&form=hpcapt&filters=HpDate:"20260216_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260217_SpringFestivalY26"&FORM=HPQUIZ "必应主页测验 2026 2月 17")
+[下载480](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_800x480.jpg&rf=LaDigue_800x480.jpg "中国春节传统汉字“福”")
+[下载720](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_1280x720.jpg&rf=LaDigue_1280x720.jpg "中国春节传统汉字“福”")
+[下载1080](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国春节传统汉字“福”")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg&rf=LaDigue_UHD.jpg "中国春节传统汉字“福”")
+
+---
 ### 02月16日：祝除夕团圆，新年顺遂！
 #### 庆祝春节的龙形灯笼，中国西安（© Pan Hong/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_1280x720.jpg&rf=LaDigue_1280x720.jpg "翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_UHD.jpg&rf=LaDigue_UHD.jpg "翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国")
-
----
-### 02月02日：影子的承诺
-#### 阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利（© Raimund Linke/Getty Images）
-
-![影子的承诺](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_800x480.jpg&rf=LaDigue_800x480.jpg "影子的承诺")
-
-每年2月2日，全世界的目光都会投向那只喜欢从洞里探出头的小毛球——土拨鼠。传说如果这位“小预报员”看见了自己的影子，冬天就会再多待六周；如果没看到，春天就快到了。这项古怪又有趣的传统，让一只小小的啮齿动物摇身一变，成了名副其实的“气象明星”。
-
-土拨鼠靠脸颊上的气味腺来识别同伴，雄性土拨鼠还会利用这些气味腺来标记自己的领地范围。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e5%b0%94%e5%8d%91%e6%96%af%e5%b1%b1%e5%9c%9f%e6%8b%a8%e9%bc%a0&form=hpcapt&filters=HpDate:"20260201_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260202_AlpineMarmots"&FORM=HPQUIZ "必应主页测验 2026 2月 2")
-[下载480](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利")
-[下载720](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利")
-[下载1080](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利")
-[下载UHD](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利")
 
 ---
