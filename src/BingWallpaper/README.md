@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月18日：生而自由，永不驯服
+#### 普氏野马（© Nemyrivskyi Viacheslav/Getty Images）
+
+![生而自由，永不驯服](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_800x480.jpg&rf=LaDigue_800x480.jpg "生而自由，永不驯服")
+
+普氏野马从未被驯化，自始至终按照自己的方式生存，被认为是地球上最后的野马。它们曾广泛分布于中亚地区，但在20世纪60年代，由于狩猎、栖息地丧失以及与家畜竞争，普氏野马在野外一度消失。幸运的是，少数在20世纪初被带入圈养环境的个体保存了这个物种的火种，也孕育了今天所有的普氏野马。
+
+早在两万年前，欧洲的洞穴壁画中就已描绘出类似普氏野马的野生马匹。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%99%ae%e6%b0%8f%e9%87%8e%e9%a9%ac&form=hpcapt&filters=HpDate:"20260217_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260218_PrzewalskisHorse"&FORM=HPQUIZ "必应主页测验 2026 2月 18")
+[下载480](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_800x480.jpg&rf=LaDigue_800x480.jpg "普氏野马")
+[下载720](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_1280x720.jpg&rf=LaDigue_1280x720.jpg "普氏野马")
+[下载1080](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普氏野马")
+[下载UHD](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_UHD.jpg&rf=LaDigue_UHD.jpg "普氏野马")
+
+---
 ### 02月17日：福气满满，马年大吉
 #### 中国春节传统汉字“福”（© DuKai摄影师/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪中​​的红鸢")
 [下载1080](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪中​​的红鸢")
 [下载UHD](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_UHD.jpg&rf=LaDigue_UHD.jpg "雪中​​的红鸢")
-
----
-### 02月03日：太浩湖视觉盛宴
-#### 翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国（© Bill Stevenson/Cavan Images）
-
-![太浩湖视觉盛宴](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_800x480.jpg&rf=LaDigue_800x480.jpg "太浩湖视觉盛宴")
-
-当一个地方同时被地质学家、电影镜头和民间传说反复提及，它必定不只是一处风景。横跨加州与内华达州的太浩湖，正是这样一片承载故事的水域。它诞生于冰河时代，断层活动与冰川雕琢造就了深不见底的湖盆，如今已成为美国最深的淡水湖之一。很久以前，瓦绍族人世代栖居湖畔，随季节更替捕鱼、采集。几个世纪后，矿工的脚步踏入此地，汽船划破湖面，太浩湖也由资源中心，转变为四季皆宜的休闲度假地。
-
-地质学界普遍认为，翡翠湾是数千年前冰川侵蚀形成的地形。至于湾中的岛屿，则很可能是一条抗蚀性极强的花岗岩岩脊，在冰川越过时幸存下来。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%aa%e6%b5%a9%e6%b9%96%e8%8c%83%e5%86%85%e7%89%b9%e5%b2%9b&form=hpcapt&filters=HpDate:"20260202_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260203_FanetteIsland"&FORM=HPQUIZ "必应主页测验 2026 2月 3")
-[下载480](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_800x480.jpg&rf=LaDigue_800x480.jpg "翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_1280x720.jpg&rf=LaDigue_1280x720.jpg "翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_UHD.jpg&rf=LaDigue_UHD.jpg "翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国")
 
 ---
