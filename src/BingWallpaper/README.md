@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月19日：大地凝视着我们
+#### 乌塔克莱夫海滩的“龙之眼”岩层，挪威（© reisegraf/Getty Images）
+
+![大地凝视着我们](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_800x480.jpg&rf=LaDigue_800x480.jpg "大地凝视着我们")
+
+“龙之眼”这个名字听起来像是出自传说，而当你站在挪威罗弗敦群岛的乌塔克莱夫海滩上时，你很容易就能明白为什么它会得此美名。这处地貌由古老的岩石雕琢而成，四周环绕着沙滩和大海，看起来栩栩如生，仿佛大地本身正在注视着你。它历经数千年的冰雪和海水的侵蚀塑造而成，如今已成为该地区最迷人的景点之一。
+
+乌塔克莱夫是一个小社区，只有22名常住居民。除了“龙眼”岩层之外，该地区还以在沙丘上自由漫步和吃草的绵羊而闻名。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b9%8c%e5%a1%94%e5%85%8b%e8%8e%b1%e5%a4%ab%e6%b5%b7%e6%bb%a9&form=hpcapt&filters=HpDate:"20260218_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260219_DragonsEyeRock"&FORM=HPQUIZ "必应主页测验 2026 2月 19")
+[下载480](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_800x480.jpg&rf=LaDigue_800x480.jpg "乌塔克莱夫海滩的“龙之眼”岩层，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌塔克莱夫海滩的“龙之眼”岩层，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌塔克莱夫海滩的“龙之眼”岩层，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_UHD.jpg&rf=LaDigue_UHD.jpg "乌塔克莱夫海滩的“龙之眼”岩层，挪威")
+
+---
 ### 02月18日：生而自由，永不驯服
 #### 普氏野马（© Nemyrivskyi Viacheslav/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_1280x720.jpg&rf=LaDigue_1280x720.jpg "戈佐岛上的盐田, 马耳他")
 [下载1080](https://cn.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "戈佐岛上的盐田, 马耳他")
 [下载UHD](https://cn.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_UHD.jpg&rf=LaDigue_UHD.jpg "戈佐岛上的盐田, 马耳他")
-
----
-### 02月04日：优雅掠过天际
-#### 雪中​​的红鸢（© Carl Mckie/500px/Getty Images）
-
-![优雅掠过天际](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_800x480.jpg&rf=LaDigue_800x480.jpg "优雅掠过天际")
-
-红鸢是一种格外引人注目的猛禽，红褐色的羽毛、浅色的头部，再加上一条修长的叉形尾羽，使它们在飞行中能展现出极高的操控精准度。该物种主要分布于欧洲，在英国、西班牙、法国和德国等地尤为常见。英格兰的奇尔特恩丘陵是红鸢保护工作的经典成功案例：这里的红鸢曾几近消失，直到20世纪80年代末至90年代初，从西班牙引入雏鸟放归自然后，红鸢才重新回到了这片天空。
-
-人们常误以为红鸢会捕食羊羔，但事实上，这些鸟的抓力很弱，连体型稍大的猎物都难以应付，小兔子已经是它们的极限了。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a2%e9%b8%a2%e9%b8%9f&form=hpcapt&filters=HpDate:"20260203_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260204_BigGardenBirdwatch2026"&FORM=HPQUIZ "必应主页测验 2026 2月 4")
-[下载480](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_800x480.jpg&rf=LaDigue_800x480.jpg "雪中​​的红鸢")
-[下载720](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪中​​的红鸢")
-[下载1080](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪中​​的红鸢")
-[下载UHD](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_UHD.jpg&rf=LaDigue_UHD.jpg "雪中​​的红鸢")
 
 ---
