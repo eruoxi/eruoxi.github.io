@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月20日：光照之处
+#### 约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国（© Jorge Villalba/Getty Images）
+
+![光照之处](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_800x480.jpg&rf=LaDigue_800x480.jpg "光照之处")
+
+今天，是安塞尔·亚当斯的诞辰。正是他的镜头，塑造了世人心中优胜美地的形象。这座国家公园以雄伟的花岗岩岩壁、壮观的瀑布和变幻莫测的光线闻名，持续激发着一代又一代艺术家的创作灵感。而其中最令人着迷的景象，是被称作“火瀑”的奇观。这一名称，其实源自优胜美地历史中的两种不同景象。在过去，人们曾聚集在冰川点，观看一种人工制造的奇观：炽热的余烬被推下悬崖，在夜幕中倾泻而下，宛如一条燃烧的火流。
+
+唯有水量充沛、天空澄明，且阳光以恰当的角度洒落，火焰般的水幕才会显现。而这样的奇遇，并不会每年发生。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a6%e5%a1%9e%e7%b1%b3%e8%92%82%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad%e9%87%8c%e7%9a%84%e7%81%ab%e7%80%91%e5%b8%83&form=hpcapt&filters=HpDate:"20260219_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260220_AdamsFirefall"&FORM=HPQUIZ "必应主页测验 2026 2月 20")
+[下载480](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_800x480.jpg&rf=LaDigue_800x480.jpg "约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_1280x720.jpg&rf=LaDigue_1280x720.jpg "约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_UHD.jpg&rf=LaDigue_UHD.jpg "约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国")
+
+---
 ### 02月19日：大地凝视着我们
 #### 乌塔克莱夫海滩的“龙之眼”岩层，挪威（© reisegraf/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_1280x720.jpg&rf=LaDigue_1280x720.jpg "贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_UHD.jpg&rf=LaDigue_UHD.jpg "贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利")
-
----
-### 02月05日：困在网格里
-#### 戈佐岛上的盐田, 马耳他（© Marius Roman/Getty Images）
-
-![困在网格里](https://cn.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_800x480.jpg&rf=LaDigue_800x480.jpg "困在网格里")
-
-马耳他戈佐岛的什韦尼湾，总有一种魔力，能让海水、岩石与阳光呈现出一种宁静而有序的美感，令人不由得放慢脚步细看。几个世纪前，当地居民在石灰岩上开凿出层层盐池，形成数百个用来蓄海水的盆地。海水进入池中后，在阳光照射下逐渐蒸发，最终结晶成天然的地中海海盐。由于石灰岩海岸易于塑造，加上夏季温暖干燥，戈佐岛逐渐发展成重要的制盐地。每年五月左右，第一批盐晶生成，采盐季随即开始。工人们手工耙盐、清扫、堆放晾晒，最后装袋并储存在洞穴中。
-
-夏天来临时，当地岛民会收集晒成晶体的盐粒，并储存在周边的天然洞穴里。如今，不少当地商家将这种盐分装成精致的礼品罐，作为纪念品在岛上的商店售卖。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e8%80%b3%e4%bb%96%e6%88%88%e4%bd%90%e5%b2%9b+&form=hpcapt&filters=HpDate:"20260204_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260205_MaltaSalt"&FORM=HPQUIZ "必应主页测验 2026 2月 5")
-[下载480](https://cn.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_800x480.jpg&rf=LaDigue_800x480.jpg "戈佐岛上的盐田, 马耳他")
-[下载720](https://cn.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_1280x720.jpg&rf=LaDigue_1280x720.jpg "戈佐岛上的盐田, 马耳他")
-[下载1080](https://cn.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "戈佐岛上的盐田, 马耳他")
-[下载UHD](https://cn.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_UHD.jpg&rf=LaDigue_UHD.jpg "戈佐岛上的盐田, 马耳他")
 
 ---
