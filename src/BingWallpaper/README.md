@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月22日：群山的母亲
+#### 马姆托尔山，德比郡，英格兰（© john finney photography/Getty Images）
+
+![群山的母亲](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_800x480.jpg&rf=LaDigue_800x480.jpg "群山的母亲")
+
+“颤抖的山”这个绰号听起来颇具戏剧性，但对马姆托尔来说，却是数百年来的真实写照。它耸立在英格兰峰区国家公园的卡斯尔顿上方，这里也是英国首个国家公园，占地约555平方英里。这座地标的名字源自古英语，“mam”意为“母亲”，暗指它仿佛怀抱着周围起伏的小丘。然而，这座“母亲之山”却以不稳定而闻名：页岩与砂岩层层叠加，使山体长期滑动，1979年的一次坍塌甚至导致A625公路永久关闭。
+
+在这座山丘之巅，矗立着一处始建于青铜时代晚期至铁器时代早期的单壕山堡，周围还保留着两座青铜时代的碗状坟冢。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e5%a7%86%e6%89%98%e5%b0%94%e5%b1%b1&form=hpcapt&filters=HpDate:"20260221_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260222_MamTorSunrise"&FORM=HPQUIZ "必应主页测验 2026 2月 22")
+[下载480](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_800x480.jpg&rf=LaDigue_800x480.jpg "马姆托尔山，德比郡，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_1280x720.jpg&rf=LaDigue_1280x720.jpg "马姆托尔山，德比郡，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马姆托尔山，德比郡，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_UHD.jpg&rf=LaDigue_UHD.jpg "马姆托尔山，德比郡，英格兰")
+
+---
 ### 02月21日：冬日的低语
 #### 一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国（© Radomir Jakubowski/naturepl.com）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_1280x720.jpg&rf=LaDigue_1280x720.jpg "科孚岛的夜晚, 希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科孚岛的夜晚, 希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_UHD.jpg&rf=LaDigue_UHD.jpg "科孚岛的夜晚, 希腊")
-
----
-### 02月07日：在盐沼与天空之间，万物静谧
-#### 玻利维亚乌尤尼盐湖（© Abstract Aerial Art/Getty Images）
-
-![在盐沼与天空之间，万物静谧](https://cn.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_800x480.jpg&rf=LaDigue_800x480.jpg "在盐沼与天空之间，万物静谧")
-
-玻利维亚的乌尤尼盐沼并不会循序渐进地展开视野，它仿佛一道由光线构成的地平线，瞬间闯入眼帘。这里是世界上最大的盐沼，面积约4000平方英里，海拔接近12000英尺。景观会随季节剧烈变化：雨季来临时，地面被薄薄的积水覆盖，化作一面巨大的天然镜子，天空与大地在倒影中融为一片耀眼的光面。
-
-这片盐沼几乎看不到野生动物和植被，唯一显眼的生命，是成片生长的巨型仙人掌。它们每年仅生长约1厘 米，最高可达12米。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8e%bb%e5%88%a9%e7%bb%b4%e4%ba%9a%e4%b9%8c%e5%b0%a4%e5%b0%bc%e7%9b%90%e6%b2%bc&form=hpcapt&filters=HpDate:"20260206_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260207_SalarUyuni"&FORM=HPQUIZ "必应主页测验 2026 2月 7")
-[下载480](https://cn.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_800x480.jpg&rf=LaDigue_800x480.jpg "玻利维亚乌尤尼盐湖")
-[下载720](https://cn.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_1280x720.jpg&rf=LaDigue_1280x720.jpg "玻利维亚乌尤尼盐湖")
-[下载1080](https://cn.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玻利维亚乌尤尼盐湖")
-[下载UHD](https://cn.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_UHD.jpg&rf=LaDigue_UHD.jpg "玻利维亚乌尤尼盐湖")
 
 ---
