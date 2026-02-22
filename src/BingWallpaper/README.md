@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月23日：雪原之王
+#### 大白鹭，上巴伐利亚州，德国（© Konrad Wothe/naturepl.com）
+
+![雪原之王](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_800x480.jpg&rf=LaDigue_800x480.jpg "雪原之王")
+
+洁白的羽毛、修长的脖颈和鲜亮的黄喙，让大白鹭在湿地中格外醒目。这种大型鹭鸟分布广泛，几乎遍布全球，能适应多种水域环境。成年大白鹭体长约94至104厘米，翼展1.3至1.45米，体重约1公斤，身形高挑优雅。作为肉食性鸟类，大白鹭主要以鱼类为食，同时也捕食两栖动物、昆虫、小型哺乳动物和爬行动物。它们常在水边一动不动地耐心等待，随后以极快的速度完成一次精准的捕食。
+
+大白鹭是一种适应性极强、分布广泛的物种，其活动范围仍在不断扩大，广泛出现在全球温带与热带地区的多种栖息环境中。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e7%99%bd%e9%b9%ad&form=hpcapt&filters=HpDate:"20260222_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260223_BavariaEgret"&FORM=HPQUIZ "必应主页测验 2026 2月 23")
+[下载480](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_800x480.jpg&rf=LaDigue_800x480.jpg "大白鹭，上巴伐利亚州，德国")
+[下载720](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_1280x720.jpg&rf=LaDigue_1280x720.jpg "大白鹭，上巴伐利亚州，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大白鹭，上巴伐利亚州，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_UHD.jpg&rf=LaDigue_UHD.jpg "大白鹭，上巴伐利亚州，德国")
+
+---
 ### 02月22日：群山的母亲
 #### 马姆托尔山，德比郡，英格兰（© john finney photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿穆尔豹猫，俄罗斯")
 [下载1080](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿穆尔豹猫，俄罗斯")
 [下载UHD](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_UHD.jpg&rf=LaDigue_UHD.jpg "阿穆尔豹猫，俄罗斯")
-
----
-### 02月08日：从宁静的夜晚到充满冒险的白天
-#### 科孚岛的夜晚, 希腊（© whitewizzard/Getty Images）
-
-![从宁静的夜晚到充满冒险的白天](https://cn.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_800x480.jpg&rf=LaDigue_800x480.jpg "从宁静的夜晚到充满冒险的白天")
-
-夜幕降临，希腊科孚岛展现出一种安静却耐人寻味的气息。温暖的路灯洒在石质立面上，古老的堡垒在夜色中勾勒出清晰的轮廓，狭窄的街巷层层延展，像一座仍在呼吸的迷宫老城。这里不仅保存着悠久的历史，也承载着真实的生活气息——多元文化在岁月流转中交叠，夜晚的节奏变得缓慢而从容，岛屿的生活气息，也在暗色中悄然浮现。
-
-科孚岛属于大陆型岛屿，其动物群与对岸大陆十分相似，物种丰富，涵盖哺乳动物、鸟类、爬行动物以及多样的海洋生物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%8c%e8%85%8a%e7%a7%91%e5%ad%9a%e5%b2%9b&form=hpcapt&filters=HpDate:"20260207_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260208_CorfuGreece"&FORM=HPQUIZ "必应主页测验 2026 2月 8")
-[下载480](https://cn.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_800x480.jpg&rf=LaDigue_800x480.jpg "科孚岛的夜晚, 希腊")
-[下载720](https://cn.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_1280x720.jpg&rf=LaDigue_1280x720.jpg "科孚岛的夜晚, 希腊")
-[下载1080](https://cn.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科孚岛的夜晚, 希腊")
-[下载UHD](https://cn.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_UHD.jpg&rf=LaDigue_UHD.jpg "科孚岛的夜晚, 希腊")
 
 ---
