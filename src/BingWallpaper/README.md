@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月24日：池底的生命律动
+#### 大天坑里的睡莲，图卢姆，墨西哥（© Christian Vizl/Tandem Stills + Motion）
+
+![池底的生命律动](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_800x480.jpg&rf=LaDigue_800x480.jpg "池底的生命律动")
+
+漂浮的睡莲点缀着澄澈如玻璃般的水池，隐藏着一个宁静的水下世界。这里是墨西哥图卢姆的大天然井，由数千年前石灰岩塌陷形成，地下淡水缓缓填满洞室，并与幽深的地下洞穴网相连。目光线停留在平静的水面上，睡莲缓缓漂浮，宽阔的叶片盛满阳光，滋养着整个水域的生态系统。作为地球上古老的开花植物谱系之一，睡莲已有约一亿二千五百万年的演化历史，它们通过花香、形态与花期吸引传粉者，在水中延续生命。
+
+在墨西哥，仅尤卡坦半岛一地就分布着约一万座天然井。这些充满清水的陷穴由石灰岩塌陷自然形成，散布在半岛各处。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%be%e5%8d%a2%e5%a7%86%e5%a4%a7%e5%a4%a9%e5%9d%91&form=hpcapt&filters=HpDate:"20260223_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260224_TulumLilies"&FORM=HPQUIZ "必应主页测验 2026 2月 24")
+[下载480](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_800x480.jpg&rf=LaDigue_800x480.jpg "大天坑里的睡莲，图卢姆，墨西哥")
+[下载720](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_1280x720.jpg&rf=LaDigue_1280x720.jpg "大天坑里的睡莲，图卢姆，墨西哥")
+[下载1080](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大天坑里的睡莲，图卢姆，墨西哥")
+[下载UHD](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_UHD.jpg&rf=LaDigue_UHD.jpg "大天坑里的睡莲，图卢姆，墨西哥")
+
+---
 ### 02月23日：雪原之王
 #### 大白鹭，上巴伐利亚州，德国（© Konrad Wothe/naturepl.com）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.IbizaIslets_ZH-CN4580106286_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃斯韦德拉岛和埃斯韦德拉内尔岛，伊维萨岛，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.IbizaIslets_ZH-CN4580106286_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃斯韦德拉岛和埃斯韦德拉内尔岛，伊维萨岛，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.IbizaIslets_ZH-CN4580106286_UHD.jpg&rf=LaDigue_UHD.jpg "埃斯韦德拉岛和埃斯韦德拉内尔岛，伊维萨岛，西班牙")
-
----
-### 02月09日：斑纹流转
-#### 阿穆尔豹猫，俄罗斯（© Valeriy Maleev/naturepl.com）
-
-![斑纹流转](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_800x480.jpg&rf=LaDigue_800x480.jpg "斑纹流转")
-
-豹猫是一种体型较小的野生猫科动物，广泛分布于南亚、东南亚和东亚地区。它们体型与家猫相近，但四肢更修长、身形更为纤细，体长通常在15至30英寸之间，尾巴约7至12英寸。不同地区的成年豹猫体重差异较大，大致在1至16磅之间。外观变化也十分明显：南方种群多呈现温暖的金黄色皮毛，而分布在高纬度地区的豹猫则常拥有浅灰色皮毛，冬季时毛发会明显加厚。
-
-豹猫会游泳，但极少下水。它们的叫声与家猫相近。无论雌雄，都会通过喷洒尿液、在显眼处排便、蹭头和抓挠等方式标记领地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%b1%b9%e7%8c%ab&form=hpcapt&filters=HpDate:"20260208_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260209_LeopardCat"&FORM=HPQUIZ "必应主页测验 2026 2月 9")
-[下载480](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_800x480.jpg&rf=LaDigue_800x480.jpg "阿穆尔豹猫，俄罗斯")
-[下载720](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿穆尔豹猫，俄罗斯")
-[下载1080](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿穆尔豹猫，俄罗斯")
-[下载UHD](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_UHD.jpg&rf=LaDigue_UHD.jpg "阿穆尔豹猫，俄罗斯")
 
 ---
