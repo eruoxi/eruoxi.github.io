@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月26日：一幅壮丽的景象
+#### 大峡谷和科罗拉多河，亚利桑那州，美国（© Matt Anderson Photography/Getty Images）
+
+![一幅壮丽的景象](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_800x480.jpg&rf=LaDigue_800x480.jpg "一幅壮丽的景象")
+
+大峡谷国家公园每天都有新的故事，但2月26日这一天格外特别，纪念的是1919年大峡谷正式成为国家公园的历史时刻。这一里程碑式的决定，守护了美国最具代表性的自然奇观。峡谷深处，科罗拉多河缓缓流淌，穿行于层叠的岩石之间，跨越数百英里，以季节为节拍，静静雕刻着峡谷的生命。
+
+国家公园管理局在园内多个观景点架设了实时网络摄像头，分享日出时刻、天气变化与峡谷的日常节律。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e5%9b%bd%e5%a4%a7%e5%b3%a1%e8%b0%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260225_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260226_GrandSunset"&FORM=HPQUIZ "必应主页测验 2026 2月 26")
+[下载480](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_800x480.jpg&rf=LaDigue_800x480.jpg "大峡谷和科罗拉多河，亚利桑那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_1280x720.jpg&rf=LaDigue_1280x720.jpg "大峡谷和科罗拉多河，亚利桑那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大峡谷和科罗拉多河，亚利桑那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg&rf=LaDigue_UHD.jpg "大峡谷和科罗拉多河，亚利桑那州，美国")
+
+---
 ### 02月25日：冰，由内而外透出光芒
 #### 门登霍尔冰川的冰洞，阿拉斯加州，美国（© Designpics/Adobe Stock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_1280x720.jpg&rf=LaDigue_1280x720.jpg "蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_UHD.jpg&rf=LaDigue_UHD.jpg "蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔")
-
----
-### 02月11日：对比之谷
-#### 死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国（© Jim Patterson/TANDEM Stills + Motion）
-
-![对比之谷](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_800x480.jpg&rf=LaDigue_800x480.jpg "对比之谷")
-
-死亡谷国家公园颠覆人们对沙漠的想象，横跨加利福尼亚州与内华达州，总面积约340万英亩，是美国面积最大的国家公园。盐沼、火山丘陵、流动沙丘与覆雪山峰交错分布，构成极端而多变的地貌。从海拔11000英尺的望远镜峰，到低于海平面282英尺的恶水盆地，这里呈现出鲜明且震撼的对比。
-
-除了震撼人心的自然景观与拓荒年代的故事，死亡谷曾长期作为一处兴盛的采矿中心。黄金白银铜钨铅锌锑和硼砂在谷地中被大量开采，留下深刻的工业印记。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%ad%bb%e8%b0%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260210_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260211_BadwaterFlats"&FORM=HPQUIZ "必应主页测验 2026 2月 11")
-[下载480](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_800x480.jpg&rf=LaDigue_800x480.jpg "死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_1280x720.jpg&rf=LaDigue_1280x720.jpg "死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_UHD.jpg&rf=LaDigue_UHD.jpg "死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国")
 
 ---
