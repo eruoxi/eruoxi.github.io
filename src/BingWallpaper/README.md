@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月27日：薄冰上的生活
+#### 北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国（© Steven Kazlowski/naturepl.com）
+
+![薄冰上的生活](https://cn.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_800x480.jpg&rf=LaDigue_800x480.jpg "薄冰上的生活")
+
+2月27日是国际北极熊日，聚焦与冰封世界紧密相连的“北极巨兽”。作为世界上最大的陆地食肉动物，北极熊会为寻找食物在辽阔的极地景观中跋涉数百英里。它们高度适应海冰生活：宽大的前掌跨度可达约一英尺，不仅能稳稳踏雪行走，也能在冰冷海水中游出数英里。
+
+根据国际自然保护联盟（IUCN）的评估，北极熊被列为易危物种，全球种群数量估计约22000至31000只。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%9e%81%e7%86%8a&form=hpcapt&filters=HpDate:"20260226_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260227_ArcitcCub"&FORM=HPQUIZ "必应主页测验 2026 2月 27")
+[下载480](https://cn.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_800x480.jpg&rf=LaDigue_800x480.jpg "北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国")
+
+---
 ### 02月26日：一幅壮丽的景象
 #### 大峡谷和科罗拉多河，亚利桑那州，美国（© Matt Anderson Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_1280x720.jpg&rf=LaDigue_1280x720.jpg "连接老挝和泰国的第三座泰老友谊大桥")
 [下载1080](https://cn.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "连接老挝和泰国的第三座泰老友谊大桥")
 [下载UHD](https://cn.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_UHD.jpg&rf=LaDigue_UHD.jpg "连接老挝和泰国的第三座泰老友谊大桥")
-
----
-### 02月12日：聚焦进化
-#### 蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔（© Karine Aigner/TANDEM Stills + Motion）
-
-![聚焦进化](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_800x480.jpg&rf=LaDigue_800x480.jpg "聚焦进化")
-
-达尔文日纪念的不只是一位科学家的诞生，更是一场人类思维方式的转变。查尔斯·达尔文以敏锐的目光观察世界，从个体差异、生存优势到性状遗传，逐步建立起全新的科学认知。多年研究雀鸟、化石和藤壶后，他逐渐识别出其中隐藏的规律，并在1859年出版《物种起源》，首次系统提出物种通过自然选择不断演化的理论框架。
-
-在求偶时，雄性蓝脚鲣鸟会把那双醒目的蓝色脚掌当作“王牌”，配合夸张的舞步来博得雌鸟青睐。它先把脚高高抬起，在雌鸟面前昂首阔步地走动，展开一场精心设计的表演。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%93%9d%e8%84%9a%e9%b2%a3%e9%b8%9f&form=hpcapt&filters=HpDate:"20260211_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260212_DarwinBooby"&FORM=HPQUIZ "必应主页测验 2026 2月 12")
-[下载480](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_800x480.jpg&rf=LaDigue_800x480.jpg "蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔")
-[下载720](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_1280x720.jpg&rf=LaDigue_1280x720.jpg "蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔")
-[下载1080](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔")
-[下载UHD](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_UHD.jpg&rf=LaDigue_UHD.jpg "蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔")
 
 ---
