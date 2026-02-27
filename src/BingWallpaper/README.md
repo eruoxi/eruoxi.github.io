@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 02月28日：洋溢着社区氛围
+#### 奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国（© Andrew Aylett/Getty Images）
+
+![洋溢着社区氛围](https://cn.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_800x480.jpg&rf=LaDigue_800x480.jpg "洋溢着社区氛围")
+
+莫洛凯岛常被称为“最具夏威夷气息岛屿”，这里的节奏缓慢而从容，由自然环境与紧密相连的社区共同塑造。岛屿形成于一百多万年前的火山活动，占地约260平方英里，从太平洋中隆起，延展出修长的山脊与开阔的谷地。与喧闹的邻岛不同，莫洛凯岛拒绝大规模开发，保留了强烈的在地凝聚力，家庭、传统以及对土地的守护构成了这里的核心价值。人们的生活围绕着海洋、土地，以及代代相传的故事展开。
+
+这些瀑布极为偏远，只能从空中或海上远望。附近既没有公路，也没有步道。最近的城镇是考纳卡凯，这是岛上的主要城镇。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8e%ab%e6%b4%9b%e5%87%af%e5%b2%9b&form=hpcapt&filters=HpDate:"20260227_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260228_OloupenaFalls"&FORM=HPQUIZ "必应主页测验 2026 2月 28")
+[下载480](https://cn.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_800x480.jpg&rf=LaDigue_800x480.jpg "奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_UHD.jpg&rf=LaDigue_UHD.jpg "奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国")
+
+---
 ### 02月27日：薄冰上的生活
 #### 北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国（© Steven Kazlowski/naturepl.com）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_1280x720.jpg&rf=LaDigue_1280x720.jpg "荷包牡丹")
 [下载1080](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "荷包牡丹")
 [下载UHD](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_UHD.jpg&rf=LaDigue_UHD.jpg "荷包牡丹")
-
----
-### 02月13日：为拉近距离而建
-#### 连接老挝和泰国的第三座泰老友谊大桥（© chaiyut samsuk/Getty Images）
-
-![为拉近距离而建](https://cn.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_800x480.jpg&rf=LaDigue_800x480.jpg "为拉近距离而建")
-
-在没有桥梁的年代，河流决定人们能走多远；而随着桥梁的建立，节奏掌握开始在人的手中。这种转变正是跨境基础设施的重要意义所在，比如连接老挝与泰国的第三座大桥泰老友谊大桥。桥梁结构多样，各有针对性：拱桥应对压力，悬索桥跨越长距离，混凝土箱梁桥则追求稳定与高效承载。这座桥选择箱梁设计，正是为应对湄公河宽阔水面与快速水流的现实需求。
-
-泰国与老挝之间的第五座泰老友谊大桥于2025年12月25日正式通车，连接泰国汶干府与老挝博里坎赛省，这座桥不仅缩短了距离，也串联起两国更频繁的往来与合作。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ac%ac%e4%b8%89%e5%ba%a7%e6%b3%b0%e8%80%81%e5%8f%8b%e8%b0%8a%e5%a4%a7%e6%a1%a5&form=hpcapt&filters=HpDate:"20260212_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260213_FriendshipBridge"&FORM=HPQUIZ "必应主页测验 2026 2月 13")
-[下载480](https://cn.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_800x480.jpg&rf=LaDigue_800x480.jpg "连接老挝和泰国的第三座泰老友谊大桥")
-[下载720](https://cn.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_1280x720.jpg&rf=LaDigue_1280x720.jpg "连接老挝和泰国的第三座泰老友谊大桥")
-[下载1080](https://cn.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "连接老挝和泰国的第三座泰老友谊大桥")
-[下载UHD](https://cn.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_UHD.jpg&rf=LaDigue_UHD.jpg "连接老挝和泰国的第三座泰老友谊大桥")
 
 ---
