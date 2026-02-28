@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月01日：每一步，都是传承
+#### 伊维萨岛, 巴利阿里群岛, 西班牙（© tokar/Shutterstock）
+
+![每一步，都是传承](https://cn.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_800x480.jpg&rf=LaDigue_800x480.jpg "每一步，都是传承")
+
+今天，我们一同庆祝西班牙迷人的巴利阿里群岛。巴利阿里群岛日致敬这一片多样却紧密相连的地中海土地——马略卡、梅诺卡、伊维萨与福门特拉，共同构成独特的群岛身份。这个日子同时纪念《巴利阿里自治法》，该法案于1983年3月1日正式生效，确立群岛作为西班牙的一个自治区。
+
+伊维萨岛不仅是游客青睐的度假胜地，更因狂欢不息的夜生活文化而闻名世界，由此被誉为“世界派对之都”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bc%8a%e7%bb%b4%e8%90%a8%e5%b2%9b&form=hpcapt&filters=HpDate:"20260228_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260301_BalearesDay"&FORM=HPQUIZ "必应主页测验 2026 3月 1")
+[下载480](https://cn.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_800x480.jpg&rf=LaDigue_800x480.jpg "伊维萨岛, 巴利阿里群岛, 西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_1280x720.jpg&rf=LaDigue_1280x720.jpg "伊维萨岛, 巴利阿里群岛, 西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊维萨岛, 巴利阿里群岛, 西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_UHD.jpg&rf=LaDigue_UHD.jpg "伊维萨岛, 巴利阿里群岛, 西班牙")
+
+---
 ### 02月28日：洋溢着社区氛围
 #### 奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国（© Andrew Aylett/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_UHD.jpg&rf=LaDigue_UHD.jpg "蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国")
-
----
-### 02月14日：爱意绽放
-#### 荷包牡丹（© Dorene Hookey/Cavan Images）
-
-![爱意绽放](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_800x480.jpg&rf=LaDigue_800x480.jpg "爱意绽放")
-
-情人节象征着各种关于“心”的情感——热烈的、柔和的、充满希望的，或含蓄脆弱的。在众多象征之中，鲜少有植物能像荷包牡丹如此贴切地寓意情人节。它拥有醒目的心形花朵，每逢春季便悄然绽放，植株高约2英尺，展开宽度接近30英寸，营造出一种柔和优雅、富有诗意的景致。
-
-情人节的起源可追溯至异教传统，其中最常被提及的是古罗马的卢珀卡利亚节，这一节日象征着生命以及春天的到来。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%83%85%e4%ba%ba%e8%8a%82&form=hpcapt&filters=HpDate:"20260213_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260214_ValentineHearts"&FORM=HPQUIZ "必应主页测验 2026 2月 14")
-[下载480](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_800x480.jpg&rf=LaDigue_800x480.jpg "荷包牡丹")
-[下载720](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_1280x720.jpg&rf=LaDigue_1280x720.jpg "荷包牡丹")
-[下载1080](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "荷包牡丹")
-[下载UHD](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_UHD.jpg&rf=LaDigue_UHD.jpg "荷包牡丹")
 
 ---
