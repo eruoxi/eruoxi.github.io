@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月03日：花灯映月，团圆吉祥
+#### 元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国（© Grisha Bruev/Shutterstock）
+
+![花灯映月，团圆吉祥](https://cn.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_800x480.jpg&rf=LaDigue_800x480.jpg "花灯映月，团圆吉祥")
+
+元宵节是中国农历新年的重要节日，通常在正月十五庆祝。人们会吃汤圆（象征团圆）并欣赏各式灯笼，寓意团圆、幸福与吉祥。节日期间，家庭聚会、赏灯和灯谜活动都非常受欢迎，是春节庆祝活动的延续。
+
+你知道吗？元宵节吃的汤圆最早源自汉代，当时被称作“浮圆”，是用糯米粉制成的小圆球，象征团圆与家庭和睦。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%85%83%e5%ae%b5%e8%8a%82&form=hpcapt&filters=HpDate:"20260302_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260303_LanternFestivalY26"&FORM=HPQUIZ "必应主页测验 2026 3月 3")
+[下载480](https://cn.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_800x480.jpg&rf=LaDigue_800x480.jpg "元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国")
+[下载720](https://cn.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_1280x720.jpg&rf=LaDigue_1280x720.jpg "元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_UHD.jpg&rf=LaDigue_UHD.jpg "元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国")
+
+---
 ### 03月02日：漂浮的传承
 #### 苏梅岛的港口和长尾船, 泰国（© Foto2rich/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_1280x720.jpg&rf=LaDigue_1280x720.jpg "中国春节传统汉字“福”")
 [下载1080](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国春节传统汉字“福”")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg&rf=LaDigue_UHD.jpg "中国春节传统汉字“福”")
-
----
-### 02月16日：祝除夕团圆，新年顺遂！
-#### 庆祝春节的龙形灯笼，中国西安（© Pan Hong/Getty Images）
-
-![祝除夕团圆，新年顺遂！](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_800x480.jpg&rf=LaDigue_800x480.jpg "祝除夕团圆，新年顺遂！")
-
-除夕夜，街头的龙形灯笼正蜿蜒舒展，金鳞流转间仿佛蓄着时光的温度；而远处隐约响起的蹄声，恰似春风捎来骏马的问候——这是龙与马的相逢，是古老祥瑞与崭新朝气在岁月门楣的相会。
-
-“龙马精神”是一个富有深厚文化意蕴的中文成语，其核心含义是形容人像龙和马一样，拥有昂扬抖擞、健旺非凡的精神面貌和奋发向上的生命力。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%99%a4%e5%a4%95%e5%a4%9c&form=hpcapt&filters=HpDate:"20260215_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260216_ChineseNewYearEveY26"&FORM=HPQUIZ "必应主页测验 2026 2月 16")
-[下载480](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_800x480.jpg&rf=LaDigue_800x480.jpg "庆祝春节的龙形灯笼，中国西安")
-[下载720](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_1280x720.jpg&rf=LaDigue_1280x720.jpg "庆祝春节的龙形灯笼，中国西安")
-[下载1080](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "庆祝春节的龙形灯笼，中国西安")
-[下载UHD](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_UHD.jpg&rf=LaDigue_UHD.jpg "庆祝春节的龙形灯笼，中国西安")
 
 ---
