@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月04日：聚光灯下的番红花
+#### 紫番红花, 里拉七湖, 保加利亚（© Maya Karkalicheva/Getty Images）
+
+![聚光灯下的番红花](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_800x480.jpg&rf=LaDigue_800x480.jpg "聚光灯下的番红花")
+
+随着保加利亚西南部里拉山脉冬季寒意减退，番红花从积雪中破土而出，标志着该国最高山脉春天的来临。作为早春花卉，它们利用储存的养分，在寒冷条件下迅速生长，并在更高大的植物出现之前完成生命周期。成簇的花朵在高山草甸上绽放，如紫色缎带般铺展，与雪原形成鲜明对比，在清晨的光线中格外醒目。
+
+在人类文明的早期记载中，番红花就已出现，最重要的原因是它能产出藏红花。藏红花采自一种秋日开花的番红花属植物，其干燥的雌蕊既可调味，也可染色，是世上最昂贵的香料之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bf%9d%e5%8a%a0%e5%88%a9%e4%ba%9a%e9%87%8c%e6%8b%89%e4%b8%83%e6%b9%96%e7%95%aa%e7%ba%a2%e8%8a%b1&form=hpcapt&filters=HpDate:"20260303_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260304_RilaCrocuses"&FORM=HPQUIZ "必应主页测验 2026 3月 4")
+[下载480](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_800x480.jpg&rf=LaDigue_800x480.jpg "紫番红花, 里拉七湖, 保加利亚")
+[下载720](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_1280x720.jpg&rf=LaDigue_1280x720.jpg "紫番红花, 里拉七湖, 保加利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "紫番红花, 里拉七湖, 保加利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_UHD.jpg&rf=LaDigue_UHD.jpg "紫番红花, 里拉七湖, 保加利亚")
+
+---
 ### 03月03日：花灯映月，团圆吉祥
 #### 元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国（© Grisha Bruev/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_1280x720.jpg&rf=LaDigue_1280x720.jpg "普氏野马")
 [下载1080](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普氏野马")
 [下载UHD](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_UHD.jpg&rf=LaDigue_UHD.jpg "普氏野马")
-
----
-### 02月17日：福气满满，马年大吉
-#### 中国春节传统汉字“福”（© DuKai摄影师/Getty Images）
-
-![福气满满，马年大吉](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_800x480.jpg&rf=LaDigue_800x480.jpg "福气满满，马年大吉")
-
-过年好！今天是中国民间最隆重最富有特色的传统节日之一。其实每年从腊八或小年开始，到元宵节，都称之为过年。春节期间，中国全国各地人们都举办着感恩祈福、阖家团聚、除旧布新、迎禧接福、祈求丰年为主要内容的活动。而中国农历新年也在世界各地掀起了“中国风”，春节庆祝活动内容丰富多彩，具有重要的历史、艺术和文化价值。
-
-十二生肖的起源与动物崇拜有关。最早记载与现代相同的十二生肖的传世文献是东汉王充的《论衡》。
-
-[Bing搜索](https://cn.bing.com/search?q=2026%e9%a9%ac%e5%b9%b4%e6%98%a5%e8%8a%82&form=hpcapt&filters=HpDate:"20260216_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260217_SpringFestivalY26"&FORM=HPQUIZ "必应主页测验 2026 2月 17")
-[下载480](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_800x480.jpg&rf=LaDigue_800x480.jpg "中国春节传统汉字“福”")
-[下载720](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_1280x720.jpg&rf=LaDigue_1280x720.jpg "中国春节传统汉字“福”")
-[下载1080](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国春节传统汉字“福”")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg&rf=LaDigue_UHD.jpg "中国春节传统汉字“福”")
 
 ---
