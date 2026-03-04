@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月05日：古老岩石，现代灯光
+#### 格雷梅的傍晚, 卡帕多西亚, 土耳其（© ONNAJA/Getty Images）
+
+![古老岩石，现代灯光](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_800x480.jpg&rf=LaDigue_800x480.jpg "古老岩石，现代灯光")
+
+黄昏时分，卡帕多西亚格雷梅地区的地貌逐渐显现。这片区域隶属于格雷梅国家公园与卡帕多西亚岩石遗址，1985年入选世界遗产名录。“精灵烟囱”等地貌源自安那托利亚火山喷发形成的火山灰层，随后经风与水长期侵蚀，雕刻出石柱、山脊与谷地。
+
+格雷梅是一座由火山岩凿刻而成的小镇，是通往格雷梅国家公园的门户。这里被列入联合国教科文组织世界遗产名录，保存着10至11世纪的洞穴教堂，并以“精灵烟囱”般的岩石地貌闻名，深受世界各地的背包客喜爱。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%9f%e8%80%b3%e5%85%b6%e6%a0%bc%e9%9b%b7%e6%a2%85&form=hpcapt&filters=HpDate:"20260304_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260305_GoremeTwilight"&FORM=HPQUIZ "必应主页测验 2026 3月 5")
+[下载480](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_800x480.jpg&rf=LaDigue_800x480.jpg "格雷梅的傍晚, 卡帕多西亚, 土耳其")
+[下载720](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_1280x720.jpg&rf=LaDigue_1280x720.jpg "格雷梅的傍晚, 卡帕多西亚, 土耳其")
+[下载1080](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格雷梅的傍晚, 卡帕多西亚, 土耳其")
+[下载UHD](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_UHD.jpg&rf=LaDigue_UHD.jpg "格雷梅的傍晚, 卡帕多西亚, 土耳其")
+
+---
 ### 03月04日：聚光灯下的番红花
 #### 紫番红花, 里拉七湖, 保加利亚（© Maya Karkalicheva/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌塔克莱夫海滩的“龙之眼”岩层，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌塔克莱夫海滩的“龙之眼”岩层，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_UHD.jpg&rf=LaDigue_UHD.jpg "乌塔克莱夫海滩的“龙之眼”岩层，挪威")
-
----
-### 02月18日：生而自由，永不驯服
-#### 普氏野马（© Nemyrivskyi Viacheslav/Getty Images）
-
-![生而自由，永不驯服](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_800x480.jpg&rf=LaDigue_800x480.jpg "生而自由，永不驯服")
-
-普氏野马从未被驯化，自始至终按照自己的方式生存，被认为是地球上最后的野马。它们曾广泛分布于中亚地区，但在20世纪60年代，由于狩猎、栖息地丧失以及与家畜竞争，普氏野马在野外一度消失。幸运的是，少数在20世纪初被带入圈养环境的个体保存了这个物种的火种，也孕育了今天所有的普氏野马。
-
-早在两万年前，欧洲的洞穴壁画中就已描绘出类似普氏野马的野生马匹。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%99%ae%e6%b0%8f%e9%87%8e%e9%a9%ac&form=hpcapt&filters=HpDate:"20260217_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260218_PrzewalskisHorse"&FORM=HPQUIZ "必应主页测验 2026 2月 18")
-[下载480](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_800x480.jpg&rf=LaDigue_800x480.jpg "普氏野马")
-[下载720](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_1280x720.jpg&rf=LaDigue_1280x720.jpg "普氏野马")
-[下载1080](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普氏野马")
-[下载UHD](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_UHD.jpg&rf=LaDigue_UHD.jpg "普氏野马")
 
 ---
