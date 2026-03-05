@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月06日：混凝土中铸造的波浪
+#### 波浪住宅楼, 瓦埃勒, 丹麦（© Frank Bach/Alamy）
+
+![混凝土中铸造的波浪](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_800x480.jpg&rf=LaDigue_800x480.jpg "混凝土中铸造的波浪")
+
+建筑融合了艺术与科技，并通过建筑形式得以展现。虽然许多设计主要侧重于功能，但也有一些建筑同样重视视觉冲击力。丹麦韦勒的“波浪”建筑群就是一个绝佳的例子，它将雕塑般的造型设计与实用的居住空间完美结合。
+
+这座屡获殊荣的九层住宅楼代表着城市滨水区的复兴，也代表着丹麦小镇韦勒的新形象。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%b9%e9%ba%a6%e7%93%a6%e5%9f%83%e5%8b%92%e6%b3%a2%e6%b5%aa%e5%a4%a7%e5%8e%a6&form=hpcapt&filters=HpDate:"20260305_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260306_WaveDenmark"&FORM=HPQUIZ "必应主页测验 2026 3月 6")
+[下载480](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_800x480.jpg&rf=LaDigue_800x480.jpg "波浪住宅楼, 瓦埃勒, 丹麦")
+[下载720](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_1280x720.jpg&rf=LaDigue_1280x720.jpg "波浪住宅楼, 瓦埃勒, 丹麦")
+[下载1080](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波浪住宅楼, 瓦埃勒, 丹麦")
+[下载UHD](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_UHD.jpg&rf=LaDigue_UHD.jpg "波浪住宅楼, 瓦埃勒, 丹麦")
+
+---
 ### 03月05日：古老岩石，现代灯光
 #### 格雷梅的傍晚, 卡帕多西亚, 土耳其（© ONNAJA/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_1280x720.jpg&rf=LaDigue_1280x720.jpg "约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_UHD.jpg&rf=LaDigue_UHD.jpg "约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国")
-
----
-### 02月19日：大地凝视着我们
-#### 乌塔克莱夫海滩的“龙之眼”岩层，挪威（© reisegraf/Getty Images）
-
-![大地凝视着我们](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_800x480.jpg&rf=LaDigue_800x480.jpg "大地凝视着我们")
-
-“龙之眼”这个名字听起来像是出自传说，而当你站在挪威罗弗敦群岛的乌塔克莱夫海滩上时，你很容易就能明白为什么它会得此美名。这处地貌由古老的岩石雕琢而成，四周环绕着沙滩和大海，看起来栩栩如生，仿佛大地本身正在注视着你。它历经数千年的冰雪和海水的侵蚀塑造而成，如今已成为该地区最迷人的景点之一。
-
-乌塔克莱夫是一个小社区，只有22名常住居民。除了“龙眼”岩层之外，该地区还以在沙丘上自由漫步和吃草的绵羊而闻名。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b9%8c%e5%a1%94%e5%85%8b%e8%8e%b1%e5%a4%ab%e6%b5%b7%e6%bb%a9&form=hpcapt&filters=HpDate:"20260218_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260219_DragonsEyeRock"&FORM=HPQUIZ "必应主页测验 2026 2月 19")
-[下载480](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_800x480.jpg&rf=LaDigue_800x480.jpg "乌塔克莱夫海滩的“龙之眼”岩层，挪威")
-[下载720](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌塔克莱夫海滩的“龙之眼”岩层，挪威")
-[下载1080](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌塔克莱夫海滩的“龙之眼”岩层，挪威")
-[下载UHD](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_UHD.jpg&rf=LaDigue_UHD.jpg "乌塔克莱夫海滩的“龙之眼”岩层，挪威")
 
 ---
