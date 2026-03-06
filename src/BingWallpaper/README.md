@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月07日：治愈、宁静且充满希望
+#### 布罗肯峰的日出, 哈尔茨国家公园, 德国（© imageBROKER/AVTG/Getty Images）
+
+![治愈、宁静且充满希望](https://cn.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_800x480.jpg&rf=LaDigue_800x480.jpg "治愈、宁静且充满希望")
+
+想象一下，你登上了德国哈尔茨国家公园的布罗肯山（Brocken）。云雾在山脊间缓缓流动，阳光从你身后照来，前方是翻涌的薄雾——突然，一个被光环包围的巨大影子出现在云雾之中。你是否好奇，为什么过去的登山者会对这一景象感到害怕？这种现象被称为布罗肯幽灵（Brocken spectre），是一种神秘的自然光学现象：当阳光从背后照射时，人的影子会被投射到前方的云层或雾气上，并被放大，同时常常伴随着一圈彩色光环。布罗肯山海拔约 1141 米，是德国北部最高的山峰。这里长期以来激发了丰富的民间传说，其中最著名的便是瓦尔普吉斯之夜（Walpurgis Night）女巫在此集会的故事。云雾缭绕的山顶与神秘的光影，使这座山在历史与想象中都充满了奇幻色彩。
+
+在晴朗的冬季天气里，布罗肯山常常高耸于云海之上，形成壮观的“云上山峰”景象。由于山顶地势开阔且相对于周围地区海拔较高，这里经常出现强风和快速变化的天气状况，使其成为德国北部气候特征最为鲜明的地区之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%93%88%e5%b0%94%e8%8c%a8%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260306_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260307_BrockenSunrise"&FORM=HPQUIZ "必应主页测验 2026 3月 7")
+[下载480](https://cn.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_800x480.jpg&rf=LaDigue_800x480.jpg "布罗肯峰的日出, 哈尔茨国家公园, 德国")
+[下载720](https://cn.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_1280x720.jpg&rf=LaDigue_1280x720.jpg "布罗肯峰的日出, 哈尔茨国家公园, 德国")
+[下载1080](https://cn.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布罗肯峰的日出, 哈尔茨国家公园, 德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_UHD.jpg&rf=LaDigue_UHD.jpg "布罗肯峰的日出, 哈尔茨国家公园, 德国")
+
+---
 ### 03月06日：混凝土中铸造的波浪
 #### 波浪住宅楼, 瓦埃勒, 丹麦（© Frank Bach/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg&rf=LaDigue_UHD.jpg "一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国")
-
----
-### 02月20日：光照之处
-#### 约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国（© Jorge Villalba/Getty Images）
-
-![光照之处](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_800x480.jpg&rf=LaDigue_800x480.jpg "光照之处")
-
-今天，是安塞尔·亚当斯的诞辰。正是他的镜头，塑造了世人心中优胜美地的形象。这座国家公园以雄伟的花岗岩岩壁、壮观的瀑布和变幻莫测的光线闻名，持续激发着一代又一代艺术家的创作灵感。而其中最令人着迷的景象，是被称作“火瀑”的奇观。这一名称，其实源自优胜美地历史中的两种不同景象。在过去，人们曾聚集在冰川点，观看一种人工制造的奇观：炽热的余烬被推下悬崖，在夜幕中倾泻而下，宛如一条燃烧的火流。
-
-唯有水量充沛、天空澄明，且阳光以恰当的角度洒落，火焰般的水幕才会显现。而这样的奇遇，并不会每年发生。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a6%e5%a1%9e%e7%b1%b3%e8%92%82%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad%e9%87%8c%e7%9a%84%e7%81%ab%e7%80%91%e5%b8%83&form=hpcapt&filters=HpDate:"20260219_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260220_AdamsFirefall"&FORM=HPQUIZ "必应主页测验 2026 2月 20")
-[下载480](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_800x480.jpg&rf=LaDigue_800x480.jpg "约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_1280x720.jpg&rf=LaDigue_1280x720.jpg "约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_UHD.jpg&rf=LaDigue_UHD.jpg "约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国")
 
 ---
