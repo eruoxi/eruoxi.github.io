@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月08日：节约日光的艺术
+#### 乌尔姆市政厅的天文钟, 德国（© Tomekbudujedomek/Getty Images）
+
+![节约日光的艺术](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_800x480.jpg&rf=LaDigue_800x480.jpg "节约日光的艺术")
+
+每年三月，美国大部分地区开始实行夏令时，时钟拨快以最大限度地利用日光。这一想法可以追溯到1784年，当时本杰明·富兰克林曾幽默地建议人们早起以节省蜡烛的使用。美国在第一次世界大战期间，于1918年正式采用夏令时，作为一项节能措施。经过多年执行不一之后，1966年的《统一时间法案》确立了全国范围内季节性时钟调整的标准。虽然如今大多数州都实行夏令时，但夏威夷州和亚利桑那州（纳瓦霍族保留地除外）不实行，理由是日光变化幅度很小，且出于气候方面的考虑。此外，美国的一些属地全年也保持标准时间。
+
+位于德国乌尔姆市市政厅的天文钟是一座历史悠久的时钟，以其精巧的机械结构和详尽的天文显示而闻名。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a9%e6%96%87%e9%92%9f&form=hpcapt&filters=HpDate:"20260307_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260308_UlmClock"&FORM=HPQUIZ "必应主页测验 2026 3月 8")
+[下载480](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_800x480.jpg&rf=LaDigue_800x480.jpg "乌尔姆市政厅的天文钟, 德国")
+[下载720](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌尔姆市政厅的天文钟, 德国")
+[下载1080](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌尔姆市政厅的天文钟, 德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg&rf=LaDigue_UHD.jpg "乌尔姆市政厅的天文钟, 德国")
+
+---
 ### 03月07日：治愈、宁静且充满希望
 #### 布罗肯峰的日出, 哈尔茨国家公园, 德国（© imageBROKER/AVTG/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_1280x720.jpg&rf=LaDigue_1280x720.jpg "马姆托尔山，德比郡，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马姆托尔山，德比郡，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_UHD.jpg&rf=LaDigue_UHD.jpg "马姆托尔山，德比郡，英格兰")
-
----
-### 02月21日：冬日的低语
-#### 一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国（© Radomir Jakubowski/naturepl.com）
-
-![冬日的低语](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_800x480.jpg&rf=LaDigue_800x480.jpg "冬日的低语")
-
-大雪纷飞中，一只赤狐站在大提顿国家公园的雪地里。这一刻不仅美得纯粹，也让人窥见赤狐在严寒中自如生存的力量。锐利的目光、浓密而火红的毛皮，让它立刻显得与众不同，即便在怀俄明州严酷的冬季，也能安然生存。积雪会吞没声音，但赤狐异常灵敏的听觉，仍能捕捉到雪层之下猎物的细微动静。你几乎可以想象它在飞雪中短暂停步，耳朵微转，身形凝固，专注等待那一丝几不可闻的声响。
-
-赤狐起源于欧亚大陆，早可追溯至至少40万年前的中更新世，并在约13万年前扩散至北美地区。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%b5%a4%e7%8b%90&form=hpcapt&filters=HpDate:"20260220_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260221_TetonFox"&FORM=HPQUIZ "必应主页测验 2026 2月 21")
-[下载480](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_800x480.jpg&rf=LaDigue_800x480.jpg "一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_1280x720.jpg&rf=LaDigue_1280x720.jpg "一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg&rf=LaDigue_UHD.jpg "一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国")
 
 ---
