@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月09日：一次恰到好处的午睡
+#### 在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰（© Andrew Mason/Minden Pictures）
+
+![一次恰到好处的午睡](https://cn.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_800x480.jpg&rf=LaDigue_800x480.jpg "一次恰到好处的午睡")
+
+全国午睡日真是选得恰到好处。它恰逢夏令时开始后的星期一，届时时钟会拨快一小时，我们所有人都会少睡一个小时。不妨把今天当作一个正式的理由，放慢脚步，好好补补觉。这张照片中，一只在苏格兰海岸边酣睡的灰海豹，正是对这一天的绝佳提醒：休息至关重要。
+
+苏格兰奥克尼群岛的灰海豹是一种大型海洋哺乳动物，以其独特的斑点皮毛和在崎岖海岸上的活泼行为而闻名。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%81%b0%e6%b5%b7%e8%b1%b9&form=hpcapt&filters=HpDate:"20260308_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260309_NappingSeal"&FORM=HPQUIZ "必应主页测验 2026 3月 9")
+[下载480](https://cn.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_800x480.jpg&rf=LaDigue_800x480.jpg "在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰")
+[下载720](https://cn.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_1280x720.jpg&rf=LaDigue_1280x720.jpg "在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_UHD.jpg&rf=LaDigue_UHD.jpg "在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰")
+
+---
 ### 03月08日：节约日光的艺术
 #### 乌尔姆市政厅的天文钟, 德国（© Tomekbudujedomek/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_1280x720.jpg&rf=LaDigue_1280x720.jpg "大白鹭，上巴伐利亚州，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大白鹭，上巴伐利亚州，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_UHD.jpg&rf=LaDigue_UHD.jpg "大白鹭，上巴伐利亚州，德国")
-
----
-### 02月22日：群山的母亲
-#### 马姆托尔山，德比郡，英格兰（© john finney photography/Getty Images）
-
-![群山的母亲](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_800x480.jpg&rf=LaDigue_800x480.jpg "群山的母亲")
-
-“颤抖的山”这个绰号听起来颇具戏剧性，但对马姆托尔来说，却是数百年来的真实写照。它耸立在英格兰峰区国家公园的卡斯尔顿上方，这里也是英国首个国家公园，占地约555平方英里。这座地标的名字源自古英语，“mam”意为“母亲”，暗指它仿佛怀抱着周围起伏的小丘。然而，这座“母亲之山”却以不稳定而闻名：页岩与砂岩层层叠加，使山体长期滑动，1979年的一次坍塌甚至导致A625公路永久关闭。
-
-在这座山丘之巅，矗立着一处始建于青铜时代晚期至铁器时代早期的单壕山堡，周围还保留着两座青铜时代的碗状坟冢。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e5%a7%86%e6%89%98%e5%b0%94%e5%b1%b1&form=hpcapt&filters=HpDate:"20260221_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260222_MamTorSunrise"&FORM=HPQUIZ "必应主页测验 2026 2月 22")
-[下载480](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_800x480.jpg&rf=LaDigue_800x480.jpg "马姆托尔山，德比郡，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_1280x720.jpg&rf=LaDigue_1280x720.jpg "马姆托尔山，德比郡，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马姆托尔山，德比郡，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_UHD.jpg&rf=LaDigue_UHD.jpg "马姆托尔山，德比郡，英格兰")
 
 ---
