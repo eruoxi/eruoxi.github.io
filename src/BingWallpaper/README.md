@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月10日：霜下之火
+#### 赫韦拉韦利尔的布拉赫维尔地热池, 冰岛（© Juan Maria Coy Vergara/Getty Images）
+
+![霜下之火](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_800x480.jpg&rf=LaDigue_800x480.jpg "霜下之火")
+
+你是否曾好奇，当火焰、冰霜和时间交汇于同一片土地，会发生什么？冰岛的赫韦拉韦利尔地热田或许能解答你的疑问。在这片高地热点地区，地球内部的能量与冰冷的地表相遇，引发了压力、温度和岩石之间一场激烈的对话。喷气孔嘶嘶作响，蒸汽袅袅升腾，大地被染成硫磺白、铁锈红和赭黄——这不仅是艺术，更是极端高温驱动的化学反应。在今天的照片中，布拉赫韦尔天然温泉呈现出耀眼的电光蓝。这种颜色源于富含矿物质和二氧化硅的泉水反射光线。
+
+冰岛赫韦拉韦利尔的布拉赫维尔地热蓝池是一处令人惊叹的温泉，以其湛蓝的水色和在偏远火山高地中喷腾的地热活动而闻名。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%86%b0%e5%b2%9b%e5%b8%83%e6%8b%89%e8%b5%ab%e7%bb%b4%e5%b0%94%e5%9c%b0%e7%83%ad%e6%b1%a0&form=hpcapt&filters=HpDate:"20260309_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260310_SpringIceland"&FORM=HPQUIZ "必应主页测验 2026 3月 10")
+[下载480](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_800x480.jpg&rf=LaDigue_800x480.jpg "赫韦拉韦利尔的布拉赫维尔地热池, 冰岛")
+[下载720](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_1280x720.jpg&rf=LaDigue_1280x720.jpg "赫韦拉韦利尔的布拉赫维尔地热池, 冰岛")
+[下载1080](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "赫韦拉韦利尔的布拉赫维尔地热池, 冰岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_UHD.jpg&rf=LaDigue_UHD.jpg "赫韦拉韦利尔的布拉赫维尔地热池, 冰岛")
+
+---
 ### 03月09日：一次恰到好处的午睡
 #### 在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰（© Andrew Mason/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_1280x720.jpg&rf=LaDigue_1280x720.jpg "大天坑里的睡莲，图卢姆，墨西哥")
 [下载1080](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大天坑里的睡莲，图卢姆，墨西哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_UHD.jpg&rf=LaDigue_UHD.jpg "大天坑里的睡莲，图卢姆，墨西哥")
-
----
-### 02月23日：雪原之王
-#### 大白鹭，上巴伐利亚州，德国（© Konrad Wothe/naturepl.com）
-
-![雪原之王](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_800x480.jpg&rf=LaDigue_800x480.jpg "雪原之王")
-
-洁白的羽毛、修长的脖颈和鲜亮的黄喙，让大白鹭在湿地中格外醒目。这种大型鹭鸟分布广泛，几乎遍布全球，能适应多种水域环境。成年大白鹭体长约94至104厘米，翼展1.3至1.45米，体重约1公斤，身形高挑优雅。作为肉食性鸟类，大白鹭主要以鱼类为食，同时也捕食两栖动物、昆虫、小型哺乳动物和爬行动物。它们常在水边一动不动地耐心等待，随后以极快的速度完成一次精准的捕食。
-
-大白鹭是一种适应性极强、分布广泛的物种，其活动范围仍在不断扩大，广泛出现在全球温带与热带地区的多种栖息环境中。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e7%99%bd%e9%b9%ad&form=hpcapt&filters=HpDate:"20260222_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260223_BavariaEgret"&FORM=HPQUIZ "必应主页测验 2026 2月 23")
-[下载480](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_800x480.jpg&rf=LaDigue_800x480.jpg "大白鹭，上巴伐利亚州，德国")
-[下载720](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_1280x720.jpg&rf=LaDigue_1280x720.jpg "大白鹭，上巴伐利亚州，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大白鹭，上巴伐利亚州，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_UHD.jpg&rf=LaDigue_UHD.jpg "大白鹭，上巴伐利亚州，德国")
 
 ---
