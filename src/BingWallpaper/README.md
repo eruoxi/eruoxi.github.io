@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月11日：一个美好的春天
+#### 盛开的桃树, 谢萨, 穆尔西亚, 西班牙（© Juan Maria Coy Vergara/Getty Images）
+
+![一个美好的春天](https://cn.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_800x480.jpg&rf=LaDigue_800x480.jpg "一个美好的春天")
+
+在谢萨，春天的到来别具一格。它并非缓缓展开，而是色彩缤纷，绚烂夺目。每年二月至三月，这座位于西班牙穆尔西亚地区的小城便成为“花期”（La Floración）的中心，也就是桃树盛开的季节。短短几天内，超过12000英亩的土地——西班牙最大的城市桃园——便会变成我们今天看到的这片色彩斑斓的海洋。
+
+西班牙穆尔西亚的锡耶萨以春季盛开的桃花而闻名，粉白色的花海为大地披上了美丽的色彩。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e8%b0%a2%e8%90%a8&form=hpcapt&filters=HpDate:"20260310_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260311_PeachBloom"&FORM=HPQUIZ "必应主页测验 2026 3月 11")
+[下载480](https://cn.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_800x480.jpg&rf=LaDigue_800x480.jpg "盛开的桃树, 谢萨, 穆尔西亚, 西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_1280x720.jpg&rf=LaDigue_1280x720.jpg "盛开的桃树, 谢萨, 穆尔西亚, 西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的桃树, 谢萨, 穆尔西亚, 西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的桃树, 谢萨, 穆尔西亚, 西班牙")
+
+---
 ### 03月10日：霜下之火
 #### 赫韦拉韦利尔的布拉赫维尔地热池, 冰岛（© Juan Maria Coy Vergara/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_1280x720.jpg&rf=LaDigue_1280x720.jpg "门登霍尔冰川的冰洞，阿拉斯加州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "门登霍尔冰川的冰洞，阿拉斯加州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_UHD.jpg&rf=LaDigue_UHD.jpg "门登霍尔冰川的冰洞，阿拉斯加州，美国")
-
----
-### 02月24日：池底的生命律动
-#### 大天坑里的睡莲，图卢姆，墨西哥（© Christian Vizl/Tandem Stills + Motion）
-
-![池底的生命律动](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_800x480.jpg&rf=LaDigue_800x480.jpg "池底的生命律动")
-
-漂浮的睡莲点缀着澄澈如玻璃般的水池，隐藏着一个宁静的水下世界。这里是墨西哥图卢姆的大天然井，由数千年前石灰岩塌陷形成，地下淡水缓缓填满洞室，并与幽深的地下洞穴网相连。目光线停留在平静的水面上，睡莲缓缓漂浮，宽阔的叶片盛满阳光，滋养着整个水域的生态系统。作为地球上古老的开花植物谱系之一，睡莲已有约一亿二千五百万年的演化历史，它们通过花香、形态与花期吸引传粉者，在水中延续生命。
-
-在墨西哥，仅尤卡坦半岛一地就分布着约一万座天然井。这些充满清水的陷穴由石灰岩塌陷自然形成，散布在半岛各处。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%be%e5%8d%a2%e5%a7%86%e5%a4%a7%e5%a4%a9%e5%9d%91&form=hpcapt&filters=HpDate:"20260223_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260224_TulumLilies"&FORM=HPQUIZ "必应主页测验 2026 2月 24")
-[下载480](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_800x480.jpg&rf=LaDigue_800x480.jpg "大天坑里的睡莲，图卢姆，墨西哥")
-[下载720](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_1280x720.jpg&rf=LaDigue_1280x720.jpg "大天坑里的睡莲，图卢姆，墨西哥")
-[下载1080](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大天坑里的睡莲，图卢姆，墨西哥")
-[下载UHD](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_UHD.jpg&rf=LaDigue_UHD.jpg "大天坑里的睡莲，图卢姆，墨西哥")
 
 ---
