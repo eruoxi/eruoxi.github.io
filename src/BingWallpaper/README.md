@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月12日：排练中的翅膀
+#### 幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔（© Andy Rouse/naturepl.com）
+
+![排练中的翅膀](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_800x480.jpg&rf=LaDigue_800x480.jpg "排练中的翅膀")
+
+在厄瓜多尔的云雾森林高处，一只幼年日鳽展开翅膀进行早期展示，橙色、黑色和白色的斑纹在透过树叶的绿色光影中闪现。突如其来的色彩对比穿透覆盖苔藓的枝干和叶影下的林下层，呈现出这一物种戏剧性的翅膀斑纹。成年的日鳽通常在防御展示时才会显露这些醒目的斑纹，短暂地将这只原本隐秘的鸟变成引人注目的视觉奇观。
+
+日鳽的翅膀上有类似眼睛的斑纹，通常在昏暗的森林中展开翅膀展示时显现出来。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%97%a5%e9%b3%bd&form=hpcapt&filters=HpDate:"20260311_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260312_SunbitternEcuador"&FORM=HPQUIZ "必应主页测验 2026 3月 12")
+[下载480](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_800x480.jpg&rf=LaDigue_800x480.jpg "幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔")
+[下载720](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_1280x720.jpg&rf=LaDigue_1280x720.jpg "幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔")
+[下载1080](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_UHD.jpg&rf=LaDigue_UHD.jpg "幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔")
+
+---
 ### 03月11日：一个美好的春天
 #### 盛开的桃树, 谢萨, 穆尔西亚, 西班牙（© Juan Maria Coy Vergara/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_1280x720.jpg&rf=LaDigue_1280x720.jpg "大峡谷和科罗拉多河，亚利桑那州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大峡谷和科罗拉多河，亚利桑那州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg&rf=LaDigue_UHD.jpg "大峡谷和科罗拉多河，亚利桑那州，美国")
-
----
-### 02月25日：冰，由内而外透出光芒
-#### 门登霍尔冰川的冰洞，阿拉斯加州，美国（© Designpics/Adobe Stock）
-
-![冰，由内而外透出光芒](https://cn.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_800x480.jpg&rf=LaDigue_800x480.jpg "冰，由内而外透出光芒")
-
-阿拉斯加朱诺城外，门登霍尔冰川静静隐匿其间，内外皆仿佛幻境。走入罕见的蓝色冰洞，世界骤然安静，光线透过历经数百年压实的冰层，映照四周。冰川自朱诺冰原绵延约十三英里，缓缓流向下方山谷，在年复一年的流动中悄然改变形态。
-
-2012年，冰川消退后，埋藏其下的树桩和原木逐渐显现，根系与树皮仍然完整。因长久埋藏在砾石之下，这层覆盖恰好成了天然的保护屏障，所以它们仍保持着原本的生长姿态。当这些遗存被揭开，科学家得以窥见冰川形成之前的生态环境。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%97%a8%e7%99%bb%e9%9c%8d%e5%b0%94%e5%86%b0%e5%b7%9d&form=hpcapt&filters=HpDate:"20260224_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260225_MendenhallCave"&FORM=HPQUIZ "必应主页测验 2026 2月 25")
-[下载480](https://cn.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_800x480.jpg&rf=LaDigue_800x480.jpg "门登霍尔冰川的冰洞，阿拉斯加州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_1280x720.jpg&rf=LaDigue_1280x720.jpg "门登霍尔冰川的冰洞，阿拉斯加州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "门登霍尔冰川的冰洞，阿拉斯加州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_UHD.jpg&rf=LaDigue_UHD.jpg "门登霍尔冰川的冰洞，阿拉斯加州，美国")
 
 ---
