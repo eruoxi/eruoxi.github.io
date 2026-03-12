@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月13日：静谧的石之杰作
+#### 邦港圣母教堂拱顶，莱萨布勒多洛讷，法国（© Helmut Meyer zur Capellen/Alamy）
+
+![静谧的石之杰作](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_800x480.jpg&rf=LaDigue_800x480.jpg "静谧的石之杰作")
+
+在法国西部海滨小镇莱萨布勒多洛讷的邦港圣母堂拱顶下，石质拱肋依旧引导着视线向上。高耸的拱顶自1646年开始建造，这座教堂自1993年被列为法国历史古迹，坐落在一座13世纪小礼拜堂的旧址上，静静讲述着大西洋沿岸悠久的精神文化与历史故事。
+
+邦港圣母堂的18世纪管风琴，是教堂内的艺术珍宝，节日期间为音乐增添独特氛围。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%95%e5%9b%bd%e8%8e%b1%e8%90%a8%e5%b8%83%e5%8b%92%e5%a4%9a%e6%b4%9b%e8%ae%b7&form=hpcapt&filters=HpDate:"20260312_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260313_VendeeVaults"&FORM=HPQUIZ "必应主页测验 2026 3月 13")
+[下载480](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_800x480.jpg&rf=LaDigue_800x480.jpg "邦港圣母教堂拱顶，莱萨布勒多洛讷，法国")
+[下载720](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_1280x720.jpg&rf=LaDigue_1280x720.jpg "邦港圣母教堂拱顶，莱萨布勒多洛讷，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "邦港圣母教堂拱顶，莱萨布勒多洛讷，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_UHD.jpg&rf=LaDigue_UHD.jpg "邦港圣母教堂拱顶，莱萨布勒多洛讷，法国")
+
+---
 ### 03月12日：排练中的翅膀
 #### 幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔（© Andy Rouse/naturepl.com）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国")
-
----
-### 02月26日：一幅壮丽的景象
-#### 大峡谷和科罗拉多河，亚利桑那州，美国（© Matt Anderson Photography/Getty Images）
-
-![一幅壮丽的景象](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_800x480.jpg&rf=LaDigue_800x480.jpg "一幅壮丽的景象")
-
-大峡谷国家公园每天都有新的故事，但2月26日这一天格外特别，纪念的是1919年大峡谷正式成为国家公园的历史时刻。这一里程碑式的决定，守护了美国最具代表性的自然奇观。峡谷深处，科罗拉多河缓缓流淌，穿行于层叠的岩石之间，跨越数百英里，以季节为节拍，静静雕刻着峡谷的生命。
-
-国家公园管理局在园内多个观景点架设了实时网络摄像头，分享日出时刻、天气变化与峡谷的日常节律。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e5%9b%bd%e5%a4%a7%e5%b3%a1%e8%b0%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260225_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260226_GrandSunset"&FORM=HPQUIZ "必应主页测验 2026 2月 26")
-[下载480](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_800x480.jpg&rf=LaDigue_800x480.jpg "大峡谷和科罗拉多河，亚利桑那州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_1280x720.jpg&rf=LaDigue_1280x720.jpg "大峡谷和科罗拉多河，亚利桑那州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大峡谷和科罗拉多河，亚利桑那州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg&rf=LaDigue_UHD.jpg "大峡谷和科罗拉多河，亚利桑那州，美国")
 
 ---
