@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月14日：圆周率的古老启示
+#### 兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国（© Helen Hotson/Alamy）
+
+![圆周率的古老启示](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_800x480.jpg&rf=LaDigue_800x480.jpg "圆周率的古老启示")
+
+在圆周率尚未有名字之前，人们就被它的奥秘所吸引。每年的3月14日，被定为“圆周率日”，以纪念数学中最著名的常数之一。这个日期正好对应圆周率π的前三位数字(3.14)，即圆的周长与直径之比。圆周率无穷且不循环的小数部分长期以来一直令学者们着迷。现代的庆祝活动始于1988年，当时物理学家拉里·肖(Larry Shaw)用一种特别的方式纪念这一天：享用美味的派(pie)。
+
+兰扬石门的巨石排列展示了新石器时代工匠对材料选择和空间布局的智慧。它不仅是墓葬遗迹，也体现了当时人类对环境与自然力量的适应能力。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%86%e5%91%a8%e7%8e%87%e6%97%a5&form=hpcapt&filters=HpDate:"20260313_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260314_CornwallDolmen"&FORM=HPQUIZ "必应主页测验 2026 3月 14")
+[下载480](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_800x480.jpg&rf=LaDigue_800x480.jpg "兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国")
+[下载720](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_1280x720.jpg&rf=LaDigue_1280x720.jpg "兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_UHD.jpg&rf=LaDigue_UHD.jpg "兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国")
+
+---
 ### 03月13日：静谧的石之杰作
 #### 邦港圣母教堂拱顶，莱萨布勒多洛讷，法国（© Helmut Meyer zur Capellen/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_UHD.jpg&rf=LaDigue_UHD.jpg "奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国")
-
----
-### 02月27日：薄冰上的生活
-#### 北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国（© Steven Kazlowski/naturepl.com）
-
-![薄冰上的生活](https://cn.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_800x480.jpg&rf=LaDigue_800x480.jpg "薄冰上的生活")
-
-2月27日是国际北极熊日，聚焦与冰封世界紧密相连的“北极巨兽”。作为世界上最大的陆地食肉动物，北极熊会为寻找食物在辽阔的极地景观中跋涉数百英里。它们高度适应海冰生活：宽大的前掌跨度可达约一英尺，不仅能稳稳踏雪行走，也能在冰冷海水中游出数英里。
-
-根据国际自然保护联盟（IUCN）的评估，北极熊被列为易危物种，全球种群数量估计约22000至31000只。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%9e%81%e7%86%8a&form=hpcapt&filters=HpDate:"20260226_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260227_ArcitcCub"&FORM=HPQUIZ "必应主页测验 2026 2月 27")
-[下载480](https://cn.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_800x480.jpg&rf=LaDigue_800x480.jpg "北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国")
 
 ---
