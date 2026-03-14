@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月15日：掠海而过
+#### 太平洋沿岸国家公园保护区，温哥华岛，加拿大（© EmilyNorton/Getty Images）
+
+![掠海而过](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_800x480.jpg&rf=LaDigue_800x480.jpg "掠海而过")
+
+在加拿大，“太平洋沿岸鲸鱼节”庆祝成千上万头灰鲸每年春季的迁徙盛况——它们沿着岛屿西海岸近岸而行，场面壮观。这项节日由当地社区于20世纪80年代发起，旨在纪念灰鲸从墨西哥下加利福尼亚的繁殖潟湖启程，踏上北返旅程的重要时刻。
+
+太平洋沿岸鲸鱼节不仅是观鲸活动，还包括海洋主题艺术展、社区巡游和公众讲座，体现了当地居民对海洋文化的长期关注与参与。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8e%af%e5%a4%aa%e5%b9%b3%e6%b4%8b%e9%b2%b8%e9%b1%bc%e8%8a%82&form=hpcapt&filters=HpDate:"20260314_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260315_PacificRimNP"&FORM=HPQUIZ "必应主页测验 2026 3月 15")
+[下载480](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_800x480.jpg&rf=LaDigue_800x480.jpg "太平洋沿岸国家公园保护区，温哥华岛，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_1280x720.jpg&rf=LaDigue_1280x720.jpg "太平洋沿岸国家公园保护区，温哥华岛，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "太平洋沿岸国家公园保护区，温哥华岛，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_UHD.jpg&rf=LaDigue_UHD.jpg "太平洋沿岸国家公园保护区，温哥华岛，加拿大")
+
+---
 ### 03月14日：圆周率的古老启示
 #### 兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国（© Helen Hotson/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_1280x720.jpg&rf=LaDigue_1280x720.jpg "伊维萨岛, 巴利阿里群岛, 西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊维萨岛, 巴利阿里群岛, 西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_UHD.jpg&rf=LaDigue_UHD.jpg "伊维萨岛, 巴利阿里群岛, 西班牙")
-
----
-### 02月28日：洋溢着社区氛围
-#### 奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国（© Andrew Aylett/Getty Images）
-
-![洋溢着社区氛围](https://cn.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_800x480.jpg&rf=LaDigue_800x480.jpg "洋溢着社区氛围")
-
-莫洛凯岛常被称为“最具夏威夷气息岛屿”，这里的节奏缓慢而从容，由自然环境与紧密相连的社区共同塑造。岛屿形成于一百多万年前的火山活动，占地约260平方英里，从太平洋中隆起，延展出修长的山脊与开阔的谷地。与喧闹的邻岛不同，莫洛凯岛拒绝大规模开发，保留了强烈的在地凝聚力，家庭、传统以及对土地的守护构成了这里的核心价值。人们的生活围绕着海洋、土地，以及代代相传的故事展开。
-
-这些瀑布极为偏远，只能从空中或海上远望。附近既没有公路，也没有步道。最近的城镇是考纳卡凯，这是岛上的主要城镇。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8e%ab%e6%b4%9b%e5%87%af%e5%b2%9b&form=hpcapt&filters=HpDate:"20260227_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 2月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260228_OloupenaFalls"&FORM=HPQUIZ "必应主页测验 2026 2月 28")
-[下载480](https://cn.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_800x480.jpg&rf=LaDigue_800x480.jpg "奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_UHD.jpg&rf=LaDigue_UHD.jpg "奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国")
 
 ---
