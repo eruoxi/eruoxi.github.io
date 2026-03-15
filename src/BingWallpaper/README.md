@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月16日：走进熊猫世界
+#### 正在吃竹子的大熊猫，中国（© Entwicklungsknecht/Getty Images）
+
+![走进熊猫世界](https://cn.bing.com/th?id=OHR.PandaForest_ZH-CN0545156080_800x480.jpg&rf=LaDigue_800x480.jpg "走进熊猫世界")
+
+凭借黑白相间的毛色与温顺的性格，大熊猫已成为全球保护的象征。每年的3月16日被定为国家熊猫日，以关注这一标志性物种及其面临的保护挑战。大熊猫原产于中国，由于栖息地破坏和低出生率，曾一度濒临灭绝。得益于全球保护努力，它们的数量正在缓慢回升，但仍需更多工作来保障其未来。
+
+虽然属于食肉动物，大熊猫的食物几乎全是竹子。由于竹子的营养价值不高，它们每天需要花费数小时进食才能满足能量需求。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e7%86%8a%e7%8c%ab&form=hpcapt&filters=HpDate:"20260315_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260316_PandaForest"&FORM=HPQUIZ "必应主页测验 2026 3月 16")
+[下载480](https://cn.bing.com/th?id=OHR.PandaForest_ZH-CN0545156080_800x480.jpg&rf=LaDigue_800x480.jpg "正在吃竹子的大熊猫，中国")
+[下载720](https://cn.bing.com/th?id=OHR.PandaForest_ZH-CN0545156080_1280x720.jpg&rf=LaDigue_1280x720.jpg "正在吃竹子的大熊猫，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.PandaForest_ZH-CN0545156080_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "正在吃竹子的大熊猫，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PandaForest_ZH-CN0545156080_UHD.jpg&rf=LaDigue_UHD.jpg "正在吃竹子的大熊猫，中国")
+
+---
 ### 03月15日：掠海而过
 #### 太平洋沿岸国家公园保护区，温哥华岛，加拿大（© EmilyNorton/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_1280x720.jpg&rf=LaDigue_1280x720.jpg "苏梅岛的港口和长尾船, 泰国")
 [下载1080](https://cn.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "苏梅岛的港口和长尾船, 泰国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_UHD.jpg&rf=LaDigue_UHD.jpg "苏梅岛的港口和长尾船, 泰国")
-
----
-### 03月01日：每一步，都是传承
-#### 伊维萨岛, 巴利阿里群岛, 西班牙（© tokar/Shutterstock）
-
-![每一步，都是传承](https://cn.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_800x480.jpg&rf=LaDigue_800x480.jpg "每一步，都是传承")
-
-今天，我们一同庆祝西班牙迷人的巴利阿里群岛。巴利阿里群岛日致敬这一片多样却紧密相连的地中海土地——马略卡、梅诺卡、伊维萨与福门特拉，共同构成独特的群岛身份。这个日子同时纪念《巴利阿里自治法》，该法案于1983年3月1日正式生效，确立群岛作为西班牙的一个自治区。
-
-伊维萨岛不仅是游客青睐的度假胜地，更因狂欢不息的夜生活文化而闻名世界，由此被誉为“世界派对之都”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bc%8a%e7%bb%b4%e8%90%a8%e5%b2%9b&form=hpcapt&filters=HpDate:"20260228_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260301_BalearesDay"&FORM=HPQUIZ "必应主页测验 2026 3月 1")
-[下载480](https://cn.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_800x480.jpg&rf=LaDigue_800x480.jpg "伊维萨岛, 巴利阿里群岛, 西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_1280x720.jpg&rf=LaDigue_1280x720.jpg "伊维萨岛, 巴利阿里群岛, 西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊维萨岛, 巴利阿里群岛, 西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_UHD.jpg&rf=LaDigue_UHD.jpg "伊维萨岛, 巴利阿里群岛, 西班牙")
 
 ---
