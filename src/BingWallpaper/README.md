@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月17日：爱尔兰的精神十字路口
+#### 艾利赫格里安南环形堡，多内加尔，爱尔兰（© Lukassek/Getty Images）
+
+![爱尔兰的精神十字路口](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_800x480.jpg&rf=LaDigue_800x480.jpg "爱尔兰的精神十字路口")
+
+圣帕特里克是爱尔兰的守护圣人，约生于公元4世纪末至5世纪初的罗马不列颠。据传说，他在16岁时被爱尔兰掠夺者绑架，带到爱尔兰成为奴隶。逃回家乡后，他成为传教士，将基督教传播到整个爱尔兰岛。后来的传统中，他以三叶草来解释三位一体而闻名。圣帕特里克的信仰遗产，使得圣帕特里克节成为全球性的庆典。
+
+艾利赫格里安南环形堡曾是阿尔斯特国王的居所，其铁器时代的石墙与结构展示了古凯尔特人的防御智慧和社会组织能力。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e5%b8%95%e7%89%b9%e9%87%8c%e5%85%8b%e8%8a%82&form=hpcapt&filters=HpDate:"20260316_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260317_DonegalFort"&FORM=HPQUIZ "必应主页测验 2026 3月 17")
+[下载480](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_800x480.jpg&rf=LaDigue_800x480.jpg "艾利赫格里安南环形堡，多内加尔，爱尔兰")
+[下载720](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_1280x720.jpg&rf=LaDigue_1280x720.jpg "艾利赫格里安南环形堡，多内加尔，爱尔兰")
+[下载1080](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "艾利赫格里安南环形堡，多内加尔，爱尔兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_UHD.jpg&rf=LaDigue_UHD.jpg "艾利赫格里安南环形堡，多内加尔，爱尔兰")
+
+---
 ### 03月16日：走进熊猫世界
 #### 正在吃竹子的大熊猫，中国（© Entwicklungsknecht/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_1280x720.jpg&rf=LaDigue_1280x720.jpg "元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_UHD.jpg&rf=LaDigue_UHD.jpg "元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国")
-
----
-### 03月02日：漂浮的传承
-#### 苏梅岛的港口和长尾船, 泰国（© Foto2rich/Shutterstock）
-
-![漂浮的传承](https://cn.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_800x480.jpg&rf=LaDigue_800x480.jpg "漂浮的传承")
-
-别被远看时苏梅岛长尾船朴素的外表所迷惑，这些修长的船身凝聚了当地数十年的巧思。它们在泰语中被称为“RueaHangYao”，诞生于20世纪初，当时渔民将汽车发动机改装成动力，用以穿行于大型船只难以进入的浅水海域。每一艘长尾船都由工匠一块木板一块木板手工打造，承载着代代相传的技艺。船体上色彩大胆而醒目，船头常装点着彩布与鲜花——这些象征佛教祝福的装饰，寓意守护船只与船员一路平安。
-
-这座高耸的关羽雕像位于泰国苏梅岛华他农，见证着海南华人最早在岛上的定居历史。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b3%b0%e5%9b%bd%e8%8b%8f%e6%a2%85%e5%b2%9b&form=hpcapt&filters=HpDate:"20260301_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260302_SamuiThailand"&FORM=HPQUIZ "必应主页测验 2026 3月 2")
-[下载480](https://cn.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_800x480.jpg&rf=LaDigue_800x480.jpg "苏梅岛的港口和长尾船, 泰国")
-[下载720](https://cn.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_1280x720.jpg&rf=LaDigue_1280x720.jpg "苏梅岛的港口和长尾船, 泰国")
-[下载1080](https://cn.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "苏梅岛的港口和长尾船, 泰国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_UHD.jpg&rf=LaDigue_UHD.jpg "苏梅岛的港口和长尾船, 泰国")
 
 ---
