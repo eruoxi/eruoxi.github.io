@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月18日：城市花开
+#### 汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国（© Eric Vogt/Tandem Stills + Motion）
+
+![城市花开](https://cn.bing.com/th?id=OHR.PortlandBlossoms_ZH-CN0814501668_800x480.jpg&rf=LaDigue_800x480.jpg "城市花开")
+
+汤姆·麦考尔滨水公园位于俄勒冈州波特兰威拉米特河畔，占地36英亩，是这座城市最受欢迎的绿地之一。每年春季——通常从3月中旬到4月初——公园会被粉色与白色的樱花覆盖，仿佛置身花海。沿着风景优美的步道漫步，这些充满生机的樱树为城市中心提供了一片宁静的休憩空间。公园内还有多处著名景点，如萨蒙街喷泉（Salmon Street Springs），一个拥有众多水柱的互动喷泉，以及波特兰周六市场（Portland Saturday Market），是当地居民和游客喜爱的热门去处。
+
+汤姆·麦考尔滨水公园曾是港口和工业区，但经过城市改造，如今成为市民休闲和文化活动的核心空间。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b1%a4%e5%a7%86%c2%b7%e9%ba%a6%e8%80%83%e5%b0%94%e6%bb%a8%e6%b0%b4%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260317_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260318_PortlandBlossoms"&FORM=HPQUIZ "必应主页测验 2026 3月 18")
+[下载480](https://cn.bing.com/th?id=OHR.PortlandBlossoms_ZH-CN0814501668_800x480.jpg&rf=LaDigue_800x480.jpg "汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PortlandBlossoms_ZH-CN0814501668_1280x720.jpg&rf=LaDigue_1280x720.jpg "汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PortlandBlossoms_ZH-CN0814501668_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PortlandBlossoms_ZH-CN0814501668_UHD.jpg&rf=LaDigue_UHD.jpg "汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国")
+
+---
 ### 03月17日：爱尔兰的精神十字路口
 #### 艾利赫格里安南环形堡，多内加尔，爱尔兰（© Lukassek/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_1280x720.jpg&rf=LaDigue_1280x720.jpg "紫番红花, 里拉七湖, 保加利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "紫番红花, 里拉七湖, 保加利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_UHD.jpg&rf=LaDigue_UHD.jpg "紫番红花, 里拉七湖, 保加利亚")
-
----
-### 03月03日：花灯映月，团圆吉祥
-#### 元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国（© Grisha Bruev/Shutterstock）
-
-![花灯映月，团圆吉祥](https://cn.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_800x480.jpg&rf=LaDigue_800x480.jpg "花灯映月，团圆吉祥")
-
-元宵节是中国农历新年的重要节日，通常在正月十五庆祝。人们会吃汤圆（象征团圆）并欣赏各式灯笼，寓意团圆、幸福与吉祥。节日期间，家庭聚会、赏灯和灯谜活动都非常受欢迎，是春节庆祝活动的延续。
-
-你知道吗？元宵节吃的汤圆最早源自汉代，当时被称作“浮圆”，是用糯米粉制成的小圆球，象征团圆与家庭和睦。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%85%83%e5%ae%b5%e8%8a%82&form=hpcapt&filters=HpDate:"20260302_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260303_LanternFestivalY26"&FORM=HPQUIZ "必应主页测验 2026 3月 3")
-[下载480](https://cn.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_800x480.jpg&rf=LaDigue_800x480.jpg "元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国")
-[下载720](https://cn.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_1280x720.jpg&rf=LaDigue_1280x720.jpg "元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_UHD.jpg&rf=LaDigue_UHD.jpg "元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国")
 
 ---
