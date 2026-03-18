@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月19日：激发你的好奇心
+#### 澳洲针鼹，阿德莱德山，澳大利亚（© Etienne Littlefair/naturepl.com）
+
+![激发你的好奇心](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_800x480.jpg&rf=LaDigue_800x480.jpg "激发你的好奇心")
+
+一种会下蛋的哺乳动物。没有牙齿。爬行动物般的步态。自带“盔甲”。如果说短喙针鼹听起来像一份矛盾清单，那是因为它确实如此——而且玩得很自如。它原产于澳大利亚、塔斯马尼亚及新几内亚部分地区，是现存为数不多的单孔类动物之一，也就是会下蛋的哺乳动物。尽管常常登上新闻头条，它仍然完全属于哺乳动物：有毛发、会分泌乳汁、体温恒定。特别之处在于，它的乳汁不是通过乳头，而是通过特殊皮肤区域分泌，小针鼹靠舔食来摄取乳汁。
+
+短喙针鼹用电感受器探测地下猎物，粘舌捕食，刺毛防御，是自然界独特的小“全能战士”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%be%b3%e6%b4%b2%e9%92%88%e9%bc%b9&form=hpcapt&filters=HpDate:"20260318_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260319_EchidnaAustralia"&FORM=HPQUIZ "必应主页测验 2026 3月 19")
+[下载480](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_800x480.jpg&rf=LaDigue_800x480.jpg "澳洲针鼹，阿德莱德山，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_1280x720.jpg&rf=LaDigue_1280x720.jpg "澳洲针鼹，阿德莱德山，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "澳洲针鼹，阿德莱德山，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_UHD.jpg&rf=LaDigue_UHD.jpg "澳洲针鼹，阿德莱德山，澳大利亚")
+
+---
 ### 03月18日：城市花开
 #### 汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国（© Eric Vogt/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_1280x720.jpg&rf=LaDigue_1280x720.jpg "格雷梅的傍晚, 卡帕多西亚, 土耳其")
 [下载1080](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格雷梅的傍晚, 卡帕多西亚, 土耳其")
 [下载UHD](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_UHD.jpg&rf=LaDigue_UHD.jpg "格雷梅的傍晚, 卡帕多西亚, 土耳其")
-
----
-### 03月04日：聚光灯下的番红花
-#### 紫番红花, 里拉七湖, 保加利亚（© Maya Karkalicheva/Getty Images）
-
-![聚光灯下的番红花](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_800x480.jpg&rf=LaDigue_800x480.jpg "聚光灯下的番红花")
-
-随着保加利亚西南部里拉山脉冬季寒意减退，番红花从积雪中破土而出，标志着该国最高山脉春天的来临。作为早春花卉，它们利用储存的养分，在寒冷条件下迅速生长，并在更高大的植物出现之前完成生命周期。成簇的花朵在高山草甸上绽放，如紫色缎带般铺展，与雪原形成鲜明对比，在清晨的光线中格外醒目。
-
-在人类文明的早期记载中，番红花就已出现，最重要的原因是它能产出藏红花。藏红花采自一种秋日开花的番红花属植物，其干燥的雌蕊既可调味，也可染色，是世上最昂贵的香料之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bf%9d%e5%8a%a0%e5%88%a9%e4%ba%9a%e9%87%8c%e6%8b%89%e4%b8%83%e6%b9%96%e7%95%aa%e7%ba%a2%e8%8a%b1&form=hpcapt&filters=HpDate:"20260303_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260304_RilaCrocuses"&FORM=HPQUIZ "必应主页测验 2026 3月 4")
-[下载480](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_800x480.jpg&rf=LaDigue_800x480.jpg "紫番红花, 里拉七湖, 保加利亚")
-[下载720](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_1280x720.jpg&rf=LaDigue_1280x720.jpg "紫番红花, 里拉七湖, 保加利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "紫番红花, 里拉七湖, 保加利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_UHD.jpg&rf=LaDigue_UHD.jpg "紫番红花, 里拉七湖, 保加利亚")
 
 ---
