@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月20日：春日绯梦
+#### 春日樱花，上海，中国（© junyyeung/Getty Images）
+
+![春日绯梦](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_800x480.jpg&rf=LaDigue_800x480.jpg "春日绯梦")
+
+在中国，春天的到来常常与樱花的绽放紧密相连。从南方到北方，公园与河畔逐渐被轻柔的花瓣装点，宛如铺展开来的粉色云霞。樱花象征着新生、希望，以及春日短暂却动人的美丽。每到花开时节，人们纷纷走进赏花胜地，感受早春的温暖与生机。
+
+如今种植在中国各地的许多樱花树，属于一百多年前引入的观赏品种。不同品种的花期略有差异，因此在一些城市，从三月初到四月中旬，人们都能欣赏到延续数周的樱花盛放景象。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e7%9a%84%e6%a8%b1%e8%8a%b1&form=hpcapt&filters=HpDate:"20260319_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260320_SpringEquinoxY26"&FORM=HPQUIZ "必应主页测验 2026 3月 20")
+[下载480](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_800x480.jpg&rf=LaDigue_800x480.jpg "春日樱花，上海，中国")
+[下载720](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_1280x720.jpg&rf=LaDigue_1280x720.jpg "春日樱花，上海，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春日樱花，上海，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_UHD.jpg&rf=LaDigue_UHD.jpg "春日樱花，上海，中国")
+
+---
 ### 03月19日：激发你的好奇心
 #### 澳洲针鼹，阿德莱德山，澳大利亚（© Etienne Littlefair/naturepl.com）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_1280x720.jpg&rf=LaDigue_1280x720.jpg "波浪住宅楼, 瓦埃勒, 丹麦")
 [下载1080](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波浪住宅楼, 瓦埃勒, 丹麦")
 [下载UHD](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_UHD.jpg&rf=LaDigue_UHD.jpg "波浪住宅楼, 瓦埃勒, 丹麦")
-
----
-### 03月05日：古老岩石，现代灯光
-#### 格雷梅的傍晚, 卡帕多西亚, 土耳其（© ONNAJA/Getty Images）
-
-![古老岩石，现代灯光](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_800x480.jpg&rf=LaDigue_800x480.jpg "古老岩石，现代灯光")
-
-黄昏时分，卡帕多西亚格雷梅地区的地貌逐渐显现。这片区域隶属于格雷梅国家公园与卡帕多西亚岩石遗址，1985年入选世界遗产名录。“精灵烟囱”等地貌源自安那托利亚火山喷发形成的火山灰层，随后经风与水长期侵蚀，雕刻出石柱、山脊与谷地。
-
-格雷梅是一座由火山岩凿刻而成的小镇，是通往格雷梅国家公园的门户。这里被列入联合国教科文组织世界遗产名录，保存着10至11世纪的洞穴教堂，并以“精灵烟囱”般的岩石地貌闻名，深受世界各地的背包客喜爱。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%9f%e8%80%b3%e5%85%b6%e6%a0%bc%e9%9b%b7%e6%a2%85&form=hpcapt&filters=HpDate:"20260304_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260305_GoremeTwilight"&FORM=HPQUIZ "必应主页测验 2026 3月 5")
-[下载480](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_800x480.jpg&rf=LaDigue_800x480.jpg "格雷梅的傍晚, 卡帕多西亚, 土耳其")
-[下载720](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_1280x720.jpg&rf=LaDigue_1280x720.jpg "格雷梅的傍晚, 卡帕多西亚, 土耳其")
-[下载1080](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格雷梅的傍晚, 卡帕多西亚, 土耳其")
-[下载UHD](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_UHD.jpg&rf=LaDigue_UHD.jpg "格雷梅的傍晚, 卡帕多西亚, 土耳其")
 
 ---
