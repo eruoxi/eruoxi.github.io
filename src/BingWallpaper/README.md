@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月21日：根系自由生长的地方
+#### 莱泰亚森林，多瑙河三角洲，罗马尼亚（© Wild Wonders of Europe/Widstrand/Nature Picture Library）
+
+![根系自由生长的地方](https://cn.bing.com/th?id=OHR.LeteaForest_ZH-CN4153496399_800x480.jpg&rf=LaDigue_800x480.jpg "根系自由生长的地方")
+
+如果地球有一支“维护团队”，森林一定会冲在最前线。它们吸收碳排放，减少水土流失，保护生物多样性，影响降雨，并帮助维持清洁的水源。目前，森林仍覆盖着全球约31%的陆地面积，但其持续减少表明，这些自然系统正变得愈发脆弱。大片森林仍在被开垦，用于农业生产、基础设施建设和资源开发，使生态系统以令人担忧的速度不断削弱。
+
+联合国粮食及农业组织估计，每年约有2470万英亩（约1000万公顷）的森林被砍伐。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%a3%ae%e6%9e%97%e6%97%a5&form=hpcapt&filters=HpDate:"20260320_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260321_LeteaForest"&FORM=HPQUIZ "必应主页测验 2026 3月 21")
+[下载480](https://cn.bing.com/th?id=OHR.LeteaForest_ZH-CN4153496399_800x480.jpg&rf=LaDigue_800x480.jpg "莱泰亚森林，多瑙河三角洲，罗马尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.LeteaForest_ZH-CN4153496399_1280x720.jpg&rf=LaDigue_1280x720.jpg "莱泰亚森林，多瑙河三角洲，罗马尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.LeteaForest_ZH-CN4153496399_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莱泰亚森林，多瑙河三角洲，罗马尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.LeteaForest_ZH-CN4153496399_UHD.jpg&rf=LaDigue_UHD.jpg "莱泰亚森林，多瑙河三角洲，罗马尼亚")
+
+---
 ### 03月20日：春日绯梦
 #### 春日樱花，上海，中国（© junyyeung/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_1280x720.jpg&rf=LaDigue_1280x720.jpg "布罗肯峰的日出, 哈尔茨国家公园, 德国")
 [下载1080](https://cn.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布罗肯峰的日出, 哈尔茨国家公园, 德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_UHD.jpg&rf=LaDigue_UHD.jpg "布罗肯峰的日出, 哈尔茨国家公园, 德国")
-
----
-### 03月06日：混凝土中铸造的波浪
-#### 波浪住宅楼, 瓦埃勒, 丹麦（© Frank Bach/Alamy）
-
-![混凝土中铸造的波浪](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_800x480.jpg&rf=LaDigue_800x480.jpg "混凝土中铸造的波浪")
-
-建筑融合了艺术与科技，并通过建筑形式得以展现。虽然许多设计主要侧重于功能，但也有一些建筑同样重视视觉冲击力。丹麦韦勒的“波浪”建筑群就是一个绝佳的例子，它将雕塑般的造型设计与实用的居住空间完美结合。
-
-这座屡获殊荣的九层住宅楼代表着城市滨水区的复兴，也代表着丹麦小镇韦勒的新形象。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%b9%e9%ba%a6%e7%93%a6%e5%9f%83%e5%8b%92%e6%b3%a2%e6%b5%aa%e5%a4%a7%e5%8e%a6&form=hpcapt&filters=HpDate:"20260305_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260306_WaveDenmark"&FORM=HPQUIZ "必应主页测验 2026 3月 6")
-[下载480](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_800x480.jpg&rf=LaDigue_800x480.jpg "波浪住宅楼, 瓦埃勒, 丹麦")
-[下载720](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_1280x720.jpg&rf=LaDigue_1280x720.jpg "波浪住宅楼, 瓦埃勒, 丹麦")
-[下载1080](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波浪住宅楼, 瓦埃勒, 丹麦")
-[下载UHD](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_UHD.jpg&rf=LaDigue_UHD.jpg "波浪住宅楼, 瓦埃勒, 丹麦")
 
 ---
