@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月22日：当水划出界线
+#### 坦噶尼喀湖，非洲（© BEST-BACKGROUNDS/NASA/Shutterstock）
+
+![当水划出界线](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_800x480.jpg&rf=LaDigue_800x480.jpg "当水划出界线")
+
+今天是世界水日。该纪念日由联合国于1992年设立，并于次年首次举行。人类已不能再随波逐流——我们必须守护那些维系生命的水流。在非洲东部大裂谷的坦噶尼喀湖，几乎最能体现这种紧迫感。从太空俯瞰，它宛如一条长约420英里（约676公里）的蓝色丝带，连接着坦桑尼亚、布隆迪、刚果民主共和国和赞比亚。在湖岸边，它则是一处拥有约1000万年历史的裂谷盆地，由地壳缓慢张裂形成。
+
+坦噶尼喀湖是世界上最长的淡水湖，也是世界第二深湖，仅次于俄罗斯的贝加尔湖。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b0%b4%e6%97%a5&form=hpcapt&filters=HpDate:"20260321_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260322_TanganyikaWater"&FORM=HPQUIZ "必应主页测验 2026 3月 22")
+[下载480](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_800x480.jpg&rf=LaDigue_800x480.jpg "坦噶尼喀湖，非洲")
+[下载720](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_1280x720.jpg&rf=LaDigue_1280x720.jpg "坦噶尼喀湖，非洲")
+[下载1080](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "坦噶尼喀湖，非洲")
+[下载UHD](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_UHD.jpg&rf=LaDigue_UHD.jpg "坦噶尼喀湖，非洲")
+
+---
 ### 03月21日：根系自由生长的地方
 #### 莱泰亚森林，多瑙河三角洲，罗马尼亚（© Wild Wonders of Europe/Widstrand/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌尔姆市政厅的天文钟, 德国")
 [下载1080](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌尔姆市政厅的天文钟, 德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg&rf=LaDigue_UHD.jpg "乌尔姆市政厅的天文钟, 德国")
-
----
-### 03月07日：治愈、宁静且充满希望
-#### 布罗肯峰的日出, 哈尔茨国家公园, 德国（© imageBROKER/AVTG/Getty Images）
-
-![治愈、宁静且充满希望](https://cn.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_800x480.jpg&rf=LaDigue_800x480.jpg "治愈、宁静且充满希望")
-
-想象一下，你登上了德国哈尔茨国家公园的布罗肯山（Brocken）。云雾在山脊间缓缓流动，阳光从你身后照来，前方是翻涌的薄雾——突然，一个被光环包围的巨大影子出现在云雾之中。你是否好奇，为什么过去的登山者会对这一景象感到害怕？这种现象被称为布罗肯幽灵（Brocken spectre），是一种神秘的自然光学现象：当阳光从背后照射时，人的影子会被投射到前方的云层或雾气上，并被放大，同时常常伴随着一圈彩色光环。布罗肯山海拔约 1141 米，是德国北部最高的山峰。这里长期以来激发了丰富的民间传说，其中最著名的便是瓦尔普吉斯之夜（Walpurgis Night）女巫在此集会的故事。云雾缭绕的山顶与神秘的光影，使这座山在历史与想象中都充满了奇幻色彩。
-
-在晴朗的冬季天气里，布罗肯山常常高耸于云海之上，形成壮观的“云上山峰”景象。由于山顶地势开阔且相对于周围地区海拔较高，这里经常出现强风和快速变化的天气状况，使其成为德国北部气候特征最为鲜明的地区之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%93%88%e5%b0%94%e8%8c%a8%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260306_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260307_BrockenSunrise"&FORM=HPQUIZ "必应主页测验 2026 3月 7")
-[下载480](https://cn.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_800x480.jpg&rf=LaDigue_800x480.jpg "布罗肯峰的日出, 哈尔茨国家公园, 德国")
-[下载720](https://cn.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_1280x720.jpg&rf=LaDigue_1280x720.jpg "布罗肯峰的日出, 哈尔茨国家公园, 德国")
-[下载1080](https://cn.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布罗肯峰的日出, 哈尔茨国家公园, 德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_UHD.jpg&rf=LaDigue_UHD.jpg "布罗肯峰的日出, 哈尔茨国家公园, 德国")
 
 ---
