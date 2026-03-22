@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月23日：当水划出界线
+#### 坦噶尼喀湖，非洲（© BEST-BACKGROUNDS/NASA/Shutterstock）
+
+![当水划出界线](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_800x480.jpg&rf=LaDigue_800x480.jpg "当水划出界线")
+
+今天是世界水日。该纪念日由联合国于1992年设立，并于次年首次举行。人类已不能再随波逐流——我们必须守护那些维系生命的水流。在非洲东部大裂谷的坦噶尼喀湖，几乎最能体现这种紧迫感。从太空俯瞰，它宛如一条长约420英里（约676公里）的蓝色丝带，连接着坦桑尼亚、布隆迪、刚果民主共和国和赞比亚。在湖岸边，它则是一处拥有约1000万年历史的裂谷盆地，由地壳缓慢张裂形成。
+
+坦噶尼喀湖是世界上最长的淡水湖，也是世界第二深湖，仅次于俄罗斯的贝加尔湖。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b0%b4%e6%97%a5&form=hpcapt&filters=HpDate:"20260322_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260323_SonoranStorm"&FORM=HPQUIZ "必应主页测验 2026 3月 23")
+[下载480](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_800x480.jpg&rf=LaDigue_800x480.jpg "坦噶尼喀湖，非洲")
+[下载720](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_1280x720.jpg&rf=LaDigue_1280x720.jpg "坦噶尼喀湖，非洲")
+[下载1080](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "坦噶尼喀湖，非洲")
+[下载UHD](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_UHD.jpg&rf=LaDigue_UHD.jpg "坦噶尼喀湖，非洲")
+
+---
 ### 03月22日：当水划出界线
 #### 坦噶尼喀湖，非洲（© BEST-BACKGROUNDS/NASA/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_1280x720.jpg&rf=LaDigue_1280x720.jpg "在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_UHD.jpg&rf=LaDigue_UHD.jpg "在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰")
-
----
-### 03月08日：节约日光的艺术
-#### 乌尔姆市政厅的天文钟, 德国（© Tomekbudujedomek/Getty Images）
-
-![节约日光的艺术](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_800x480.jpg&rf=LaDigue_800x480.jpg "节约日光的艺术")
-
-每年三月，美国大部分地区开始实行夏令时，时钟拨快以最大限度地利用日光。这一想法可以追溯到1784年，当时本杰明·富兰克林曾幽默地建议人们早起以节省蜡烛的使用。美国在第一次世界大战期间，于1918年正式采用夏令时，作为一项节能措施。经过多年执行不一之后，1966年的《统一时间法案》确立了全国范围内季节性时钟调整的标准。虽然如今大多数州都实行夏令时，但夏威夷州和亚利桑那州（纳瓦霍族保留地除外）不实行，理由是日光变化幅度很小，且出于气候方面的考虑。此外，美国的一些属地全年也保持标准时间。
-
-位于德国乌尔姆市市政厅的天文钟是一座历史悠久的时钟，以其精巧的机械结构和详尽的天文显示而闻名。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a9%e6%96%87%e9%92%9f&form=hpcapt&filters=HpDate:"20260307_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260308_UlmClock"&FORM=HPQUIZ "必应主页测验 2026 3月 8")
-[下载480](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_800x480.jpg&rf=LaDigue_800x480.jpg "乌尔姆市政厅的天文钟, 德国")
-[下载720](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌尔姆市政厅的天文钟, 德国")
-[下载1080](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌尔姆市政厅的天文钟, 德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg&rf=LaDigue_UHD.jpg "乌尔姆市政厅的天文钟, 德国")
 
 ---
