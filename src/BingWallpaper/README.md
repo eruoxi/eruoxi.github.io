@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月24日：春天的形状
+#### 东湖樱花园的樱花，武汉，中国（© Zhang Qiao/VCG/Getty Images）
+
+![春天的形状](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_800x480.jpg&rf=LaDigue_800x480.jpg "春天的形状")
+
+从空中俯瞰，中国武汉的东湖樱花园宛如一朵淡紫色的云，轻柔地停驻在大地之上。成千上万株樱花同时盛放，浅色花瓣在公园中心一座金色五层宝塔周围织就出一片生机盎然的花海穹顶。宝塔以沉静而对称的姿态挺立，层层飞檐在柔和的春日色彩映衬下熠熠生辉。
+
+武汉樱花花期很短，单株3—5天盛放，最佳观赏期常不足一周。气温每升高1℃，花期都会提前。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e6%ad%a6%e6%b1%89%e4%b8%9c%e6%b9%96%e6%a8%b1%e8%8a%b1%e5%9b%ad&form=hpcapt&filters=HpDate:"20260323_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260324_WuhanCherryBlossom"&FORM=HPQUIZ "必应主页测验 2026 3月 24")
+[下载480](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_800x480.jpg&rf=LaDigue_800x480.jpg "东湖樱花园的樱花，武汉，中国")
+[下载720](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_1280x720.jpg&rf=LaDigue_1280x720.jpg "东湖樱花园的樱花，武汉，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "东湖樱花园的樱花，武汉，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_UHD.jpg&rf=LaDigue_UHD.jpg "东湖樱花园的樱花，武汉，中国")
+
+---
 ### 03月23日：当水划出界线
 #### 坦噶尼喀湖，非洲（© BEST-BACKGROUNDS/NASA/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_1280x720.jpg&rf=LaDigue_1280x720.jpg "赫韦拉韦利尔的布拉赫维尔地热池, 冰岛")
 [下载1080](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "赫韦拉韦利尔的布拉赫维尔地热池, 冰岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_UHD.jpg&rf=LaDigue_UHD.jpg "赫韦拉韦利尔的布拉赫维尔地热池, 冰岛")
-
----
-### 03月09日：一次恰到好处的午睡
-#### 在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰（© Andrew Mason/Minden Pictures）
-
-![一次恰到好处的午睡](https://cn.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_800x480.jpg&rf=LaDigue_800x480.jpg "一次恰到好处的午睡")
-
-全国午睡日真是选得恰到好处。它恰逢夏令时开始后的星期一，届时时钟会拨快一小时，我们所有人都会少睡一个小时。不妨把今天当作一个正式的理由，放慢脚步，好好补补觉。这张照片中，一只在苏格兰海岸边酣睡的灰海豹，正是对这一天的绝佳提醒：休息至关重要。
-
-苏格兰奥克尼群岛的灰海豹是一种大型海洋哺乳动物，以其独特的斑点皮毛和在崎岖海岸上的活泼行为而闻名。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%81%b0%e6%b5%b7%e8%b1%b9&form=hpcapt&filters=HpDate:"20260308_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260309_NappingSeal"&FORM=HPQUIZ "必应主页测验 2026 3月 9")
-[下载480](https://cn.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_800x480.jpg&rf=LaDigue_800x480.jpg "在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰")
-[下载720](https://cn.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_1280x720.jpg&rf=LaDigue_1280x720.jpg "在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_UHD.jpg&rf=LaDigue_UHD.jpg "在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰")
 
 ---
