@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月25日：海牛的秘密生活
+#### 淡水泉中的幼年海牛，水晶河，佛罗里达州，美国（© Gregory Sweeney/Getty Images）
+
+![海牛的秘密生活](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_800x480.jpg&rf=LaDigue_800x480.jpg "海牛的秘密生活")
+
+海牛看起来行动缓慢、昏昏欲睡，但在水下却有不少令人惊讶的“本领”。首先，它们是少数会持续更换牙齿的哺乳动物之一。首先，它们是少数会持续更换牙齿的哺乳动物之一。当臼齿因咀嚼含沙的海草而磨损时，新牙会像传送带一样缓缓向前移动、替换旧牙——这对每天进食可达8小时的它们来说尤为重要。
+
+海牛的新陈代谢非常缓慢，静息时心率通常只有每分钟约25次，比许多同体型哺乳动物都低。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b5%b7%e7%89%9b%e6%97%a5&form=hpcapt&filters=HpDate:"20260324_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260325_ManateeSpring"&FORM=HPQUIZ "必应主页测验 2026 3月 25")
+[下载480](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_800x480.jpg&rf=LaDigue_800x480.jpg "淡水泉中的幼年海牛，水晶河，佛罗里达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_1280x720.jpg&rf=LaDigue_1280x720.jpg "淡水泉中的幼年海牛，水晶河，佛罗里达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "淡水泉中的幼年海牛，水晶河，佛罗里达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_UHD.jpg&rf=LaDigue_UHD.jpg "淡水泉中的幼年海牛，水晶河，佛罗里达州，美国")
+
+---
 ### 03月24日：春天的形状
 #### 东湖樱花园的樱花，武汉，中国（© Zhang Qiao/VCG/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_1280x720.jpg&rf=LaDigue_1280x720.jpg "盛开的桃树, 谢萨, 穆尔西亚, 西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的桃树, 谢萨, 穆尔西亚, 西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的桃树, 谢萨, 穆尔西亚, 西班牙")
-
----
-### 03月10日：霜下之火
-#### 赫韦拉韦利尔的布拉赫维尔地热池, 冰岛（© Juan Maria Coy Vergara/Getty Images）
-
-![霜下之火](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_800x480.jpg&rf=LaDigue_800x480.jpg "霜下之火")
-
-你是否曾好奇，当火焰、冰霜和时间交汇于同一片土地，会发生什么？冰岛的赫韦拉韦利尔地热田或许能解答你的疑问。在这片高地热点地区，地球内部的能量与冰冷的地表相遇，引发了压力、温度和岩石之间一场激烈的对话。喷气孔嘶嘶作响，蒸汽袅袅升腾，大地被染成硫磺白、铁锈红和赭黄——这不仅是艺术，更是极端高温驱动的化学反应。在今天的照片中，布拉赫韦尔天然温泉呈现出耀眼的电光蓝。这种颜色源于富含矿物质和二氧化硅的泉水反射光线。
-
-冰岛赫韦拉韦利尔的布拉赫维尔地热蓝池是一处令人惊叹的温泉，以其湛蓝的水色和在偏远火山高地中喷腾的地热活动而闻名。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%86%b0%e5%b2%9b%e5%b8%83%e6%8b%89%e8%b5%ab%e7%bb%b4%e5%b0%94%e5%9c%b0%e7%83%ad%e6%b1%a0&form=hpcapt&filters=HpDate:"20260309_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260310_SpringIceland"&FORM=HPQUIZ "必应主页测验 2026 3月 10")
-[下载480](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_800x480.jpg&rf=LaDigue_800x480.jpg "赫韦拉韦利尔的布拉赫维尔地热池, 冰岛")
-[下载720](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_1280x720.jpg&rf=LaDigue_1280x720.jpg "赫韦拉韦利尔的布拉赫维尔地热池, 冰岛")
-[下载1080](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "赫韦拉韦利尔的布拉赫维尔地热池, 冰岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_UHD.jpg&rf=LaDigue_UHD.jpg "赫韦拉韦利尔的布拉赫维尔地热池, 冰岛")
 
 ---
