@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月26日：凌驾荒野之上
+#### 洛根溪吊桥，西海岸步道，加拿大（© Tandem Stock/Adobe Stock）
+
+![凌驾荒野之上](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_800x480.jpg&rf=LaDigue_800x480.jpg "凌驾荒野之上")
+
+沿着加拿大温哥华岛西南部偏远海岸延伸的西海岸步道，是该国最具传奇色彩的徒步路线之一。这条步道位于 太平洋沿岸国家公园保护区，全长约47英里，穿越雨林、沙滩和岩石海岸线。该步道始建于1907年，最初是一条为海难幸存者设立的救生通道，沿线海域曾被水手称为“太平洋墓地”。
+
+由于泥泞路段、木梯、河流以及多变而严酷的海岸天气，西海岸步道 通常需要6至8天才能完成。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e6%8b%bf%e5%a4%a7%e8%a5%bf%e6%b5%b7%e5%b2%b8%e6%ad%a5%e9%81%93&form=hpcapt&filters=HpDate:"20260325_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260326_LoganCreek"&FORM=HPQUIZ "必应主页测验 2026 3月 26")
+[下载480](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_800x480.jpg&rf=LaDigue_800x480.jpg "洛根溪吊桥，西海岸步道，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_1280x720.jpg&rf=LaDigue_1280x720.jpg "洛根溪吊桥，西海岸步道，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "洛根溪吊桥，西海岸步道，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_UHD.jpg&rf=LaDigue_UHD.jpg "洛根溪吊桥，西海岸步道，加拿大")
+
+---
 ### 03月25日：海牛的秘密生活
 #### 淡水泉中的幼年海牛，水晶河，佛罗里达州，美国（© Gregory Sweeney/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_1280x720.jpg&rf=LaDigue_1280x720.jpg "幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_UHD.jpg&rf=LaDigue_UHD.jpg "幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔")
-
----
-### 03月11日：一个美好的春天
-#### 盛开的桃树, 谢萨, 穆尔西亚, 西班牙（© Juan Maria Coy Vergara/Getty Images）
-
-![一个美好的春天](https://cn.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_800x480.jpg&rf=LaDigue_800x480.jpg "一个美好的春天")
-
-在谢萨，春天的到来别具一格。它并非缓缓展开，而是色彩缤纷，绚烂夺目。每年二月至三月，这座位于西班牙穆尔西亚地区的小城便成为“花期”（La Floración）的中心，也就是桃树盛开的季节。短短几天内，超过12000英亩的土地——西班牙最大的城市桃园——便会变成我们今天看到的这片色彩斑斓的海洋。
-
-西班牙穆尔西亚的锡耶萨以春季盛开的桃花而闻名，粉白色的花海为大地披上了美丽的色彩。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e8%b0%a2%e8%90%a8&form=hpcapt&filters=HpDate:"20260310_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260311_PeachBloom"&FORM=HPQUIZ "必应主页测验 2026 3月 11")
-[下载480](https://cn.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_800x480.jpg&rf=LaDigue_800x480.jpg "盛开的桃树, 谢萨, 穆尔西亚, 西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_1280x720.jpg&rf=LaDigue_1280x720.jpg "盛开的桃树, 谢萨, 穆尔西亚, 西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的桃树, 谢萨, 穆尔西亚, 西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的桃树, 谢萨, 穆尔西亚, 西班牙")
 
 ---
