@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月27日：依然明亮地燃烧着
+#### 纽约市的无线电城音乐厅, 美国（© Clarence Holmes Photography/Alamy）
+
+![依然明亮地燃烧着](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_800x480.jpg&rf=LaDigue_800x480.jpg "依然明亮地燃烧着")
+
+乍一看，无线电城音乐厅的内部装潢无疑会吸引你的目光，让你兴奋不已。仿佛置身于纽约市中心的阳光下——这是装饰艺术风格狂热的化身，展现了20世纪30年代人们对未来的憧憬。每年的3月27日是世界戏剧日，人们都会庆祝这种令人叹为观止的震撼体验。
+
+世界戏剧日由国际戏剧协会（ITI）创立，并于1962年3月27日首次庆祝，当天也是巴黎“民族剧院”演出季的开幕日。此后，每年的这一天，世界戏剧日都会在全球范围内庆祝。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%88%8f%e5%89%a7%e6%97%a5&form=hpcapt&filters=HpDate:"20260326_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260327_RadioCityHall"&FORM=HPQUIZ "必应主页测验 2026 3月 27")
+[下载480](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_800x480.jpg&rf=LaDigue_800x480.jpg "纽约市的无线电城音乐厅, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_1280x720.jpg&rf=LaDigue_1280x720.jpg "纽约市的无线电城音乐厅, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纽约市的无线电城音乐厅, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_UHD.jpg&rf=LaDigue_UHD.jpg "纽约市的无线电城音乐厅, 美国")
+
+---
 ### 03月26日：凌驾荒野之上
 #### 洛根溪吊桥，西海岸步道，加拿大（© Tandem Stock/Adobe Stock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_1280x720.jpg&rf=LaDigue_1280x720.jpg "邦港圣母教堂拱顶，莱萨布勒多洛讷，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "邦港圣母教堂拱顶，莱萨布勒多洛讷，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_UHD.jpg&rf=LaDigue_UHD.jpg "邦港圣母教堂拱顶，莱萨布勒多洛讷，法国")
-
----
-### 03月12日：排练中的翅膀
-#### 幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔（© Andy Rouse/naturepl.com）
-
-![排练中的翅膀](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_800x480.jpg&rf=LaDigue_800x480.jpg "排练中的翅膀")
-
-在厄瓜多尔的云雾森林高处，一只幼年日鳽展开翅膀进行早期展示，橙色、黑色和白色的斑纹在透过树叶的绿色光影中闪现。突如其来的色彩对比穿透覆盖苔藓的枝干和叶影下的林下层，呈现出这一物种戏剧性的翅膀斑纹。成年的日鳽通常在防御展示时才会显露这些醒目的斑纹，短暂地将这只原本隐秘的鸟变成引人注目的视觉奇观。
-
-日鳽的翅膀上有类似眼睛的斑纹，通常在昏暗的森林中展开翅膀展示时显现出来。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%97%a5%e9%b3%bd&form=hpcapt&filters=HpDate:"20260311_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260312_SunbitternEcuador"&FORM=HPQUIZ "必应主页测验 2026 3月 12")
-[下载480](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_800x480.jpg&rf=LaDigue_800x480.jpg "幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔")
-[下载720](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_1280x720.jpg&rf=LaDigue_1280x720.jpg "幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔")
-[下载1080](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔")
-[下载UHD](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_UHD.jpg&rf=LaDigue_UHD.jpg "幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔")
 
 ---
