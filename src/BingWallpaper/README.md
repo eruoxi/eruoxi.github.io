@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月28日：未驯服的精神
+#### 非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚（© jesuss8/500px/Getty Images）
+
+![未驯服的精神](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_800x480.jpg&rf=LaDigue_800x480.jpg "未驯服的精神")
+
+非洲水牛体型庞大，威风凛凛，漫步于坦桑尼亚的稀树草原和湿地，尤其是在恩戈罗恩戈罗保护区（NCA）内。它们以硕大弯曲的牛角和庞大的体型而闻名，是“非洲五霸”（水牛、大象、豹子、犀牛、狮子）之一，并因其力量和适应力而备受尊崇。恩戈罗恩戈罗保护区是联合国教科文组织世界遗产，为观察这些令人敬畏的食草动物提供了壮丽而丰富的生态环境。
+
+非洲水牛的视力和听力都比较差，但嗅觉却很灵敏。它们似乎也比较难调节体温——这也是它们主要在夜间觅食的原因。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%9d%9e%e6%b4%b2%e6%b0%b4%e7%89%9b&form=hpcapt&filters=HpDate:"20260327_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260328_CapeBuffalo"&FORM=HPQUIZ "必应主页测验 2026 3月 28")
+[下载480](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_800x480.jpg&rf=LaDigue_800x480.jpg "非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_1280x720.jpg&rf=LaDigue_1280x720.jpg "非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_UHD.jpg&rf=LaDigue_UHD.jpg "非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚")
+
+---
 ### 03月27日：依然明亮地燃烧着
 #### 纽约市的无线电城音乐厅, 美国（© Clarence Holmes Photography/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_1280x720.jpg&rf=LaDigue_1280x720.jpg "兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_UHD.jpg&rf=LaDigue_UHD.jpg "兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国")
-
----
-### 03月13日：静谧的石之杰作
-#### 邦港圣母教堂拱顶，莱萨布勒多洛讷，法国（© Helmut Meyer zur Capellen/Alamy）
-
-![静谧的石之杰作](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_800x480.jpg&rf=LaDigue_800x480.jpg "静谧的石之杰作")
-
-在法国西部海滨小镇莱萨布勒多洛讷的邦港圣母堂拱顶下，石质拱肋依旧引导着视线向上。高耸的拱顶自1646年开始建造，这座教堂自1993年被列为法国历史古迹，坐落在一座13世纪小礼拜堂的旧址上，静静讲述着大西洋沿岸悠久的精神文化与历史故事。
-
-邦港圣母堂的18世纪管风琴，是教堂内的艺术珍宝，节日期间为音乐增添独特氛围。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b3%95%e5%9b%bd%e8%8e%b1%e8%90%a8%e5%b8%83%e5%8b%92%e5%a4%9a%e6%b4%9b%e8%ae%b7&form=hpcapt&filters=HpDate:"20260312_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260313_VendeeVaults"&FORM=HPQUIZ "必应主页测验 2026 3月 13")
-[下载480](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_800x480.jpg&rf=LaDigue_800x480.jpg "邦港圣母教堂拱顶，莱萨布勒多洛讷，法国")
-[下载720](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_1280x720.jpg&rf=LaDigue_1280x720.jpg "邦港圣母教堂拱顶，莱萨布勒多洛讷，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "邦港圣母教堂拱顶，莱萨布勒多洛讷，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_UHD.jpg&rf=LaDigue_UHD.jpg "邦港圣母教堂拱顶，莱萨布勒多洛讷，法国")
 
 ---
