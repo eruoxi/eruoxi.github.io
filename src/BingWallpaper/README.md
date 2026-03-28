@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月29日：海边的宁静
+#### 佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大（© Prashanth Bala/Shutterstock）
+
+![海边的宁静](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_800x480.jpg&rf=LaDigue_800x480.jpg "海边的宁静")
+
+佩吉湾是新斯科舍省崎岖海岸线上一个迷人而小巧的村庄，展现了海滨生活的一角。村里最著名的地标是佩吉角灯塔（也称佩吉湾灯塔），它最初建于1868年，后于1915年被现在的灯塔所取代。一个多世纪以来，它指引着船只穿梭于变幻莫测的大西洋，成为海岸生活永恒的象征。周围的景色，海风吹拂，波涛汹涌，仿佛时间在这里停滞。
+
+佩吉湾村周围是佩吉湾保护区，这是一片占地 1000 英亩的受保护土地，拥有敏感的生态系统。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bd%a9%e5%90%89%e8%a7%92%e7%81%af%e5%a1%94&form=hpcapt&filters=HpDate:"20260328_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260329_PeggysLighthouse"&FORM=HPQUIZ "必应主页测验 2026 3月 29")
+[下载480](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_800x480.jpg&rf=LaDigue_800x480.jpg "佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_1280x720.jpg&rf=LaDigue_1280x720.jpg "佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_UHD.jpg&rf=LaDigue_UHD.jpg "佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大")
+
+---
 ### 03月28日：未驯服的精神
 #### 非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚（© jesuss8/500px/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_1280x720.jpg&rf=LaDigue_1280x720.jpg "太平洋沿岸国家公园保护区，温哥华岛，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "太平洋沿岸国家公园保护区，温哥华岛，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_UHD.jpg&rf=LaDigue_UHD.jpg "太平洋沿岸国家公园保护区，温哥华岛，加拿大")
-
----
-### 03月14日：圆周率的古老启示
-#### 兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国（© Helen Hotson/Alamy）
-
-![圆周率的古老启示](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_800x480.jpg&rf=LaDigue_800x480.jpg "圆周率的古老启示")
-
-在圆周率尚未有名字之前，人们就被它的奥秘所吸引。每年的3月14日，被定为“圆周率日”，以纪念数学中最著名的常数之一。这个日期正好对应圆周率π的前三位数字(3.14)，即圆的周长与直径之比。圆周率无穷且不循环的小数部分长期以来一直令学者们着迷。现代的庆祝活动始于1988年，当时物理学家拉里·肖(Larry Shaw)用一种特别的方式纪念这一天：享用美味的派(pie)。
-
-兰扬石门的巨石排列展示了新石器时代工匠对材料选择和空间布局的智慧。它不仅是墓葬遗迹，也体现了当时人类对环境与自然力量的适应能力。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%86%e5%91%a8%e7%8e%87%e6%97%a5&form=hpcapt&filters=HpDate:"20260313_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260314_CornwallDolmen"&FORM=HPQUIZ "必应主页测验 2026 3月 14")
-[下载480](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_800x480.jpg&rf=LaDigue_800x480.jpg "兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国")
-[下载720](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_1280x720.jpg&rf=LaDigue_1280x720.jpg "兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_UHD.jpg&rf=LaDigue_UHD.jpg "兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国")
 
 ---
