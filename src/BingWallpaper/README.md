@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 03月30日：优雅的动态
+#### 蓑羽鹤, 印度（© Axel Gomille/Nature Picture Library）
+
+![优雅的动态](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_800x480.jpg&rf=LaDigue_800x480.jpg "优雅的动态")
+
+蓑羽鹤是一种体型虽小却引人注目的候鸟，分布于中亚各地，繁殖地位于哈萨克斯坦、蒙古和中国北部的草原，越冬地则在印度、尼泊尔和非洲部分地区。它拥有优雅的外形——纤细的脖颈、修长的双腿和美丽的羽毛——常被认为是鹤类中最优雅的物种之一。蓑羽鹤以其精妙的求偶舞而闻名，求偶时，雌雄蓑羽鹤会同步地舞动和鸣叫，呈现出一场美妙绝伦的视觉盛宴。
+
+在世界自然保护联盟濒危物种红色名录中，蓑羽鹤被评估为无危物种。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%93%91%e7%be%bd%e9%b9%a4&form=hpcapt&filters=HpDate:"20260329_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260330_IndiaCranes"&FORM=HPQUIZ "必应主页测验 2026 3月 30")
+[下载480](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_800x480.jpg&rf=LaDigue_800x480.jpg "蓑羽鹤, 印度")
+[下载720](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_1280x720.jpg&rf=LaDigue_1280x720.jpg "蓑羽鹤, 印度")
+[下载1080](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓑羽鹤, 印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_UHD.jpg&rf=LaDigue_UHD.jpg "蓑羽鹤, 印度")
+
+---
 ### 03月29日：海边的宁静
 #### 佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大（© Prashanth Bala/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PandaForest_ZH-CN0545156080_1280x720.jpg&rf=LaDigue_1280x720.jpg "正在吃竹子的大熊猫，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.PandaForest_ZH-CN0545156080_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "正在吃竹子的大熊猫，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PandaForest_ZH-CN0545156080_UHD.jpg&rf=LaDigue_UHD.jpg "正在吃竹子的大熊猫，中国")
-
----
-### 03月15日：掠海而过
-#### 太平洋沿岸国家公园保护区，温哥华岛，加拿大（© EmilyNorton/Getty Images）
-
-![掠海而过](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_800x480.jpg&rf=LaDigue_800x480.jpg "掠海而过")
-
-在加拿大，“太平洋沿岸鲸鱼节”庆祝成千上万头灰鲸每年春季的迁徙盛况——它们沿着岛屿西海岸近岸而行，场面壮观。这项节日由当地社区于20世纪80年代发起，旨在纪念灰鲸从墨西哥下加利福尼亚的繁殖潟湖启程，踏上北返旅程的重要时刻。
-
-太平洋沿岸鲸鱼节不仅是观鲸活动，还包括海洋主题艺术展、社区巡游和公众讲座，体现了当地居民对海洋文化的长期关注与参与。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8e%af%e5%a4%aa%e5%b9%b3%e6%b4%8b%e9%b2%b8%e9%b1%bc%e8%8a%82&form=hpcapt&filters=HpDate:"20260314_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260315_PacificRimNP"&FORM=HPQUIZ "必应主页测验 2026 3月 15")
-[下载480](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_800x480.jpg&rf=LaDigue_800x480.jpg "太平洋沿岸国家公园保护区，温哥华岛，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_1280x720.jpg&rf=LaDigue_1280x720.jpg "太平洋沿岸国家公园保护区，温哥华岛，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "太平洋沿岸国家公园保护区，温哥华岛，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_UHD.jpg&rf=LaDigue_UHD.jpg "太平洋沿岸国家公园保护区，温哥华岛，加拿大")
 
 ---
