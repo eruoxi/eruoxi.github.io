@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月01日：跃入四月
+#### 粉色牵牛花里的日本树蛙（© Tetsuya Tanooka/Getty Images）
+
+![跃入四月](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_800x480.jpg&rf=LaDigue_800x480.jpg "跃入四月")
+
+四月是全国青蛙月，让我们有机会欣赏大自然中体型最小却最杰出的使者之一——青蛙。青蛙有助于平衡昆虫种群数量，而且由于它们皮肤具有渗透性，能够迅速感知水质和空气质量的变化，因此它们常常是环境变化的早期指示物。它们的出现反映了栖息地的健康状况，因此，在这个月里，我们不妨停下来，好好欣赏它们所扮演的重要角色。
+
+已知最古老的“原始蛙类”——马西诺特三叠蛙（Triadobatrachus massinoti）生活在大约2.5亿年前的三叠纪早期。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%97%a5%e6%9c%ac%e6%a0%91%e8%9b%99&form=hpcapt&filters=HpDate:"20260331_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260401_JapaneseTreeFrog"&FORM=HPQUIZ "必应主页测验 2026 4月 1")
+[下载480](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_800x480.jpg&rf=LaDigue_800x480.jpg "粉色牵牛花里的日本树蛙")
+[下载720](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_1280x720.jpg&rf=LaDigue_1280x720.jpg "粉色牵牛花里的日本树蛙")
+[下载1080](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "粉色牵牛花里的日本树蛙")
+[下载UHD](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_UHD.jpg&rf=LaDigue_UHD.jpg "粉色牵牛花里的日本树蛙")
+
+---
 ### 03月31日：地下天堂
 #### 天堂洞, 峰牙-格邦国家公园, 越南（© Pakawat Thongcharoen/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PortlandBlossoms_ZH-CN0814501668_1280x720.jpg&rf=LaDigue_1280x720.jpg "汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PortlandBlossoms_ZH-CN0814501668_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PortlandBlossoms_ZH-CN0814501668_UHD.jpg&rf=LaDigue_UHD.jpg "汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国")
-
----
-### 03月17日：爱尔兰的精神十字路口
-#### 艾利赫格里安南环形堡，多内加尔，爱尔兰（© Lukassek/Getty Images）
-
-![爱尔兰的精神十字路口](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_800x480.jpg&rf=LaDigue_800x480.jpg "爱尔兰的精神十字路口")
-
-圣帕特里克是爱尔兰的守护圣人，约生于公元4世纪末至5世纪初的罗马不列颠。据传说，他在16岁时被爱尔兰掠夺者绑架，带到爱尔兰成为奴隶。逃回家乡后，他成为传教士，将基督教传播到整个爱尔兰岛。后来的传统中，他以三叶草来解释三位一体而闻名。圣帕特里克的信仰遗产，使得圣帕特里克节成为全球性的庆典。
-
-艾利赫格里安南环形堡曾是阿尔斯特国王的居所，其铁器时代的石墙与结构展示了古凯尔特人的防御智慧和社会组织能力。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e5%b8%95%e7%89%b9%e9%87%8c%e5%85%8b%e8%8a%82&form=hpcapt&filters=HpDate:"20260316_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260317_DonegalFort"&FORM=HPQUIZ "必应主页测验 2026 3月 17")
-[下载480](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_800x480.jpg&rf=LaDigue_800x480.jpg "艾利赫格里安南环形堡，多内加尔，爱尔兰")
-[下载720](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_1280x720.jpg&rf=LaDigue_1280x720.jpg "艾利赫格里安南环形堡，多内加尔，爱尔兰")
-[下载1080](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "艾利赫格里安南环形堡，多内加尔，爱尔兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_UHD.jpg&rf=LaDigue_UHD.jpg "艾利赫格里安南环形堡，多内加尔，爱尔兰")
 
 ---
