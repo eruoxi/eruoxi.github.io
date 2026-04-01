@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月02日：春天的图案
+#### 野花绽放, 中央谷地, 加利福尼亚州, 美国（© Jeff Lewis/Tandem Stills + Motion）
+
+![春天的图案](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_800x480.jpg&rf=LaDigue_800x480.jpg "春天的图案")
+
+春意盎然的加州中央谷地在冬雨过后，野花竞相绽放，宣告着春天的到来。这片南北绵延约450英里、面积约2万平方英里的山谷，是世界上农业生产力最高的地区之一。然而，在早春时节，这里又会短暂地展现出一种古老的景象。从三月到四月，当气温和土壤湿度达到适宜水平时，金盏花、整齐叶草和猫头鹰三叶草等本地一年生植物便会迅速发芽。它们争分夺秒地完成生命周期，以迎接漫长旱季的到来。
+
+中央谷地以其农业生产力而闻名。它为加利福尼亚州提供了大部分食品，而加利福尼亚州又提供了美国一半以上的水果、蔬菜和坚果。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e5%88%a9%e7%a6%8f%e5%b0%bc%e4%ba%9a%e5%b7%9e%e4%b8%ad%e5%a4%ae%e8%b0%b7%e5%9c%b0&form=hpcapt&filters=HpDate:"20260401_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260402_WildflowerValley"&FORM=HPQUIZ "必应主页测验 2026 4月 2")
+[下载480](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_800x480.jpg&rf=LaDigue_800x480.jpg "野花绽放, 中央谷地, 加利福尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_1280x720.jpg&rf=LaDigue_1280x720.jpg "野花绽放, 中央谷地, 加利福尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "野花绽放, 中央谷地, 加利福尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_UHD.jpg&rf=LaDigue_UHD.jpg "野花绽放, 中央谷地, 加利福尼亚州, 美国")
+
+---
 ### 04月01日：跃入四月
 #### 粉色牵牛花里的日本树蛙（© Tetsuya Tanooka/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_1280x720.jpg&rf=LaDigue_1280x720.jpg "澳洲针鼹，阿德莱德山，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "澳洲针鼹，阿德莱德山，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_UHD.jpg&rf=LaDigue_UHD.jpg "澳洲针鼹，阿德莱德山，澳大利亚")
-
----
-### 03月18日：城市花开
-#### 汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国（© Eric Vogt/Tandem Stills + Motion）
-
-![城市花开](https://cn.bing.com/th?id=OHR.PortlandBlossoms_ZH-CN0814501668_800x480.jpg&rf=LaDigue_800x480.jpg "城市花开")
-
-汤姆·麦考尔滨水公园位于俄勒冈州波特兰威拉米特河畔，占地36英亩，是这座城市最受欢迎的绿地之一。每年春季——通常从3月中旬到4月初——公园会被粉色与白色的樱花覆盖，仿佛置身花海。沿着风景优美的步道漫步，这些充满生机的樱树为城市中心提供了一片宁静的休憩空间。公园内还有多处著名景点，如萨蒙街喷泉（Salmon Street Springs），一个拥有众多水柱的互动喷泉，以及波特兰周六市场（Portland Saturday Market），是当地居民和游客喜爱的热门去处。
-
-汤姆·麦考尔滨水公园曾是港口和工业区，但经过城市改造，如今成为市民休闲和文化活动的核心空间。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b1%a4%e5%a7%86%c2%b7%e9%ba%a6%e8%80%83%e5%b0%94%e6%bb%a8%e6%b0%b4%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260317_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260318_PortlandBlossoms"&FORM=HPQUIZ "必应主页测验 2026 3月 18")
-[下载480](https://cn.bing.com/th?id=OHR.PortlandBlossoms_ZH-CN0814501668_800x480.jpg&rf=LaDigue_800x480.jpg "汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.PortlandBlossoms_ZH-CN0814501668_1280x720.jpg&rf=LaDigue_1280x720.jpg "汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.PortlandBlossoms_ZH-CN0814501668_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PortlandBlossoms_ZH-CN0814501668_UHD.jpg&rf=LaDigue_UHD.jpg "汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国")
 
 ---
