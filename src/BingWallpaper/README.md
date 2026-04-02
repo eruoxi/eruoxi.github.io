@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月03日：一次挥动桥臂，连接两岸
+#### 阿姆布鲁大桥，阿姆斯特丹，荷兰（© Alexander Spatari/Getty Images）
+
+![一次挥动桥臂，连接两岸](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_800x480.jpg&rf=LaDigue_800x480.jpg "一次挥动桥臂，连接两岸")
+
+在阿姆斯特丹，有些桥梁只是用来跨越运河，而阿姆布鲁赫桥（Armbrug）则多了一份趣味——当人们经过时，它仿佛在向行人挥手致意。这座桥横跨在旧侧沃堡运河之上。它的名字意为“手臂桥”，但实际上并不是指桥的形状，而是源自附近的一条小巷——Oudezijds Armsteeg（旧侧臂巷）。虽然名字与“手臂”有关，但更像是一种有趣的联想，让人不禁想象它正向经过的骑行者和行人友好地打招呼。
+
+“Armbrug”这一名称源自该桥的运作机制。这座桥配有长长的升降臂，通过升降桥面来让船只得以穿过运河。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e5%a7%86%e5%b8%83%e9%b2%81%e5%a4%a7%e6%a1%a5&form=hpcapt&filters=HpDate:"20260402_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260403_ArmbrugBridge"&FORM=HPQUIZ "必应主页测验 2026 4月 3")
+[下载480](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_800x480.jpg&rf=LaDigue_800x480.jpg "阿姆布鲁大桥，阿姆斯特丹，荷兰")
+[下载720](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿姆布鲁大桥，阿姆斯特丹，荷兰")
+[下载1080](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿姆布鲁大桥，阿姆斯特丹，荷兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_UHD.jpg&rf=LaDigue_UHD.jpg "阿姆布鲁大桥，阿姆斯特丹，荷兰")
+
+---
 ### 04月02日：春天的图案
 #### 野花绽放, 中央谷地, 加利福尼亚州, 美国（© Jeff Lewis/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_1280x720.jpg&rf=LaDigue_1280x720.jpg "春日樱花，上海，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春日樱花，上海，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_UHD.jpg&rf=LaDigue_UHD.jpg "春日樱花，上海，中国")
-
----
-### 03月19日：激发你的好奇心
-#### 澳洲针鼹，阿德莱德山，澳大利亚（© Etienne Littlefair/naturepl.com）
-
-![激发你的好奇心](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_800x480.jpg&rf=LaDigue_800x480.jpg "激发你的好奇心")
-
-一种会下蛋的哺乳动物。没有牙齿。爬行动物般的步态。自带“盔甲”。如果说短喙针鼹听起来像一份矛盾清单，那是因为它确实如此——而且玩得很自如。它原产于澳大利亚、塔斯马尼亚及新几内亚部分地区，是现存为数不多的单孔类动物之一，也就是会下蛋的哺乳动物。尽管常常登上新闻头条，它仍然完全属于哺乳动物：有毛发、会分泌乳汁、体温恒定。特别之处在于，它的乳汁不是通过乳头，而是通过特殊皮肤区域分泌，小针鼹靠舔食来摄取乳汁。
-
-短喙针鼹用电感受器探测地下猎物，粘舌捕食，刺毛防御，是自然界独特的小“全能战士”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%be%b3%e6%b4%b2%e9%92%88%e9%bc%b9&form=hpcapt&filters=HpDate:"20260318_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260319_EchidnaAustralia"&FORM=HPQUIZ "必应主页测验 2026 3月 19")
-[下载480](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_800x480.jpg&rf=LaDigue_800x480.jpg "澳洲针鼹，阿德莱德山，澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_1280x720.jpg&rf=LaDigue_1280x720.jpg "澳洲针鼹，阿德莱德山，澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "澳洲针鼹，阿德莱德山，澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_UHD.jpg&rf=LaDigue_UHD.jpg "澳洲针鼹，阿德莱德山，澳大利亚")
 
 ---
