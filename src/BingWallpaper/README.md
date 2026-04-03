@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月04日：求偶展示场的故事
+#### 求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚（© Sven Zacek/Nature Picture Library）
+
+![求偶展示场的故事](https://cn.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_800x480.jpg&rf=LaDigue_800x480.jpg "求偶展示场的故事")
+
+在日出之前，荒原上的“生物时钟”已经开始运转，仿佛为一场特别的“舞会”拉开序幕。雄性黑琴鸡不会发出邀请函，它们用低沉而响亮的鸣声来宣告自己的到来。欢迎来到求偶展示季——在这里，爱情充满竞争，场面热闹而喧闹，而且一切都发生在广阔的野外。
+
+雄性黑琴鸡在眼睛上方长有一块鲜艳的红色肉垂（皮肤组织）。在求偶展示时，它们会让这块红色皮肤鼓起并变得更加显眼，以吸引雌性的注意。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%bb%91%e7%90%b4%e9%b8%a1&form=hpcapt&filters=HpDate:"20260403_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260404_GrouseGuff"&FORM=HPQUIZ "必应主页测验 2026 4月 4")
+[下载480](https://cn.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_800x480.jpg&rf=LaDigue_800x480.jpg "求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_1280x720.jpg&rf=LaDigue_1280x720.jpg "求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_UHD.jpg&rf=LaDigue_UHD.jpg "求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚")
+
+---
 ### 04月03日：一次挥动桥臂，连接两岸
 #### 阿姆布鲁大桥，阿姆斯特丹，荷兰（© Alexander Spatari/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LeteaForest_ZH-CN4153496399_1280x720.jpg&rf=LaDigue_1280x720.jpg "莱泰亚森林，多瑙河三角洲，罗马尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.LeteaForest_ZH-CN4153496399_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莱泰亚森林，多瑙河三角洲，罗马尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.LeteaForest_ZH-CN4153496399_UHD.jpg&rf=LaDigue_UHD.jpg "莱泰亚森林，多瑙河三角洲，罗马尼亚")
-
----
-### 03月20日：春日绯梦
-#### 春日樱花，上海，中国（© junyyeung/Getty Images）
-
-![春日绯梦](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_800x480.jpg&rf=LaDigue_800x480.jpg "春日绯梦")
-
-在中国，春天的到来常常与樱花的绽放紧密相连。从南方到北方，公园与河畔逐渐被轻柔的花瓣装点，宛如铺展开来的粉色云霞。樱花象征着新生、希望，以及春日短暂却动人的美丽。每到花开时节，人们纷纷走进赏花胜地，感受早春的温暖与生机。
-
-如今种植在中国各地的许多樱花树，属于一百多年前引入的观赏品种。不同品种的花期略有差异，因此在一些城市，从三月初到四月中旬，人们都能欣赏到延续数周的樱花盛放景象。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e7%9a%84%e6%a8%b1%e8%8a%b1&form=hpcapt&filters=HpDate:"20260319_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260320_SpringEquinoxY26"&FORM=HPQUIZ "必应主页测验 2026 3月 20")
-[下载480](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_800x480.jpg&rf=LaDigue_800x480.jpg "春日樱花，上海，中国")
-[下载720](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_1280x720.jpg&rf=LaDigue_1280x720.jpg "春日樱花，上海，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春日樱花，上海，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_UHD.jpg&rf=LaDigue_UHD.jpg "春日樱花，上海，中国")
 
 ---
