@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月05日：静静绽放的变化
+#### 春天的雪钟花（© klagyivik/Getty Images）
+
+![静静绽放的变化](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_800x480.jpg&rf=LaDigue_800x480.jpg "静静绽放的变化")
+
+雪滴花是最早开放的花之一，常常在冬天尚未完全离去时，就从寒冷的土壤中探出身来。它低垂的钟形花朵看起来柔弱，却为早春而生。其细胞中含有特殊的抗冻蛋白，能够帮助植物抵御霜冻，使它们能够适应冬末多变而寒冷的天气。
+
+痴迷于雪花莲的收藏者被称为“雪花莲爱好者”
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%9b%aa%e9%92%9f%e8%8a%b1&form=hpcapt&filters=HpDate:"20260404_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260405_SpringSnowdrops"&FORM=HPQUIZ "必应主页测验 2026 4月 5")
+[下载480](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_800x480.jpg&rf=LaDigue_800x480.jpg "春天的雪钟花")
+[下载720](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_1280x720.jpg&rf=LaDigue_1280x720.jpg "春天的雪钟花")
+[下载1080](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天的雪钟花")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_UHD.jpg&rf=LaDigue_UHD.jpg "春天的雪钟花")
+
+---
 ### 04月04日：求偶展示场的故事
 #### 求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚（© Sven Zacek/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_1280x720.jpg&rf=LaDigue_1280x720.jpg "坦噶尼喀湖，非洲")
 [下载1080](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "坦噶尼喀湖，非洲")
 [下载UHD](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_UHD.jpg&rf=LaDigue_UHD.jpg "坦噶尼喀湖，非洲")
-
----
-### 03月21日：根系自由生长的地方
-#### 莱泰亚森林，多瑙河三角洲，罗马尼亚（© Wild Wonders of Europe/Widstrand/Nature Picture Library）
-
-![根系自由生长的地方](https://cn.bing.com/th?id=OHR.LeteaForest_ZH-CN4153496399_800x480.jpg&rf=LaDigue_800x480.jpg "根系自由生长的地方")
-
-如果地球有一支“维护团队”，森林一定会冲在最前线。它们吸收碳排放，减少水土流失，保护生物多样性，影响降雨，并帮助维持清洁的水源。目前，森林仍覆盖着全球约31%的陆地面积，但其持续减少表明，这些自然系统正变得愈发脆弱。大片森林仍在被开垦，用于农业生产、基础设施建设和资源开发，使生态系统以令人担忧的速度不断削弱。
-
-联合国粮食及农业组织估计，每年约有2470万英亩（约1000万公顷）的森林被砍伐。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%a3%ae%e6%9e%97%e6%97%a5&form=hpcapt&filters=HpDate:"20260320_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260321_LeteaForest"&FORM=HPQUIZ "必应主页测验 2026 3月 21")
-[下载480](https://cn.bing.com/th?id=OHR.LeteaForest_ZH-CN4153496399_800x480.jpg&rf=LaDigue_800x480.jpg "莱泰亚森林，多瑙河三角洲，罗马尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.LeteaForest_ZH-CN4153496399_1280x720.jpg&rf=LaDigue_1280x720.jpg "莱泰亚森林，多瑙河三角洲，罗马尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.LeteaForest_ZH-CN4153496399_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莱泰亚森林，多瑙河三角洲，罗马尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.LeteaForest_ZH-CN4153496399_UHD.jpg&rf=LaDigue_UHD.jpg "莱泰亚森林，多瑙河三角洲，罗马尼亚")
 
 ---
