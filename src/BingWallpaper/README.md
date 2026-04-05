@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月06日：芬芳四月
+#### 樱花盛开的弘前城，弘前，日本（© Glenn Waters/Getty Images）
+
+![芬芳四月](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_800x480.jpg&rf=LaDigue_800x480.jpg "芬芳四月")
+
+想象一下17世纪初的日本北部：城堡矗立在政治、贸易与行政的交汇点上，是权力与治理的重要中心。随着时间推移，这些城堡不仅见证了紧张与冲突的历史，也记录了坚守、变迁以及人们的日常生活。每年4月6日庆祝的日本城堡日正是为了让人们关注这段多层次的历史。这一天的日期来自一个有趣的日语谐音：“shi”（4）和“ro”（6）**组合成 “Shiro-no-Hi”，因为 “shiro” 在日语中意为“城堡”。
+
+樱花在日本被称为“sakura”，每年春天只盛开短短一段时间。正因花期短暂，樱花在日本文化中象征着生命的短暂与珍贵。人们常在花开时举行“花见（hanami）”，与家人朋友一起赏花庆祝春天的到来。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%97%a5%e6%9c%ac%e7%9a%84%e6%a8%b1%e8%8a%b1&form=hpcapt&filters=HpDate:"20260405_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260406_CastleBlossoms"&FORM=HPQUIZ "必应主页测验 2026 4月 6")
+[下载480](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_800x480.jpg&rf=LaDigue_800x480.jpg "樱花盛开的弘前城，弘前，日本")
+[下载720](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_1280x720.jpg&rf=LaDigue_1280x720.jpg "樱花盛开的弘前城，弘前，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "樱花盛开的弘前城，弘前，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_UHD.jpg&rf=LaDigue_UHD.jpg "樱花盛开的弘前城，弘前，日本")
+
+---
 ### 04月05日：静静绽放的变化
 #### 春天的雪钟花（© klagyivik/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_1280x720.jpg&rf=LaDigue_1280x720.jpg "坦噶尼喀湖，非洲")
 [下载1080](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "坦噶尼喀湖，非洲")
 [下载UHD](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_UHD.jpg&rf=LaDigue_UHD.jpg "坦噶尼喀湖，非洲")
-
----
-### 03月22日：当水划出界线
-#### 坦噶尼喀湖，非洲（© BEST-BACKGROUNDS/NASA/Shutterstock）
-
-![当水划出界线](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_800x480.jpg&rf=LaDigue_800x480.jpg "当水划出界线")
-
-今天是世界水日。该纪念日由联合国于1992年设立，并于次年首次举行。人类已不能再随波逐流——我们必须守护那些维系生命的水流。在非洲东部大裂谷的坦噶尼喀湖，几乎最能体现这种紧迫感。从太空俯瞰，它宛如一条长约420英里（约676公里）的蓝色丝带，连接着坦桑尼亚、布隆迪、刚果民主共和国和赞比亚。在湖岸边，它则是一处拥有约1000万年历史的裂谷盆地，由地壳缓慢张裂形成。
-
-坦噶尼喀湖是世界上最长的淡水湖，也是世界第二深湖，仅次于俄罗斯的贝加尔湖。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b0%b4%e6%97%a5&form=hpcapt&filters=HpDate:"20260321_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260322_TanganyikaWater"&FORM=HPQUIZ "必应主页测验 2026 3月 22")
-[下载480](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_800x480.jpg&rf=LaDigue_800x480.jpg "坦噶尼喀湖，非洲")
-[下载720](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_1280x720.jpg&rf=LaDigue_1280x720.jpg "坦噶尼喀湖，非洲")
-[下载1080](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "坦噶尼喀湖，非洲")
-[下载UHD](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_UHD.jpg&rf=LaDigue_UHD.jpg "坦噶尼喀湖，非洲")
 
 ---
