@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月07日：一根树枝，一点工程
+#### 河狸，德国（© Andyworks/Getty Images）
+
+![一根树枝，一点工程](https://cn.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_800x480.jpg&rf=LaDigue_800x480.jpg "一根树枝，一点工程")
+
+每年4月7日的国际河狸日，旨在致敬这位默默工作的“小工程师”。河狸凭借一根根树枝，悄然改变着自然环境。河狸长着标志性的门牙和桨状尾巴，以勤劳著称。数百万年来，它们一直在重塑淡水生态环境。河狸拥有呈橙色、富含铁质的坚硬门牙，可以轻松啃倒树木，并利用树枝和泥土建造水坝。这些水坝能够减缓水流、改善水质，并形成湿地，从而为多种动植物提供栖息地。它们还会用树枝和泥土搭建坚固的巢穴，入口通常位于水下，不仅能躲避捕食者，也为整个家族提供安全的居所。
+
+画面中的“建筑师”是河狸。河狸是著名的“自然工程师”，会用树枝、泥土和石块在河流或溪流中建造水坝和巢穴。这些结构不仅为它们提供栖息地，也会改变水流环境，为鱼类、两栖动物和湿地植物创造新的生态空间。
+
+[Bing搜索](https://cn.bing.com/search?q=beaver+rodent&form=hpcapt&filters=HpDate:"20260406_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260407_BeaverPortrait"&FORM=HPQUIZ "必应主页测验 2026 4月 7")
+[下载480](https://cn.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_800x480.jpg&rf=LaDigue_800x480.jpg "河狸，德国")
+[下载720](https://cn.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_1280x720.jpg&rf=LaDigue_1280x720.jpg "河狸，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "河狸，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_UHD.jpg&rf=LaDigue_UHD.jpg "河狸，德国")
+
+---
 ### 04月06日：芬芳四月
 #### 樱花盛开的弘前城，弘前，日本（© Glenn Waters/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_1280x720.jpg&rf=LaDigue_1280x720.jpg "东湖樱花园的樱花，武汉，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "东湖樱花园的樱花，武汉，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_UHD.jpg&rf=LaDigue_UHD.jpg "东湖樱花园的樱花，武汉，中国")
-
----
-### 03月23日：当水划出界线
-#### 坦噶尼喀湖，非洲（© BEST-BACKGROUNDS/NASA/Shutterstock）
-
-![当水划出界线](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_800x480.jpg&rf=LaDigue_800x480.jpg "当水划出界线")
-
-今天是世界水日。该纪念日由联合国于1992年设立，并于次年首次举行。人类已不能再随波逐流——我们必须守护那些维系生命的水流。在非洲东部大裂谷的坦噶尼喀湖，几乎最能体现这种紧迫感。从太空俯瞰，它宛如一条长约420英里（约676公里）的蓝色丝带，连接着坦桑尼亚、布隆迪、刚果民主共和国和赞比亚。在湖岸边，它则是一处拥有约1000万年历史的裂谷盆地，由地壳缓慢张裂形成。
-
-坦噶尼喀湖是世界上最长的淡水湖，也是世界第二深湖，仅次于俄罗斯的贝加尔湖。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b0%b4%e6%97%a5&form=hpcapt&filters=HpDate:"20260322_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260323_SonoranStorm"&FORM=HPQUIZ "必应主页测验 2026 3月 23")
-[下载480](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_800x480.jpg&rf=LaDigue_800x480.jpg "坦噶尼喀湖，非洲")
-[下载720](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_1280x720.jpg&rf=LaDigue_1280x720.jpg "坦噶尼喀湖，非洲")
-[下载1080](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "坦噶尼喀湖，非洲")
-[下载UHD](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_UHD.jpg&rf=LaDigue_UHD.jpg "坦噶尼喀湖，非洲")
 
 ---
