@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月08日：翡翠之城
+#### 西雅图，华盛顿州，美国（© Jim Patterson/Tandem Stills + Motion）
+
+![翡翠之城](https://cn.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_800x480.jpg&rf=LaDigue_800x480.jpg "翡翠之城")
+
+每年4月7日的国际河狸日，旨在致敬这位默默工作的“小工程师”。河狸凭借一根根树枝，悄然改变着自然环境。河狸长着标志性的门牙和桨状尾巴，以勤劳著称。数百万年来，它们一直在重塑淡水生态环境。河狸拥有呈橙色、富含铁质的坚硬门牙，可以轻松啃倒树木，并利用树枝和泥土建造水坝。这些水坝能够减缓水流、改善水质，并形成湿地，从而为多种动植物提供栖息地。它们还会用树枝和泥土搭建坚固的巢穴，入口通常位于水下，不仅能躲避捕食者，也为整个家族提供安全的居所。
+
+画面中的“建筑师”是河狸。河狸是著名的“自然工程师”，会用树枝、泥土和石块在河流或溪流中建造水坝和巢穴。这些结构不仅为它们提供栖息地，也会改变水流环境，为鱼类、两栖动物和湿地植物创造新的生态空间。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e9%9b%85%e5%9b%be&form=hpcapt&filters=HpDate:"20260407_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260408_SeattleSunrise"&FORM=HPQUIZ "必应主页测验 2026 4月 8")
+[下载480](https://cn.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_800x480.jpg&rf=LaDigue_800x480.jpg "西雅图，华盛顿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_1280x720.jpg&rf=LaDigue_1280x720.jpg "西雅图，华盛顿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西雅图，华盛顿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_UHD.jpg&rf=LaDigue_UHD.jpg "西雅图，华盛顿州，美国")
+
+---
 ### 04月07日：一根树枝，一点工程
 #### 河狸，德国（© Andyworks/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_1280x720.jpg&rf=LaDigue_1280x720.jpg "淡水泉中的幼年海牛，水晶河，佛罗里达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "淡水泉中的幼年海牛，水晶河，佛罗里达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_UHD.jpg&rf=LaDigue_UHD.jpg "淡水泉中的幼年海牛，水晶河，佛罗里达州，美国")
-
----
-### 03月24日：春天的形状
-#### 东湖樱花园的樱花，武汉，中国（© Zhang Qiao/VCG/Getty Images）
-
-![春天的形状](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_800x480.jpg&rf=LaDigue_800x480.jpg "春天的形状")
-
-从空中俯瞰，中国武汉的东湖樱花园宛如一朵淡紫色的云，轻柔地停驻在大地之上。成千上万株樱花同时盛放，浅色花瓣在公园中心一座金色五层宝塔周围织就出一片生机盎然的花海穹顶。宝塔以沉静而对称的姿态挺立，层层飞檐在柔和的春日色彩映衬下熠熠生辉。
-
-武汉樱花花期很短，单株3—5天盛放，最佳观赏期常不足一周。气温每升高1℃，花期都会提前。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e6%ad%a6%e6%b1%89%e4%b8%9c%e6%b9%96%e6%a8%b1%e8%8a%b1%e5%9b%ad&form=hpcapt&filters=HpDate:"20260323_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260324_WuhanCherryBlossom"&FORM=HPQUIZ "必应主页测验 2026 3月 24")
-[下载480](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_800x480.jpg&rf=LaDigue_800x480.jpg "东湖樱花园的樱花，武汉，中国")
-[下载720](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_1280x720.jpg&rf=LaDigue_1280x720.jpg "东湖樱花园的樱花，武汉，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "东湖樱花园的樱花，武汉，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_UHD.jpg&rf=LaDigue_UHD.jpg "东湖樱花园的樱花，武汉，中国")
 
 ---
