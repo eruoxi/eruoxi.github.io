@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月09日：光之水帘
+#### 雪落瀑布，布雷肯比肯斯国家公园，威尔士（© Guy Edwardes/Nature Picture Library）
+
+![光之水帘](https://cn.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_800x480.jpg&rf=LaDigue_800x480.jpg "光之水帘")
+
+清澈的水流沿着岩壁整齐地倾泻而下，形成了这座瀑布，这是威尔士南部最具特色的瀑布之一。它的威尔士语名称意为“雪落瀑布”，形容水流像一层淡白色的水帘从岩壁上滑落。这座瀑布的独特之处在于可以从瀑布后方穿行。一条狭窄的小径将游客引到水帘背后，让人近距离感受水声、光线与水雾交织的自然景象。
+
+布雷肯比肯斯国家公园中的雪落瀑布位于一片以瀑布步道闻名的自然区域。瀑布周围的峡谷生长着苔藓、蕨类和古老森林，常年水汽弥漫，形成清凉湿润的生态环境，是徒步和自然摄影的理想地点。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e9%9b%b7%e8%82%af%e6%af%94%e8%82%af%e6%96%af%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260408_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260409_WalesWaterfall"&FORM=HPQUIZ "必应主页测验 2026 4月 9")
+[下载480](https://cn.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_800x480.jpg&rf=LaDigue_800x480.jpg "雪落瀑布，布雷肯比肯斯国家公园，威尔士")
+[下载720](https://cn.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪落瀑布，布雷肯比肯斯国家公园，威尔士")
+[下载1080](https://cn.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪落瀑布，布雷肯比肯斯国家公园，威尔士")
+[下载UHD](https://cn.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_UHD.jpg&rf=LaDigue_UHD.jpg "雪落瀑布，布雷肯比肯斯国家公园，威尔士")
+
+---
 ### 04月08日：翡翠之城
 #### 西雅图，华盛顿州，美国（© Jim Patterson/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_1280x720.jpg&rf=LaDigue_1280x720.jpg "洛根溪吊桥，西海岸步道，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "洛根溪吊桥，西海岸步道，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_UHD.jpg&rf=LaDigue_UHD.jpg "洛根溪吊桥，西海岸步道，加拿大")
-
----
-### 03月25日：海牛的秘密生活
-#### 淡水泉中的幼年海牛，水晶河，佛罗里达州，美国（© Gregory Sweeney/Getty Images）
-
-![海牛的秘密生活](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_800x480.jpg&rf=LaDigue_800x480.jpg "海牛的秘密生活")
-
-海牛看起来行动缓慢、昏昏欲睡，但在水下却有不少令人惊讶的“本领”。首先，它们是少数会持续更换牙齿的哺乳动物之一。首先，它们是少数会持续更换牙齿的哺乳动物之一。当臼齿因咀嚼含沙的海草而磨损时，新牙会像传送带一样缓缓向前移动、替换旧牙——这对每天进食可达8小时的它们来说尤为重要。
-
-海牛的新陈代谢非常缓慢，静息时心率通常只有每分钟约25次，比许多同体型哺乳动物都低。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b5%b7%e7%89%9b%e6%97%a5&form=hpcapt&filters=HpDate:"20260324_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260325_ManateeSpring"&FORM=HPQUIZ "必应主页测验 2026 3月 25")
-[下载480](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_800x480.jpg&rf=LaDigue_800x480.jpg "淡水泉中的幼年海牛，水晶河，佛罗里达州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_1280x720.jpg&rf=LaDigue_1280x720.jpg "淡水泉中的幼年海牛，水晶河，佛罗里达州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "淡水泉中的幼年海牛，水晶河，佛罗里达州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_UHD.jpg&rf=LaDigue_UHD.jpg "淡水泉中的幼年海牛，水晶河，佛罗里达州，美国")
 
 ---
