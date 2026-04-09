@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月10日：算计的小爪子
+#### 卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚（© Sven Zacek/Nature Picture Library）
+
+![算计的小爪子](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_800x480.jpg&rf=LaDigue_800x480.jpg "算计的小爪子")
+
+你有没有抓到过兄弟姐妹们密谋的场景？在爱沙尼亚的卡鲁拉国家公园，这两只红狐狸幼崽看起来像是在阴谋进行到一半时突然停住了，它们的表情中既有好奇也有谨慎。它们不仅仅是春天的毛茸茸小动物；它们是生存的学徒。红狐狸每胎平均生四到六只幼崽，它们成长迅速，地下洞穴成为它们的摔跤场、教室和试验场。年长的幼崽常常帮助喂养、看护并教导年幼的同伴，把游戏变成练习，把恶作剧变成肌肉记忆。在它们的家庭中，兄弟姐妹不仅是背景，更是后盾。
+
+卡鲁拉国家公园是该国最小的国家公园，但仍然是最迷人的之一。公园位于瓦尔加县和沃鲁县，其起伏的丘陵、原始的湖泊和宁静的森林使其成为自然爱好者和寻求宁静者的圣地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b9%bc%e5%b9%b4%e8%b5%a4%e7%8b%90&form=hpcapt&filters=HpDate:"20260409_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260410_FoxSiblings"&FORM=HPQUIZ "必应主页测验 2026 4月 10")
+[下载480](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_800x480.jpg&rf=LaDigue_800x480.jpg "卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_UHD.jpg&rf=LaDigue_UHD.jpg "卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚")
+
+---
 ### 04月09日：光之水帘
 #### 雪落瀑布，布雷肯比肯斯国家公园，威尔士（© Guy Edwardes/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_1280x720.jpg&rf=LaDigue_1280x720.jpg "纽约市的无线电城音乐厅, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纽约市的无线电城音乐厅, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_UHD.jpg&rf=LaDigue_UHD.jpg "纽约市的无线电城音乐厅, 美国")
-
----
-### 03月26日：凌驾荒野之上
-#### 洛根溪吊桥，西海岸步道，加拿大（© Tandem Stock/Adobe Stock）
-
-![凌驾荒野之上](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_800x480.jpg&rf=LaDigue_800x480.jpg "凌驾荒野之上")
-
-沿着加拿大温哥华岛西南部偏远海岸延伸的西海岸步道，是该国最具传奇色彩的徒步路线之一。这条步道位于 太平洋沿岸国家公园保护区，全长约47英里，穿越雨林、沙滩和岩石海岸线。该步道始建于1907年，最初是一条为海难幸存者设立的救生通道，沿线海域曾被水手称为“太平洋墓地”。
-
-由于泥泞路段、木梯、河流以及多变而严酷的海岸天气，西海岸步道 通常需要6至8天才能完成。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e6%8b%bf%e5%a4%a7%e8%a5%bf%e6%b5%b7%e5%b2%b8%e6%ad%a5%e9%81%93&form=hpcapt&filters=HpDate:"20260325_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260326_LoganCreek"&FORM=HPQUIZ "必应主页测验 2026 3月 26")
-[下载480](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_800x480.jpg&rf=LaDigue_800x480.jpg "洛根溪吊桥，西海岸步道，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_1280x720.jpg&rf=LaDigue_1280x720.jpg "洛根溪吊桥，西海岸步道，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "洛根溪吊桥，西海岸步道，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_UHD.jpg&rf=LaDigue_UHD.jpg "洛根溪吊桥，西海岸步道，加拿大")
 
 ---
