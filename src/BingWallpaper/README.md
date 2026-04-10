@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月11日：火山外衣
+#### 帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙（© Gavin Hellier/Getty Images）
+
+![火山外衣](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_800x480.jpg&rf=LaDigue_800x480.jpg "火山外衣")
+
+由火焰孕育而成的海滩很少能如此低调，而帕帕加约海滩正好做到了这一点。我们今天看到的海岸线位于西班牙加那利群岛兰萨罗特岛的南端。热带幻想？更像是火山般的精准。数百万年前，这片土地在海底火山喷发的推动下，逐层由玄武岩和火山灰堆积升起。
+
+这片海滩是一个新月形的海湾，四周环绕着岩石悬崖和茂密的植被。沙子柔软而金黄，水清澈平静，非常适合游泳、浮潜和日光浴。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e5%8a%a0%e9%82%a3%e5%88%a9%e7%be%a4%e5%b2%9b%e5%85%b0%e8%90%a8%e7%bd%97%e7%89%b9%e5%b2%9b&form=hpcapt&filters=HpDate:"20260410_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260411_PlayaPapagayo"&FORM=HPQUIZ "必应主页测验 2026 4月 11")
+[下载480](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_800x480.jpg&rf=LaDigue_800x480.jpg "帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg&rf=LaDigue_UHD.jpg "帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙")
+
+---
 ### 04月10日：算计的小爪子
 #### 卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚（© Sven Zacek/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_1280x720.jpg&rf=LaDigue_1280x720.jpg "非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_UHD.jpg&rf=LaDigue_UHD.jpg "非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚")
-
----
-### 03月27日：依然明亮地燃烧着
-#### 纽约市的无线电城音乐厅, 美国（© Clarence Holmes Photography/Alamy）
-
-![依然明亮地燃烧着](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_800x480.jpg&rf=LaDigue_800x480.jpg "依然明亮地燃烧着")
-
-乍一看，无线电城音乐厅的内部装潢无疑会吸引你的目光，让你兴奋不已。仿佛置身于纽约市中心的阳光下——这是装饰艺术风格狂热的化身，展现了20世纪30年代人们对未来的憧憬。每年的3月27日是世界戏剧日，人们都会庆祝这种令人叹为观止的震撼体验。
-
-世界戏剧日由国际戏剧协会（ITI）创立，并于1962年3月27日首次庆祝，当天也是巴黎“民族剧院”演出季的开幕日。此后，每年的这一天，世界戏剧日都会在全球范围内庆祝。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%88%8f%e5%89%a7%e6%97%a5&form=hpcapt&filters=HpDate:"20260326_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260327_RadioCityHall"&FORM=HPQUIZ "必应主页测验 2026 3月 27")
-[下载480](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_800x480.jpg&rf=LaDigue_800x480.jpg "纽约市的无线电城音乐厅, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_1280x720.jpg&rf=LaDigue_1280x720.jpg "纽约市的无线电城音乐厅, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纽约市的无线电城音乐厅, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_UHD.jpg&rf=LaDigue_UHD.jpg "纽约市的无线电城音乐厅, 美国")
 
 ---
