@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月12日：离开地球的第一步
+#### 城市灯光在下方划过, 拍摄于国际空间站（© NASA）
+
+![离开地球的第一步](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_800x480.jpg&rf=LaDigue_800x480.jpg "离开地球的第一步")
+
+今天，世界纪念国际载人航天日，这是联合国设立的纪念日，旨在纪念人类首次进入太空的旅程以及人类太空时代的开始。这个日期回忆起1961年4月12日，尤里·加加林绕地球飞行，证明人类可以离开地球并安全返回。
+
+联合国在2011年设立了国际人类航天日，距首次有人类航天飞行已有50年。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e4%ba%ba%e7%b1%bb%e8%88%aa%e5%a4%a9%e6%97%a5&form=hpcapt&filters=HpDate:"20260411_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260412_SpaceTrails"&FORM=HPQUIZ "必应主页测验 2026 4月 12")
+[下载480](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_800x480.jpg&rf=LaDigue_800x480.jpg "城市灯光在下方划过, 拍摄于国际空间站")
+[下载720](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_1280x720.jpg&rf=LaDigue_1280x720.jpg "城市灯光在下方划过, 拍摄于国际空间站")
+[下载1080](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "城市灯光在下方划过, 拍摄于国际空间站")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_UHD.jpg&rf=LaDigue_UHD.jpg "城市灯光在下方划过, 拍摄于国际空间站")
+
+---
 ### 04月11日：火山外衣
 #### 帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙（© Gavin Hellier/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_1280x720.jpg&rf=LaDigue_1280x720.jpg "佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_UHD.jpg&rf=LaDigue_UHD.jpg "佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大")
-
----
-### 03月28日：未驯服的精神
-#### 非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚（© jesuss8/500px/Getty Images）
-
-![未驯服的精神](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_800x480.jpg&rf=LaDigue_800x480.jpg "未驯服的精神")
-
-非洲水牛体型庞大，威风凛凛，漫步于坦桑尼亚的稀树草原和湿地，尤其是在恩戈罗恩戈罗保护区（NCA）内。它们以硕大弯曲的牛角和庞大的体型而闻名，是“非洲五霸”（水牛、大象、豹子、犀牛、狮子）之一，并因其力量和适应力而备受尊崇。恩戈罗恩戈罗保护区是联合国教科文组织世界遗产，为观察这些令人敬畏的食草动物提供了壮丽而丰富的生态环境。
-
-非洲水牛的视力和听力都比较差，但嗅觉却很灵敏。它们似乎也比较难调节体温——这也是它们主要在夜间觅食的原因。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%9d%9e%e6%b4%b2%e6%b0%b4%e7%89%9b&form=hpcapt&filters=HpDate:"20260327_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260328_CapeBuffalo"&FORM=HPQUIZ "必应主页测验 2026 3月 28")
-[下载480](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_800x480.jpg&rf=LaDigue_800x480.jpg "非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_1280x720.jpg&rf=LaDigue_1280x720.jpg "非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_UHD.jpg&rf=LaDigue_UHD.jpg "非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚")
 
 ---
