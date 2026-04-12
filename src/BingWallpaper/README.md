@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月13日：当灯光熄灭之后
+#### 安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国（© Kevin Key/Slworking)/Getty Images）
+
+![当灯光熄灭之后](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_800x480.jpg&rf=LaDigue_800x480.jpg "当灯光熄灭之后")
+
+当夜幕降临，宇宙便开始上演一场壮丽的“光影秀”。每年四月举行的国际暗夜周，邀请人们重新发现夜晚的魅力，并了解为什么黑暗同样值得被保护。这项活动始于2003年，旨在提醒公众关注过度的人造光照对野生动物、人类健康、能源消耗以及我们观测星空能力所带来的影响。减少不必要的灯光并不意味着降低安全性——通过科学、合理的照明设计，完全可以在保证安全的同时减少光污染。
+
+暗夜不仅让人们看到更多星星，也有助于天文学家观测微弱天体。减少光污染还能保护自然夜间环境的正常节律，让人类与自然都能共享真实而纯净的星空。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%93%b6%e6%b2%b3&form=hpcapt&filters=HpDate:"20260412_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260413_BorregoStars"&FORM=HPQUIZ "必应主页测验 2026 4月 13")
+[下载480](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_800x480.jpg&rf=LaDigue_800x480.jpg "安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_1280x720.jpg&rf=LaDigue_1280x720.jpg "安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_UHD.jpg&rf=LaDigue_UHD.jpg "安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国")
+
+---
 ### 04月12日：离开地球的第一步
 #### 城市灯光在下方划过, 拍摄于国际空间站（© NASA）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_1280x720.jpg&rf=LaDigue_1280x720.jpg "蓑羽鹤, 印度")
 [下载1080](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓑羽鹤, 印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_UHD.jpg&rf=LaDigue_UHD.jpg "蓑羽鹤, 印度")
-
----
-### 03月29日：海边的宁静
-#### 佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大（© Prashanth Bala/Shutterstock）
-
-![海边的宁静](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_800x480.jpg&rf=LaDigue_800x480.jpg "海边的宁静")
-
-佩吉湾是新斯科舍省崎岖海岸线上一个迷人而小巧的村庄，展现了海滨生活的一角。村里最著名的地标是佩吉角灯塔（也称佩吉湾灯塔），它最初建于1868年，后于1915年被现在的灯塔所取代。一个多世纪以来，它指引着船只穿梭于变幻莫测的大西洋，成为海岸生活永恒的象征。周围的景色，海风吹拂，波涛汹涌，仿佛时间在这里停滞。
-
-佩吉湾村周围是佩吉湾保护区，这是一片占地 1000 英亩的受保护土地，拥有敏感的生态系统。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bd%a9%e5%90%89%e8%a7%92%e7%81%af%e5%a1%94&form=hpcapt&filters=HpDate:"20260328_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260329_PeggysLighthouse"&FORM=HPQUIZ "必应主页测验 2026 3月 29")
-[下载480](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_800x480.jpg&rf=LaDigue_800x480.jpg "佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_1280x720.jpg&rf=LaDigue_1280x720.jpg "佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_UHD.jpg&rf=LaDigue_UHD.jpg "佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大")
 
 ---
