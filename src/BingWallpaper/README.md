@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月14日：珊瑚礁邻居
+#### 海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚（© Magnus Lundgren/Nature Picture Library）
+
+![珊瑚礁邻居](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_800x480.jpg&rf=LaDigue_800x480.jpg "珊瑚礁邻居")
+
+海葵看起来像水下花朵，但实际上是动物——与水母和珊瑚是近亲。它们附着在岩石或珊瑚礁上，利用黏性基部和顶端挥动的触手（触手上长有细小的刺细胞）来捕获过往的猎物。这些刺细胞能麻痹小型鱼类，但有一种著名的“邻居”却对此免疫。
+
+海葵是珊瑚和水母的近亲，是一种带刺的水螅体动物。它们大部分时间都附着在海底的岩石上或珊瑚礁上，等待鱼儿游近，然后用充满毒液的触手将其缠住。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e8%91%b5&form=hpcapt&filters=HpDate:"20260413_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260414_OcellarisClownfish"&FORM=HPQUIZ "必应主页测验 2026 4月 14")
+[下载480](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_800x480.jpg&rf=LaDigue_800x480.jpg "海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_1280x720.jpg&rf=LaDigue_1280x720.jpg "海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_UHD.jpg&rf=LaDigue_UHD.jpg "海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚")
+
+---
 ### 04月13日：当灯光熄灭之后
 #### 安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国（© Kevin Key/Slworking)/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ParadiseCave_ZH-CN6371627729_1280x720.jpg&rf=LaDigue_1280x720.jpg "天堂洞, 峰牙-格邦国家公园, 越南")
 [下载1080](https://cn.bing.com/th?id=OHR.ParadiseCave_ZH-CN6371627729_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "天堂洞, 峰牙-格邦国家公园, 越南")
 [下载UHD](https://cn.bing.com/th?id=OHR.ParadiseCave_ZH-CN6371627729_UHD.jpg&rf=LaDigue_UHD.jpg "天堂洞, 峰牙-格邦国家公园, 越南")
-
----
-### 03月30日：优雅的动态
-#### 蓑羽鹤, 印度（© Axel Gomille/Nature Picture Library）
-
-![优雅的动态](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_800x480.jpg&rf=LaDigue_800x480.jpg "优雅的动态")
-
-蓑羽鹤是一种体型虽小却引人注目的候鸟，分布于中亚各地，繁殖地位于哈萨克斯坦、蒙古和中国北部的草原，越冬地则在印度、尼泊尔和非洲部分地区。它拥有优雅的外形——纤细的脖颈、修长的双腿和美丽的羽毛——常被认为是鹤类中最优雅的物种之一。蓑羽鹤以其精妙的求偶舞而闻名，求偶时，雌雄蓑羽鹤会同步地舞动和鸣叫，呈现出一场美妙绝伦的视觉盛宴。
-
-在世界自然保护联盟濒危物种红色名录中，蓑羽鹤被评估为无危物种。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%93%91%e7%be%bd%e9%b9%a4&form=hpcapt&filters=HpDate:"20260329_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260330_IndiaCranes"&FORM=HPQUIZ "必应主页测验 2026 3月 30")
-[下载480](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_800x480.jpg&rf=LaDigue_800x480.jpg "蓑羽鹤, 印度")
-[下载720](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_1280x720.jpg&rf=LaDigue_1280x720.jpg "蓑羽鹤, 印度")
-[下载1080](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓑羽鹤, 印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_UHD.jpg&rf=LaDigue_UHD.jpg "蓑羽鹤, 印度")
 
 ---
