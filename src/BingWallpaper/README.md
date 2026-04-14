@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月15日：走进这幅鲜活的画布
+#### 光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国（© Patrick Aventurier/Getty Images）
+
+![走进这幅鲜活的画布](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_800x480.jpg&rf=LaDigue_800x480.jpg "走进这幅鲜活的画布")
+
+艺术无处不在。创造力和自我表达是人类身份认同的重要组成部分，塑造着我们的过去和未来。有些人毕生致力于艺术，而另一些人则是艺术家作品的受益者。4月15日的世界艺术日旨在庆祝艺术创作与社会之间这种永恒的联系，正是这种联系塑造了我们的文化。
+
+世界艺术日定于4月15日，是为了纪念列奥纳多·达·芬奇的诞辰，表彰他对艺术和人类创造力的深远影响。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e8%89%ba%e6%9c%af%e6%97%a5&form=hpcapt&filters=HpDate:"20260414_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260415_VanGoghFields"&FORM=HPQUIZ "必应主页测验 2026 4月 15")
+[下载480](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_800x480.jpg&rf=LaDigue_800x480.jpg "光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国")
+[下载720](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_1280x720.jpg&rf=LaDigue_1280x720.jpg "光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国")
+[下载1080](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_UHD.jpg&rf=LaDigue_UHD.jpg "光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国")
+
+---
 ### 04月14日：珊瑚礁邻居
 #### 海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚（© Magnus Lundgren/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_1280x720.jpg&rf=LaDigue_1280x720.jpg "粉色牵牛花里的日本树蛙")
 [下载1080](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "粉色牵牛花里的日本树蛙")
 [下载UHD](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_UHD.jpg&rf=LaDigue_UHD.jpg "粉色牵牛花里的日本树蛙")
-
----
-### 03月31日：地下天堂
-#### 天堂洞, 峰牙-格邦国家公园, 越南（© Pakawat Thongcharoen/Getty Images）
-
-![地下天堂](https://cn.bing.com/th?id=OHR.ParadiseCave_ZH-CN6371627729_800x480.jpg&rf=LaDigue_800x480.jpg "地下天堂")
-
-天堂洞给人的第一印象极其震撼，游客一踏入其中便会为之惊叹。这座巨大的石灰岩洞穴位于越南中部峰牙-己榜国家公园深处，该地区以崎岖的山脉和无数隐秘的洞穴而闻名。天堂洞绵延超过19英里，是亚洲最长的旱洞之一，其规模之宏大令人叹为观止。高耸的洞顶俯瞰着步道，富含矿物质的水流经数百万年形成层层叠叠的图案遍布洞壁。
-
-天堂洞是亚洲最长的旱洞，全长31.4公里。然而，只有天堂洞的前1公里对公众开放，而7公里的探险之旅则允许游客进行更深入的探索。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%b6%8a%e5%8d%97%e5%a4%a9%e5%a0%82%e6%b4%9e&form=hpcapt&filters=HpDate:"20260330_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 3月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260331_ParadiseCave"&FORM=HPQUIZ "必应主页测验 2026 3月 31")
-[下载480](https://cn.bing.com/th?id=OHR.ParadiseCave_ZH-CN6371627729_800x480.jpg&rf=LaDigue_800x480.jpg "天堂洞, 峰牙-格邦国家公园, 越南")
-[下载720](https://cn.bing.com/th?id=OHR.ParadiseCave_ZH-CN6371627729_1280x720.jpg&rf=LaDigue_1280x720.jpg "天堂洞, 峰牙-格邦国家公园, 越南")
-[下载1080](https://cn.bing.com/th?id=OHR.ParadiseCave_ZH-CN6371627729_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "天堂洞, 峰牙-格邦国家公园, 越南")
-[下载UHD](https://cn.bing.com/th?id=OHR.ParadiseCave_ZH-CN6371627729_UHD.jpg&rf=LaDigue_UHD.jpg "天堂洞, 峰牙-格邦国家公园, 越南")
 
 ---
