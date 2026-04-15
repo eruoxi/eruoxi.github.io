@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月16日：花瓣巡游
+#### 斯卡吉特谷地郁金香花田, 华盛顿, 美国（© Alan Majchrowicz/Getty Images）
+
+![花瓣巡游](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_800x480.jpg&rf=LaDigue_800x480.jpg "花瓣巡游")
+
+每年春天，华盛顿州的斯卡吉特山谷都会变成一片色彩斑斓的花海，斯卡吉特山谷郁金香节在此欢庆花季的到来。整个四月，游客们可以漫步于郁金香花园和农田，欣赏成排盛开的郁金香，远眺群山美景。
+
+郁金香谷农场占地15 英亩，种植着130种花卉，其中包括100多种郁金香。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%8e%e7%9b%9b%e9%a1%bf%e5%b7%9e%e6%96%af%e5%8d%a1%e5%90%89%e7%89%b9%e8%b0%b7&form=hpcapt&filters=HpDate:"20260415_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260416_SkagitTulips"&FORM=HPQUIZ "必应主页测验 2026 4月 16")
+[下载480](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_800x480.jpg&rf=LaDigue_800x480.jpg "斯卡吉特谷地郁金香花田, 华盛顿, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯卡吉特谷地郁金香花田, 华盛顿, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯卡吉特谷地郁金香花田, 华盛顿, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_UHD.jpg&rf=LaDigue_UHD.jpg "斯卡吉特谷地郁金香花田, 华盛顿, 美国")
+
+---
 ### 04月15日：走进这幅鲜活的画布
 #### 光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国（© Patrick Aventurier/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_1280x720.jpg&rf=LaDigue_1280x720.jpg "野花绽放, 中央谷地, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "野花绽放, 中央谷地, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_UHD.jpg&rf=LaDigue_UHD.jpg "野花绽放, 中央谷地, 加利福尼亚州, 美国")
-
----
-### 04月01日：跃入四月
-#### 粉色牵牛花里的日本树蛙（© Tetsuya Tanooka/Getty Images）
-
-![跃入四月](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_800x480.jpg&rf=LaDigue_800x480.jpg "跃入四月")
-
-四月是全国青蛙月，让我们有机会欣赏大自然中体型最小却最杰出的使者之一——青蛙。青蛙有助于平衡昆虫种群数量，而且由于它们皮肤具有渗透性，能够迅速感知水质和空气质量的变化，因此它们常常是环境变化的早期指示物。它们的出现反映了栖息地的健康状况，因此，在这个月里，我们不妨停下来，好好欣赏它们所扮演的重要角色。
-
-已知最古老的“原始蛙类”——马西诺特三叠蛙（Triadobatrachus massinoti）生活在大约2.5亿年前的三叠纪早期。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%97%a5%e6%9c%ac%e6%a0%91%e8%9b%99&form=hpcapt&filters=HpDate:"20260331_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260401_JapaneseTreeFrog"&FORM=HPQUIZ "必应主页测验 2026 4月 1")
-[下载480](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_800x480.jpg&rf=LaDigue_800x480.jpg "粉色牵牛花里的日本树蛙")
-[下载720](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_1280x720.jpg&rf=LaDigue_1280x720.jpg "粉色牵牛花里的日本树蛙")
-[下载1080](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "粉色牵牛花里的日本树蛙")
-[下载UHD](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_UHD.jpg&rf=LaDigue_UHD.jpg "粉色牵牛花里的日本树蛙")
 
 ---
