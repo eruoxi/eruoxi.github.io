@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月17日：蝙蝠信号：开启
+#### 灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚（© Doug Gimesy/Nature Picture Library）
+
+![蝙蝠信号：开启](https://cn.bing.com/th?id=OHR.FlyingFoxMom_ZH-CN2913012516_800x480.jpg&rf=LaDigue_800x480.jpg "蝙蝠信号：开启")
+
+每年4月17日是“国际蝙蝠日”，这一天将目光投向地球的“夜班成员”——蝙蝠。作为分布在除南极洲外各大洲的飞行哺乳动物，全球已知蝙蝠种类超过1400种，在维持生态系统平衡方面发挥着重要作用。蝙蝠已经在地球上生存了超过5000万年。在众多种类中，真正以血液为食的“吸血蝙蝠”只有3种，且仅分布于美洲地区。绝大多数蝙蝠则以昆虫、水果、花蜜或花粉为食。在美国德克萨斯州的布拉肯洞穴（Bracken Cave），夏季最多可聚集约 2000 万只墨西哥无尾蝠，形成壮观的群居景象。许多蝙蝠通过捕食农作物害虫，有助于减少农药使用；还有一些则为野生龙舌兰授粉、传播种子，帮助森林恢复与再生。
+
+“蝙蝠侠”只是虚构的角色，而现实中的“蝙蝠信号”则是对保护的呼唤——由于栖息地丧失和疾病影响，蝙蝠种群正不断缩减。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%9d%99%e8%9d%a0&form=hpcapt&filters=HpDate:"20260416_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260417_FlyingFoxMom"&FORM=HPQUIZ "必应主页测验 2026 4月 17")
+[下载480](https://cn.bing.com/th?id=OHR.FlyingFoxMom_ZH-CN2913012516_800x480.jpg&rf=LaDigue_800x480.jpg "灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.FlyingFoxMom_ZH-CN2913012516_1280x720.jpg&rf=LaDigue_1280x720.jpg "灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.FlyingFoxMom_ZH-CN2913012516_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.FlyingFoxMom_ZH-CN2913012516_UHD.jpg&rf=LaDigue_UHD.jpg "灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚")
+
+---
 ### 04月16日：花瓣巡游
 #### 斯卡吉特谷地郁金香花田, 华盛顿, 美国（© Alan Majchrowicz/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿姆布鲁大桥，阿姆斯特丹，荷兰")
 [下载1080](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿姆布鲁大桥，阿姆斯特丹，荷兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_UHD.jpg&rf=LaDigue_UHD.jpg "阿姆布鲁大桥，阿姆斯特丹，荷兰")
-
----
-### 04月02日：春天的图案
-#### 野花绽放, 中央谷地, 加利福尼亚州, 美国（© Jeff Lewis/Tandem Stills + Motion）
-
-![春天的图案](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_800x480.jpg&rf=LaDigue_800x480.jpg "春天的图案")
-
-春意盎然的加州中央谷地在冬雨过后，野花竞相绽放，宣告着春天的到来。这片南北绵延约450英里、面积约2万平方英里的山谷，是世界上农业生产力最高的地区之一。然而，在早春时节，这里又会短暂地展现出一种古老的景象。从三月到四月，当气温和土壤湿度达到适宜水平时，金盏花、整齐叶草和猫头鹰三叶草等本地一年生植物便会迅速发芽。它们争分夺秒地完成生命周期，以迎接漫长旱季的到来。
-
-中央谷地以其农业生产力而闻名。它为加利福尼亚州提供了大部分食品，而加利福尼亚州又提供了美国一半以上的水果、蔬菜和坚果。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8a%a0%e5%88%a9%e7%a6%8f%e5%b0%bc%e4%ba%9a%e5%b7%9e%e4%b8%ad%e5%a4%ae%e8%b0%b7%e5%9c%b0&form=hpcapt&filters=HpDate:"20260401_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260402_WildflowerValley"&FORM=HPQUIZ "必应主页测验 2026 4月 2")
-[下载480](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_800x480.jpg&rf=LaDigue_800x480.jpg "野花绽放, 中央谷地, 加利福尼亚州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_1280x720.jpg&rf=LaDigue_1280x720.jpg "野花绽放, 中央谷地, 加利福尼亚州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "野花绽放, 中央谷地, 加利福尼亚州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_UHD.jpg&rf=LaDigue_UHD.jpg "野花绽放, 中央谷地, 加利福尼亚州, 美国")
 
 ---
