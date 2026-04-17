@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月18日：未完成巨像的静默
+#### 摩艾石像采石场，拉诺拉拉库，复活节岛，智利（© Gavin Hellier/Alamy）
+
+![未完成巨像的静默](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_800x480.jpg&rf=LaDigue_800x480.jpg "未完成巨像的静默")
+
+在今天的世界遗产日，人们将目光投向那些讲述人类共同历史的地方——这些地点因其卓越的文化或自然价值而受到保护。其中之一，便矗立在智利复活节岛的火山岩之上。在拉诺拉拉库，一座已熄灭火山的山坡曾是岛上绝大多数著名摩艾石像的雕刻工坊。画面展现的正是这一非凡的采石场：半成品的巨像从岩石中显现，仿佛在创作的瞬间被定格。
+
+在拉诺拉拉库，许多摩艾石像长期以来只露出头部，仿佛被埋藏于地下。考古发掘发现，这些石像其实拥有完整的身体，背部还刻有精细的岩画纹饰，为了解拉帕努伊人的艺术风格与文化传统提供了重要线索。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e9%81%97%e4%ba%a7%e6%97%a5&form=hpcapt&filters=HpDate:"20260417_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260418_MaoiStatues"&FORM=HPQUIZ "必应主页测验 2026 4月 18")
+[下载480](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_800x480.jpg&rf=LaDigue_800x480.jpg "摩艾石像采石场，拉诺拉拉库，复活节岛，智利")
+[下载720](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_1280x720.jpg&rf=LaDigue_1280x720.jpg "摩艾石像采石场，拉诺拉拉库，复活节岛，智利")
+[下载1080](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "摩艾石像采石场，拉诺拉拉库，复活节岛，智利")
+[下载UHD](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_UHD.jpg&rf=LaDigue_UHD.jpg "摩艾石像采石场，拉诺拉拉库，复活节岛，智利")
+
+---
 ### 04月17日：蝙蝠信号：开启
 #### 灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚（© Doug Gimesy/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_1280x720.jpg&rf=LaDigue_1280x720.jpg "求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_UHD.jpg&rf=LaDigue_UHD.jpg "求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚")
-
----
-### 04月03日：一次挥动桥臂，连接两岸
-#### 阿姆布鲁大桥，阿姆斯特丹，荷兰（© Alexander Spatari/Getty Images）
-
-![一次挥动桥臂，连接两岸](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_800x480.jpg&rf=LaDigue_800x480.jpg "一次挥动桥臂，连接两岸")
-
-在阿姆斯特丹，有些桥梁只是用来跨越运河，而阿姆布鲁赫桥（Armbrug）则多了一份趣味——当人们经过时，它仿佛在向行人挥手致意。这座桥横跨在旧侧沃堡运河之上。它的名字意为“手臂桥”，但实际上并不是指桥的形状，而是源自附近的一条小巷——Oudezijds Armsteeg（旧侧臂巷）。虽然名字与“手臂”有关，但更像是一种有趣的联想，让人不禁想象它正向经过的骑行者和行人友好地打招呼。
-
-“Armbrug”这一名称源自该桥的运作机制。这座桥配有长长的升降臂，通过升降桥面来让船只得以穿过运河。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e5%a7%86%e5%b8%83%e9%b2%81%e5%a4%a7%e6%a1%a5&form=hpcapt&filters=HpDate:"20260402_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260403_ArmbrugBridge"&FORM=HPQUIZ "必应主页测验 2026 4月 3")
-[下载480](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_800x480.jpg&rf=LaDigue_800x480.jpg "阿姆布鲁大桥，阿姆斯特丹，荷兰")
-[下载720](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿姆布鲁大桥，阿姆斯特丹，荷兰")
-[下载1080](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿姆布鲁大桥，阿姆斯特丹，荷兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_UHD.jpg&rf=LaDigue_UHD.jpg "阿姆布鲁大桥，阿姆斯特丹，荷兰")
 
 ---
