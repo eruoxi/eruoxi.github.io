@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月19日：潮汐留下的印记
+#### 镜面海滩，塞古罗港，巴伊亚州，巴西（© Marcelo Nacinovic/Getty Images）
+
+![潮汐留下的印记](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_800x480.jpg&rf=LaDigue_800x480.jpg "潮汐留下的印记")
+
+从空中俯瞰，巴西的镜面海滩宛如一幅可以走入其中的水彩画。浅色的悬崖、点缀在海岸线上的礁石，以及由潮汐形成的片片水潭，在退潮时清晰映出天空与云朵，也正因如此，这片海滩得名“镜面海滩”。它位于巴西东北部大西洋沿岸的巴伊亚州，坐落在塞古罗港的几座小渔村之间。通往这里需要经过土路和短途步道，这种相对不便的交通反而成为一种“天然限流”，让海滩始终保持着宁静而私密的氛围。它位于巴西东北部大西洋沿岸的巴伊亚州，坐落在塞古罗港的几座小渔村之间。通往这里需要经过土路和短途步道，这种相对不便的交通反而成为一种“天然限流”，让海滩始终保持着宁静而私密的氛围。
+
+在镜面海滩，能否看到清晰倒影其实取决于环境条件。当风力较小、潮位较低时，浅水水潭会像天然镜子一样平静；但只要出现轻微的水波，倒影就会立刻被“打破”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e8%a5%bf%e5%b7%b4%e4%bc%8a%e4%ba%9a%e5%b7%9e&form=hpcapt&filters=HpDate:"20260418_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260419_TranBA"&FORM=HPQUIZ "必应主页测验 2026 4月 19")
+[下载480](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_800x480.jpg&rf=LaDigue_800x480.jpg "镜面海滩，塞古罗港，巴伊亚州，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_1280x720.jpg&rf=LaDigue_1280x720.jpg "镜面海滩，塞古罗港，巴伊亚州，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "镜面海滩，塞古罗港，巴伊亚州，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg&rf=LaDigue_UHD.jpg "镜面海滩，塞古罗港，巴伊亚州，巴西")
+
+---
 ### 04月18日：未完成巨像的静默
 #### 摩艾石像采石场，拉诺拉拉库，复活节岛，智利（© Gavin Hellier/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_1280x720.jpg&rf=LaDigue_1280x720.jpg "春天的雪钟花")
 [下载1080](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天的雪钟花")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_UHD.jpg&rf=LaDigue_UHD.jpg "春天的雪钟花")
-
----
-### 04月04日：求偶展示场的故事
-#### 求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚（© Sven Zacek/Nature Picture Library）
-
-![求偶展示场的故事](https://cn.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_800x480.jpg&rf=LaDigue_800x480.jpg "求偶展示场的故事")
-
-在日出之前，荒原上的“生物时钟”已经开始运转，仿佛为一场特别的“舞会”拉开序幕。雄性黑琴鸡不会发出邀请函，它们用低沉而响亮的鸣声来宣告自己的到来。欢迎来到求偶展示季——在这里，爱情充满竞争，场面热闹而喧闹，而且一切都发生在广阔的野外。
-
-雄性黑琴鸡在眼睛上方长有一块鲜艳的红色肉垂（皮肤组织）。在求偶展示时，它们会让这块红色皮肤鼓起并变得更加显眼，以吸引雌性的注意。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%bb%91%e7%90%b4%e9%b8%a1&form=hpcapt&filters=HpDate:"20260403_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260404_GrouseGuff"&FORM=HPQUIZ "必应主页测验 2026 4月 4")
-[下载480](https://cn.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_800x480.jpg&rf=LaDigue_800x480.jpg "求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_1280x720.jpg&rf=LaDigue_1280x720.jpg "求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_UHD.jpg&rf=LaDigue_UHD.jpg "求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚")
 
 ---
