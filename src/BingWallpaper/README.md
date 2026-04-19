@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月20日：日落之后，探索仍在继续
+#### 夕阳下的峡谷地国家公园，莫阿布，犹他州，美国（© Jason Hatfield/Tandem Stills + Motion）
+
+![日落之后，探索仍在继续](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_800x480.jpg&rf=LaDigue_800x480.jpg "日落之后，探索仍在继续")
+
+国家公园周，是你暂别日常、走向自然的最佳契机。这一为期九天的庆祝活动将于4月18日至26日举行，聚焦国家公园体系中400多处自然与文化遗产地。在这里，自然风光与人文历史交织，为人们带来难忘的户外体验。从海岸线与森林，到辽阔的沙漠景观，这些受保护的区域邀请人们走进自然，感受宁静，心怀敬畏。
+
+你看到的银河，其实并不是“实时画面”。 在像峡谷地国家公园这样光污染极低的地方，人眼可以看到的银河中心区域，距离地球约2.6万光年——也就是说，你看到的是2.6万年前发出的光。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b3%a1%e8%b0%b7%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260419_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260420_SunsetKiva"&FORM=HPQUIZ "必应主页测验 2026 4月 20")
+[下载480](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_800x480.jpg&rf=LaDigue_800x480.jpg "夕阳下的峡谷地国家公园，莫阿布，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_1280x720.jpg&rf=LaDigue_1280x720.jpg "夕阳下的峡谷地国家公园，莫阿布，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夕阳下的峡谷地国家公园，莫阿布，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_UHD.jpg&rf=LaDigue_UHD.jpg "夕阳下的峡谷地国家公园，莫阿布，犹他州，美国")
+
+---
 ### 04月19日：潮汐留下的印记
 #### 镜面海滩，塞古罗港，巴伊亚州，巴西（© Marcelo Nacinovic/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_1280x720.jpg&rf=LaDigue_1280x720.jpg "樱花盛开的弘前城，弘前，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "樱花盛开的弘前城，弘前，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_UHD.jpg&rf=LaDigue_UHD.jpg "樱花盛开的弘前城，弘前，日本")
-
----
-### 04月05日：静静绽放的变化
-#### 春天的雪钟花（© klagyivik/Getty Images）
-
-![静静绽放的变化](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_800x480.jpg&rf=LaDigue_800x480.jpg "静静绽放的变化")
-
-雪滴花是最早开放的花之一，常常在冬天尚未完全离去时，就从寒冷的土壤中探出身来。它低垂的钟形花朵看起来柔弱，却为早春而生。其细胞中含有特殊的抗冻蛋白，能够帮助植物抵御霜冻，使它们能够适应冬末多变而寒冷的天气。
-
-痴迷于雪花莲的收藏者被称为“雪花莲爱好者”
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%9b%aa%e9%92%9f%e8%8a%b1&form=hpcapt&filters=HpDate:"20260404_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260405_SpringSnowdrops"&FORM=HPQUIZ "必应主页测验 2026 4月 5")
-[下载480](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_800x480.jpg&rf=LaDigue_800x480.jpg "春天的雪钟花")
-[下载720](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_1280x720.jpg&rf=LaDigue_1280x720.jpg "春天的雪钟花")
-[下载1080](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天的雪钟花")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_UHD.jpg&rf=LaDigue_UHD.jpg "春天的雪钟花")
 
 ---
