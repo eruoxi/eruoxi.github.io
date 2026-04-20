@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月21日：春季的“带刺巡逻兵”
+#### 西欧刺猬，法国（© Klein & Hubert/Nature Picture Library）
+
+![春季的“带刺巡逻兵”](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_800x480.jpg&rf=LaDigue_800x480.jpg "春季的“带刺巡逻兵”")
+
+春季降临，我们迎来了一位身披短刺的“生态使者”：西欧刺猬，本次发现于法国。这种体型微小的食虫类动物兼具独特的生物防御形态；它们多为夜行性且具有领域独居意识，主要依靠嗅觉与听觉导向。其生态位职责明确：通过在落叶层中游走、嗅探，大量捕食蚯蚓、甲虫、蛞蝓及鳞翅目幼虫等无脊椎动物——这些物种不仅是维持生态系统运转的关键环节，也是园艺害虫防治的天然助力。面对威胁时，西欧刺猬既不交涉也不逃逸，而是迅速蜷缩成紧密的球状，依靠背部的棘刺进行物理防御。
+
+西欧刺猬的背部覆有 5,000 至 7,000 根棘刺，这些刺是由角蛋白构成的坚硬中空毛发；需注意其与豪猪的刺（Quills）在结构上有所不同，并非如豪猪般具有倒钩且易脱落的‘防御性棘毛’。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e6%ac%a7%e5%88%ba%e7%8c%ac&form=hpcapt&filters=HpDate:"20260420_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260421_SpringHedgehog"&FORM=HPQUIZ "必应主页测验 2026 4月 21")
+[下载480](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_800x480.jpg&rf=LaDigue_800x480.jpg "西欧刺猬，法国")
+[下载720](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_1280x720.jpg&rf=LaDigue_1280x720.jpg "西欧刺猬，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西欧刺猬，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_UHD.jpg&rf=LaDigue_UHD.jpg "西欧刺猬，法国")
+
+---
 ### 04月20日：日落之后，探索仍在继续
 #### 夕阳下的峡谷地国家公园，莫阿布，犹他州，美国（© Jason Hatfield/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_1280x720.jpg&rf=LaDigue_1280x720.jpg "河狸，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "河狸，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_UHD.jpg&rf=LaDigue_UHD.jpg "河狸，德国")
-
----
-### 04月06日：芬芳四月
-#### 樱花盛开的弘前城，弘前，日本（© Glenn Waters/Getty Images）
-
-![芬芳四月](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_800x480.jpg&rf=LaDigue_800x480.jpg "芬芳四月")
-
-想象一下17世纪初的日本北部：城堡矗立在政治、贸易与行政的交汇点上，是权力与治理的重要中心。随着时间推移，这些城堡不仅见证了紧张与冲突的历史，也记录了坚守、变迁以及人们的日常生活。每年4月6日庆祝的日本城堡日正是为了让人们关注这段多层次的历史。这一天的日期来自一个有趣的日语谐音：“shi”（4）和“ro”（6）**组合成 “Shiro-no-Hi”，因为 “shiro” 在日语中意为“城堡”。
-
-樱花在日本被称为“sakura”，每年春天只盛开短短一段时间。正因花期短暂，樱花在日本文化中象征着生命的短暂与珍贵。人们常在花开时举行“花见（hanami）”，与家人朋友一起赏花庆祝春天的到来。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%97%a5%e6%9c%ac%e7%9a%84%e6%a8%b1%e8%8a%b1&form=hpcapt&filters=HpDate:"20260405_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260406_CastleBlossoms"&FORM=HPQUIZ "必应主页测验 2026 4月 6")
-[下载480](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_800x480.jpg&rf=LaDigue_800x480.jpg "樱花盛开的弘前城，弘前，日本")
-[下载720](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_1280x720.jpg&rf=LaDigue_1280x720.jpg "樱花盛开的弘前城，弘前，日本")
-[下载1080](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "樱花盛开的弘前城，弘前，日本")
-[下载UHD](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_UHD.jpg&rf=LaDigue_UHD.jpg "樱花盛开的弘前城，弘前，日本")
 
 ---
