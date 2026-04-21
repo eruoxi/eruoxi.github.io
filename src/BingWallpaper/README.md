@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月22日：行动的力量
+#### 阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚（© Sven Zacek/Nature Picture Library）
+
+![行动的力量](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_800x480.jpg&rf=LaDigue_800x480.jpg "行动的力量")
+
+地球日从不是轻轻敲门，而是一次将大门猛然推开的觉醒。1970年，沾满石油的海滩、燃烧的河流与充满毒素的空气，让数百万人走上街头抗议。当人们再也无法视而不见，环境保护被推上政治议程，催生出一系列里程碑式的环保法案，也让“守护地球”从边缘议题跃升为全球共识。每年4月22日，全球190多个国家都会在这一天停下脚步，反思、审视，并重新思考我们与地球的关系。
+
+湿地常被称为“地球的肾脏”。虽然只覆盖全球陆地面积的一小部分，但它们却能储存约三分之一的土壤碳。像阿拉姆-佩德亚这样的湿地系统，通过自然积累的泥炭层，将大量碳长期封存，从而在减缓气候变化中发挥着关键作用。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%9c%b0%e7%90%83%e6%97%a5&form=hpcapt&filters=HpDate:"20260421_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260422_TartuEstonia"&FORM=HPQUIZ "必应主页测验 2026 4月 22")
+[下载480](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_800x480.jpg&rf=LaDigue_800x480.jpg "阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_UHD.jpg&rf=LaDigue_UHD.jpg "阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚")
+
+---
 ### 04月21日：春季的“带刺巡逻兵”
 #### 西欧刺猬，法国（© Klein & Hubert/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_1280x720.jpg&rf=LaDigue_1280x720.jpg "西雅图，华盛顿州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西雅图，华盛顿州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_UHD.jpg&rf=LaDigue_UHD.jpg "西雅图，华盛顿州，美国")
-
----
-### 04月07日：一根树枝，一点工程
-#### 河狸，德国（© Andyworks/Getty Images）
-
-![一根树枝，一点工程](https://cn.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_800x480.jpg&rf=LaDigue_800x480.jpg "一根树枝，一点工程")
-
-每年4月7日的国际河狸日，旨在致敬这位默默工作的“小工程师”。河狸凭借一根根树枝，悄然改变着自然环境。河狸长着标志性的门牙和桨状尾巴，以勤劳著称。数百万年来，它们一直在重塑淡水生态环境。河狸拥有呈橙色、富含铁质的坚硬门牙，可以轻松啃倒树木，并利用树枝和泥土建造水坝。这些水坝能够减缓水流、改善水质，并形成湿地，从而为多种动植物提供栖息地。它们还会用树枝和泥土搭建坚固的巢穴，入口通常位于水下，不仅能躲避捕食者，也为整个家族提供安全的居所。
-
-画面中的“建筑师”是河狸。河狸是著名的“自然工程师”，会用树枝、泥土和石块在河流或溪流中建造水坝和巢穴。这些结构不仅为它们提供栖息地，也会改变水流环境，为鱼类、两栖动物和湿地植物创造新的生态空间。
-
-[Bing搜索](https://cn.bing.com/search?q=beaver+rodent&form=hpcapt&filters=HpDate:"20260406_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260407_BeaverPortrait"&FORM=HPQUIZ "必应主页测验 2026 4月 7")
-[下载480](https://cn.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_800x480.jpg&rf=LaDigue_800x480.jpg "河狸，德国")
-[下载720](https://cn.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_1280x720.jpg&rf=LaDigue_1280x720.jpg "河狸，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "河狸，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_UHD.jpg&rf=LaDigue_UHD.jpg "河狸，德国")
 
 ---
