@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月23日：一座充满故事的小屋
+#### 安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰（© David Steele/Shutterstock）
+
+![一座充满故事的小屋](https://cn.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_800x480.jpg&rf=LaDigue_800x480.jpg "一座充满故事的小屋")
+
+每年4月23日，世界都会再次聚焦威廉·莎士比亚的生平与遗产。这位剧作家的文字，至今仍在全球文学舞台上熠熠生辉。“莎士比亚日”既是他于1616年逝世的纪念日，也被普遍视为他1564年的诞辰。这一巧合般的日期，为这位重塑英语文学的伟大作家赋予了象征性的意义。从《哈姆雷特》中对人性深处的探寻，到《罗密欧与朱丽叶》里跨越生死的爱情，他的语言至今仍回荡在课堂、剧院与日常表达之中。莎士比亚的作品已被翻译成多种语言，并在世界各地不断上演，跨越时间与文化，持续影响着一代又一代人。
+
+你现在读到的莎士比亚作品，其实和他当年写下的版本并不完全一样。17世纪早期并没有统一的拼写标准，同一个词在不同版本中可能有多种写法。许多我们今天熟悉的文本，都是后来根据演员记忆、手稿和印刷本整理校订而成的。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8e%8e%e5%a3%ab%e6%af%94%e4%ba%9a%e6%97%a5&form=hpcapt&filters=HpDate:"20260422_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260423_HathawayCottage"&FORM=HPQUIZ "必应主页测验 2026 4月 23")
+[下载480](https://cn.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_800x480.jpg&rf=LaDigue_800x480.jpg "安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_1280x720.jpg&rf=LaDigue_1280x720.jpg "安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_UHD.jpg&rf=LaDigue_UHD.jpg "安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰")
+
+---
 ### 04月22日：行动的力量
 #### 阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚（© Sven Zacek/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪落瀑布，布雷肯比肯斯国家公园，威尔士")
 [下载1080](https://cn.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪落瀑布，布雷肯比肯斯国家公园，威尔士")
 [下载UHD](https://cn.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_UHD.jpg&rf=LaDigue_UHD.jpg "雪落瀑布，布雷肯比肯斯国家公园，威尔士")
-
----
-### 04月08日：翡翠之城
-#### 西雅图，华盛顿州，美国（© Jim Patterson/Tandem Stills + Motion）
-
-![翡翠之城](https://cn.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_800x480.jpg&rf=LaDigue_800x480.jpg "翡翠之城")
-
-每年4月7日的国际河狸日，旨在致敬这位默默工作的“小工程师”。河狸凭借一根根树枝，悄然改变着自然环境。河狸长着标志性的门牙和桨状尾巴，以勤劳著称。数百万年来，它们一直在重塑淡水生态环境。河狸拥有呈橙色、富含铁质的坚硬门牙，可以轻松啃倒树木，并利用树枝和泥土建造水坝。这些水坝能够减缓水流、改善水质，并形成湿地，从而为多种动植物提供栖息地。它们还会用树枝和泥土搭建坚固的巢穴，入口通常位于水下，不仅能躲避捕食者，也为整个家族提供安全的居所。
-
-画面中的“建筑师”是河狸。河狸是著名的“自然工程师”，会用树枝、泥土和石块在河流或溪流中建造水坝和巢穴。这些结构不仅为它们提供栖息地，也会改变水流环境，为鱼类、两栖动物和湿地植物创造新的生态空间。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e9%9b%85%e5%9b%be&form=hpcapt&filters=HpDate:"20260407_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260408_SeattleSunrise"&FORM=HPQUIZ "必应主页测验 2026 4月 8")
-[下载480](https://cn.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_800x480.jpg&rf=LaDigue_800x480.jpg "西雅图，华盛顿州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_1280x720.jpg&rf=LaDigue_1280x720.jpg "西雅图，华盛顿州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西雅图，华盛顿州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_UHD.jpg&rf=LaDigue_UHD.jpg "西雅图，华盛顿州，美国")
 
 ---
