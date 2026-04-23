@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月24日：向树木致敬
+#### 湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国（© Mary Liz Austin/Alamy）
+
+![向树木致敬](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_800x480.jpg&rf=LaDigue_800x480.jpg "向树木致敬")
+
+植树节旨在颂扬树木的无声力量——它们如何稳定生态系统、庇护野生动物、为城市降温，并塑造我们日常生活所依赖的环境。在美国，植树节定于四月的最后一个星期五，这一天鼓励美国以及许多其他国家（日期因生长季节而异）的社区种植、保护和养护各种类型的森林，从社区绿荫到标志性的荒野。
+
+在这些复杂的生态系统中，栖息着种类繁多的水陆动物，包括在安兴加步道旁晒太阳的短吻鳄、在沼泽中觅食的苍鹭和白鹭，以及在海湾中悠然游弋的海牛。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e6%b2%bc%e6%b3%bd%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260423_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260424_SlashPine"&FORM=HPQUIZ "必应主页测验 2026 4月 24")
+[下载480](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_800x480.jpg&rf=LaDigue_800x480.jpg "湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_1280x720.jpg&rf=LaDigue_1280x720.jpg "湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_UHD.jpg&rf=LaDigue_UHD.jpg "湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国")
+
+---
 ### 04月23日：一座充满故事的小屋
 #### 安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰（© David Steele/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_UHD.jpg&rf=LaDigue_UHD.jpg "卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚")
-
----
-### 04月09日：光之水帘
-#### 雪落瀑布，布雷肯比肯斯国家公园，威尔士（© Guy Edwardes/Nature Picture Library）
-
-![光之水帘](https://cn.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_800x480.jpg&rf=LaDigue_800x480.jpg "光之水帘")
-
-清澈的水流沿着岩壁整齐地倾泻而下，形成了这座瀑布，这是威尔士南部最具特色的瀑布之一。它的威尔士语名称意为“雪落瀑布”，形容水流像一层淡白色的水帘从岩壁上滑落。这座瀑布的独特之处在于可以从瀑布后方穿行。一条狭窄的小径将游客引到水帘背后，让人近距离感受水声、光线与水雾交织的自然景象。
-
-布雷肯比肯斯国家公园中的雪落瀑布位于一片以瀑布步道闻名的自然区域。瀑布周围的峡谷生长着苔藓、蕨类和古老森林，常年水汽弥漫，形成清凉湿润的生态环境，是徒步和自然摄影的理想地点。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e9%9b%b7%e8%82%af%e6%af%94%e8%82%af%e6%96%af%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260408_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260409_WalesWaterfall"&FORM=HPQUIZ "必应主页测验 2026 4月 9")
-[下载480](https://cn.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_800x480.jpg&rf=LaDigue_800x480.jpg "雪落瀑布，布雷肯比肯斯国家公园，威尔士")
-[下载720](https://cn.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪落瀑布，布雷肯比肯斯国家公园，威尔士")
-[下载1080](https://cn.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪落瀑布，布雷肯比肯斯国家公园，威尔士")
-[下载UHD](https://cn.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_UHD.jpg&rf=LaDigue_UHD.jpg "雪落瀑布，布雷肯比肯斯国家公园，威尔士")
 
 ---
