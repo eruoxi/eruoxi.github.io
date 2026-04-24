@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月25日：打破企鹅规则
+#### 加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔（© Henley Spiers/Nature Picture Library）
+
+![打破企鹅规则](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_800x480.jpg&rf=LaDigue_800x480.jpg "打破企鹅规则")
+
+企鹅通常让人联想到南极，但这些可爱的不会飞的海鸟并非总是追随冰雪而来。在世界企鹅日，图中这些加拉帕戈斯企鹅为我们展现了一个鲜明的对比。这种企鹅仅分布于加拉帕戈斯群岛——位于厄瓜多尔海岸约600英里外的火山群岛——是所有企鹅中分布最北的物种。凉爽且富含营养的洋流为它们提供了食物，并将周围水域的温度维持在适宜生存的范围内，从而使这种赤道栖息地成为可能。这些体型紧凑、行动敏捷的企鹅一天中的大部分时间都待在水中以保持凉爽。
+
+每只企鹅都有自己独特的叫声。这有助于它们在庞大的企鹅群落中找到伴侣和幼崽，这些企鹅群落的数量从几百只到几万只不等。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e4%bc%81%e9%b9%85%e6%97%a5&form=hpcapt&filters=HpDate:"20260424_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260425_GalapagosPenguins"&FORM=HPQUIZ "必应主页测验 2026 4月 25")
+[下载480](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_800x480.jpg&rf=LaDigue_800x480.jpg "加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔")
+[下载720](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_1280x720.jpg&rf=LaDigue_1280x720.jpg "加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔")
+[下载1080](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_UHD.jpg&rf=LaDigue_UHD.jpg "加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔")
+
+---
 ### 04月24日：向树木致敬
 #### 湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国（© Mary Liz Austin/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg&rf=LaDigue_UHD.jpg "帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙")
-
----
-### 04月10日：算计的小爪子
-#### 卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚（© Sven Zacek/Nature Picture Library）
-
-![算计的小爪子](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_800x480.jpg&rf=LaDigue_800x480.jpg "算计的小爪子")
-
-你有没有抓到过兄弟姐妹们密谋的场景？在爱沙尼亚的卡鲁拉国家公园，这两只红狐狸幼崽看起来像是在阴谋进行到一半时突然停住了，它们的表情中既有好奇也有谨慎。它们不仅仅是春天的毛茸茸小动物；它们是生存的学徒。红狐狸每胎平均生四到六只幼崽，它们成长迅速，地下洞穴成为它们的摔跤场、教室和试验场。年长的幼崽常常帮助喂养、看护并教导年幼的同伴，把游戏变成练习，把恶作剧变成肌肉记忆。在它们的家庭中，兄弟姐妹不仅是背景，更是后盾。
-
-卡鲁拉国家公园是该国最小的国家公园，但仍然是最迷人的之一。公园位于瓦尔加县和沃鲁县，其起伏的丘陵、原始的湖泊和宁静的森林使其成为自然爱好者和寻求宁静者的圣地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b9%bc%e5%b9%b4%e8%b5%a4%e7%8b%90&form=hpcapt&filters=HpDate:"20260409_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260410_FoxSiblings"&FORM=HPQUIZ "必应主页测验 2026 4月 10")
-[下载480](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_800x480.jpg&rf=LaDigue_800x480.jpg "卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_UHD.jpg&rf=LaDigue_UHD.jpg "卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚")
 
 ---
