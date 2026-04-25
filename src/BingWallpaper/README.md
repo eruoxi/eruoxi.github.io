@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月26日：繁花盛放
+#### 粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国（© Mimi Ditchie Photography/Getty Images）
+
+![繁花盛放](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_800x480.jpg&rf=LaDigue_800x480.jpg "繁花盛放")
+
+春天，苹果树绽放出朵朵柔和的粉色花朵，生机盎然。娇嫩的花瓣点缀着果园和山坡，在湛蓝的天空映衬下格外醒目，标志着季节从寒冬走向温暖。这些花朵吸引着蜜蜂和蝴蝶等授粉昆虫，帮助果树结出丰硕的果实，为来年晚些时候的苹果生长做好准备。
+
+苹果花可以新鲜食用，也可以晒干后食用，香气浓郁，带有甜美的花香，是各种烹饪用途的理想食材。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8b%b9%e6%9e%9c%e6%a0%91&form=hpcapt&filters=HpDate:"20260425_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260426_AppleBlossoms"&FORM=HPQUIZ "必应主页测验 2026 4月 26")
+[下载480](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_800x480.jpg&rf=LaDigue_800x480.jpg "粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_1280x720.jpg&rf=LaDigue_1280x720.jpg "粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_UHD.jpg&rf=LaDigue_UHD.jpg "粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国")
+
+---
 ### 04月25日：打破企鹅规则
 #### 加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔（© Henley Spiers/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_1280x720.jpg&rf=LaDigue_1280x720.jpg "城市灯光在下方划过, 拍摄于国际空间站")
 [下载1080](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "城市灯光在下方划过, 拍摄于国际空间站")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_UHD.jpg&rf=LaDigue_UHD.jpg "城市灯光在下方划过, 拍摄于国际空间站")
-
----
-### 04月11日：火山外衣
-#### 帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙（© Gavin Hellier/Getty Images）
-
-![火山外衣](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_800x480.jpg&rf=LaDigue_800x480.jpg "火山外衣")
-
-由火焰孕育而成的海滩很少能如此低调，而帕帕加约海滩正好做到了这一点。我们今天看到的海岸线位于西班牙加那利群岛兰萨罗特岛的南端。热带幻想？更像是火山般的精准。数百万年前，这片土地在海底火山喷发的推动下，逐层由玄武岩和火山灰堆积升起。
-
-这片海滩是一个新月形的海湾，四周环绕着岩石悬崖和茂密的植被。沙子柔软而金黄，水清澈平静，非常适合游泳、浮潜和日光浴。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e5%8a%a0%e9%82%a3%e5%88%a9%e7%be%a4%e5%b2%9b%e5%85%b0%e8%90%a8%e7%bd%97%e7%89%b9%e5%b2%9b&form=hpcapt&filters=HpDate:"20260410_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260411_PlayaPapagayo"&FORM=HPQUIZ "必应主页测验 2026 4月 11")
-[下载480](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_800x480.jpg&rf=LaDigue_800x480.jpg "帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1280x720.jpg&rf=LaDigue_1280x720.jpg "帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg&rf=LaDigue_UHD.jpg "帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙")
 
 ---
