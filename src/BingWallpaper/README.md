@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月27日：有格调的玻璃
+#### 维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利（© PhillipMinnis/Getty Images）
+
+![有格调的玻璃](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_800x480.jpg&rf=LaDigue_800x480.jpg "有格调的玻璃")
+
+由建筑师朱塞佩·门戈尼设计，于1877年竣工的维托里奥·埃马努埃莱二世拱廊位于意大利米兰，是世界上最古老、最著名的购物拱廊之一。它坐落于米兰大教堂广场和斯卡拉广场之间，拥有令人惊艳的玻璃铁艺屋顶和优雅的八角形布局。这条拱廊被亲切地称为“米兰的客厅”，汇集了众多高端精品店、历史悠久的咖啡馆以及知名餐厅。
+
+当时，意大利正经历着艰难的统一时期，门戈尼将这座拱廊视为凝聚人心的途径。因此，拱廊内的马赛克镶嵌画充满了爱国主义符号，旨在激励团结。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9f%83%e9%a9%ac%e5%8a%aa%e5%9f%83%e8%8e%b1%e4%ba%8c%e4%b8%96%e6%8b%b1%e5%bb%8a&form=hpcapt&filters=HpDate:"20260426_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260427_MilanGalleria"&FORM=HPQUIZ "必应主页测验 2026 4月 27")
+[下载480](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_800x480.jpg&rf=LaDigue_800x480.jpg "维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利")
+[下载720](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_1280x720.jpg&rf=LaDigue_1280x720.jpg "维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_UHD.jpg&rf=LaDigue_UHD.jpg "维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利")
+
+---
 ### 04月26日：繁花盛放
 #### 粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国（© Mimi Ditchie Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_1280x720.jpg&rf=LaDigue_1280x720.jpg "安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_UHD.jpg&rf=LaDigue_UHD.jpg "安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国")
-
----
-### 04月12日：离开地球的第一步
-#### 城市灯光在下方划过, 拍摄于国际空间站（© NASA）
-
-![离开地球的第一步](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_800x480.jpg&rf=LaDigue_800x480.jpg "离开地球的第一步")
-
-今天，世界纪念国际载人航天日，这是联合国设立的纪念日，旨在纪念人类首次进入太空的旅程以及人类太空时代的开始。这个日期回忆起1961年4月12日，尤里·加加林绕地球飞行，证明人类可以离开地球并安全返回。
-
-联合国在2011年设立了国际人类航天日，距首次有人类航天飞行已有50年。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e4%ba%ba%e7%b1%bb%e8%88%aa%e5%a4%a9%e6%97%a5&form=hpcapt&filters=HpDate:"20260411_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260412_SpaceTrails"&FORM=HPQUIZ "必应主页测验 2026 4月 12")
-[下载480](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_800x480.jpg&rf=LaDigue_800x480.jpg "城市灯光在下方划过, 拍摄于国际空间站")
-[下载720](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_1280x720.jpg&rf=LaDigue_1280x720.jpg "城市灯光在下方划过, 拍摄于国际空间站")
-[下载1080](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "城市灯光在下方划过, 拍摄于国际空间站")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_UHD.jpg&rf=LaDigue_UHD.jpg "城市灯光在下方划过, 拍摄于国际空间站")
 
 ---
