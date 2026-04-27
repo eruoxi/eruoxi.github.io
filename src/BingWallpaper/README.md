@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月28日：野外奇观
+#### 眼镜熊在树上休息, 厄瓜多尔（© Andy Rouse/Nature Picture Library）
+
+![野外奇观](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_800x480.jpg&rf=LaDigue_800x480.jpg "野外奇观")
+
+眼镜熊，又称安第斯熊，是熊科中唯一的南美洲熊类。它们栖息于安第斯山脉北部和中部，主要生活在森林地区，以嫩芽和果实为食。眼睛周围的浅色斑纹酷似眼镜，因此得名“眼镜熊”。
+
+每只眼镜熊都有独特的面部标记，科学家利用这些标记来识别和追踪野生个体。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%9c%bc%e9%95%9c%e7%86%8a&form=hpcapt&filters=HpDate:"20260427_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260428_AndeanBear"&FORM=HPQUIZ "必应主页测验 2026 4月 28")
+[下载480](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_800x480.jpg&rf=LaDigue_800x480.jpg "眼镜熊在树上休息, 厄瓜多尔")
+[下载720](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_1280x720.jpg&rf=LaDigue_1280x720.jpg "眼镜熊在树上休息, 厄瓜多尔")
+[下载1080](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "眼镜熊在树上休息, 厄瓜多尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_UHD.jpg&rf=LaDigue_UHD.jpg "眼镜熊在树上休息, 厄瓜多尔")
+
+---
 ### 04月27日：有格调的玻璃
 #### 维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利（© PhillipMinnis/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_1280x720.jpg&rf=LaDigue_1280x720.jpg "海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_UHD.jpg&rf=LaDigue_UHD.jpg "海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚")
-
----
-### 04月13日：当灯光熄灭之后
-#### 安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国（© Kevin Key/Slworking)/Getty Images）
-
-![当灯光熄灭之后](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_800x480.jpg&rf=LaDigue_800x480.jpg "当灯光熄灭之后")
-
-当夜幕降临，宇宙便开始上演一场壮丽的“光影秀”。每年四月举行的国际暗夜周，邀请人们重新发现夜晚的魅力，并了解为什么黑暗同样值得被保护。这项活动始于2003年，旨在提醒公众关注过度的人造光照对野生动物、人类健康、能源消耗以及我们观测星空能力所带来的影响。减少不必要的灯光并不意味着降低安全性——通过科学、合理的照明设计，完全可以在保证安全的同时减少光污染。
-
-暗夜不仅让人们看到更多星星，也有助于天文学家观测微弱天体。减少光污染还能保护自然夜间环境的正常节律，让人类与自然都能共享真实而纯净的星空。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%93%b6%e6%b2%b3&form=hpcapt&filters=HpDate:"20260412_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260413_BorregoStars"&FORM=HPQUIZ "必应主页测验 2026 4月 13")
-[下载480](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_800x480.jpg&rf=LaDigue_800x480.jpg "安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_1280x720.jpg&rf=LaDigue_1280x720.jpg "安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_UHD.jpg&rf=LaDigue_UHD.jpg "安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国")
 
 ---
