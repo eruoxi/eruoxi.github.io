@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月29日：历史镌刻于石上
+#### 塔霍河岸边的贝伦塔, 里斯本, 葡萄牙（© f9photos/Getty Images）
+
+![历史镌刻于石上](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_800x480.jpg&rf=LaDigue_800x480.jpg "历史镌刻于石上")
+
+昔日，离开里斯本的船只在驶向浩瀚的大西洋之前，都会经过一座小小的石塔。这座矗立在塔霍河畔的石塔，既是守护者，也是告别的象征。让我们一起来认识贝伦塔——这座见证葡萄牙扬帆起航，迈入大航海时代的堡垒。
+
+贝伦塔于1983年被列入联合国教科文组织世界遗产名录，是里斯本市和葡萄牙在世界上的标志性建筑。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%b4%9d%e4%bc%a6%e5%a1%94&form=hpcapt&filters=HpDate:"20260428_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260429_BelemTowerBank"&FORM=HPQUIZ "必应主页测验 2026 4月 29")
+[下载480](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_800x480.jpg&rf=LaDigue_800x480.jpg "塔霍河岸边的贝伦塔, 里斯本, 葡萄牙")
+[下载720](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_1280x720.jpg&rf=LaDigue_1280x720.jpg "塔霍河岸边的贝伦塔, 里斯本, 葡萄牙")
+[下载1080](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔霍河岸边的贝伦塔, 里斯本, 葡萄牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_UHD.jpg&rf=LaDigue_UHD.jpg "塔霍河岸边的贝伦塔, 里斯本, 葡萄牙")
+
+---
 ### 04月28日：野外奇观
 #### 眼镜熊在树上休息, 厄瓜多尔（© Andy Rouse/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_1280x720.jpg&rf=LaDigue_1280x720.jpg "光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国")
 [下载1080](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_UHD.jpg&rf=LaDigue_UHD.jpg "光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国")
-
----
-### 04月14日：珊瑚礁邻居
-#### 海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚（© Magnus Lundgren/Nature Picture Library）
-
-![珊瑚礁邻居](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_800x480.jpg&rf=LaDigue_800x480.jpg "珊瑚礁邻居")
-
-海葵看起来像水下花朵，但实际上是动物——与水母和珊瑚是近亲。它们附着在岩石或珊瑚礁上，利用黏性基部和顶端挥动的触手（触手上长有细小的刺细胞）来捕获过往的猎物。这些刺细胞能麻痹小型鱼类，但有一种著名的“邻居”却对此免疫。
-
-海葵是珊瑚和水母的近亲，是一种带刺的水螅体动物。它们大部分时间都附着在海底的岩石上或珊瑚礁上，等待鱼儿游近，然后用充满毒液的触手将其缠住。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e8%91%b5&form=hpcapt&filters=HpDate:"20260413_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260414_OcellarisClownfish"&FORM=HPQUIZ "必应主页测验 2026 4月 14")
-[下载480](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_800x480.jpg&rf=LaDigue_800x480.jpg "海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚")
-[下载720](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_1280x720.jpg&rf=LaDigue_1280x720.jpg "海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_UHD.jpg&rf=LaDigue_UHD.jpg "海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚")
 
 ---
