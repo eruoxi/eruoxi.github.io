@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 04月30日：郁金香是这里的主角
+#### 葡萄风信子和郁金香, 库肯霍夫花园, 利塞, 荷兰（© Martin Ruegner/Getty Images）
+
+![郁金香是这里的主角](https://cn.bing.com/th?id=OHR.DutchTulips_ZH-CN6394892537_800x480.jpg&rf=LaDigue_800x480.jpg "郁金香是这里的主角")
+
+想象一下，一朵花引发了一场金融狂潮。听起来不太可能，对吧？然而，在17世纪30年代，郁金香在荷兰却做到了这一点。在郁金香狂热时期，稀有的郁金香球茎成了奢侈品，交易价格惊人——有些球茎的价值甚至堪比一栋房子。为什么如此珍贵？因为颜色和条纹图案独特的郁金香稀少且难以预测，收藏家们想要找到他们所能找到的最稀有的品种。
+
+花园现占地32公顷（79英亩），展示了100家参与公司的产品。这得益于人工种植的700万株球茎。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%ba%93%e8%82%af%e9%9c%8d%e5%a4%ab%e8%8a%b1%e5%9b%ad&form=hpcapt&filters=HpDate:"20260429_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260430_DutchTulips"&FORM=HPQUIZ "必应主页测验 2026 4月 30")
+[下载480](https://cn.bing.com/th?id=OHR.DutchTulips_ZH-CN6394892537_800x480.jpg&rf=LaDigue_800x480.jpg "葡萄风信子和郁金香, 库肯霍夫花园, 利塞, 荷兰")
+[下载720](https://cn.bing.com/th?id=OHR.DutchTulips_ZH-CN6394892537_1280x720.jpg&rf=LaDigue_1280x720.jpg "葡萄风信子和郁金香, 库肯霍夫花园, 利塞, 荷兰")
+[下载1080](https://cn.bing.com/th?id=OHR.DutchTulips_ZH-CN6394892537_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "葡萄风信子和郁金香, 库肯霍夫花园, 利塞, 荷兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.DutchTulips_ZH-CN6394892537_UHD.jpg&rf=LaDigue_UHD.jpg "葡萄风信子和郁金香, 库肯霍夫花园, 利塞, 荷兰")
+
+---
 ### 04月29日：历史镌刻于石上
 #### 塔霍河岸边的贝伦塔, 里斯本, 葡萄牙（© f9photos/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯卡吉特谷地郁金香花田, 华盛顿, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯卡吉特谷地郁金香花田, 华盛顿, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_UHD.jpg&rf=LaDigue_UHD.jpg "斯卡吉特谷地郁金香花田, 华盛顿, 美国")
-
----
-### 04月15日：走进这幅鲜活的画布
-#### 光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国（© Patrick Aventurier/Getty Images）
-
-![走进这幅鲜活的画布](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_800x480.jpg&rf=LaDigue_800x480.jpg "走进这幅鲜活的画布")
-
-艺术无处不在。创造力和自我表达是人类身份认同的重要组成部分，塑造着我们的过去和未来。有些人毕生致力于艺术，而另一些人则是艺术家作品的受益者。4月15日的世界艺术日旨在庆祝艺术创作与社会之间这种永恒的联系，正是这种联系塑造了我们的文化。
-
-世界艺术日定于4月15日，是为了纪念列奥纳多·达·芬奇的诞辰，表彰他对艺术和人类创造力的深远影响。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e8%89%ba%e6%9c%af%e6%97%a5&form=hpcapt&filters=HpDate:"20260414_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260415_VanGoghFields"&FORM=HPQUIZ "必应主页测验 2026 4月 15")
-[下载480](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_800x480.jpg&rf=LaDigue_800x480.jpg "光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国")
-[下载720](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_1280x720.jpg&rf=LaDigue_1280x720.jpg "光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国")
-[下载1080](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_UHD.jpg&rf=LaDigue_UHD.jpg "光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国")
 
 ---
