@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月01日：初夏·翠微长城
+#### 中国的长城（© aphotostory/Getty Images）
+
+![初夏·翠微长城](https://cn.bing.com/th?id=OHR.MayLaborDayY26_ZH-CN7554485395_800x480.jpg&rf=LaDigue_800x480.jpg "初夏·翠微长城")
+
+五月的中国北方，仿佛刚从春天的画卷中苏醒，带着清新的气息与恰到好处的温度，向远方的旅人发出邀请。无论是在古城街巷间寻访历史的回声，还是沿着万里长城的脊线远望群山，五月的北方都以其明净与舒展，呈现出一年中最适合出行的模样。此时出发，不仅能避开盛夏的炎热，也能在恰好的光影与温度中，收获一段轻盈而难忘的旅途。
+
+长城并非一条首尾相连的孤线，而是由历代王朝因地制宜、悉心营建的宏大防御体系。从大漠深处的夯土堡垒，到崇山峻岭间的砖石屏障，长城的每一寸肌理都闪烁着先民顺应自然、化繁为简的智慧光芒，堪称人类建筑史上与地理环境完美融合的典范。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%95%bf%e5%9f%8e&form=hpcapt&filters=HpDate:"20260430_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260501_MayLaborDayY26"&FORM=HPQUIZ "必应主页测验 2026 5月 1")
+[下载480](https://cn.bing.com/th?id=OHR.MayLaborDayY26_ZH-CN7554485395_800x480.jpg&rf=LaDigue_800x480.jpg "中国的长城")
+[下载720](https://cn.bing.com/th?id=OHR.MayLaborDayY26_ZH-CN7554485395_1280x720.jpg&rf=LaDigue_1280x720.jpg "中国的长城")
+[下载1080](https://cn.bing.com/th?id=OHR.MayLaborDayY26_ZH-CN7554485395_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国的长城")
+[下载UHD](https://cn.bing.com/th?id=OHR.MayLaborDayY26_ZH-CN7554485395_UHD.jpg&rf=LaDigue_UHD.jpg "中国的长城")
+
+---
 ### 04月30日：郁金香是这里的主角
 #### 葡萄风信子和郁金香, 库肯霍夫花园, 利塞, 荷兰（© Martin Ruegner/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FlyingFoxMom_ZH-CN2913012516_1280x720.jpg&rf=LaDigue_1280x720.jpg "灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.FlyingFoxMom_ZH-CN2913012516_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.FlyingFoxMom_ZH-CN2913012516_UHD.jpg&rf=LaDigue_UHD.jpg "灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚")
-
----
-### 04月16日：花瓣巡游
-#### 斯卡吉特谷地郁金香花田, 华盛顿, 美国（© Alan Majchrowicz/Getty Images）
-
-![花瓣巡游](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_800x480.jpg&rf=LaDigue_800x480.jpg "花瓣巡游")
-
-每年春天，华盛顿州的斯卡吉特山谷都会变成一片色彩斑斓的花海，斯卡吉特山谷郁金香节在此欢庆花季的到来。整个四月，游客们可以漫步于郁金香花园和农田，欣赏成排盛开的郁金香，远眺群山美景。
-
-郁金香谷农场占地15 英亩，种植着130种花卉，其中包括100多种郁金香。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%8e%e7%9b%9b%e9%a1%bf%e5%b7%9e%e6%96%af%e5%8d%a1%e5%90%89%e7%89%b9%e8%b0%b7&form=hpcapt&filters=HpDate:"20260415_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260416_SkagitTulips"&FORM=HPQUIZ "必应主页测验 2026 4月 16")
-[下载480](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_800x480.jpg&rf=LaDigue_800x480.jpg "斯卡吉特谷地郁金香花田, 华盛顿, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯卡吉特谷地郁金香花田, 华盛顿, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯卡吉特谷地郁金香花田, 华盛顿, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_UHD.jpg&rf=LaDigue_UHD.jpg "斯卡吉特谷地郁金香花田, 华盛顿, 美国")
 
 ---
