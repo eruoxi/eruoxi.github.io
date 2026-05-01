@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月02日：贾斯珀的自然魅力
+#### 阿尔伯塔省贾斯珀国家公园中的小型湖泊与湿地，加拿大（© Don White/Getty Images）
+
+![贾斯珀的自然魅力](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_800x480.jpg&rf=LaDigue_800x480.jpg "贾斯珀的自然魅力")
+
+你能想象一片面积超过1.1万平方公里的受保护荒野吗？这便是位于加拿大阿尔伯塔省的贾斯珀国家公园。它始建于1907年，是加拿大落基山脉日益完善的保护地网络中的重要一环，并于1930年正式被命名为国家公园。贾斯珀不仅展现了现代自然保护的成果，更承载着悠久的原住民文化底蕴，其中包括纳科达族（Nakoda）和塞克维潘族（Secwépemc）等民族与这片土地跨越千年的联系。公园内的地形地貌极为宏伟多样：从冰川融水汇聚而成的河川，到生机勃勃的高山草甸，再到由云杉和松树构成的茂密针叶林，共同构建出了一幅原始而壮丽的自然画卷。
+
+贾斯珀遍布冰川形成的壶穴湖，水温较主河流更暖，是西蟾蜍等两栖类重要的育婴室。环绕湖泊的泥炭沼泽宛如“生物海绵”，通过泥炭藓蓄纳雪水并调节径流，既保护了流域生态，也是调节气候的关键碳库。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e5%b0%94%e4%bc%af%e5%a1%94%e7%9c%81%e8%b4%be%e6%96%af%e7%8f%80%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260501_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260502_GreenJasper"&FORM=HPQUIZ "必应主页测验 2026 5月 2")
+[下载480](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔伯塔省贾斯珀国家公园中的小型湖泊与湿地，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔伯塔省贾斯珀国家公园中的小型湖泊与湿地，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔伯塔省贾斯珀国家公园中的小型湖泊与湿地，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔伯塔省贾斯珀国家公园中的小型湖泊与湿地，加拿大")
+
+---
 ### 05月01日：初夏·翠微长城
 #### 中国的长城（© aphotostory/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_1280x720.jpg&rf=LaDigue_1280x720.jpg "摩艾石像采石场，拉诺拉拉库，复活节岛，智利")
 [下载1080](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "摩艾石像采石场，拉诺拉拉库，复活节岛，智利")
 [下载UHD](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_UHD.jpg&rf=LaDigue_UHD.jpg "摩艾石像采石场，拉诺拉拉库，复活节岛，智利")
-
----
-### 04月17日：蝙蝠信号：开启
-#### 灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚（© Doug Gimesy/Nature Picture Library）
-
-![蝙蝠信号：开启](https://cn.bing.com/th?id=OHR.FlyingFoxMom_ZH-CN2913012516_800x480.jpg&rf=LaDigue_800x480.jpg "蝙蝠信号：开启")
-
-每年4月17日是“国际蝙蝠日”，这一天将目光投向地球的“夜班成员”——蝙蝠。作为分布在除南极洲外各大洲的飞行哺乳动物，全球已知蝙蝠种类超过1400种，在维持生态系统平衡方面发挥着重要作用。蝙蝠已经在地球上生存了超过5000万年。在众多种类中，真正以血液为食的“吸血蝙蝠”只有3种，且仅分布于美洲地区。绝大多数蝙蝠则以昆虫、水果、花蜜或花粉为食。在美国德克萨斯州的布拉肯洞穴（Bracken Cave），夏季最多可聚集约 2000 万只墨西哥无尾蝠，形成壮观的群居景象。许多蝙蝠通过捕食农作物害虫，有助于减少农药使用；还有一些则为野生龙舌兰授粉、传播种子，帮助森林恢复与再生。
-
-“蝙蝠侠”只是虚构的角色，而现实中的“蝙蝠信号”则是对保护的呼唤——由于栖息地丧失和疾病影响，蝙蝠种群正不断缩减。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%9d%99%e8%9d%a0&form=hpcapt&filters=HpDate:"20260416_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260417_FlyingFoxMom"&FORM=HPQUIZ "必应主页测验 2026 4月 17")
-[下载480](https://cn.bing.com/th?id=OHR.FlyingFoxMom_ZH-CN2913012516_800x480.jpg&rf=LaDigue_800x480.jpg "灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.FlyingFoxMom_ZH-CN2913012516_1280x720.jpg&rf=LaDigue_1280x720.jpg "灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.FlyingFoxMom_ZH-CN2913012516_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.FlyingFoxMom_ZH-CN2913012516_UHD.jpg&rf=LaDigue_UHD.jpg "灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚")
 
 ---
