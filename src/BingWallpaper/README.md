@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月03日：萨瓦纳的晚霞
+#### 萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚（© Klein & Hubert/Nature Picture Library）
+
+![萨瓦纳的晚霞](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_800x480.jpg&rf=LaDigue_800x480.jpg "萨瓦纳的晚霞")
+
+在肯尼亚马赛马拉萨瓦纳草原的高处，一只豹蜷缩在树枝上，在落日的余晖中静静小憩。在5月3日“国际豹类日”之际，我们共同致敬这种世界上适应力最强的大型猫科动物之一。豹的足迹遍布非洲及亚洲部分地区，无论是茂密的森林、险峻的山脉，还是开阔的萨瓦纳草原，它们都能茁壮成长。每只豹身上的斑点都是独一无二的，如同人类的指纹；而它们高超的攀爬技巧，则能将猎物拖至高树顶端，从而避开其他食腐动物的抢夺。
+
+豹已丧失了约75%的历史分布区，并被世界自然保护联盟（IUCN）列为“易危”物种。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e8%b1%b9%e7%b1%bb%e6%97%a5&form=hpcapt&filters=HpDate:"20260502_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260503_MasaiLeopard"&FORM=HPQUIZ "必应主页测验 2026 5月 3")
+[下载480](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_800x480.jpg&rf=LaDigue_800x480.jpg "萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_UHD.jpg&rf=LaDigue_UHD.jpg "萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚")
+
+---
 ### 05月02日：贾斯珀的自然魅力
 #### 阿尔伯塔省贾斯珀国家公园中的小型湖泊与湿地，加拿大（© Don White/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_1280x720.jpg&rf=LaDigue_1280x720.jpg "镜面海滩，塞古罗港，巴伊亚州，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "镜面海滩，塞古罗港，巴伊亚州，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg&rf=LaDigue_UHD.jpg "镜面海滩，塞古罗港，巴伊亚州，巴西")
-
----
-### 04月18日：未完成巨像的静默
-#### 摩艾石像采石场，拉诺拉拉库，复活节岛，智利（© Gavin Hellier/Alamy）
-
-![未完成巨像的静默](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_800x480.jpg&rf=LaDigue_800x480.jpg "未完成巨像的静默")
-
-在今天的世界遗产日，人们将目光投向那些讲述人类共同历史的地方——这些地点因其卓越的文化或自然价值而受到保护。其中之一，便矗立在智利复活节岛的火山岩之上。在拉诺拉拉库，一座已熄灭火山的山坡曾是岛上绝大多数著名摩艾石像的雕刻工坊。画面展现的正是这一非凡的采石场：半成品的巨像从岩石中显现，仿佛在创作的瞬间被定格。
-
-在拉诺拉拉库，许多摩艾石像长期以来只露出头部，仿佛被埋藏于地下。考古发掘发现，这些石像其实拥有完整的身体，背部还刻有精细的岩画纹饰，为了解拉帕努伊人的艺术风格与文化传统提供了重要线索。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e9%81%97%e4%ba%a7%e6%97%a5&form=hpcapt&filters=HpDate:"20260417_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260418_MaoiStatues"&FORM=HPQUIZ "必应主页测验 2026 4月 18")
-[下载480](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_800x480.jpg&rf=LaDigue_800x480.jpg "摩艾石像采石场，拉诺拉拉库，复活节岛，智利")
-[下载720](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_1280x720.jpg&rf=LaDigue_1280x720.jpg "摩艾石像采石场，拉诺拉拉库，复活节岛，智利")
-[下载1080](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "摩艾石像采石场，拉诺拉拉库，复活节岛，智利")
-[下载UHD](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_UHD.jpg&rf=LaDigue_UHD.jpg "摩艾石像采石场，拉诺拉拉库，复活节岛，智利")
 
 ---
