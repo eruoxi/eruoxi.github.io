@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月04日：科幻源于现实
+#### 乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部（© Dark_Eni/Getty Images Plus）
+
+![科幻源于现实](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_800x480.jpg&rf=LaDigue_800x480.jpg "科幻源于现实")
+
+“愿原力与你同在！”在星球大战日这一天，现实仿佛披上科幻的外衣，让人一时难以分辨虚实。画面将我们带到突尼斯南部塔塔温地区的乌莱德·索尔坦克萨尔，这里层层堆叠的土坯粮仓宛如沙色堡垒，充满异域与未来感。这座建筑群始建于 15 世纪，由当地柏柏尔人修建，用于保护粮食免受高温、盗窃和时间侵蚀。它的设计首先服务于实用功能，而独特的美感则在不经意间自然呈现——仿佛现实中的“科幻场景”。
+
+突尼斯索尔塔纳堡的多层土窖（Ghorfas）助力社区在严酷的沙漠气候中实现集体储粮与防御。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%98%9f%e7%90%83%e5%a4%a7%e6%88%98%e6%97%a5&form=hpcapt&filters=HpDate:"20260503_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260504_KsarOuledSoltane"&FORM=HPQUIZ "必应主页测验 2026 5月 4")
+[下载480](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_800x480.jpg&rf=LaDigue_800x480.jpg "乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部")
+[下载720](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部")
+[下载1080](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部")
+[下载UHD](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_UHD.jpg&rf=LaDigue_UHD.jpg "乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部")
+
+---
 ### 05月03日：萨瓦纳的晚霞
 #### 萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚（© Klein & Hubert/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_1280x720.jpg&rf=LaDigue_1280x720.jpg "夕阳下的峡谷地国家公园，莫阿布，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夕阳下的峡谷地国家公园，莫阿布，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_UHD.jpg&rf=LaDigue_UHD.jpg "夕阳下的峡谷地国家公园，莫阿布，犹他州，美国")
-
----
-### 04月19日：潮汐留下的印记
-#### 镜面海滩，塞古罗港，巴伊亚州，巴西（© Marcelo Nacinovic/Getty Images）
-
-![潮汐留下的印记](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_800x480.jpg&rf=LaDigue_800x480.jpg "潮汐留下的印记")
-
-从空中俯瞰，巴西的镜面海滩宛如一幅可以走入其中的水彩画。浅色的悬崖、点缀在海岸线上的礁石，以及由潮汐形成的片片水潭，在退潮时清晰映出天空与云朵，也正因如此，这片海滩得名“镜面海滩”。它位于巴西东北部大西洋沿岸的巴伊亚州，坐落在塞古罗港的几座小渔村之间。通往这里需要经过土路和短途步道，这种相对不便的交通反而成为一种“天然限流”，让海滩始终保持着宁静而私密的氛围。它位于巴西东北部大西洋沿岸的巴伊亚州，坐落在塞古罗港的几座小渔村之间。通往这里需要经过土路和短途步道，这种相对不便的交通反而成为一种“天然限流”，让海滩始终保持着宁静而私密的氛围。
-
-在镜面海滩，能否看到清晰倒影其实取决于环境条件。当风力较小、潮位较低时，浅水水潭会像天然镜子一样平静；但只要出现轻微的水波，倒影就会立刻被“打破”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e8%a5%bf%e5%b7%b4%e4%bc%8a%e4%ba%9a%e5%b7%9e&form=hpcapt&filters=HpDate:"20260418_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260419_TranBA"&FORM=HPQUIZ "必应主页测验 2026 4月 19")
-[下载480](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_800x480.jpg&rf=LaDigue_800x480.jpg "镜面海滩，塞古罗港，巴伊亚州，巴西")
-[下载720](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_1280x720.jpg&rf=LaDigue_1280x720.jpg "镜面海滩，塞古罗港，巴伊亚州，巴西")
-[下载1080](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "镜面海滩，塞古罗港，巴伊亚州，巴西")
-[下载UHD](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg&rf=LaDigue_UHD.jpg "镜面海滩，塞古罗港，巴伊亚州，巴西")
 
 ---
