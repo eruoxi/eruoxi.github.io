@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月05日：藕花风起，首夏清和
+#### 莲花与莲花植株（© real444/Getty Images）
+
+![藕花风起，首夏清和](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_800x480.jpg&rf=LaDigue_800x480.jpg "藕花风起，首夏清和")
+
+立夏之日，春意虽未尽，夏木已成阴。这是中国时令中一个充满生命力的转折点：蝼蝈鸣，蚯蚓出，王瓜生。告别了春日的繁花绚烂，北方的天空愈发高远明净，南方的雨水则带来了润物无声的翠绿。此时风物，不在于热烈，而在于那份“清和”——万物至此皆长大，天地间流淌着一种舒展而轻盈的力量。
+
+“活化石”植物： 荷花是地球上最古老的双子叶植物之一，其种子的生命力极其顽强，埋藏在土层中千年的“古莲子”在适宜条件下仍能萌芽开花。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e7%9a%84%e8%8d%b7%e8%8a%b1&form=hpcapt&filters=HpDate:"20260504_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260505_BeginningofSummerY26"&FORM=HPQUIZ "必应主页测验 2026 5月 5")
+[下载480](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_800x480.jpg&rf=LaDigue_800x480.jpg "莲花与莲花植株")
+[下载720](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_1280x720.jpg&rf=LaDigue_1280x720.jpg "莲花与莲花植株")
+[下载1080](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莲花与莲花植株")
+[下载UHD](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_UHD.jpg&rf=LaDigue_UHD.jpg "莲花与莲花植株")
+
+---
 ### 05月04日：科幻源于现实
 #### 乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部（© Dark_Eni/Getty Images Plus）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_1280x720.jpg&rf=LaDigue_1280x720.jpg "西欧刺猬，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西欧刺猬，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_UHD.jpg&rf=LaDigue_UHD.jpg "西欧刺猬，法国")
-
----
-### 04月20日：日落之后，探索仍在继续
-#### 夕阳下的峡谷地国家公园，莫阿布，犹他州，美国（© Jason Hatfield/Tandem Stills + Motion）
-
-![日落之后，探索仍在继续](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_800x480.jpg&rf=LaDigue_800x480.jpg "日落之后，探索仍在继续")
-
-国家公园周，是你暂别日常、走向自然的最佳契机。这一为期九天的庆祝活动将于4月18日至26日举行，聚焦国家公园体系中400多处自然与文化遗产地。在这里，自然风光与人文历史交织，为人们带来难忘的户外体验。从海岸线与森林，到辽阔的沙漠景观，这些受保护的区域邀请人们走进自然，感受宁静，心怀敬畏。
-
-你看到的银河，其实并不是“实时画面”。 在像峡谷地国家公园这样光污染极低的地方，人眼可以看到的银河中心区域，距离地球约2.6万光年——也就是说，你看到的是2.6万年前发出的光。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b3%a1%e8%b0%b7%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260419_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260420_SunsetKiva"&FORM=HPQUIZ "必应主页测验 2026 4月 20")
-[下载480](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_800x480.jpg&rf=LaDigue_800x480.jpg "夕阳下的峡谷地国家公园，莫阿布，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_1280x720.jpg&rf=LaDigue_1280x720.jpg "夕阳下的峡谷地国家公园，莫阿布，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夕阳下的峡谷地国家公园，莫阿布，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_UHD.jpg&rf=LaDigue_UHD.jpg "夕阳下的峡谷地国家公园，莫阿布，犹他州，美国")
 
 ---
