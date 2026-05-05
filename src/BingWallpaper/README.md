@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月06日：承受压力之下的平原
+#### 平原上空的雷暴，保加利亚（© Revolu7ion93/Getty Images）
+
+![承受压力之下的平原](https://cn.bing.com/th?id=OHR.BulgariaPlains_ZH-CN3853985252_800x480.jpg&rf=LaDigue_800x480.jpg "承受压力之下的平原")
+
+在壮阔的天幕下，保加利亚的两大平原展现了国家的农业核心。多瑙河平原横跨北部，起伏的田野与河谷受温带大陆性气候影响，炎热的夏季常催生强烈的雷暴。再往南是上色雷斯平原，地势更低且更温暖，受大陆系统及从爱琴海地区涌入的地中海气流共同影响。在这里，酷暑与马里查河流域的水汽交织，使该地区极易发生剧烈的夏季风暴——正如此刻在图像中平原上空上演的景象。
+
+保加利亚坐落在巴尔干半岛东部，地处欧亚交汇的十字路口。在这里，古老文明、肥沃景观与多变的气候交相感应。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bf%9d%e5%8a%a0%e5%88%a9%e4%ba%9a&form=hpcapt&filters=HpDate:"20260505_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260506_BulgariaPlains"&FORM=HPQUIZ "必应主页测验 2026 5月 6")
+[下载480](https://cn.bing.com/th?id=OHR.BulgariaPlains_ZH-CN3853985252_800x480.jpg&rf=LaDigue_800x480.jpg "平原上空的雷暴，保加利亚")
+[下载720](https://cn.bing.com/th?id=OHR.BulgariaPlains_ZH-CN3853985252_1280x720.jpg&rf=LaDigue_1280x720.jpg "平原上空的雷暴，保加利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.BulgariaPlains_ZH-CN3853985252_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "平原上空的雷暴，保加利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.BulgariaPlains_ZH-CN3853985252_UHD.jpg&rf=LaDigue_UHD.jpg "平原上空的雷暴，保加利亚")
+
+---
 ### 05月05日：藕花风起，首夏清和
 #### 莲花与莲花植株（© real444/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_UHD.jpg&rf=LaDigue_UHD.jpg "阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚")
-
----
-### 04月21日：春季的“带刺巡逻兵”
-#### 西欧刺猬，法国（© Klein & Hubert/Nature Picture Library）
-
-![春季的“带刺巡逻兵”](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_800x480.jpg&rf=LaDigue_800x480.jpg "春季的“带刺巡逻兵”")
-
-春季降临，我们迎来了一位身披短刺的“生态使者”：西欧刺猬，本次发现于法国。这种体型微小的食虫类动物兼具独特的生物防御形态；它们多为夜行性且具有领域独居意识，主要依靠嗅觉与听觉导向。其生态位职责明确：通过在落叶层中游走、嗅探，大量捕食蚯蚓、甲虫、蛞蝓及鳞翅目幼虫等无脊椎动物——这些物种不仅是维持生态系统运转的关键环节，也是园艺害虫防治的天然助力。面对威胁时，西欧刺猬既不交涉也不逃逸，而是迅速蜷缩成紧密的球状，依靠背部的棘刺进行物理防御。
-
-西欧刺猬的背部覆有 5,000 至 7,000 根棘刺，这些刺是由角蛋白构成的坚硬中空毛发；需注意其与豪猪的刺（Quills）在结构上有所不同，并非如豪猪般具有倒钩且易脱落的‘防御性棘毛’。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e6%ac%a7%e5%88%ba%e7%8c%ac&form=hpcapt&filters=HpDate:"20260420_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260421_SpringHedgehog"&FORM=HPQUIZ "必应主页测验 2026 4月 21")
-[下载480](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_800x480.jpg&rf=LaDigue_800x480.jpg "西欧刺猬，法国")
-[下载720](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_1280x720.jpg&rf=LaDigue_1280x720.jpg "西欧刺猬，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西欧刺猬，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_UHD.jpg&rf=LaDigue_UHD.jpg "西欧刺猬，法国")
 
 ---
