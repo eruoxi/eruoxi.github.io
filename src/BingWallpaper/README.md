@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月07日：广袤铺展的沙漠
+#### 科法国家野生动物保护区，亚利桑那州，美国（© Denis Tangney Jr/Getty Images）
+
+![广袤铺展的沙漠](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_800x480.jpg&rf=LaDigue_800x480.jpg "广袤铺展的沙漠")
+
+横跨美国西南部亚利桑那州索诺兰沙漠的科法国家野生动物保护区，是一片由峭壁山峰、开阔天空与顽强生命共同构成的独特荒野。
+
+科法的棕榈峡谷庇护着亚利桑那州唯一的原生棕榈。这些史前残遗物种躲藏在深邃遮阴的岩缝中，在酷热的沙漠里利用阴凉的微气候繁衍至今。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e6%b3%95%e5%9b%bd%e5%ae%b6%e9%87%8e%e7%94%9f%e5%8a%a8%e7%89%a9%e4%bf%9d%e6%8a%a4%e5%8c%ba&form=hpcapt&filters=HpDate:"20260506_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260507_Kofa"&FORM=HPQUIZ "必应主页测验 2026 5月 7")
+[下载480](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_800x480.jpg&rf=LaDigue_800x480.jpg "科法国家野生动物保护区，亚利桑那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_1280x720.jpg&rf=LaDigue_1280x720.jpg "科法国家野生动物保护区，亚利桑那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科法国家野生动物保护区，亚利桑那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_UHD.jpg&rf=LaDigue_UHD.jpg "科法国家野生动物保护区，亚利桑那州，美国")
+
+---
 ### 05月06日：承受压力之下的平原
 #### 平原上空的雷暴，保加利亚（© Revolu7ion93/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_1280x720.jpg&rf=LaDigue_1280x720.jpg "安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_UHD.jpg&rf=LaDigue_UHD.jpg "安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰")
-
----
-### 04月22日：行动的力量
-#### 阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚（© Sven Zacek/Nature Picture Library）
-
-![行动的力量](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_800x480.jpg&rf=LaDigue_800x480.jpg "行动的力量")
-
-地球日从不是轻轻敲门，而是一次将大门猛然推开的觉醒。1970年，沾满石油的海滩、燃烧的河流与充满毒素的空气，让数百万人走上街头抗议。当人们再也无法视而不见，环境保护被推上政治议程，催生出一系列里程碑式的环保法案，也让“守护地球”从边缘议题跃升为全球共识。每年4月22日，全球190多个国家都会在这一天停下脚步，反思、审视，并重新思考我们与地球的关系。
-
-湿地常被称为“地球的肾脏”。虽然只覆盖全球陆地面积的一小部分，但它们却能储存约三分之一的土壤碳。像阿拉姆-佩德亚这样的湿地系统，通过自然积累的泥炭层，将大量碳长期封存，从而在减缓气候变化中发挥着关键作用。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%9c%b0%e7%90%83%e6%97%a5&form=hpcapt&filters=HpDate:"20260421_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260422_TartuEstonia"&FORM=HPQUIZ "必应主页测验 2026 4月 22")
-[下载480](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_800x480.jpg&rf=LaDigue_800x480.jpg "阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_UHD.jpg&rf=LaDigue_UHD.jpg "阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚")
 
 ---
