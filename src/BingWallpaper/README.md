@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月08日：不仅仅是一声咿呀学语
+#### 撒丁岛母驴和幼崽, 法国（© Klein & Hubert/Nature Picture Library）
+
+![不仅仅是一声咿呀学语](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_800x480.jpg&rf=LaDigue_800x480.jpg "不仅仅是一声咿呀学语")
+
+世界驴日旨在庆祝人类最默默无闻却能力出众的伙伴之一——驴。数千年来，驴一直与人类并肩工作，它们以耐力、敏锐的记忆力和在崎岖地形上稳健的步伐而备受推崇。人们常常误以为它们固执，但实际上它们是谨慎的思考者——它们会停下来评估风险，而不是贸然行事。
+
+骡子是公驴和母马杂交产生的后代。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%b4&form=hpcapt&filters=HpDate:"20260507_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260508_SardinianDonkey"&FORM=HPQUIZ "必应主页测验 2026 5月 8")
+[下载480](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_800x480.jpg&rf=LaDigue_800x480.jpg "撒丁岛母驴和幼崽, 法国")
+[下载720](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1280x720.jpg&rf=LaDigue_1280x720.jpg "撒丁岛母驴和幼崽, 法国")
+[下载1080](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "撒丁岛母驴和幼崽, 法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg&rf=LaDigue_UHD.jpg "撒丁岛母驴和幼崽, 法国")
+
+---
 ### 05月07日：广袤铺展的沙漠
 #### 科法国家野生动物保护区，亚利桑那州，美国（© Denis Tangney Jr/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_1280x720.jpg&rf=LaDigue_1280x720.jpg "湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_UHD.jpg&rf=LaDigue_UHD.jpg "湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国")
-
----
-### 04月23日：一座充满故事的小屋
-#### 安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰（© David Steele/Shutterstock）
-
-![一座充满故事的小屋](https://cn.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_800x480.jpg&rf=LaDigue_800x480.jpg "一座充满故事的小屋")
-
-每年4月23日，世界都会再次聚焦威廉·莎士比亚的生平与遗产。这位剧作家的文字，至今仍在全球文学舞台上熠熠生辉。“莎士比亚日”既是他于1616年逝世的纪念日，也被普遍视为他1564年的诞辰。这一巧合般的日期，为这位重塑英语文学的伟大作家赋予了象征性的意义。从《哈姆雷特》中对人性深处的探寻，到《罗密欧与朱丽叶》里跨越生死的爱情，他的语言至今仍回荡在课堂、剧院与日常表达之中。莎士比亚的作品已被翻译成多种语言，并在世界各地不断上演，跨越时间与文化，持续影响着一代又一代人。
-
-你现在读到的莎士比亚作品，其实和他当年写下的版本并不完全一样。17世纪早期并没有统一的拼写标准，同一个词在不同版本中可能有多种写法。许多我们今天熟悉的文本，都是后来根据演员记忆、手稿和印刷本整理校订而成的。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8e%8e%e5%a3%ab%e6%af%94%e4%ba%9a%e6%97%a5&form=hpcapt&filters=HpDate:"20260422_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260423_HathawayCottage"&FORM=HPQUIZ "必应主页测验 2026 4月 23")
-[下载480](https://cn.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_800x480.jpg&rf=LaDigue_800x480.jpg "安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_1280x720.jpg&rf=LaDigue_1280x720.jpg "安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_UHD.jpg&rf=LaDigue_UHD.jpg "安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰")
 
 ---
