@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月09日：克尔卡的造物主
+#### 克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚（© Amazing Aerial Agency/Adobe Stock）
+
+![克尔卡的造物主](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_800x480.jpg&rf=LaDigue_800x480.jpg "克尔卡的造物主")
+
+水是克罗地亚克尔卡国家公园的缔造者，它沿着克尔卡河塑造了碧绿的水潭和层叠的瀑布。今天的照片重点展示了公园最著名的瀑布群——斯克拉丁斯基布克瀑布，多条溪流从洛佐瓦茨村附近茂密森林中的石灰华梯田倾泻而下。
+
+斯克拉丁斯基布克瀑布是克尔卡河上的第七座、也是最后一座、最长的石灰华堰，同时也是欧洲最长的石灰华堰。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%85%8b%e7%bd%97%e5%9c%b0%e4%ba%9a%e5%85%8b%e5%b0%94%e5%8d%a1%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260508_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260509_SkradinskiBuk"&FORM=HPQUIZ "必应主页测验 2026 5月 9")
+[下载480](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_800x480.jpg&rf=LaDigue_800x480.jpg "克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚")
+[下载720](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_1280x720.jpg&rf=LaDigue_1280x720.jpg "克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚")
+[下载1080](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_UHD.jpg&rf=LaDigue_UHD.jpg "克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚")
+
+---
 ### 05月08日：不仅仅是一声咿呀学语
 #### 撒丁岛母驴和幼崽, 法国（© Klein & Hubert/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_1280x720.jpg&rf=LaDigue_1280x720.jpg "加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_UHD.jpg&rf=LaDigue_UHD.jpg "加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔")
-
----
-### 04月24日：向树木致敬
-#### 湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国（© Mary Liz Austin/Alamy）
-
-![向树木致敬](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_800x480.jpg&rf=LaDigue_800x480.jpg "向树木致敬")
-
-植树节旨在颂扬树木的无声力量——它们如何稳定生态系统、庇护野生动物、为城市降温，并塑造我们日常生活所依赖的环境。在美国，植树节定于四月的最后一个星期五，这一天鼓励美国以及许多其他国家（日期因生长季节而异）的社区种植、保护和养护各种类型的森林，从社区绿荫到标志性的荒野。
-
-在这些复杂的生态系统中，栖息着种类繁多的水陆动物，包括在安兴加步道旁晒太阳的短吻鳄、在沼泽中觅食的苍鹭和白鹭，以及在海湾中悠然游弋的海牛。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e6%b2%bc%e6%b3%bd%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260423_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260424_SlashPine"&FORM=HPQUIZ "必应主页测验 2026 4月 24")
-[下载480](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_800x480.jpg&rf=LaDigue_800x480.jpg "湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_1280x720.jpg&rf=LaDigue_1280x720.jpg "湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_UHD.jpg&rf=LaDigue_UHD.jpg "湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国")
 
 ---
