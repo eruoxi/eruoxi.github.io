@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月10日：一份经久不衰的羁绊
+#### 北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大（© Hao Jiang/Getty Images）
+
+![一份经久不衰的羁绊](https://cn.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_800x480.jpg&rf=LaDigue_800x480.jpg "一份经久不衰的羁绊")
+
+在母亲节这一天，我们向所有塑造生命、展现耐心和守护的母亲们致敬。在野外，这些品质在生存最为艰难的地方往往显得尤为重要。今天这张照片拍摄于加拿大曼尼托巴省北部的瓦普斯克国家公园，展现了一只北极熊妈妈和她的幼崽在北极苔原上嬉戏玩耍的温馨时刻。
+
+母亲节是为了庆祝家庭或个人的母亲，以及母爱、母子情谊和母亲在社会中的影响而设立的节日。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%af%8d%e4%ba%b2%e8%8a%82&form=hpcapt&filters=HpDate:"20260509_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260510_MotherCub"&FORM=HPQUIZ "必应主页测验 2026 5月 10")
+[下载480](https://cn.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_800x480.jpg&rf=LaDigue_800x480.jpg "北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大")
+
+---
 ### 05月09日：克尔卡的造物主
 #### 克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚（© Amazing Aerial Agency/Adobe Stock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_1280x720.jpg&rf=LaDigue_1280x720.jpg "粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_UHD.jpg&rf=LaDigue_UHD.jpg "粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国")
-
----
-### 04月25日：打破企鹅规则
-#### 加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔（© Henley Spiers/Nature Picture Library）
-
-![打破企鹅规则](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_800x480.jpg&rf=LaDigue_800x480.jpg "打破企鹅规则")
-
-企鹅通常让人联想到南极，但这些可爱的不会飞的海鸟并非总是追随冰雪而来。在世界企鹅日，图中这些加拉帕戈斯企鹅为我们展现了一个鲜明的对比。这种企鹅仅分布于加拉帕戈斯群岛——位于厄瓜多尔海岸约600英里外的火山群岛——是所有企鹅中分布最北的物种。凉爽且富含营养的洋流为它们提供了食物，并将周围水域的温度维持在适宜生存的范围内，从而使这种赤道栖息地成为可能。这些体型紧凑、行动敏捷的企鹅一天中的大部分时间都待在水中以保持凉爽。
-
-每只企鹅都有自己独特的叫声。这有助于它们在庞大的企鹅群落中找到伴侣和幼崽，这些企鹅群落的数量从几百只到几万只不等。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e4%bc%81%e9%b9%85%e6%97%a5&form=hpcapt&filters=HpDate:"20260424_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260425_GalapagosPenguins"&FORM=HPQUIZ "必应主页测验 2026 4月 25")
-[下载480](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_800x480.jpg&rf=LaDigue_800x480.jpg "加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔")
-[下载720](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_1280x720.jpg&rf=LaDigue_1280x720.jpg "加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔")
-[下载1080](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔")
-[下载UHD](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_UHD.jpg&rf=LaDigue_UHD.jpg "加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔")
 
 ---
