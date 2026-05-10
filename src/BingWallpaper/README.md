@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月11日：水下建筑
+#### 从上方俯瞰大堡礁, 昆士兰州, 澳大利亚（© Francesco Riccardo Iacomino/Getty Images）
+
+![水下建筑](https://cn.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_800x480.jpg&rf=LaDigue_800x480.jpg "水下建筑")
+
+世界最伟大的自然奇观之一，绵延在澳大利亚东北海岸线外的珊瑚海碧绿海水中。大堡礁沿着昆士兰海岸延伸，是世界上最大的珊瑚礁系统。它由近3000个独立的珊瑚礁和数百个岛屿组成，绵延超过1400英里。
+
+纬度和跨陆架多样性，加上水体深度的多样性，构成了全球独一无二的生态群落、栖息地和物种。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%be%b3%e5%a4%a7%e5%88%a9%e4%ba%9a%e5%a4%a7%e5%a0%a1%e7%a4%81&form=hpcapt&filters=HpDate:"20260510_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260511_QueenslandReef"&FORM=HPQUIZ "必应主页测验 2026 5月 11")
+[下载480](https://cn.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_800x480.jpg&rf=LaDigue_800x480.jpg "从上方俯瞰大堡礁, 昆士兰州, 澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_1280x720.jpg&rf=LaDigue_1280x720.jpg "从上方俯瞰大堡礁, 昆士兰州, 澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从上方俯瞰大堡礁, 昆士兰州, 澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_UHD.jpg&rf=LaDigue_UHD.jpg "从上方俯瞰大堡礁, 昆士兰州, 澳大利亚")
+
+---
 ### 05月10日：一份经久不衰的羁绊
 #### 北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大（© Hao Jiang/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_1280x720.jpg&rf=LaDigue_1280x720.jpg "维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_UHD.jpg&rf=LaDigue_UHD.jpg "维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利")
-
----
-### 04月26日：繁花盛放
-#### 粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国（© Mimi Ditchie Photography/Getty Images）
-
-![繁花盛放](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_800x480.jpg&rf=LaDigue_800x480.jpg "繁花盛放")
-
-春天，苹果树绽放出朵朵柔和的粉色花朵，生机盎然。娇嫩的花瓣点缀着果园和山坡，在湛蓝的天空映衬下格外醒目，标志着季节从寒冬走向温暖。这些花朵吸引着蜜蜂和蝴蝶等授粉昆虫，帮助果树结出丰硕的果实，为来年晚些时候的苹果生长做好准备。
-
-苹果花可以新鲜食用，也可以晒干后食用，香气浓郁，带有甜美的花香，是各种烹饪用途的理想食材。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8b%b9%e6%9e%9c%e6%a0%91&form=hpcapt&filters=HpDate:"20260425_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260426_AppleBlossoms"&FORM=HPQUIZ "必应主页测验 2026 4月 26")
-[下载480](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_800x480.jpg&rf=LaDigue_800x480.jpg "粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_1280x720.jpg&rf=LaDigue_1280x720.jpg "粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_UHD.jpg&rf=LaDigue_UHD.jpg "粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国")
 
 ---
