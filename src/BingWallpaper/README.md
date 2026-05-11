@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月12日：振翅, 潜水, 生存
+#### 北极海鹦, 威尔士（© FLPA/Alamy）
+
+![振翅, 潜水, 生存](https://cn.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_800x480.jpg&rf=LaDigue_800x480.jpg "振翅, 潜水, 生存")
+
+在北大西洋崎岖的海岸线上，大西洋海鹦栖息于洞穴和峭壁缝隙中。这些羽毛黑白相间、喙色艳丽的海鸟，由于过度捕捞和海洋环境变化导致猎物数量减少，被世界自然保护联盟（IUCN）列为易危物种。每年春天，它们都会返回此地繁殖，在精心挖掘的洞穴中产下一枚卵。作为游泳健将，它们在捕食鲱鱼和沙鳗等小型鱼类时，会利用翅膀在水下“飞行”。
+
+大西洋海鹦的飞行路线是直线飞行，通常在海面以上10米（35 英尺）处，比大多数其他海雀飞得更高。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%9e%81%e6%b5%b7%e9%b9%a6&form=hpcapt&filters=HpDate:"20260511_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260512_Fratercula"&FORM=HPQUIZ "必应主页测验 2026 5月 12")
+[下载480](https://cn.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_800x480.jpg&rf=LaDigue_800x480.jpg "北极海鹦, 威尔士")
+[下载720](https://cn.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极海鹦, 威尔士")
+[下载1080](https://cn.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极海鹦, 威尔士")
+[下载UHD](https://cn.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_UHD.jpg&rf=LaDigue_UHD.jpg "北极海鹦, 威尔士")
+
+---
 ### 05月11日：水下建筑
 #### 从上方俯瞰大堡礁, 昆士兰州, 澳大利亚（© Francesco Riccardo Iacomino/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_1280x720.jpg&rf=LaDigue_1280x720.jpg "眼镜熊在树上休息, 厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "眼镜熊在树上休息, 厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_UHD.jpg&rf=LaDigue_UHD.jpg "眼镜熊在树上休息, 厄瓜多尔")
-
----
-### 04月27日：有格调的玻璃
-#### 维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利（© PhillipMinnis/Getty Images）
-
-![有格调的玻璃](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_800x480.jpg&rf=LaDigue_800x480.jpg "有格调的玻璃")
-
-由建筑师朱塞佩·门戈尼设计，于1877年竣工的维托里奥·埃马努埃莱二世拱廊位于意大利米兰，是世界上最古老、最著名的购物拱廊之一。它坐落于米兰大教堂广场和斯卡拉广场之间，拥有令人惊艳的玻璃铁艺屋顶和优雅的八角形布局。这条拱廊被亲切地称为“米兰的客厅”，汇集了众多高端精品店、历史悠久的咖啡馆以及知名餐厅。
-
-当时，意大利正经历着艰难的统一时期，门戈尼将这座拱廊视为凝聚人心的途径。因此，拱廊内的马赛克镶嵌画充满了爱国主义符号，旨在激励团结。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9f%83%e9%a9%ac%e5%8a%aa%e5%9f%83%e8%8e%b1%e4%ba%8c%e4%b8%96%e6%8b%b1%e5%bb%8a&form=hpcapt&filters=HpDate:"20260426_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260427_MilanGalleria"&FORM=HPQUIZ "必应主页测验 2026 4月 27")
-[下载480](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_800x480.jpg&rf=LaDigue_800x480.jpg "维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利")
-[下载720](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_1280x720.jpg&rf=LaDigue_1280x720.jpg "维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_UHD.jpg&rf=LaDigue_UHD.jpg "维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利")
 
 ---
