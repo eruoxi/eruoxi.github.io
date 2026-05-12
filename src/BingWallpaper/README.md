@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月13日：银河系，摇滚吧！
+#### 拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国（© Tim Fitzharris/Minden Pictures）
+
+![银河系，摇滚吧！](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_800x480.jpg&rf=LaDigue_800x480.jpg "银河系，摇滚吧！")
+
+在今天这张照片中，阿拉巴马山的花岗岩拱门将银河框入加州东部内华达山脉崎岖的地貌之中。这片区域以其圆润的巨石和风化的岩层而闻名，大约在1亿年前由火山活动形成。水和风逐渐将岩石塑造成如今光滑的形状。游客可以探索天然拱门，在岩石间徒步，拍摄独特的景观，骑马或骑山地自行车，并欣赏季节性的野花盛开。
+
+在这片干旱的土地上，翠绿的沙漠橄榄）、黄柳和芦苇竞相绽放。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e6%8b%89%e5%b7%b4%e9%a9%ac%e5%b1%b1&form=hpcapt&filters=HpDate:"20260512_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260513_AlabamaHills"&FORM=HPQUIZ "必应主页测验 2026 5月 13")
+[下载480](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_800x480.jpg&rf=LaDigue_800x480.jpg "拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_1280x720.jpg&rf=LaDigue_1280x720.jpg "拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_UHD.jpg&rf=LaDigue_UHD.jpg "拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国")
+
+---
 ### 05月12日：振翅, 潜水, 生存
 #### 北极海鹦, 威尔士（© FLPA/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_1280x720.jpg&rf=LaDigue_1280x720.jpg "塔霍河岸边的贝伦塔, 里斯本, 葡萄牙")
 [下载1080](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔霍河岸边的贝伦塔, 里斯本, 葡萄牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_UHD.jpg&rf=LaDigue_UHD.jpg "塔霍河岸边的贝伦塔, 里斯本, 葡萄牙")
-
----
-### 04月28日：野外奇观
-#### 眼镜熊在树上休息, 厄瓜多尔（© Andy Rouse/Nature Picture Library）
-
-![野外奇观](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_800x480.jpg&rf=LaDigue_800x480.jpg "野外奇观")
-
-眼镜熊，又称安第斯熊，是熊科中唯一的南美洲熊类。它们栖息于安第斯山脉北部和中部，主要生活在森林地区，以嫩芽和果实为食。眼睛周围的浅色斑纹酷似眼镜，因此得名“眼镜熊”。
-
-每只眼镜熊都有独特的面部标记，科学家利用这些标记来识别和追踪野生个体。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%9c%bc%e9%95%9c%e7%86%8a&form=hpcapt&filters=HpDate:"20260427_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260428_AndeanBear"&FORM=HPQUIZ "必应主页测验 2026 4月 28")
-[下载480](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_800x480.jpg&rf=LaDigue_800x480.jpg "眼镜熊在树上休息, 厄瓜多尔")
-[下载720](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_1280x720.jpg&rf=LaDigue_1280x720.jpg "眼镜熊在树上休息, 厄瓜多尔")
-[下载1080](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "眼镜熊在树上休息, 厄瓜多尔")
-[下载UHD](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_UHD.jpg&rf=LaDigue_UHD.jpg "眼镜熊在树上休息, 厄瓜多尔")
 
 ---
