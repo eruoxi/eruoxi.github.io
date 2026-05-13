@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月14日：一场穿越时空的旅程
+#### 中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利（© bluejayphoto/Getty Images Plus）
+
+![一场穿越时空的旅程](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_800x480.jpg&rf=LaDigue_800x480.jpg "一场穿越时空的旅程")
+
+皮蒂利亚诺坐落在意大利托斯卡纳南部的一处凝灰岩山脊上，是一座小巧却个性十足的城镇。它的历史可以追溯到伊特鲁里亚时代，蜿蜒的街道至今仍回荡着昔日的痕迹，从中世纪的防御工事到文艺复兴时期的宫殿，处处可见历史的印记。漫步在狭窄的巷弄中，仿佛能感受到几个世纪的生活印记镌刻在石头上，而小巧的广场则邀请您驻足，品尝咖啡或意式冰淇淋。这座经久不衰的宝藏常被誉为“小耶路撒冷”，因为它拥有历史悠久的犹太区，那里有一座犹太教堂和一座古老的墓地，诉说着曾经繁荣的犹太社区的故事。
+
+皮蒂利亚诺最令人期待的活动之一是“九月神圣节”（SettembreDivino），它每年与丰收节同时举行。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%9a%ae%e8%92%82%e5%88%a9%e4%ba%9a%e8%af%ba&form=hpcapt&filters=HpDate:"20260513_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260514_Pitigliano"&FORM=HPQUIZ "必应主页测验 2026 5月 14")
+[下载480](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_800x480.jpg&rf=LaDigue_800x480.jpg "中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利")
+[下载720](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_1280x720.jpg&rf=LaDigue_1280x720.jpg "中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_UHD.jpg&rf=LaDigue_UHD.jpg "中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利")
+
+---
 ### 05月13日：银河系，摇滚吧！
 #### 拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国（© Tim Fitzharris/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DutchTulips_ZH-CN6394892537_1280x720.jpg&rf=LaDigue_1280x720.jpg "葡萄风信子和郁金香, 库肯霍夫花园, 利塞, 荷兰")
 [下载1080](https://cn.bing.com/th?id=OHR.DutchTulips_ZH-CN6394892537_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "葡萄风信子和郁金香, 库肯霍夫花园, 利塞, 荷兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.DutchTulips_ZH-CN6394892537_UHD.jpg&rf=LaDigue_UHD.jpg "葡萄风信子和郁金香, 库肯霍夫花园, 利塞, 荷兰")
-
----
-### 04月29日：历史镌刻于石上
-#### 塔霍河岸边的贝伦塔, 里斯本, 葡萄牙（© f9photos/Getty Images）
-
-![历史镌刻于石上](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_800x480.jpg&rf=LaDigue_800x480.jpg "历史镌刻于石上")
-
-昔日，离开里斯本的船只在驶向浩瀚的大西洋之前，都会经过一座小小的石塔。这座矗立在塔霍河畔的石塔，既是守护者，也是告别的象征。让我们一起来认识贝伦塔——这座见证葡萄牙扬帆起航，迈入大航海时代的堡垒。
-
-贝伦塔于1983年被列入联合国教科文组织世界遗产名录，是里斯本市和葡萄牙在世界上的标志性建筑。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%b4%9d%e4%bc%a6%e5%a1%94&form=hpcapt&filters=HpDate:"20260428_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260429_BelemTowerBank"&FORM=HPQUIZ "必应主页测验 2026 4月 29")
-[下载480](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_800x480.jpg&rf=LaDigue_800x480.jpg "塔霍河岸边的贝伦塔, 里斯本, 葡萄牙")
-[下载720](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_1280x720.jpg&rf=LaDigue_1280x720.jpg "塔霍河岸边的贝伦塔, 里斯本, 葡萄牙")
-[下载1080](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔霍河岸边的贝伦塔, 里斯本, 葡萄牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_UHD.jpg&rf=LaDigue_UHD.jpg "塔霍河岸边的贝伦塔, 里斯本, 葡萄牙")
 
 ---
