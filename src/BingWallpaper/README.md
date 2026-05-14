@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月15日：鲸鱼，你会救我吗？
+#### 一群抹香鲸, 印度洋（© Tony Wu/Nature Picture Library）
+
+![鲸鱼，你会救我吗？](https://cn.bing.com/th?id=OHR.EndangeredWhales_ZH-CN4053106967_800x480.jpg&rf=LaDigue_800x480.jpg "鲸鱼，你会救我吗？")
+
+集智慧、力量与惊人的深潜本领于一身——抹香鲸绝不满足于浅层的生存。在这个“濒危物种日”，让我们一同认识这位胸怀大志、潜得更深的海洋巨兽。
+
+“Cachalot”一词常用于指代抹香鲸，源自一个古法语词汇，意为“大牙齿”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%8a%b9%e9%a6%99%e9%b2%b8&form=hpcapt&filters=HpDate:"20260514_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260515_EndangeredWhales"&FORM=HPQUIZ "必应主页测验 2026 5月 15")
+[下载480](https://cn.bing.com/th?id=OHR.EndangeredWhales_ZH-CN4053106967_800x480.jpg&rf=LaDigue_800x480.jpg "一群抹香鲸, 印度洋")
+[下载720](https://cn.bing.com/th?id=OHR.EndangeredWhales_ZH-CN4053106967_1280x720.jpg&rf=LaDigue_1280x720.jpg "一群抹香鲸, 印度洋")
+[下载1080](https://cn.bing.com/th?id=OHR.EndangeredWhales_ZH-CN4053106967_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一群抹香鲸, 印度洋")
+[下载UHD](https://cn.bing.com/th?id=OHR.EndangeredWhales_ZH-CN4053106967_UHD.jpg&rf=LaDigue_UHD.jpg "一群抹香鲸, 印度洋")
+
+---
 ### 05月14日：一场穿越时空的旅程
 #### 中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利（© bluejayphoto/Getty Images Plus）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MayLaborDayY26_ZH-CN7554485395_1280x720.jpg&rf=LaDigue_1280x720.jpg "中国的长城")
 [下载1080](https://cn.bing.com/th?id=OHR.MayLaborDayY26_ZH-CN7554485395_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国的长城")
 [下载UHD](https://cn.bing.com/th?id=OHR.MayLaborDayY26_ZH-CN7554485395_UHD.jpg&rf=LaDigue_UHD.jpg "中国的长城")
-
----
-### 04月30日：郁金香是这里的主角
-#### 葡萄风信子和郁金香, 库肯霍夫花园, 利塞, 荷兰（© Martin Ruegner/Getty Images）
-
-![郁金香是这里的主角](https://cn.bing.com/th?id=OHR.DutchTulips_ZH-CN6394892537_800x480.jpg&rf=LaDigue_800x480.jpg "郁金香是这里的主角")
-
-想象一下，一朵花引发了一场金融狂潮。听起来不太可能，对吧？然而，在17世纪30年代，郁金香在荷兰却做到了这一点。在郁金香狂热时期，稀有的郁金香球茎成了奢侈品，交易价格惊人——有些球茎的价值甚至堪比一栋房子。为什么如此珍贵？因为颜色和条纹图案独特的郁金香稀少且难以预测，收藏家们想要找到他们所能找到的最稀有的品种。
-
-花园现占地32公顷（79英亩），展示了100家参与公司的产品。这得益于人工种植的700万株球茎。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%ba%93%e8%82%af%e9%9c%8d%e5%a4%ab%e8%8a%b1%e5%9b%ad&form=hpcapt&filters=HpDate:"20260429_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 4月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260430_DutchTulips"&FORM=HPQUIZ "必应主页测验 2026 4月 30")
-[下载480](https://cn.bing.com/th?id=OHR.DutchTulips_ZH-CN6394892537_800x480.jpg&rf=LaDigue_800x480.jpg "葡萄风信子和郁金香, 库肯霍夫花园, 利塞, 荷兰")
-[下载720](https://cn.bing.com/th?id=OHR.DutchTulips_ZH-CN6394892537_1280x720.jpg&rf=LaDigue_1280x720.jpg "葡萄风信子和郁金香, 库肯霍夫花园, 利塞, 荷兰")
-[下载1080](https://cn.bing.com/th?id=OHR.DutchTulips_ZH-CN6394892537_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "葡萄风信子和郁金香, 库肯霍夫花园, 利塞, 荷兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.DutchTulips_ZH-CN6394892537_UHD.jpg&rf=LaDigue_UHD.jpg "葡萄风信子和郁金香, 库肯霍夫花园, 利塞, 荷兰")
 
 ---
