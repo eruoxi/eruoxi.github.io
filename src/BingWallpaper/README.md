@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月16日：跌到谷底？这里可不是。
+#### 史密斯岩州立公园, 俄勒冈州, 美国（© Alex Ratson/Getty Images）
+
+![跌到谷底？这里可不是。](https://cn.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_800x480.jpg&rf=LaDigue_800x480.jpg "跌到谷底？这里可不是。")
+
+你会如何称呼这样一个地方：在这里，是岩石在“攀登”，而人类却得拼命追赶？欢迎来到位于俄勒冈州的史密斯岩州立公园（Smith Rock State Park）——在这里，峭壁拔地而起，而借口却消散得更快。公园坐落于长达26英里的“弯曲河破火山口”（Crooked River Caldera）之中，这一地貌正是由多次火山喷发塑造而成。这里的凝灰岩峭壁由受压冷却后的火山灰经压缩凝结而成。弯曲河（Crooked River）在此鬼斧神工般地雕刻出了峡谷，而像“尖塔”（The Spire）这样的岩层则巍然耸立，高度直逼700英尺。
+
+公园内外野生动物资源丰富。骡鹿和许多小型哺乳动物在公园里很常见。水獭和海狸则栖息在公园的克鲁克德河沿岸。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8f%b2%e5%af%86%e6%96%af%e5%b2%a9%e5%b7%9e%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260515_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260516_SmithRockPark"&FORM=HPQUIZ "必应主页测验 2026 5月 16")
+[下载480](https://cn.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_800x480.jpg&rf=LaDigue_800x480.jpg "史密斯岩州立公园, 俄勒冈州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_1280x720.jpg&rf=LaDigue_1280x720.jpg "史密斯岩州立公园, 俄勒冈州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "史密斯岩州立公园, 俄勒冈州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_UHD.jpg&rf=LaDigue_UHD.jpg "史密斯岩州立公园, 俄勒冈州, 美国")
+
+---
 ### 05月15日：鲸鱼，你会救我吗？
 #### 一群抹香鲸, 印度洋（© Tony Wu/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔伯塔省贾斯珀国家公园中的小型湖泊与湿地，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔伯塔省贾斯珀国家公园中的小型湖泊与湿地，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔伯塔省贾斯珀国家公园中的小型湖泊与湿地，加拿大")
-
----
-### 05月01日：初夏·翠微长城
-#### 中国的长城（© aphotostory/Getty Images）
-
-![初夏·翠微长城](https://cn.bing.com/th?id=OHR.MayLaborDayY26_ZH-CN7554485395_800x480.jpg&rf=LaDigue_800x480.jpg "初夏·翠微长城")
-
-五月的中国北方，仿佛刚从春天的画卷中苏醒，带着清新的气息与恰到好处的温度，向远方的旅人发出邀请。无论是在古城街巷间寻访历史的回声，还是沿着万里长城的脊线远望群山，五月的北方都以其明净与舒展，呈现出一年中最适合出行的模样。此时出发，不仅能避开盛夏的炎热，也能在恰好的光影与温度中，收获一段轻盈而难忘的旅途。
-
-长城并非一条首尾相连的孤线，而是由历代王朝因地制宜、悉心营建的宏大防御体系。从大漠深处的夯土堡垒，到崇山峻岭间的砖石屏障，长城的每一寸肌理都闪烁着先民顺应自然、化繁为简的智慧光芒，堪称人类建筑史上与地理环境完美融合的典范。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%95%bf%e5%9f%8e&form=hpcapt&filters=HpDate:"20260430_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260501_MayLaborDayY26"&FORM=HPQUIZ "必应主页测验 2026 5月 1")
-[下载480](https://cn.bing.com/th?id=OHR.MayLaborDayY26_ZH-CN7554485395_800x480.jpg&rf=LaDigue_800x480.jpg "中国的长城")
-[下载720](https://cn.bing.com/th?id=OHR.MayLaborDayY26_ZH-CN7554485395_1280x720.jpg&rf=LaDigue_1280x720.jpg "中国的长城")
-[下载1080](https://cn.bing.com/th?id=OHR.MayLaborDayY26_ZH-CN7554485395_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国的长城")
-[下载UHD](https://cn.bing.com/th?id=OHR.MayLaborDayY26_ZH-CN7554485395_UHD.jpg&rf=LaDigue_UHD.jpg "中国的长城")
 
 ---
