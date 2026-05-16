@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月17日：静谧之巅，喧嚣之景
+#### 仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国（© John Baggaley/Getty Images）
+
+![静谧之巅，喧嚣之景](https://cn.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_800x480.jpg&rf=LaDigue_800x480.jpg "静谧之巅，喧嚣之景")
+
+究竟要多高，才能尽享绝佳美景？在美国东部，其实无需太高的海拔。位于弗吉尼亚州仙纳度国家公园（Shenandoah National Park）内的玳瑁峰（Hawksbill Mountain），海拔仅为4050英尺；这充分表明，对于这些古老的山脉而言，开阔的视野远比绝对的高度更为重要。该公园成立于1935年，其建立过程伴随着大规模农耕与伐木活动之后的植被恢复工作。如今，昔日的土地大都已重披林装，孕育着混交阔叶林、山月桂以及杜鹃花等丰富的植被。此外还有什么值得一提？公园内的部分岩石距今已逾10亿年，堪称该州最为古老的岩层之一。这里栖息着200多种鸟类和32种鱼类；同时，公园对宠物也十分友好，允许游客携带爱犬进入露营地及大多数步道。
+
+约850种野花铺满仙纳度国家公园，全年呈现出美丽而多样的景观。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bb%99%e7%ba%b3%e5%ba%a6%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260516_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260517_ShenandoahSunset"&FORM=HPQUIZ "必应主页测验 2026 5月 17")
+[下载480](https://cn.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_800x480.jpg&rf=LaDigue_800x480.jpg "仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_1280x720.jpg&rf=LaDigue_1280x720.jpg "仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_UHD.jpg&rf=LaDigue_UHD.jpg "仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国")
+
+---
 ### 05月16日：跌到谷底？这里可不是。
 #### 史密斯岩州立公园, 俄勒冈州, 美国（© Alex Ratson/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_UHD.jpg&rf=LaDigue_UHD.jpg "萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚")
-
----
-### 05月02日：贾斯珀的自然魅力
-#### 阿尔伯塔省贾斯珀国家公园中的小型湖泊与湿地，加拿大（© Don White/Getty Images）
-
-![贾斯珀的自然魅力](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_800x480.jpg&rf=LaDigue_800x480.jpg "贾斯珀的自然魅力")
-
-你能想象一片面积超过1.1万平方公里的受保护荒野吗？这便是位于加拿大阿尔伯塔省的贾斯珀国家公园。它始建于1907年，是加拿大落基山脉日益完善的保护地网络中的重要一环，并于1930年正式被命名为国家公园。贾斯珀不仅展现了现代自然保护的成果，更承载着悠久的原住民文化底蕴，其中包括纳科达族（Nakoda）和塞克维潘族（Secwépemc）等民族与这片土地跨越千年的联系。公园内的地形地貌极为宏伟多样：从冰川融水汇聚而成的河川，到生机勃勃的高山草甸，再到由云杉和松树构成的茂密针叶林，共同构建出了一幅原始而壮丽的自然画卷。
-
-贾斯珀遍布冰川形成的壶穴湖，水温较主河流更暖，是西蟾蜍等两栖类重要的育婴室。环绕湖泊的泥炭沼泽宛如“生物海绵”，通过泥炭藓蓄纳雪水并调节径流，既保护了流域生态，也是调节气候的关键碳库。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e5%b0%94%e4%bc%af%e5%a1%94%e7%9c%81%e8%b4%be%e6%96%af%e7%8f%80%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260501_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260502_GreenJasper"&FORM=HPQUIZ "必应主页测验 2026 5月 2")
-[下载480](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔伯塔省贾斯珀国家公园中的小型湖泊与湿地，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔伯塔省贾斯珀国家公园中的小型湖泊与湿地，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔伯塔省贾斯珀国家公园中的小型湖泊与湿地，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔伯塔省贾斯珀国家公园中的小型湖泊与湿地，加拿大")
 
 ---
