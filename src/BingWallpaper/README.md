@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月18日：大厅里的希望
+#### 伦敦自然历史博物馆, 英格兰（© Colm Keating/Tandem Stills + Motion）
+
+![大厅里的希望](https://cn.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_800x480.jpg&rf=LaDigue_800x480.jpg "大厅里的希望")
+
+当你步入博物馆，时光仿佛瞬间流转。一枚化石，诉说着数百万年前生命的印迹；一颗宝石，映照着肉眼难见的沧海桑田。正是这种深切的联结感，构成了“国际博物馆日”——这一由国际博物馆协会于1977年创立的节日——所旨在颂扬的核心精神。
+
+国际博物馆日（IMD）是由国际博物馆协会（ICOM）协调举办的国际性节日，于每年5月18日或前后举行。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e5%8d%9a%e7%89%a9%e9%a6%86%e6%97%a5&form=hpcapt&filters=HpDate:"20260517_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260518_MuseumLondon"&FORM=HPQUIZ "必应主页测验 2026 5月 18")
+[下载480](https://cn.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_800x480.jpg&rf=LaDigue_800x480.jpg "伦敦自然历史博物馆, 英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_1280x720.jpg&rf=LaDigue_1280x720.jpg "伦敦自然历史博物馆, 英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伦敦自然历史博物馆, 英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_UHD.jpg&rf=LaDigue_UHD.jpg "伦敦自然历史博物馆, 英格兰")
+
+---
 ### 05月17日：静谧之巅，喧嚣之景
 #### 仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国（© John Baggaley/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部")
 [下载1080](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部")
 [下载UHD](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_UHD.jpg&rf=LaDigue_UHD.jpg "乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部")
-
----
-### 05月03日：萨瓦纳的晚霞
-#### 萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚（© Klein & Hubert/Nature Picture Library）
-
-![萨瓦纳的晚霞](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_800x480.jpg&rf=LaDigue_800x480.jpg "萨瓦纳的晚霞")
-
-在肯尼亚马赛马拉萨瓦纳草原的高处，一只豹蜷缩在树枝上，在落日的余晖中静静小憩。在5月3日“国际豹类日”之际，我们共同致敬这种世界上适应力最强的大型猫科动物之一。豹的足迹遍布非洲及亚洲部分地区，无论是茂密的森林、险峻的山脉，还是开阔的萨瓦纳草原，它们都能茁壮成长。每只豹身上的斑点都是独一无二的，如同人类的指纹；而它们高超的攀爬技巧，则能将猎物拖至高树顶端，从而避开其他食腐动物的抢夺。
-
-豹已丧失了约75%的历史分布区，并被世界自然保护联盟（IUCN）列为“易危”物种。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e8%b1%b9%e7%b1%bb%e6%97%a5&form=hpcapt&filters=HpDate:"20260502_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260503_MasaiLeopard"&FORM=HPQUIZ "必应主页测验 2026 5月 3")
-[下载480](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_800x480.jpg&rf=LaDigue_800x480.jpg "萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_UHD.jpg&rf=LaDigue_UHD.jpg "萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚")
 
 ---
