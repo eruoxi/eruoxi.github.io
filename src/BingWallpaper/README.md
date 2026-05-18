@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月19日：马略卡岛的边缘
+#### 福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙（© Allard Schager/Getty Images）
+
+![马略卡岛的边缘](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_800x480.jpg&rf=LaDigue_800x480.jpg "马略卡岛的边缘")
+
+在西班牙巴利阿里群岛中马略卡岛（Mallorca）的最北端，福门托尔灯塔（Formentor Lighthouse）巍然屹立于福门托尔角（Cap de Formentor）的陡峭悬崖之上。这处地势开阔的海角常被称为“风之汇聚地”。这座灯塔始建于1863年，并于当年9月30日首次点亮，它高耸于地中海海面近700英尺之上；若要抵达此处，需沿着一条狭窄蜿蜒的盘山公路前行，全程约8英里，起点位于波连萨港（Port de Pollença）。脚下是色泽浅淡的石灰岩——这些岩石由远古海洋生物遗骸历经漫长岁月沉积而成，随后在地壳运动的抬升与风化侵蚀的雕琢下，演化为如今这般气势磅礴的峭壁、海蚀洞穴及天然拱门。正是这种崎岖险峻的地质地貌，造就了该地区那种苍凉壮阔的独特美感与遗世独立的孤寂氛围。想要将这绝美景色尽收眼底吗？不妨沿着半岛上的徒步路线前行，或者挑战一段短促却陡峭的登高之路，攀至阿尔贝库奇瞭望塔（Talaia d'Albercutx）俯瞰全景，随后再继续前往灯塔。攀登途中请留意山坡：那些由早期家养羊群野化而来的野生山羊，正凭借着天生的平衡感，在险峻的岩架之间轻盈自如地跳跃穿梭。
+
+它是巴利阿里群岛最高的灯塔，焦面高度位于海平面上方210米（690英尺），坐落于福门托尔角（Cap de Formentor）尖端的高耸悬崖之上。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e7%a6%8f%e9%97%a8%e6%89%98%e5%b0%94%e7%81%af%e5%a1%94&form=hpcapt&filters=HpDate:"20260518_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260519_SpainLighthouse"&FORM=HPQUIZ "必应主页测验 2026 5月 19")
+[下载480](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_800x480.jpg&rf=LaDigue_800x480.jpg "福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_1280x720.jpg&rf=LaDigue_1280x720.jpg "福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_UHD.jpg&rf=LaDigue_UHD.jpg "福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙")
+
+---
 ### 05月18日：大厅里的希望
 #### 伦敦自然历史博物馆, 英格兰（© Colm Keating/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_1280x720.jpg&rf=LaDigue_1280x720.jpg "莲花与莲花植株")
 [下载1080](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莲花与莲花植株")
 [下载UHD](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_UHD.jpg&rf=LaDigue_UHD.jpg "莲花与莲花植株")
-
----
-### 05月04日：科幻源于现实
-#### 乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部（© Dark_Eni/Getty Images Plus）
-
-![科幻源于现实](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_800x480.jpg&rf=LaDigue_800x480.jpg "科幻源于现实")
-
-“愿原力与你同在！”在星球大战日这一天，现实仿佛披上科幻的外衣，让人一时难以分辨虚实。画面将我们带到突尼斯南部塔塔温地区的乌莱德·索尔坦克萨尔，这里层层堆叠的土坯粮仓宛如沙色堡垒，充满异域与未来感。这座建筑群始建于 15 世纪，由当地柏柏尔人修建，用于保护粮食免受高温、盗窃和时间侵蚀。它的设计首先服务于实用功能，而独特的美感则在不经意间自然呈现——仿佛现实中的“科幻场景”。
-
-突尼斯索尔塔纳堡的多层土窖（Ghorfas）助力社区在严酷的沙漠气候中实现集体储粮与防御。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%98%9f%e7%90%83%e5%a4%a7%e6%88%98%e6%97%a5&form=hpcapt&filters=HpDate:"20260503_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260504_KsarOuledSoltane"&FORM=HPQUIZ "必应主页测验 2026 5月 4")
-[下载480](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_800x480.jpg&rf=LaDigue_800x480.jpg "乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部")
-[下载720](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_1280x720.jpg&rf=LaDigue_1280x720.jpg "乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部")
-[下载1080](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部")
-[下载UHD](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_UHD.jpg&rf=LaDigue_UHD.jpg "乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部")
 
 ---
