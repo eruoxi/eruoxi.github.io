@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月20日：喧闹从这里开始
+#### 熊蜂在授粉, 伍斯特, 英格兰（© SimonEastwood87/Shutterstock）
+
+![喧闹从这里开始](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_800x480.jpg&rf=LaDigue_800x480.jpg "喧闹从这里开始")
+
+一声轻柔的嗡嗡声，伴随着细微的花粉飞扬，足以塑造我们食物的未来。每年5月20日是“世界蜜蜂日”，这一节日旨在礼赞像图中这只大黄蜂一样的授粉昆虫，致敬它们那看似悄无声息却至关重要的辛勤工作。与许多昆虫不同，大黄蜂采用一种独特的“振动授粉”方式——通过振动飞行肌，将花粉从花朵中抖落出来；对于番茄、辣椒和蓝莓等农作物而言，这种授粉方式至关重要。
+
+蜜蜂有五只眼睛——两只大的，以及三只位于头部中央的小眼睛。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e8%9c%9c%e8%9c%82%e6%97%a5&form=hpcapt&filters=HpDate:"20260519_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260520_BumbleBee"&FORM=HPQUIZ "必应主页测验 2026 5月 20")
+[下载480](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_800x480.jpg&rf=LaDigue_800x480.jpg "熊蜂在授粉, 伍斯特, 英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_1280x720.jpg&rf=LaDigue_1280x720.jpg "熊蜂在授粉, 伍斯特, 英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "熊蜂在授粉, 伍斯特, 英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_UHD.jpg&rf=LaDigue_UHD.jpg "熊蜂在授粉, 伍斯特, 英格兰")
+
+---
 ### 05月19日：马略卡岛的边缘
 #### 福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙（© Allard Schager/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BulgariaPlains_ZH-CN3853985252_1280x720.jpg&rf=LaDigue_1280x720.jpg "平原上空的雷暴，保加利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.BulgariaPlains_ZH-CN3853985252_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "平原上空的雷暴，保加利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.BulgariaPlains_ZH-CN3853985252_UHD.jpg&rf=LaDigue_UHD.jpg "平原上空的雷暴，保加利亚")
-
----
-### 05月05日：藕花风起，首夏清和
-#### 莲花与莲花植株（© real444/Getty Images）
-
-![藕花风起，首夏清和](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_800x480.jpg&rf=LaDigue_800x480.jpg "藕花风起，首夏清和")
-
-立夏之日，春意虽未尽，夏木已成阴。这是中国时令中一个充满生命力的转折点：蝼蝈鸣，蚯蚓出，王瓜生。告别了春日的繁花绚烂，北方的天空愈发高远明净，南方的雨水则带来了润物无声的翠绿。此时风物，不在于热烈，而在于那份“清和”——万物至此皆长大，天地间流淌着一种舒展而轻盈的力量。
-
-“活化石”植物： 荷花是地球上最古老的双子叶植物之一，其种子的生命力极其顽强，埋藏在土层中千年的“古莲子”在适宜条件下仍能萌芽开花。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e7%9a%84%e8%8d%b7%e8%8a%b1&form=hpcapt&filters=HpDate:"20260504_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260505_BeginningofSummerY26"&FORM=HPQUIZ "必应主页测验 2026 5月 5")
-[下载480](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_800x480.jpg&rf=LaDigue_800x480.jpg "莲花与莲花植株")
-[下载720](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_1280x720.jpg&rf=LaDigue_1280x720.jpg "莲花与莲花植株")
-[下载1080](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莲花与莲花植株")
-[下载UHD](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_UHD.jpg&rf=LaDigue_UHD.jpg "莲花与莲花植株")
 
 ---
