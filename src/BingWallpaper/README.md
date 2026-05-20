@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月21日：酿造传承
+#### 四川省的茶梯田, 中国（© lzf/Shutterstock）
+
+![酿造传承](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_800x480.jpg&rf=LaDigue_800x480.jpg "酿造传承")
+
+“国际茶日”旨在礼赞一种将日常习俗与古老地貌紧密相连的饮品。只需瞥一眼中国四川省那层层叠叠的梯田茶园，便不难领略其深植的文化根基。这片位于中国西南部的云雾缭绕之地，乃是茶文化的早期发源地之一；早在两千多年前，当地居民便已在此饮茶、植茶。在邻近的蒙顶山上，一位名叫吴理真的学者曾在汉朝时期开辟了世界上首批人工管理的茶园，从而为后世一代又一代的茶农奠定了坚实的基础。
+
+该节日于每年的5月21日庆祝，旨在认可茶叶数百年来的历史遗产，及其对全球健康、文化和农村生计所做出的显著贡献。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e8%8c%b6%e6%97%a5&form=hpcapt&filters=HpDate:"20260520_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260521_SichuanTea"&FORM=HPQUIZ "必应主页测验 2026 5月 21")
+[下载480](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_800x480.jpg&rf=LaDigue_800x480.jpg "四川省的茶梯田, 中国")
+[下载720](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_1280x720.jpg&rf=LaDigue_1280x720.jpg "四川省的茶梯田, 中国")
+[下载1080](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "四川省的茶梯田, 中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_UHD.jpg&rf=LaDigue_UHD.jpg "四川省的茶梯田, 中国")
+
+---
 ### 05月20日：喧闹从这里开始
 #### 熊蜂在授粉, 伍斯特, 英格兰（© SimonEastwood87/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_1280x720.jpg&rf=LaDigue_1280x720.jpg "科法国家野生动物保护区，亚利桑那州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科法国家野生动物保护区，亚利桑那州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_UHD.jpg&rf=LaDigue_UHD.jpg "科法国家野生动物保护区，亚利桑那州，美国")
-
----
-### 05月06日：承受压力之下的平原
-#### 平原上空的雷暴，保加利亚（© Revolu7ion93/Getty Images）
-
-![承受压力之下的平原](https://cn.bing.com/th?id=OHR.BulgariaPlains_ZH-CN3853985252_800x480.jpg&rf=LaDigue_800x480.jpg "承受压力之下的平原")
-
-在壮阔的天幕下，保加利亚的两大平原展现了国家的农业核心。多瑙河平原横跨北部，起伏的田野与河谷受温带大陆性气候影响，炎热的夏季常催生强烈的雷暴。再往南是上色雷斯平原，地势更低且更温暖，受大陆系统及从爱琴海地区涌入的地中海气流共同影响。在这里，酷暑与马里查河流域的水汽交织，使该地区极易发生剧烈的夏季风暴——正如此刻在图像中平原上空上演的景象。
-
-保加利亚坐落在巴尔干半岛东部，地处欧亚交汇的十字路口。在这里，古老文明、肥沃景观与多变的气候交相感应。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bf%9d%e5%8a%a0%e5%88%a9%e4%ba%9a&form=hpcapt&filters=HpDate:"20260505_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260506_BulgariaPlains"&FORM=HPQUIZ "必应主页测验 2026 5月 6")
-[下载480](https://cn.bing.com/th?id=OHR.BulgariaPlains_ZH-CN3853985252_800x480.jpg&rf=LaDigue_800x480.jpg "平原上空的雷暴，保加利亚")
-[下载720](https://cn.bing.com/th?id=OHR.BulgariaPlains_ZH-CN3853985252_1280x720.jpg&rf=LaDigue_1280x720.jpg "平原上空的雷暴，保加利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.BulgariaPlains_ZH-CN3853985252_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "平原上空的雷暴，保加利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.BulgariaPlains_ZH-CN3853985252_UHD.jpg&rf=LaDigue_UHD.jpg "平原上空的雷暴，保加利亚")
 
 ---
