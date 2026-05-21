@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月22日：海洋生命的律动
+#### 埃希环礁，土阿莫土群岛，法属波利尼西亚（© WaterFrame_dpr/Alamy）
+
+![海洋生命的律动](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_800x480.jpg&rf=LaDigue_800x480.jpg "海洋生命的律动")
+
+每年5月22日为“国际生物多样性日”，它向全球发出提醒：地球上的生命远比肉眼所见更加丰富，却也更加脆弱。这一由联合国设立的纪念日，旨在强调保护动植物及其生态系统为何对粮食安全、药物研发、气候稳定以及人类的日常福祉至关重要。
+
+考埃希环礁拥有独特的“三通道”入海口连接泻湖，这种结构形成了强劲的潮汐流，能显著提高湖水含氧量，为珍稀生物提供了绝佳的生存环境。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e7%94%9f%e7%89%a9%e5%a4%9a%e6%a0%b7%e6%80%a7%e6%97%a5&form=hpcapt&filters=HpDate:"20260521_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260522_KauehiAtollLagoon"&FORM=HPQUIZ "必应主页测验 2026 5月 22")
+[下载480](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_800x480.jpg&rf=LaDigue_800x480.jpg "埃希环礁，土阿莫土群岛，法属波利尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃希环礁，土阿莫土群岛，法属波利尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃希环礁，土阿莫土群岛，法属波利尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_UHD.jpg&rf=LaDigue_UHD.jpg "埃希环礁，土阿莫土群岛，法属波利尼西亚")
+
+---
 ### 05月21日：酿造传承
 #### 四川省的茶梯田, 中国（© lzf/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1280x720.jpg&rf=LaDigue_1280x720.jpg "撒丁岛母驴和幼崽, 法国")
 [下载1080](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "撒丁岛母驴和幼崽, 法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg&rf=LaDigue_UHD.jpg "撒丁岛母驴和幼崽, 法国")
-
----
-### 05月07日：广袤铺展的沙漠
-#### 科法国家野生动物保护区，亚利桑那州，美国（© Denis Tangney Jr/Getty Images）
-
-![广袤铺展的沙漠](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_800x480.jpg&rf=LaDigue_800x480.jpg "广袤铺展的沙漠")
-
-横跨美国西南部亚利桑那州索诺兰沙漠的科法国家野生动物保护区，是一片由峭壁山峰、开阔天空与顽强生命共同构成的独特荒野。
-
-科法的棕榈峡谷庇护着亚利桑那州唯一的原生棕榈。这些史前残遗物种躲藏在深邃遮阴的岩缝中，在酷热的沙漠里利用阴凉的微气候繁衍至今。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e6%b3%95%e5%9b%bd%e5%ae%b6%e9%87%8e%e7%94%9f%e5%8a%a8%e7%89%a9%e4%bf%9d%e6%8a%a4%e5%8c%ba&form=hpcapt&filters=HpDate:"20260506_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260507_Kofa"&FORM=HPQUIZ "必应主页测验 2026 5月 7")
-[下载480](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_800x480.jpg&rf=LaDigue_800x480.jpg "科法国家野生动物保护区，亚利桑那州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_1280x720.jpg&rf=LaDigue_1280x720.jpg "科法国家野生动物保护区，亚利桑那州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科法国家野生动物保护区，亚利桑那州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_UHD.jpg&rf=LaDigue_UHD.jpg "科法国家野生动物保护区，亚利桑那州，美国")
 
 ---
