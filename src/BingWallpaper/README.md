@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月23日：为龟类喝彩！
+#### 与蝴蝶在一起的乌龟（© Patrick Gallet/Getty Images）
+
+![为龟类喝彩！](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_800x480.jpg&rf=LaDigue_800x480.jpg "为龟类喝彩！")
+
+龟类不仅是引人入胜的生物，更在自然界中扮演着至关重要的角色。海龟有助于维持海草床与珊瑚礁生态系统的健康，而淡水及陆栖龟类则支撑着各自生境的生态平衡。龟壳实际上是其骨架的一部分，由数十块骨头融合而成；此外，部分物种还能够利用地球磁场进行导航，精准地回到它们的出生地。
+
+全球共有七种海龟，其中五种正面临灭绝威胁。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e4%b9%8c%e9%be%9f%e6%97%a5&form=hpcapt&filters=HpDate:"20260522_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260523_ThreeTurtlesButterflies"&FORM=HPQUIZ "必应主页测验 2026 5月 23")
+[下载480](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_800x480.jpg&rf=LaDigue_800x480.jpg "与蝴蝶在一起的乌龟")
+[下载720](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_1280x720.jpg&rf=LaDigue_1280x720.jpg "与蝴蝶在一起的乌龟")
+[下载1080](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "与蝴蝶在一起的乌龟")
+[下载UHD](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_UHD.jpg&rf=LaDigue_UHD.jpg "与蝴蝶在一起的乌龟")
+
+---
 ### 05月22日：海洋生命的律动
 #### 埃希环礁，土阿莫土群岛，法属波利尼西亚（© WaterFrame_dpr/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_1280x720.jpg&rf=LaDigue_1280x720.jpg "克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚")
 [下载1080](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_UHD.jpg&rf=LaDigue_UHD.jpg "克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚")
-
----
-### 05月08日：不仅仅是一声咿呀学语
-#### 撒丁岛母驴和幼崽, 法国（© Klein & Hubert/Nature Picture Library）
-
-![不仅仅是一声咿呀学语](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_800x480.jpg&rf=LaDigue_800x480.jpg "不仅仅是一声咿呀学语")
-
-世界驴日旨在庆祝人类最默默无闻却能力出众的伙伴之一——驴。数千年来，驴一直与人类并肩工作，它们以耐力、敏锐的记忆力和在崎岖地形上稳健的步伐而备受推崇。人们常常误以为它们固执，但实际上它们是谨慎的思考者——它们会停下来评估风险，而不是贸然行事。
-
-骡子是公驴和母马杂交产生的后代。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%b4&form=hpcapt&filters=HpDate:"20260507_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260508_SardinianDonkey"&FORM=HPQUIZ "必应主页测验 2026 5月 8")
-[下载480](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_800x480.jpg&rf=LaDigue_800x480.jpg "撒丁岛母驴和幼崽, 法国")
-[下载720](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1280x720.jpg&rf=LaDigue_1280x720.jpg "撒丁岛母驴和幼崽, 法国")
-[下载1080](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "撒丁岛母驴和幼崽, 法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg&rf=LaDigue_UHD.jpg "撒丁岛母驴和幼崽, 法国")
 
 ---
