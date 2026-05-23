@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月24日：守护欧洲的自然净土
+#### 三峰自然公园，南蒂罗尔，意大利（© Adisorn Fineday Chutikunakorn/Getty Images）
+
+![守护欧洲的自然净土](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_800x480.jpg&rf=LaDigue_800x480.jpg "守护欧洲的自然净土")
+
+“欧洲公园日”旨在庆祝欧洲大陆上的自然保护区，并纪念1909年欧洲首批国家公园的诞生。这一节日提醒着世人：现今诸多最具代表性的自然景观，皆得益于长期的生态保育努力。今日的影像向我们展示了这一文化遗产的典范——位于意大利北部的三峰自然公园。
+
+尽管这里以卓越的地质特征闻名，但它也承载着黑暗的历史。第一次世界大战期间，这片崎岖的景观曾是意大利和奥匈帝国军队展开残酷壕沟战的最前线，双方士兵曾在皑皑峰峦间忍受战火与雪崩的双重考验。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e4%b8%89%e5%b3%b0%e8%87%aa%e7%84%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260523_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260524_DolomitesPark"&FORM=HPQUIZ "必应主页测验 2026 5月 24")
+[下载480](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_800x480.jpg&rf=LaDigue_800x480.jpg "三峰自然公园，南蒂罗尔，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_1280x720.jpg&rf=LaDigue_1280x720.jpg "三峰自然公园，南蒂罗尔，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "三峰自然公园，南蒂罗尔，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_UHD.jpg&rf=LaDigue_UHD.jpg "三峰自然公园，南蒂罗尔，意大利")
+
+---
 ### 05月23日：为龟类喝彩！
 #### 与蝴蝶在一起的乌龟（© Patrick Gallet/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大")
-
----
-### 05月09日：克尔卡的造物主
-#### 克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚（© Amazing Aerial Agency/Adobe Stock）
-
-![克尔卡的造物主](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_800x480.jpg&rf=LaDigue_800x480.jpg "克尔卡的造物主")
-
-水是克罗地亚克尔卡国家公园的缔造者，它沿着克尔卡河塑造了碧绿的水潭和层叠的瀑布。今天的照片重点展示了公园最著名的瀑布群——斯克拉丁斯基布克瀑布，多条溪流从洛佐瓦茨村附近茂密森林中的石灰华梯田倾泻而下。
-
-斯克拉丁斯基布克瀑布是克尔卡河上的第七座、也是最后一座、最长的石灰华堰，同时也是欧洲最长的石灰华堰。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%85%8b%e7%bd%97%e5%9c%b0%e4%ba%9a%e5%85%8b%e5%b0%94%e5%8d%a1%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260508_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260509_SkradinskiBuk"&FORM=HPQUIZ "必应主页测验 2026 5月 9")
-[下载480](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_800x480.jpg&rf=LaDigue_800x480.jpg "克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚")
-[下载720](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_1280x720.jpg&rf=LaDigue_1280x720.jpg "克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚")
-[下载1080](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_UHD.jpg&rf=LaDigue_UHD.jpg "克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚")
 
 ---
