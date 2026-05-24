@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月25日：石间的清风
+#### 从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度（© byheaven/Getty Images）
+
+![石间的清风](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_800x480.jpg&rf=LaDigue_800x480.jpg "石间的清风")
+
+如果建筑能够“呼吸”，那会是怎样一番景象？坐落于斋浦尔市中心的风之宫（Hawa Mahal）便实现了这一点——它吸纳清风、排出热气，将建筑设计转化为一场静谧的科学实验。与其说它是一座宫殿，倒不如说是一次精准的“吐故纳新”。它确实名副其实：一座实至名归的“风之宫殿”。
+
+风之宫是世界上最高的一座没有传统地基的建筑；尽管结构轻薄且呈弧形，它仅依靠科学的物理配重和金字塔形状便在地面上稳立了两个多世纪。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a3%8e%e4%b9%8b%e5%ae%ab&form=hpcapt&filters=HpDate:"20260524_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260525_HawaMahal2026"&FORM=HPQUIZ "必应主页测验 2026 5月 25")
+[下载480](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_800x480.jpg&rf=LaDigue_800x480.jpg "从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1280x720.jpg&rf=LaDigue_1280x720.jpg "从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_UHD.jpg&rf=LaDigue_UHD.jpg "从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度")
+
+---
 ### 05月24日：守护欧洲的自然净土
 #### 三峰自然公园，南蒂罗尔，意大利（© Adisorn Fineday Chutikunakorn/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_1280x720.jpg&rf=LaDigue_1280x720.jpg "从上方俯瞰大堡礁, 昆士兰州, 澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从上方俯瞰大堡礁, 昆士兰州, 澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_UHD.jpg&rf=LaDigue_UHD.jpg "从上方俯瞰大堡礁, 昆士兰州, 澳大利亚")
-
----
-### 05月10日：一份经久不衰的羁绊
-#### 北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大（© Hao Jiang/Getty Images）
-
-![一份经久不衰的羁绊](https://cn.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_800x480.jpg&rf=LaDigue_800x480.jpg "一份经久不衰的羁绊")
-
-在母亲节这一天，我们向所有塑造生命、展现耐心和守护的母亲们致敬。在野外，这些品质在生存最为艰难的地方往往显得尤为重要。今天这张照片拍摄于加拿大曼尼托巴省北部的瓦普斯克国家公园，展现了一只北极熊妈妈和她的幼崽在北极苔原上嬉戏玩耍的温馨时刻。
-
-母亲节是为了庆祝家庭或个人的母亲，以及母爱、母子情谊和母亲在社会中的影响而设立的节日。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%af%8d%e4%ba%b2%e8%8a%82&form=hpcapt&filters=HpDate:"20260509_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260510_MotherCub"&FORM=HPQUIZ "必应主页测验 2026 5月 10")
-[下载480](https://cn.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_800x480.jpg&rf=LaDigue_800x480.jpg "北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大")
 
 ---
