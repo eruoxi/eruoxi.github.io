@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月26日：羽扇豆书写的季节
+#### 盛开的羽扇豆，北加利福尼亚州，美国（© Jeffrey Lewis/Tandem Stills + Motion）
+
+![羽扇豆书写的季节](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_800x480.jpg&rf=LaDigue_800x480.jpg "羽扇豆书写的季节")
+
+随着春季席卷北加利福尼亚州，大地在蓝色、紫色与白色交织的羽扇豆花海中焕然一新。这些野生物种在当地的地中海气候下生长繁茂，为蜜蜂、蝴蝶及甲虫等授粉媒介提供了至关重要的花蜜来源。羽扇豆在全球拥有200多个物种，其分布极其广泛，涵盖了从沿海地带到高山草甸的多种生境。除了显著的观赏价值外，羽扇豆在生态系统中亦发挥着关键作用：通过地下的固氮作用，它们能够显著提高土壤肥力，即便是在贫瘠的环境中也能支持周边植物的生长。
+
+“羽扇豆（Lupine）”之名源自拉丁语“Lupus”，意为“狼”。过去人们曾错误地认为，这种植物会像狼一样“吞噬”或损耗土壤中的养分。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%be%bd%e6%89%87%e8%b1%86&form=hpcapt&filters=HpDate:"20260525_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260526_LupineBloom"&FORM=HPQUIZ "必应主页测验 2026 5月 26")
+[下载480](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_800x480.jpg&rf=LaDigue_800x480.jpg "盛开的羽扇豆，北加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_1280x720.jpg&rf=LaDigue_1280x720.jpg "盛开的羽扇豆，北加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的羽扇豆，北加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的羽扇豆，北加利福尼亚州，美国")
+
+---
 ### 05月25日：石间的清风
 #### 从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度（© byheaven/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极海鹦, 威尔士")
 [下载1080](https://cn.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极海鹦, 威尔士")
 [下载UHD](https://cn.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_UHD.jpg&rf=LaDigue_UHD.jpg "北极海鹦, 威尔士")
-
----
-### 05月11日：水下建筑
-#### 从上方俯瞰大堡礁, 昆士兰州, 澳大利亚（© Francesco Riccardo Iacomino/Getty Images）
-
-![水下建筑](https://cn.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_800x480.jpg&rf=LaDigue_800x480.jpg "水下建筑")
-
-世界最伟大的自然奇观之一，绵延在澳大利亚东北海岸线外的珊瑚海碧绿海水中。大堡礁沿着昆士兰海岸延伸，是世界上最大的珊瑚礁系统。它由近3000个独立的珊瑚礁和数百个岛屿组成，绵延超过1400英里。
-
-纬度和跨陆架多样性，加上水体深度的多样性，构成了全球独一无二的生态群落、栖息地和物种。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%be%b3%e5%a4%a7%e5%88%a9%e4%ba%9a%e5%a4%a7%e5%a0%a1%e7%a4%81&form=hpcapt&filters=HpDate:"20260510_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260511_QueenslandReef"&FORM=HPQUIZ "必应主页测验 2026 5月 11")
-[下载480](https://cn.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_800x480.jpg&rf=LaDigue_800x480.jpg "从上方俯瞰大堡礁, 昆士兰州, 澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_1280x720.jpg&rf=LaDigue_1280x720.jpg "从上方俯瞰大堡礁, 昆士兰州, 澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从上方俯瞰大堡礁, 昆士兰州, 澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_UHD.jpg&rf=LaDigue_UHD.jpg "从上方俯瞰大堡礁, 昆士兰州, 澳大利亚")
 
 ---
