@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月27日：它们“獭”独一无二
+#### 海獭，霍默卡奇马克湾，阿拉斯加州，美国（© roclwyr/Getty Images）
+
+![它们“獭”独一无二](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_800x480.jpg&rf=LaDigue_800x480.jpg "它们“獭”独一无二")
+
+在世界水獭日这一天，不妨看看这只在美国阿拉斯加卡奇马克湾水域中畅游的小可爱！水獭是极具魅力的动物，在维持生态系统健康方面发挥着关键作用。在水獭专家组（OSG）的支持下——这一致力于保护全部14种水獭的全球专业网络——这一纪念日强调了水獭对自然环境的重要贡献。它们以活泼的行为和出色的智慧著称，也是水域健康的重要指示物种。然而，随着栖息地减少和污染加剧，水獭正面临日益严峻的生存挑战。
+
+世界水獭日在每年5月的最后一个星期三举行，旨在提升全球对水獭保护的关注。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b0%b4%e7%8d%ad%e6%97%a5&form=hpcapt&filters=HpDate:"20260526_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260527_OtterDay"&FORM=HPQUIZ "必应主页测验 2026 5月 27")
+[下载480](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_800x480.jpg&rf=LaDigue_800x480.jpg "海獭，霍默卡奇马克湾，阿拉斯加州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_1280x720.jpg&rf=LaDigue_1280x720.jpg "海獭，霍默卡奇马克湾，阿拉斯加州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海獭，霍默卡奇马克湾，阿拉斯加州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg&rf=LaDigue_UHD.jpg "海獭，霍默卡奇马克湾，阿拉斯加州，美国")
+
+---
 ### 05月26日：羽扇豆书写的季节
 #### 盛开的羽扇豆，北加利福尼亚州，美国（© Jeffrey Lewis/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_1280x720.jpg&rf=LaDigue_1280x720.jpg "拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_UHD.jpg&rf=LaDigue_UHD.jpg "拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国")
-
----
-### 05月12日：振翅, 潜水, 生存
-#### 北极海鹦, 威尔士（© FLPA/Alamy）
-
-![振翅, 潜水, 生存](https://cn.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_800x480.jpg&rf=LaDigue_800x480.jpg "振翅, 潜水, 生存")
-
-在北大西洋崎岖的海岸线上，大西洋海鹦栖息于洞穴和峭壁缝隙中。这些羽毛黑白相间、喙色艳丽的海鸟，由于过度捕捞和海洋环境变化导致猎物数量减少，被世界自然保护联盟（IUCN）列为易危物种。每年春天，它们都会返回此地繁殖，在精心挖掘的洞穴中产下一枚卵。作为游泳健将，它们在捕食鲱鱼和沙鳗等小型鱼类时，会利用翅膀在水下“飞行”。
-
-大西洋海鹦的飞行路线是直线飞行，通常在海面以上10米（35 英尺）处，比大多数其他海雀飞得更高。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%9e%81%e6%b5%b7%e9%b9%a6&form=hpcapt&filters=HpDate:"20260511_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260512_Fratercula"&FORM=HPQUIZ "必应主页测验 2026 5月 12")
-[下载480](https://cn.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_800x480.jpg&rf=LaDigue_800x480.jpg "北极海鹦, 威尔士")
-[下载720](https://cn.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极海鹦, 威尔士")
-[下载1080](https://cn.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极海鹦, 威尔士")
-[下载UHD](https://cn.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_UHD.jpg&rf=LaDigue_UHD.jpg "北极海鹦, 威尔士")
 
 ---
