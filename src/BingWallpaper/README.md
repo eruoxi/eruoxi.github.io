@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月28日：设计与秩序相结合
+#### 华城堡的古城墙，水原，韩国（© aomam/Getty Images）
+
+![设计与秩序相结合](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_800x480.jpg&rf=LaDigue_800x480.jpg "设计与秩序相结合")
+
+当夜幕降临在韩国水原，这里所呈现的华城堡古城墙证明了一点：功能并不一定会削弱美感，反而可以孕育出美。华城建于1794年至1796年间，由朝鲜王朝的正祖下令修建，它不仅仅是一道防御屏障，更是一种“以石为策”的体现——一场以务实为导向、兼具深层个人动机的改革尝试，旨在打造一个更加精简、高效运作的国家。正祖修建华城，一方面是为了纪念他的父亲，另一方面也意在强化这个追求更智慧治理体系、而不仅仅依赖加厚城墙的王国。
+
+韩国水原的华城堡通过隐蔽城门与弯曲城墙设计，在提升防御能力的同时，也与周围地形自然融合。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%9f%a9%e5%9b%bd%e6%b0%b4%e5%8e%9f%e7%9a%84%e5%8d%8e%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20260527_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260528_HwaesongFortress"&FORM=HPQUIZ "必应主页测验 2026 5月 28")
+[下载480](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_800x480.jpg&rf=LaDigue_800x480.jpg "华城堡的古城墙，水原，韩国")
+[下载720](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_1280x720.jpg&rf=LaDigue_1280x720.jpg "华城堡的古城墙，水原，韩国")
+[下载1080](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "华城堡的古城墙，水原，韩国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_UHD.jpg&rf=LaDigue_UHD.jpg "华城堡的古城墙，水原，韩国")
+
+---
 ### 05月27日：它们“獭”独一无二
 #### 海獭，霍默卡奇马克湾，阿拉斯加州，美国（© roclwyr/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_1280x720.jpg&rf=LaDigue_1280x720.jpg "中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_UHD.jpg&rf=LaDigue_UHD.jpg "中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利")
-
----
-### 05月13日：银河系，摇滚吧！
-#### 拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国（© Tim Fitzharris/Minden Pictures）
-
-![银河系，摇滚吧！](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_800x480.jpg&rf=LaDigue_800x480.jpg "银河系，摇滚吧！")
-
-在今天这张照片中，阿拉巴马山的花岗岩拱门将银河框入加州东部内华达山脉崎岖的地貌之中。这片区域以其圆润的巨石和风化的岩层而闻名，大约在1亿年前由火山活动形成。水和风逐渐将岩石塑造成如今光滑的形状。游客可以探索天然拱门，在岩石间徒步，拍摄独特的景观，骑马或骑山地自行车，并欣赏季节性的野花盛开。
-
-在这片干旱的土地上，翠绿的沙漠橄榄）、黄柳和芦苇竞相绽放。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e6%8b%89%e5%b7%b4%e9%a9%ac%e5%b1%b1&form=hpcapt&filters=HpDate:"20260512_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260513_AlabamaHills"&FORM=HPQUIZ "必应主页测验 2026 5月 13")
-[下载480](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_800x480.jpg&rf=LaDigue_800x480.jpg "拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_1280x720.jpg&rf=LaDigue_1280x720.jpg "拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_UHD.jpg&rf=LaDigue_UHD.jpg "拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国")
 
 ---
