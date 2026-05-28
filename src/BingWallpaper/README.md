@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 05月29日：巅峰历史时刻
+#### 珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔（© fotoVoyager/Getty Images）
+
+![巅峰历史时刻](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_800x480.jpg&rf=LaDigue_800x480.jpg "巅峰历史时刻")
+
+在尼泊尔的萨加玛塔国家公园，珠穆朗玛峰于暮色中巍然显现，平静而沉稳。1953年5月29日，这片宁静被历史性的一刻打破。经过数年的筹备与数周艰苦攀登，新西兰登山家埃德蒙·希拉里与夏尔巴登山家丹增·诺尔盖成功登顶珠穆朗玛峰。在海拔超过29000英尺（约8848米）的高度上，他们成为已知最早成功抵达人类所知地球最高点的人。
+
+珠穆朗玛峰所在的喜马拉雅山脉至今仍在缓慢抬升。由于印度板块与欧亚板块持续碰撞，珠峰的海拔每年都会发生微小变化，因此其官方高度也会随着新的测绘结果不断更新。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%ba%ba%e7%b1%bb%e9%a6%96%e6%ac%a1%e5%be%81%e6%9c%8d%e4%b8%96%e7%95%8c%e6%9c%80%e9%ab%98%e5%b3%b0&form=hpcapt&filters=HpDate:"20260528_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260529_SummitEverest"&FORM=HPQUIZ "必应主页测验 2026 5月 29")
+[下载480](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_800x480.jpg&rf=LaDigue_800x480.jpg "珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔")
+[下载720](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1280x720.jpg&rf=LaDigue_1280x720.jpg "珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔")
+[下载1080](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg&rf=LaDigue_UHD.jpg "珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔")
+
+---
 ### 05月28日：设计与秩序相结合
 #### 华城堡的古城墙，水原，韩国（© aomam/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EndangeredWhales_ZH-CN4053106967_1280x720.jpg&rf=LaDigue_1280x720.jpg "一群抹香鲸, 印度洋")
 [下载1080](https://cn.bing.com/th?id=OHR.EndangeredWhales_ZH-CN4053106967_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一群抹香鲸, 印度洋")
 [下载UHD](https://cn.bing.com/th?id=OHR.EndangeredWhales_ZH-CN4053106967_UHD.jpg&rf=LaDigue_UHD.jpg "一群抹香鲸, 印度洋")
-
----
-### 05月14日：一场穿越时空的旅程
-#### 中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利（© bluejayphoto/Getty Images Plus）
-
-![一场穿越时空的旅程](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_800x480.jpg&rf=LaDigue_800x480.jpg "一场穿越时空的旅程")
-
-皮蒂利亚诺坐落在意大利托斯卡纳南部的一处凝灰岩山脊上，是一座小巧却个性十足的城镇。它的历史可以追溯到伊特鲁里亚时代，蜿蜒的街道至今仍回荡着昔日的痕迹，从中世纪的防御工事到文艺复兴时期的宫殿，处处可见历史的印记。漫步在狭窄的巷弄中，仿佛能感受到几个世纪的生活印记镌刻在石头上，而小巧的广场则邀请您驻足，品尝咖啡或意式冰淇淋。这座经久不衰的宝藏常被誉为“小耶路撒冷”，因为它拥有历史悠久的犹太区，那里有一座犹太教堂和一座古老的墓地，诉说着曾经繁荣的犹太社区的故事。
-
-皮蒂利亚诺最令人期待的活动之一是“九月神圣节”（SettembreDivino），它每年与丰收节同时举行。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%9a%ae%e8%92%82%e5%88%a9%e4%ba%9a%e8%af%ba&form=hpcapt&filters=HpDate:"20260513_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260514_Pitigliano"&FORM=HPQUIZ "必应主页测验 2026 5月 14")
-[下载480](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_800x480.jpg&rf=LaDigue_800x480.jpg "中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利")
-[下载720](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_1280x720.jpg&rf=LaDigue_1280x720.jpg "中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_UHD.jpg&rf=LaDigue_UHD.jpg "中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利")
 
 ---
