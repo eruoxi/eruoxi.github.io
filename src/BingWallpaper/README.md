@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月01日：历史的况味
+#### 巴勒莫暮色下的天际线，西西里岛，意大利（© Sean Pavone/Getty Images）
+
+![历史的况味](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_800x480.jpg&rf=LaDigue_800x480.jpg "历史的况味")
+
+巴勒莫（Palermo）坐落于意大利南部，是西西里岛的首府。这是一座历史、艺术与文化交织的城市，呈现出一种生动且带有几分繁杂之美的和谐。它由腓尼基人始建，后历经罗马人、阿拉伯人、诺曼人及西班牙人的雕琢，承载了地中海沿岸诸多文明迁移的印记。这种厚重的历史底蕴在建筑中清晰可见：从被联合国教科文组织（UNESCO）列入名录的阿拉伯-诺曼式宫殿与教堂，到勾勒出历史街区轮廓的巴洛克式立面，无不昭示着往昔的辉煌。
+
+您知道吗？巴勒莫的马西莫剧院（Teatro Massimo）是意大利最大的歌剧院。它以近乎完美的音效闻名于世，同时也是电影《教父3》那段震撼人心的结尾戏的取景地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e5%b7%b4%e5%8b%92%e8%8e%ab&form=hpcapt&filters=HpDate:"20260531_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260601_OlivaPalermo"&FORM=HPQUIZ "必应主页测验 2026 6月 1")
+[下载480](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_800x480.jpg&rf=LaDigue_800x480.jpg "巴勒莫暮色下的天际线，西西里岛，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴勒莫暮色下的天际线，西西里岛，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴勒莫暮色下的天际线，西西里岛，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_UHD.jpg&rf=LaDigue_UHD.jpg "巴勒莫暮色下的天际线，西西里岛，意大利")
+
+---
 ### 05月31日：顺流而行
 #### 大沼泽地国家公园航拍景观，佛罗里达州，美国（© Tetra Images/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_1280x720.jpg&rf=LaDigue_1280x720.jpg "伦敦自然历史博物馆, 英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伦敦自然历史博物馆, 英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_UHD.jpg&rf=LaDigue_UHD.jpg "伦敦自然历史博物馆, 英格兰")
-
----
-### 05月17日：静谧之巅，喧嚣之景
-#### 仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国（© John Baggaley/Getty Images）
-
-![静谧之巅，喧嚣之景](https://cn.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_800x480.jpg&rf=LaDigue_800x480.jpg "静谧之巅，喧嚣之景")
-
-究竟要多高，才能尽享绝佳美景？在美国东部，其实无需太高的海拔。位于弗吉尼亚州仙纳度国家公园（Shenandoah National Park）内的玳瑁峰（Hawksbill Mountain），海拔仅为4050英尺；这充分表明，对于这些古老的山脉而言，开阔的视野远比绝对的高度更为重要。该公园成立于1935年，其建立过程伴随着大规模农耕与伐木活动之后的植被恢复工作。如今，昔日的土地大都已重披林装，孕育着混交阔叶林、山月桂以及杜鹃花等丰富的植被。此外还有什么值得一提？公园内的部分岩石距今已逾10亿年，堪称该州最为古老的岩层之一。这里栖息着200多种鸟类和32种鱼类；同时，公园对宠物也十分友好，允许游客携带爱犬进入露营地及大多数步道。
-
-约850种野花铺满仙纳度国家公园，全年呈现出美丽而多样的景观。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bb%99%e7%ba%b3%e5%ba%a6%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260516_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260517_ShenandoahSunset"&FORM=HPQUIZ "必应主页测验 2026 5月 17")
-[下载480](https://cn.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_800x480.jpg&rf=LaDigue_800x480.jpg "仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_1280x720.jpg&rf=LaDigue_1280x720.jpg "仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_UHD.jpg&rf=LaDigue_UHD.jpg "仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国")
 
 ---
