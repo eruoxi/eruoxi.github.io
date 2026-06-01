@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月02日：穿行于蓝色之间
+#### 穿越西台吉乃尔湖的公路，青海省，中国（© Kaicheng Xu/Getty Images）
+
+![穿行于蓝色之间](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_800x480.jpg&rf=LaDigue_800x480.jpg "穿行于蓝色之间")
+
+在青藏高原北缘、中国西部的荒漠之中，西台吉乃尔湖以一种超现实的姿态横跨在偏远的柴达木盆地。315国道的一段延伸线直接纵贯其浅水区，营造出一种公路悬浮于两个世界之间的视觉错觉。受卤水中矿物质浓度差异的影响，湖水呈现出鲜明的对比：一侧常显深邃的蓝色，另一侧则呈现柔和的绿色。
+
+这种独特的“双色湖”现象源于公路的阻隔作用。虽然湖水两侧均富含锂、铜、镁等矿物元素，但由于两侧的蒸发速率与水深各异，导致其对光的吸收与折射产生了明显的物理差异。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e6%9f%b4%e8%be%be%e6%9c%a8%e7%9b%86%e5%9c%b0&form=hpcapt&filters=HpDate:"20260601_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260602_Qinghai"&FORM=HPQUIZ "必应主页测验 2026 6月 2")
+[下载480](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_800x480.jpg&rf=LaDigue_800x480.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_1280x720.jpg&rf=LaDigue_1280x720.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_UHD.jpg&rf=LaDigue_UHD.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
+
+---
 ### 06月01日：历史的况味
 #### 巴勒莫暮色下的天际线，西西里岛，意大利（© Sean Pavone/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_1280x720.jpg&rf=LaDigue_1280x720.jpg "福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_UHD.jpg&rf=LaDigue_UHD.jpg "福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙")
-
----
-### 05月18日：大厅里的希望
-#### 伦敦自然历史博物馆, 英格兰（© Colm Keating/Tandem Stills + Motion）
-
-![大厅里的希望](https://cn.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_800x480.jpg&rf=LaDigue_800x480.jpg "大厅里的希望")
-
-当你步入博物馆，时光仿佛瞬间流转。一枚化石，诉说着数百万年前生命的印迹；一颗宝石，映照着肉眼难见的沧海桑田。正是这种深切的联结感，构成了“国际博物馆日”——这一由国际博物馆协会于1977年创立的节日——所旨在颂扬的核心精神。
-
-国际博物馆日（IMD）是由国际博物馆协会（ICOM）协调举办的国际性节日，于每年5月18日或前后举行。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e5%8d%9a%e7%89%a9%e9%a6%86%e6%97%a5&form=hpcapt&filters=HpDate:"20260517_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260518_MuseumLondon"&FORM=HPQUIZ "必应主页测验 2026 5月 18")
-[下载480](https://cn.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_800x480.jpg&rf=LaDigue_800x480.jpg "伦敦自然历史博物馆, 英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_1280x720.jpg&rf=LaDigue_1280x720.jpg "伦敦自然历史博物馆, 英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伦敦自然历史博物馆, 英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_UHD.jpg&rf=LaDigue_UHD.jpg "伦敦自然历史博物馆, 英格兰")
 
 ---
