@@ -1,8 +1,25 @@
 ## Bing Wallpaper(最近15天)
+### 06月03日：路之所止，行之所启
+#### 骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙（© Artur Debat/Getty Images）
+
+![路之所止，行之所启](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_800x480.jpg&rf=LaDigue_800x480.jpg "路之所止，行之所启")
+
+虽然日常的通勤之路或许不像今日画面中那般波澜壮阔，但这并不妨碍我们跨上单车，开始蹬踏。在“世界自行车日”到来之际，联合国向全球发出倡议，邀我们重新审视两轮出行的无限可能——无论是在穿梭于现代都市，还是纵贯于偏远荒原。每年的6月3日，这一由联合国发起的国际纪念日旨在认可自行车作为一种务实的出行方式，在促进公众健康、降低碳排放以及提升交通普惠性方面所发挥的关键作用。
+
+巴德纳斯雷亚莱斯因其酷似火星地表而闻名，美国国家航空航天局（NASA）的科学家曾利用这里来研究火星地貌是如何在数千年间经受风蚀演化的。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e8%87%aa%e8%a1%8c%e8%bd%a6%e6%97%a5&form=hpcapt&filters=HpDate:"20260602_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260603_BardenasReales"&FORM=HPQUIZ "必应主页测验 2026 6月 3")
+[下载480](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_800x480.jpg&rf=LaDigue_800x480.jpg "骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_1280x720.jpg&rf=LaDigue_1280x720.jpg "骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_UHD.jpg&rf=LaDigue_UHD.jpg "骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙")
+
+---
 ### 06月02日：穿行于蓝色之间
 #### 穿越西台吉乃尔湖的公路，青海省，中国（© Kaicheng Xu/Getty Images）
 
-![穿行于蓝色之间](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_800x480.jpg&rf=LaDigue_800x480.jpg "穿行于蓝色之间")
+![穿行于蓝色之间](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_800x480.jpg&rf=LaDigue_800x480.jpg "穿行于蓝色之间")
 
 在青藏高原北缘、中国西部的荒漠之中，西台吉乃尔湖以一种超现实的姿态横跨在偏远的柴达木盆地。315国道的一段延伸线直接纵贯其浅水区，营造出一种公路悬浮于两个世界之间的视觉错觉。受卤水中矿物质浓度差异的影响，湖水呈现出鲜明的对比：一侧常显深邃的蓝色，另一侧则呈现柔和的绿色。
 
@@ -10,10 +27,10 @@
 
 [Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e6%9f%b4%e8%be%be%e6%9c%a8%e7%9b%86%e5%9c%b0&form=hpcapt&filters=HpDate:"20260601_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 2")
 [必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260602_Qinghai"&FORM=HPQUIZ "必应主页测验 2026 6月 2")
-[下载480](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_800x480.jpg&rf=LaDigue_800x480.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
-[下载720](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_1280x720.jpg&rf=LaDigue_1280x720.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_UHD.jpg&rf=LaDigue_UHD.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
+[下载480](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_800x480.jpg&rf=LaDigue_800x480.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_1280x720.jpg&rf=LaDigue_1280x720.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_UHD.jpg&rf=LaDigue_UHD.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
 
 ---
 ### 06月01日：历史的况味
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_1280x720.jpg&rf=LaDigue_1280x720.jpg "熊蜂在授粉, 伍斯特, 英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "熊蜂在授粉, 伍斯特, 英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_UHD.jpg&rf=LaDigue_UHD.jpg "熊蜂在授粉, 伍斯特, 英格兰")
-
----
-### 05月19日：马略卡岛的边缘
-#### 福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙（© Allard Schager/Getty Images）
-
-![马略卡岛的边缘](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_800x480.jpg&rf=LaDigue_800x480.jpg "马略卡岛的边缘")
-
-在西班牙巴利阿里群岛中马略卡岛（Mallorca）的最北端，福门托尔灯塔（Formentor Lighthouse）巍然屹立于福门托尔角（Cap de Formentor）的陡峭悬崖之上。这处地势开阔的海角常被称为“风之汇聚地”。这座灯塔始建于1863年，并于当年9月30日首次点亮，它高耸于地中海海面近700英尺之上；若要抵达此处，需沿着一条狭窄蜿蜒的盘山公路前行，全程约8英里，起点位于波连萨港（Port de Pollença）。脚下是色泽浅淡的石灰岩——这些岩石由远古海洋生物遗骸历经漫长岁月沉积而成，随后在地壳运动的抬升与风化侵蚀的雕琢下，演化为如今这般气势磅礴的峭壁、海蚀洞穴及天然拱门。正是这种崎岖险峻的地质地貌，造就了该地区那种苍凉壮阔的独特美感与遗世独立的孤寂氛围。想要将这绝美景色尽收眼底吗？不妨沿着半岛上的徒步路线前行，或者挑战一段短促却陡峭的登高之路，攀至阿尔贝库奇瞭望塔（Talaia d'Albercutx）俯瞰全景，随后再继续前往灯塔。攀登途中请留意山坡：那些由早期家养羊群野化而来的野生山羊，正凭借着天生的平衡感，在险峻的岩架之间轻盈自如地跳跃穿梭。
-
-它是巴利阿里群岛最高的灯塔，焦面高度位于海平面上方210米（690英尺），坐落于福门托尔角（Cap de Formentor）尖端的高耸悬崖之上。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e7%a6%8f%e9%97%a8%e6%89%98%e5%b0%94%e7%81%af%e5%a1%94&form=hpcapt&filters=HpDate:"20260518_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260519_SpainLighthouse"&FORM=HPQUIZ "必应主页测验 2026 5月 19")
-[下载480](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_800x480.jpg&rf=LaDigue_800x480.jpg "福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_1280x720.jpg&rf=LaDigue_1280x720.jpg "福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_UHD.jpg&rf=LaDigue_UHD.jpg "福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙")
 
 ---
