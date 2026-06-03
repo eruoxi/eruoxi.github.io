@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月04日：优雅羽饰
+#### 梳理羽毛的雪鹭，佛罗里达州中部，美国（© Donald M. Jones/Minden Pictures）
+
+![优雅羽饰](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_800x480.jpg&rf=LaDigue_800x480.jpg "优雅羽饰")
+
+名如其诗，形亦如画。这就是雪鹭（Snowy egret）——通体洁白的羽衣，衬托着黑色长腿下明黄色的“脚掌”，构成了一幅极具视觉冲击力的画面。曾几何时，人类对这种鹭鸟在繁殖季节长出的装饰性婚羽（形似蕾丝般轻柔飘逸的丝状羽毛）有着极大的市场需求，用于点缀时尚女帽。这一嗜好险些让该物种走向灭绝，幸而后续的自然保护行动成功挽救了它们。
+
+雪鹭常与苍鹭成群觅食，利用大型鹭鸟惊扰出的水底动向，从而锁定并捕食那些原本隐藏的猎物。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%9b%aa%e9%b9%ad&form=hpcapt&filters=HpDate:"20260603_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260604_PreeningEgret"&FORM=HPQUIZ "必应主页测验 2026 6月 4")
+[下载480](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_800x480.jpg&rf=LaDigue_800x480.jpg "梳理羽毛的雪鹭，佛罗里达州中部，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_1280x720.jpg&rf=LaDigue_1280x720.jpg "梳理羽毛的雪鹭，佛罗里达州中部，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梳理羽毛的雪鹭，佛罗里达州中部，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_UHD.jpg&rf=LaDigue_UHD.jpg "梳理羽毛的雪鹭，佛罗里达州中部，美国")
+
+---
 ### 06月03日：路之所止，行之所启
 #### 骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙（© Artur Debat/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_1280x720.jpg&rf=LaDigue_1280x720.jpg "四川省的茶梯田, 中国")
 [下载1080](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "四川省的茶梯田, 中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_UHD.jpg&rf=LaDigue_UHD.jpg "四川省的茶梯田, 中国")
-
----
-### 05月20日：喧闹从这里开始
-#### 熊蜂在授粉, 伍斯特, 英格兰（© SimonEastwood87/Shutterstock）
-
-![喧闹从这里开始](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_800x480.jpg&rf=LaDigue_800x480.jpg "喧闹从这里开始")
-
-一声轻柔的嗡嗡声，伴随着细微的花粉飞扬，足以塑造我们食物的未来。每年5月20日是“世界蜜蜂日”，这一节日旨在礼赞像图中这只大黄蜂一样的授粉昆虫，致敬它们那看似悄无声息却至关重要的辛勤工作。与许多昆虫不同，大黄蜂采用一种独特的“振动授粉”方式——通过振动飞行肌，将花粉从花朵中抖落出来；对于番茄、辣椒和蓝莓等农作物而言，这种授粉方式至关重要。
-
-蜜蜂有五只眼睛——两只大的，以及三只位于头部中央的小眼睛。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e8%9c%9c%e8%9c%82%e6%97%a5&form=hpcapt&filters=HpDate:"20260519_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260520_BumbleBee"&FORM=HPQUIZ "必应主页测验 2026 5月 20")
-[下载480](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_800x480.jpg&rf=LaDigue_800x480.jpg "熊蜂在授粉, 伍斯特, 英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_1280x720.jpg&rf=LaDigue_1280x720.jpg "熊蜂在授粉, 伍斯特, 英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "熊蜂在授粉, 伍斯特, 英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_UHD.jpg&rf=LaDigue_UHD.jpg "熊蜂在授粉, 伍斯特, 英格兰")
 
 ---
