@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月05日：无人问津之地的静默力量
+#### 从斯基尔夫山俯瞰拉帕达伦河三角洲, 萨雷克国家公园, 拉波尼亚, 瑞典拉普兰（© Robert Haasmann/Getty Images）
+
+![无人问津之地的静默力量](https://cn.bing.com/th?id=OHR.WedLapland_ZH-CN2365942547_800x480.jpg&rf=LaDigue_800x480.jpg "无人问津之地的静默力量")
+
+如果大自然也有“请勿打扰”的标志，那它一定会挂在萨雷克国家公园上空，这里常被称为“欧洲最后的荒野”。在世界环境日这一天，瑞典拉普兰的这片偏远角落提醒我们，当人类退后一步，让大自然主导一切时，地球会是什么样子。
+
+斯基尔费悬崖提供约700米近乎垂直的俯瞰视角，可观赏下方拉帕达伦辫状河三角洲。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%8e%af%e5%a2%83%e6%97%a5&form=hpcapt&filters=HpDate:"20260604_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260605_WedLapland"&FORM=HPQUIZ "必应主页测验 2026 6月 5")
+[下载480](https://cn.bing.com/th?id=OHR.WedLapland_ZH-CN2365942547_800x480.jpg&rf=LaDigue_800x480.jpg "从斯基尔夫山俯瞰拉帕达伦河三角洲, 萨雷克国家公园, 拉波尼亚, 瑞典拉普兰")
+[下载720](https://cn.bing.com/th?id=OHR.WedLapland_ZH-CN2365942547_1280x720.jpg&rf=LaDigue_1280x720.jpg "从斯基尔夫山俯瞰拉帕达伦河三角洲, 萨雷克国家公园, 拉波尼亚, 瑞典拉普兰")
+[下载1080](https://cn.bing.com/th?id=OHR.WedLapland_ZH-CN2365942547_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从斯基尔夫山俯瞰拉帕达伦河三角洲, 萨雷克国家公园, 拉波尼亚, 瑞典拉普兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.WedLapland_ZH-CN2365942547_UHD.jpg&rf=LaDigue_UHD.jpg "从斯基尔夫山俯瞰拉帕达伦河三角洲, 萨雷克国家公园, 拉波尼亚, 瑞典拉普兰")
+
+---
 ### 06月04日：优雅羽饰
 #### 梳理羽毛的雪鹭，佛罗里达州中部，美国（© Donald M. Jones/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃希环礁，土阿莫土群岛，法属波利尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃希环礁，土阿莫土群岛，法属波利尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_UHD.jpg&rf=LaDigue_UHD.jpg "埃希环礁，土阿莫土群岛，法属波利尼西亚")
-
----
-### 05月21日：酿造传承
-#### 四川省的茶梯田, 中国（© lzf/Shutterstock）
-
-![酿造传承](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_800x480.jpg&rf=LaDigue_800x480.jpg "酿造传承")
-
-“国际茶日”旨在礼赞一种将日常习俗与古老地貌紧密相连的饮品。只需瞥一眼中国四川省那层层叠叠的梯田茶园，便不难领略其深植的文化根基。这片位于中国西南部的云雾缭绕之地，乃是茶文化的早期发源地之一；早在两千多年前，当地居民便已在此饮茶、植茶。在邻近的蒙顶山上，一位名叫吴理真的学者曾在汉朝时期开辟了世界上首批人工管理的茶园，从而为后世一代又一代的茶农奠定了坚实的基础。
-
-该节日于每年的5月21日庆祝，旨在认可茶叶数百年来的历史遗产，及其对全球健康、文化和农村生计所做出的显著贡献。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e8%8c%b6%e6%97%a5&form=hpcapt&filters=HpDate:"20260520_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260521_SichuanTea"&FORM=HPQUIZ "必应主页测验 2026 5月 21")
-[下载480](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_800x480.jpg&rf=LaDigue_800x480.jpg "四川省的茶梯田, 中国")
-[下载720](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_1280x720.jpg&rf=LaDigue_1280x720.jpg "四川省的茶梯田, 中国")
-[下载1080](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "四川省的茶梯田, 中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_UHD.jpg&rf=LaDigue_UHD.jpg "四川省的茶梯田, 中国")
 
 ---
