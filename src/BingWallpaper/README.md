@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月06日：多走走，多思考
+#### 纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国（© The best photo is earned/Getty Images Plus）
+
+![多走走，多思考](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_800x480.jpg&rf=LaDigue_800x480.jpg "多走走，多思考")
+
+如果你最近沉迷于电子屏幕，今天正是改变的好时机——我们建议你去徒步旅行。
+
+纳奇兹古道曾是商人将货物顺流运至新奥尔良后返回内陆的重要陆路通道。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%b3%e5%a5%87%e5%85%b9%e5%b0%8f%e5%be%84%e6%97%a5%e5%87%ba%e6%ad%a5%e9%81%93&form=hpcapt&filters=HpDate:"20260605_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260606_HikingNatchez"&FORM=HPQUIZ "必应主页测验 2026 6月 6")
+[下载480](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_800x480.jpg&rf=LaDigue_800x480.jpg "纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_1280x720.jpg&rf=LaDigue_1280x720.jpg "纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_UHD.jpg&rf=LaDigue_UHD.jpg "纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国")
+
+---
 ### 06月05日：无人问津之地的静默力量
 #### 从斯基尔夫山俯瞰拉帕达伦河三角洲, 萨雷克国家公园, 拉波尼亚, 瑞典拉普兰（© Robert Haasmann/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_1280x720.jpg&rf=LaDigue_1280x720.jpg "与蝴蝶在一起的乌龟")
 [下载1080](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "与蝴蝶在一起的乌龟")
 [下载UHD](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_UHD.jpg&rf=LaDigue_UHD.jpg "与蝴蝶在一起的乌龟")
-
----
-### 05月22日：海洋生命的律动
-#### 埃希环礁，土阿莫土群岛，法属波利尼西亚（© WaterFrame_dpr/Alamy）
-
-![海洋生命的律动](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_800x480.jpg&rf=LaDigue_800x480.jpg "海洋生命的律动")
-
-每年5月22日为“国际生物多样性日”，它向全球发出提醒：地球上的生命远比肉眼所见更加丰富，却也更加脆弱。这一由联合国设立的纪念日，旨在强调保护动植物及其生态系统为何对粮食安全、药物研发、气候稳定以及人类的日常福祉至关重要。
-
-考埃希环礁拥有独特的“三通道”入海口连接泻湖，这种结构形成了强劲的潮汐流，能显著提高湖水含氧量，为珍稀生物提供了绝佳的生存环境。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e7%94%9f%e7%89%a9%e5%a4%9a%e6%a0%b7%e6%80%a7%e6%97%a5&form=hpcapt&filters=HpDate:"20260521_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260522_KauehiAtollLagoon"&FORM=HPQUIZ "必应主页测验 2026 5月 22")
-[下载480](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_800x480.jpg&rf=LaDigue_800x480.jpg "埃希环礁，土阿莫土群岛，法属波利尼西亚")
-[下载720](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃希环礁，土阿莫土群岛，法属波利尼西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃希环礁，土阿莫土群岛，法属波利尼西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_UHD.jpg&rf=LaDigue_UHD.jpg "埃希环礁，土阿莫土群岛，法属波利尼西亚")
 
 ---
