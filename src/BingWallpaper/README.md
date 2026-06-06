@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月07日：最后一堵墙矗立着
+#### 邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰（© Krzysztof Rogalski/Getty Images）
+
+![最后一堵墙矗立着](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_800x480.jpg&rf=LaDigue_800x480.jpg "最后一堵墙矗立着")
+
+在邓塞弗里克城堡，历史仿佛就悬挂在原地——确切地说，就悬挂在原地。残垣断壁依附在大西洋上方的玄武岩峭壁上，证明即使是废墟也能屹立不倒。两千年前，这里是爱尔兰五大道路之一——斯莱格·米德卢赫拉（Slige Midluachra）的终点，这条道路连接着通往塔拉山（Hill of Tara）王室的旅人。据说，公元5世纪，圣帕特里克曾到访此地，并为当地居民奥尔坎（Olcán）施洗。传说中，用于为爱尔兰国王加冕的“命运之石”（Lia Fáil）就是从这片海岸被带往苏格兰的。
+
+邓塞弗里克城堡所依托的玄武岩地基在地质上与附近的巨人之路火山熔岩地貌相连。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%82%93%e5%a1%9e%e5%bc%97%e9%87%8c%e5%85%8b%e5%9f%8e%e5%a0%a1++&form=hpcapt&filters=HpDate:"20260606_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260607_DunseverickCastle2026"&FORM=HPQUIZ "必应主页测验 2026 6月 7")
+[下载480](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_800x480.jpg&rf=LaDigue_800x480.jpg "邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰")
+[下载720](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1280x720.jpg&rf=LaDigue_1280x720.jpg "邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰")
+[下载1080](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_UHD.jpg&rf=LaDigue_UHD.jpg "邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰")
+
+---
 ### 06月06日：多走走，多思考
 #### 纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国（© The best photo is earned/Getty Images Plus）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_1280x720.jpg&rf=LaDigue_1280x720.jpg "三峰自然公园，南蒂罗尔，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "三峰自然公园，南蒂罗尔，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_UHD.jpg&rf=LaDigue_UHD.jpg "三峰自然公园，南蒂罗尔，意大利")
-
----
-### 05月23日：为龟类喝彩！
-#### 与蝴蝶在一起的乌龟（© Patrick Gallet/Getty Images）
-
-![为龟类喝彩！](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_800x480.jpg&rf=LaDigue_800x480.jpg "为龟类喝彩！")
-
-龟类不仅是引人入胜的生物，更在自然界中扮演着至关重要的角色。海龟有助于维持海草床与珊瑚礁生态系统的健康，而淡水及陆栖龟类则支撑着各自生境的生态平衡。龟壳实际上是其骨架的一部分，由数十块骨头融合而成；此外，部分物种还能够利用地球磁场进行导航，精准地回到它们的出生地。
-
-全球共有七种海龟，其中五种正面临灭绝威胁。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e4%b9%8c%e9%be%9f%e6%97%a5&form=hpcapt&filters=HpDate:"20260522_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260523_ThreeTurtlesButterflies"&FORM=HPQUIZ "必应主页测验 2026 5月 23")
-[下载480](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_800x480.jpg&rf=LaDigue_800x480.jpg "与蝴蝶在一起的乌龟")
-[下载720](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_1280x720.jpg&rf=LaDigue_1280x720.jpg "与蝴蝶在一起的乌龟")
-[下载1080](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "与蝴蝶在一起的乌龟")
-[下载UHD](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_UHD.jpg&rf=LaDigue_UHD.jpg "与蝴蝶在一起的乌龟")
 
 ---
