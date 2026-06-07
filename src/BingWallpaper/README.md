@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月08日：随波逐流
+#### 在海洋中游动的狮鬃水母（© Alexander Semenov Images/Shutterstock）
+
+![随波逐流](https://cn.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_800x480.jpg&rf=LaDigue_800x480.jpg "随波逐流")
+
+今天是世界海洋日，让我们跟随这种随波逐流的生物的脚步吧！想看看狮鬃水母吗？那就去寒冷的北方海域寻找吧。它的伞状体分为八个瓣状结构，伞状体下方垂着长长的触手和口腕。随着水流漂移，它身上的刺细胞会捕获浮游生物和小鱼。对人类来说，被蜇一下会很疼。每个人的反应都不一样，即使是搁浅在海里的触手也可能造成疼痛。所以，记住一条简单的原则：欣赏它，然后就不要打扰它。北极水域的一些狮鬃水母伞状体直径超过6英尺（约1.8米），但大多数目击到的都是风暴或强流过后靠近海岸的小型个体。
+
+虽然大部分是水，但狮鬃水母的长度可达 120 英尺——甚至超过了蓝鲸。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b5%b7%e6%b4%8b%e6%97%a5&form=hpcapt&filters=HpDate:"20260607_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260608_Cyanea"&FORM=HPQUIZ "必应主页测验 2026 6月 8")
+[下载480](https://cn.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_800x480.jpg&rf=LaDigue_800x480.jpg "在海洋中游动的狮鬃水母")
+[下载720](https://cn.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_1280x720.jpg&rf=LaDigue_1280x720.jpg "在海洋中游动的狮鬃水母")
+[下载1080](https://cn.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在海洋中游动的狮鬃水母")
+[下载UHD](https://cn.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_UHD.jpg&rf=LaDigue_UHD.jpg "在海洋中游动的狮鬃水母")
+
+---
 ### 06月07日：最后一堵墙矗立着
 #### 邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰（© Krzysztof Rogalski/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1280x720.jpg&rf=LaDigue_1280x720.jpg "从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_UHD.jpg&rf=LaDigue_UHD.jpg "从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度")
-
----
-### 05月24日：守护欧洲的自然净土
-#### 三峰自然公园，南蒂罗尔，意大利（© Adisorn Fineday Chutikunakorn/Getty Images）
-
-![守护欧洲的自然净土](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_800x480.jpg&rf=LaDigue_800x480.jpg "守护欧洲的自然净土")
-
-“欧洲公园日”旨在庆祝欧洲大陆上的自然保护区，并纪念1909年欧洲首批国家公园的诞生。这一节日提醒着世人：现今诸多最具代表性的自然景观，皆得益于长期的生态保育努力。今日的影像向我们展示了这一文化遗产的典范——位于意大利北部的三峰自然公园。
-
-尽管这里以卓越的地质特征闻名，但它也承载着黑暗的历史。第一次世界大战期间，这片崎岖的景观曾是意大利和奥匈帝国军队展开残酷壕沟战的最前线，双方士兵曾在皑皑峰峦间忍受战火与雪崩的双重考验。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e4%b8%89%e5%b3%b0%e8%87%aa%e7%84%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260523_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260524_DolomitesPark"&FORM=HPQUIZ "必应主页测验 2026 5月 24")
-[下载480](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_800x480.jpg&rf=LaDigue_800x480.jpg "三峰自然公园，南蒂罗尔，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_1280x720.jpg&rf=LaDigue_1280x720.jpg "三峰自然公园，南蒂罗尔，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "三峰自然公园，南蒂罗尔，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_UHD.jpg&rf=LaDigue_UHD.jpg "三峰自然公园，南蒂罗尔，意大利")
 
 ---
