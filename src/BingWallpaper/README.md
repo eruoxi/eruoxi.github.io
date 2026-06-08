@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月09日：品尝日落
+#### 韦尔纳扎, 五渔村, 利古里亚, 意大利（© Kelly Cheng/Getty Images）
+
+![品尝日落](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_800x480.jpg&rf=LaDigue_800x480.jpg "品尝日落")
+
+韦尔纳扎是意大利利古里亚大区五渔村的一个海滨小镇。它围绕着该地区唯一的天然港口而建，自古以来就与大海紧密相连。韦尔纳扎最早的文字记载可追溯到1080年，当时它是一个设防的定居点和海上基地，后来成为热那亚共和国海岸防御体系的一部分。时至今日，小镇依然保留着昔日的风貌，多利亚城堡的遗址和俯瞰海湾的瞭望塔诉说着它的历史。在水边，矗立着圣玛格丽塔·安提阿教堂，这座教堂最早的文字记载可追溯到1318年，并在之后的几个世纪中不断扩建，如今教堂的钟楼俯瞰着港口。房屋和狭窄的街道上方，陡峭的梯田上种植着葡萄园和橄榄树，这些梯田是由一代又一代的工匠用石头精心雕琢而成，构成了五渔村国家公园的景观，而五渔村国家公园本身也是联合国教科文组织世界遗产的一部分。想象一下这里的餐前小酌：一杯当地白葡萄酒，港口景色尽收眼底，还有利古里亚的特色美食，如佛卡夏面包和罗勒香蒜酱——简直就是一张可以品尝的明信片。
+
+韦尔纳扎港湾的日落被认为是意大利最常被拍摄的景观之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e9%9f%a6%e5%b0%94%e7%ba%b3%e6%89%8e%e4%ba%94%e6%b8%94%e6%9d%91&form=hpcapt&filters=HpDate:"20260608_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260609_CTNPVernazza"&FORM=HPQUIZ "必应主页测验 2026 6月 9")
+[下载480](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_800x480.jpg&rf=LaDigue_800x480.jpg "韦尔纳扎, 五渔村, 利古里亚, 意大利")
+[下载720](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_1280x720.jpg&rf=LaDigue_1280x720.jpg "韦尔纳扎, 五渔村, 利古里亚, 意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦尔纳扎, 五渔村, 利古里亚, 意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_UHD.jpg&rf=LaDigue_UHD.jpg "韦尔纳扎, 五渔村, 利古里亚, 意大利")
+
+---
 ### 06月08日：随波逐流
 #### 在海洋中游动的狮鬃水母（© Alexander Semenov Images/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_1280x720.jpg&rf=LaDigue_1280x720.jpg "盛开的羽扇豆，北加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的羽扇豆，北加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的羽扇豆，北加利福尼亚州，美国")
-
----
-### 05月25日：石间的清风
-#### 从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度（© byheaven/Getty Images）
-
-![石间的清风](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_800x480.jpg&rf=LaDigue_800x480.jpg "石间的清风")
-
-如果建筑能够“呼吸”，那会是怎样一番景象？坐落于斋浦尔市中心的风之宫（Hawa Mahal）便实现了这一点——它吸纳清风、排出热气，将建筑设计转化为一场静谧的科学实验。与其说它是一座宫殿，倒不如说是一次精准的“吐故纳新”。它确实名副其实：一座实至名归的“风之宫殿”。
-
-风之宫是世界上最高的一座没有传统地基的建筑；尽管结构轻薄且呈弧形，它仅依靠科学的物理配重和金字塔形状便在地面上稳立了两个多世纪。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a3%8e%e4%b9%8b%e5%ae%ab&form=hpcapt&filters=HpDate:"20260524_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260525_HawaMahal2026"&FORM=HPQUIZ "必应主页测验 2026 5月 25")
-[下载480](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_800x480.jpg&rf=LaDigue_800x480.jpg "从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度")
-[下载720](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1280x720.jpg&rf=LaDigue_1280x720.jpg "从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度")
-[下载1080](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_UHD.jpg&rf=LaDigue_UHD.jpg "从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度")
 
 ---
