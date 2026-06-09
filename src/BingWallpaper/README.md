@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月10日：一抹蓝色
+#### 赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛（© Juan Maria Coy Vergara/Getty Images）
+
+![一抹蓝色](https://cn.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_800x480.jpg&rf=LaDigue_800x480.jpg "一抹蓝色")
+
+从空中俯瞰，湖泊平静的湖面与周围崎岖的地形形成鲜明对比。赫瑙萨波鲁尔火山口湖（也称布拉赫鲁尔湖）位于菲亚拉巴克自然保护区的中心地带，这片位于冰岛高地的偏远地区，其地貌更多地受到火山活动而非人类活动的影响。火山口的形成源于岩浆与地下水的接触，引发了一场爆炸，最终雕琢出如今可见的圆形盆地。
+
+深邃的水位与贫瘠的营养限制了藻类生长。这种清澈度使光线得以被强烈吸收，从而造就了其深蓝色调。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%86%b0%e5%b2%9b%e8%b5%ab%e7%91%99%e8%90%a8%e6%b3%a2%e9%b2%81%e5%b0%94&form=hpcapt&filters=HpDate:"20260609_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260610_Hnausapollur"&FORM=HPQUIZ "必应主页测验 2026 6月 10")
+[下载480](https://cn.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_800x480.jpg&rf=LaDigue_800x480.jpg "赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛")
+[下载720](https://cn.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_1280x720.jpg&rf=LaDigue_1280x720.jpg "赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛")
+[下载1080](https://cn.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_UHD.jpg&rf=LaDigue_UHD.jpg "赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛")
+
+---
 ### 06月09日：品尝日落
 #### 韦尔纳扎, 五渔村, 利古里亚, 意大利（© Kelly Cheng/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_1280x720.jpg&rf=LaDigue_1280x720.jpg "海獭，霍默卡奇马克湾，阿拉斯加州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海獭，霍默卡奇马克湾，阿拉斯加州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg&rf=LaDigue_UHD.jpg "海獭，霍默卡奇马克湾，阿拉斯加州，美国")
-
----
-### 05月26日：羽扇豆书写的季节
-#### 盛开的羽扇豆，北加利福尼亚州，美国（© Jeffrey Lewis/Tandem Stills + Motion）
-
-![羽扇豆书写的季节](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_800x480.jpg&rf=LaDigue_800x480.jpg "羽扇豆书写的季节")
-
-随着春季席卷北加利福尼亚州，大地在蓝色、紫色与白色交织的羽扇豆花海中焕然一新。这些野生物种在当地的地中海气候下生长繁茂，为蜜蜂、蝴蝶及甲虫等授粉媒介提供了至关重要的花蜜来源。羽扇豆在全球拥有200多个物种，其分布极其广泛，涵盖了从沿海地带到高山草甸的多种生境。除了显著的观赏价值外，羽扇豆在生态系统中亦发挥着关键作用：通过地下的固氮作用，它们能够显著提高土壤肥力，即便是在贫瘠的环境中也能支持周边植物的生长。
-
-“羽扇豆（Lupine）”之名源自拉丁语“Lupus”，意为“狼”。过去人们曾错误地认为，这种植物会像狼一样“吞噬”或损耗土壤中的养分。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%be%bd%e6%89%87%e8%b1%86&form=hpcapt&filters=HpDate:"20260525_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260526_LupineBloom"&FORM=HPQUIZ "必应主页测验 2026 5月 26")
-[下载480](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_800x480.jpg&rf=LaDigue_800x480.jpg "盛开的羽扇豆，北加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_1280x720.jpg&rf=LaDigue_1280x720.jpg "盛开的羽扇豆，北加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的羽扇豆，北加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的羽扇豆，北加利福尼亚州，美国")
 
 ---
