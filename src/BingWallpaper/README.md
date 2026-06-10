@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月11日：沉静的力量
+#### 退潮时裸露在乌尔萨海滩海岸上的帽贝, 葡萄牙（© Theo Bosboom/Nature Picture Library）
+
+![沉静的力量](https://cn.bing.com/th?id=OHR.Limpets_ZH-CN4991771513_800x480.jpg&rf=LaDigue_800x480.jpg "沉静的力量")
+
+乌尔萨海滩（Praia da Ursa）深藏在欧洲大陆最西端——罗卡角（Cabo da Roca）附近的陡峭悬崖之下，置身其中，仿佛来到了大陆的尽头。沿着一条狭窄崎岖的小径便可抵达这片隐秘的沙滩。在葡萄牙的大西洋沿岸，风、岩石与惊涛骇浪共同塑造了这里的地貌。当潮水退去，海岸线短暂地变得宽阔，平滑的岩石显露出来，随之而来的还有微小的生命迹象。帽贝紧紧贴在裸露的岩石上，在海浪平日拍打的地方顽强地驻守。
+
+这片海滩的名字“乌尔萨”（熊）源于当地的一个神话。传说中，一只母熊在冰川融化期间拒绝离开海岸；众神将她变成了石头，让她永远留在那里。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%91%a1%e8%90%84%e7%89%99%e4%b9%8c%e5%b0%94%e8%90%a8%e6%b5%b7%e6%bb%a9&form=hpcapt&filters=HpDate:"20260610_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260611_Limpets"&FORM=HPQUIZ "必应主页测验 2026 6月 11")
+[下载480](https://cn.bing.com/th?id=OHR.Limpets_ZH-CN4991771513_800x480.jpg&rf=LaDigue_800x480.jpg "退潮时裸露在乌尔萨海滩海岸上的帽贝, 葡萄牙")
+[下载720](https://cn.bing.com/th?id=OHR.Limpets_ZH-CN4991771513_1280x720.jpg&rf=LaDigue_1280x720.jpg "退潮时裸露在乌尔萨海滩海岸上的帽贝, 葡萄牙")
+[下载1080](https://cn.bing.com/th?id=OHR.Limpets_ZH-CN4991771513_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "退潮时裸露在乌尔萨海滩海岸上的帽贝, 葡萄牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.Limpets_ZH-CN4991771513_UHD.jpg&rf=LaDigue_UHD.jpg "退潮时裸露在乌尔萨海滩海岸上的帽贝, 葡萄牙")
+
+---
 ### 06月10日：一抹蓝色
 #### 赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛（© Juan Maria Coy Vergara/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_1280x720.jpg&rf=LaDigue_1280x720.jpg "华城堡的古城墙，水原，韩国")
 [下载1080](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "华城堡的古城墙，水原，韩国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_UHD.jpg&rf=LaDigue_UHD.jpg "华城堡的古城墙，水原，韩国")
-
----
-### 05月27日：它们“獭”独一无二
-#### 海獭，霍默卡奇马克湾，阿拉斯加州，美国（© roclwyr/Getty Images）
-
-![它们“獭”独一无二](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_800x480.jpg&rf=LaDigue_800x480.jpg "它们“獭”独一无二")
-
-在世界水獭日这一天，不妨看看这只在美国阿拉斯加卡奇马克湾水域中畅游的小可爱！水獭是极具魅力的动物，在维持生态系统健康方面发挥着关键作用。在水獭专家组（OSG）的支持下——这一致力于保护全部14种水獭的全球专业网络——这一纪念日强调了水獭对自然环境的重要贡献。它们以活泼的行为和出色的智慧著称，也是水域健康的重要指示物种。然而，随着栖息地减少和污染加剧，水獭正面临日益严峻的生存挑战。
-
-世界水獭日在每年5月的最后一个星期三举行，旨在提升全球对水獭保护的关注。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b0%b4%e7%8d%ad%e6%97%a5&form=hpcapt&filters=HpDate:"20260526_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260527_OtterDay"&FORM=HPQUIZ "必应主页测验 2026 5月 27")
-[下载480](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_800x480.jpg&rf=LaDigue_800x480.jpg "海獭，霍默卡奇马克湾，阿拉斯加州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_1280x720.jpg&rf=LaDigue_1280x720.jpg "海獭，霍默卡奇马克湾，阿拉斯加州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海獭，霍默卡奇马克湾，阿拉斯加州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg&rf=LaDigue_UHD.jpg "海獭，霍默卡奇马克湾，阿拉斯加州，美国")
 
 ---
