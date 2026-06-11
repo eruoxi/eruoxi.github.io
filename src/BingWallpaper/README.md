@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月12日：惊鸿一瞥
+#### 黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙（© Andres M. Dominguez/Nature Picture Library）
+
+![惊鸿一瞥](https://cn.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_800x480.jpg&rf=LaDigue_800x480.jpg "惊鸿一瞥")
+
+一抹绚丽的色彩掠过朦胧的野花丛，那是黄喉蜂虎正掠空而过。在展翅捕食间，其羽翼闪烁着青金石绿、金黄与栗红交织的光泽，并通过敏捷的空中转体在飞行中捕捉昆虫。蜜蜂和马蜂是它们最青睐的猎物。在进食前，这种鸟类通常会先拔除猎物的尾刺——这一行为能有效降低自身受伤的风险。在气候温暖的月份里，黄喉蜂虎广泛繁殖于欧洲南部、地中海地区以及亚洲西部等部分地区。
+
+黄喉蜂虎能挖掘长达3米的筑巢隧道，它们仅凭喙部和双足，就能清理出超过7公斤的泥土。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%bb%84%e5%96%89%e8%9c%82%e8%99%8e&form=hpcapt&filters=HpDate:"20260611_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260612_SpainBeeEater"&FORM=HPQUIZ "必应主页测验 2026 6月 12")
+[下载480](https://cn.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_800x480.jpg&rf=LaDigue_800x480.jpg "黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_UHD.jpg&rf=LaDigue_UHD.jpg "黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙")
+
+---
 ### 06月11日：沉静的力量
 #### 退潮时裸露在乌尔萨海滩海岸上的帽贝, 葡萄牙（© Theo Bosboom/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1280x720.jpg&rf=LaDigue_1280x720.jpg "珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔")
 [下载1080](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg&rf=LaDigue_UHD.jpg "珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔")
-
----
-### 05月28日：设计与秩序相结合
-#### 华城堡的古城墙，水原，韩国（© aomam/Getty Images）
-
-![设计与秩序相结合](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_800x480.jpg&rf=LaDigue_800x480.jpg "设计与秩序相结合")
-
-当夜幕降临在韩国水原，这里所呈现的华城堡古城墙证明了一点：功能并不一定会削弱美感，反而可以孕育出美。华城建于1794年至1796年间，由朝鲜王朝的正祖下令修建，它不仅仅是一道防御屏障，更是一种“以石为策”的体现——一场以务实为导向、兼具深层个人动机的改革尝试，旨在打造一个更加精简、高效运作的国家。正祖修建华城，一方面是为了纪念他的父亲，另一方面也意在强化这个追求更智慧治理体系、而不仅仅依赖加厚城墙的王国。
-
-韩国水原的华城堡通过隐蔽城门与弯曲城墙设计，在提升防御能力的同时，也与周围地形自然融合。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%9f%a9%e5%9b%bd%e6%b0%b4%e5%8e%9f%e7%9a%84%e5%8d%8e%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20260527_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260528_HwaesongFortress"&FORM=HPQUIZ "必应主页测验 2026 5月 28")
-[下载480](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_800x480.jpg&rf=LaDigue_800x480.jpg "华城堡的古城墙，水原，韩国")
-[下载720](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_1280x720.jpg&rf=LaDigue_1280x720.jpg "华城堡的古城墙，水原，韩国")
-[下载1080](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "华城堡的古城墙，水原，韩国")
-[下载UHD](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_UHD.jpg&rf=LaDigue_UHD.jpg "华城堡的古城墙，水原，韩国")
 
 ---
