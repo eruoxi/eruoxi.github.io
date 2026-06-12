@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月13日：岁月的层峦
+#### 落日，恶地国家公园，南达科他州，美国（© Troy Harrison/Getty Images）
+
+![岁月的层峦](https://cn.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_800x480.jpg&rf=LaDigue_800x480.jpg "岁月的层峦")
+
+层叠的嵴线横跨南达科他州的恶地国家公园。随着光影变幻，饱受侵蚀的山峰与沟谷悉数呈现在眼前，其间交织着粉红、灰白与金黄的岩层条带。时至今日，风力和流水仍在持续重塑这片地貌，不断剥蚀着质地松软的沉积岩，从而让数百万年的地球历史展露无遗。这些岩层分别由远古河流的沉积物、火山灰，以及该区域曾被浅海覆盖时期的沉积物交替堆积而成。
+
+恶地公园的黄土丘揭示了 3400 万年前的一场重大气候剧变——当时的温暖海域逐渐干涸，演变为气候更凉爽的陆地地貌。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%81%b6%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260612_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260613_BadSunset"&FORM=HPQUIZ "必应主页测验 2026 6月 13")
+[下载480](https://cn.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_800x480.jpg&rf=LaDigue_800x480.jpg "落日，恶地国家公园，南达科他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_1280x720.jpg&rf=LaDigue_1280x720.jpg "落日，恶地国家公园，南达科他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "落日，恶地国家公园，南达科他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_UHD.jpg&rf=LaDigue_UHD.jpg "落日，恶地国家公园，南达科他州，美国")
+
+---
 ### 06月12日：惊鸿一瞥
 #### 黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙（© Andres M. Dominguez/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_1280x720.jpg&rf=LaDigue_1280x720.jpg "平原斑马幼崽，埃托沙国家公园，纳米比亚")
 [下载1080](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "平原斑马幼崽，埃托沙国家公园，纳米比亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_UHD.jpg&rf=LaDigue_UHD.jpg "平原斑马幼崽，埃托沙国家公园，纳米比亚")
-
----
-### 05月29日：巅峰历史时刻
-#### 珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔（© fotoVoyager/Getty Images）
-
-![巅峰历史时刻](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_800x480.jpg&rf=LaDigue_800x480.jpg "巅峰历史时刻")
-
-在尼泊尔的萨加玛塔国家公园，珠穆朗玛峰于暮色中巍然显现，平静而沉稳。1953年5月29日，这片宁静被历史性的一刻打破。经过数年的筹备与数周艰苦攀登，新西兰登山家埃德蒙·希拉里与夏尔巴登山家丹增·诺尔盖成功登顶珠穆朗玛峰。在海拔超过29000英尺（约8848米）的高度上，他们成为已知最早成功抵达人类所知地球最高点的人。
-
-珠穆朗玛峰所在的喜马拉雅山脉至今仍在缓慢抬升。由于印度板块与欧亚板块持续碰撞，珠峰的海拔每年都会发生微小变化，因此其官方高度也会随着新的测绘结果不断更新。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%ba%ba%e7%b1%bb%e9%a6%96%e6%ac%a1%e5%be%81%e6%9c%8d%e4%b8%96%e7%95%8c%e6%9c%80%e9%ab%98%e5%b3%b0&form=hpcapt&filters=HpDate:"20260528_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260529_SummitEverest"&FORM=HPQUIZ "必应主页测验 2026 5月 29")
-[下载480](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_800x480.jpg&rf=LaDigue_800x480.jpg "珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔")
-[下载720](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1280x720.jpg&rf=LaDigue_1280x720.jpg "珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔")
-[下载1080](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔")
-[下载UHD](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg&rf=LaDigue_UHD.jpg "珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔")
 
 ---
