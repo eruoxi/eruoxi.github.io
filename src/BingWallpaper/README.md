@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月14日：潜羽探清波
+#### 绿头鸭（© Philippe Paternolli/Getty Images）
+
+![潜羽探清波](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_800x480.jpg&rf=LaDigue_800x480.jpg "潜羽探清波")
+
+拂晓时分，绿头鸭掠过平静的水面，宛如画笔划过画布。其波光粼粼的羽衣在晨光下熠熠生辉——雄鸟那标志性的翠绿色头部与雌鸟斑驳的褐色羽毛形成了鲜明对比。从法国卡马格的沼泽湿地到荷兰阿姆斯特丹的城市运河，随处可见它们的身影，它们堪称欧洲水生生态景观中最为常见的标志性物种。
+
+绿头鸭具有极强的适应能力，是全球分布最广的鸭科鸟类。从天然湿地到城市公园及运河等人工环境，它们均能良好繁衍。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%bb%bf%e5%a4%b4%e9%b8%ad&form=hpcapt&filters=HpDate:"20260613_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260614_DuckPond"&FORM=HPQUIZ "必应主页测验 2026 6月 14")
+[下载480](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_800x480.jpg&rf=LaDigue_800x480.jpg "绿头鸭")
+[下载720](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_1280x720.jpg&rf=LaDigue_1280x720.jpg "绿头鸭")
+[下载1080](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "绿头鸭")
+[下载UHD](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_UHD.jpg&rf=LaDigue_UHD.jpg "绿头鸭")
+
+---
 ### 06月13日：岁月的层峦
 #### 落日，恶地国家公园，南达科他州，美国（© Troy Harrison/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_1280x720.jpg&rf=LaDigue_1280x720.jpg "大沼泽地国家公园航拍景观，佛罗里达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大沼泽地国家公园航拍景观，佛罗里达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_UHD.jpg&rf=LaDigue_UHD.jpg "大沼泽地国家公园航拍景观，佛罗里达州，美国")
-
----
-### 05月30日：读懂黑白之间
-#### 平原斑马幼崽，埃托沙国家公园，纳米比亚（© Sharon Heald/Nature Picture Library）
-
-![读懂黑白之间](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_800x480.jpg&rf=LaDigue_800x480.jpg "读懂黑白之间")
-
-平原斑马身上鲜明的黑白条纹并不只是装饰，它们能够干扰捕食者的视觉判断，让猎手难以锁定单独个体。每只斑马的纹路都独一无二，但当它们聚集行动时，交错的条纹会形成复杂的视觉迷阵，增加捕食难度。这种生存策略十分有效。如今，数十万只平原斑马分布于非洲各地，在埃托沙等自然保护区中依然维持着稳定数量。
-
-平原斑马幼崽幼崽刚出生时，身上的条纹通常呈棕白色，而不是成年斑马鲜明的黑白配色。随着成长，它们的条纹会逐渐加深，更适合融入非洲干燥草原的自然环境。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b9%b3%e5%8e%9f%e6%96%91%e9%a9%ac&form=hpcapt&filters=HpDate:"20260529_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260530_EquusQuagga"&FORM=HPQUIZ "必应主页测验 2026 5月 30")
-[下载480](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_800x480.jpg&rf=LaDigue_800x480.jpg "平原斑马幼崽，埃托沙国家公园，纳米比亚")
-[下载720](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_1280x720.jpg&rf=LaDigue_1280x720.jpg "平原斑马幼崽，埃托沙国家公园，纳米比亚")
-[下载1080](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "平原斑马幼崽，埃托沙国家公园，纳米比亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_UHD.jpg&rf=LaDigue_UHD.jpg "平原斑马幼崽，埃托沙国家公园，纳米比亚")
 
 ---
