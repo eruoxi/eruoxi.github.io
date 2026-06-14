@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月15日：岁月雕琢，风景始成
+#### 大烟山国家公园，田纳西州，美国（© Mint Images/Getty Images）
+
+![岁月雕琢，风景始成](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_800x480.jpg&rf=LaDigue_800x480.jpg "岁月雕琢，风景始成")
+
+这片山脉历经了漫长地质岁月的雕琢，而1934年6月15日的法令则让它们获得了长久的保护——就在这一天，横跨田纳西州与北卡罗来纳州的大烟山国家公园正式建立。该公园占地面积超过522,000英亩（约21.1万公顷），其名称源于常年环绕在其嵴线之上的天然蓝色烟雾。作为阿巴拉契亚山脉的一部分，这些山峰的形成史可以追溯到3亿多年前。
+
+每年六月，大烟山国家公园都会迎来同步发光萤火虫。它们齐声闪烁，上演一场罕见而壮观的天然灯光秀。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e7%83%9f%e5%b1%b1%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260614_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260615_ParkEstd"&FORM=HPQUIZ "必应主页测验 2026 6月 15")
+[下载480](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_800x480.jpg&rf=LaDigue_800x480.jpg "大烟山国家公园，田纳西州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_1280x720.jpg&rf=LaDigue_1280x720.jpg "大烟山国家公园，田纳西州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大烟山国家公园，田纳西州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_UHD.jpg&rf=LaDigue_UHD.jpg "大烟山国家公园，田纳西州，美国")
+
+---
 ### 06月14日：潜羽探清波
 #### 绿头鸭（© Philippe Paternolli/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴勒莫暮色下的天际线，西西里岛，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴勒莫暮色下的天际线，西西里岛，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_UHD.jpg&rf=LaDigue_UHD.jpg "巴勒莫暮色下的天际线，西西里岛，意大利")
-
----
-### 05月31日：顺流而行
-#### 大沼泽地国家公园航拍景观，佛罗里达州，美国（© Tetra Images/Getty Images）
-
-![顺流而行](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_800x480.jpg&rf=LaDigue_800x480.jpg "顺流而行")
-
-今天是美国湿地月的最后一天，但对湿地生态的关注并不应随之结束。每年 5 月举行的这一全国性活动，旨在让更多人了解湿地这一美国最具生产力的重要生态系统之一。而位于佛罗里达州的大沼泽地国家公园，正是展现湿地力量的典型代表。从空中俯瞰，浅水、锯齿草、红树林与蜿蜒水道共同构成广阔景观，淡水从奥基乔比湖缓缓向南流动，塑造出独特生态环境。
-
-大沼泽地国家公园是地球上少数同时栖息着短吻鳄与鳄鱼的地区之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e6%b2%bc%e6%b3%bd%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260530_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 5月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260531_EvergladesWetlands"&FORM=HPQUIZ "必应主页测验 2026 5月 31")
-[下载480](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_800x480.jpg&rf=LaDigue_800x480.jpg "大沼泽地国家公园航拍景观，佛罗里达州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_1280x720.jpg&rf=LaDigue_1280x720.jpg "大沼泽地国家公园航拍景观，佛罗里达州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大沼泽地国家公园航拍景观，佛罗里达州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_UHD.jpg&rf=LaDigue_UHD.jpg "大沼泽地国家公园航拍景观，佛罗里达州，美国")
 
 ---
