@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月16日：蔚蓝海礁的守护者
+#### 七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛（© Alex Mustard/Nature Picture Library）
+
+![蔚蓝海礁的守护者](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_800x480.jpg&rf=LaDigue_800x480.jpg "蔚蓝海礁的守护者")
+
+世界海龟日”聚焦于海洋中最古老的“航行者”——这些爬行动物已在地球上生存了超过一亿年。每年的6月 16日定为世界海龟日，旨在提高公众对海龟生态重要性及其面临日益严峻威胁的关注。海龟在维持海草床和珊瑚礁系统健康方面发挥着核心作用，而这些生态系统支撑着多样化的海洋生物。在觅食地与筑巢地之间的长途迁徙是其生命周期的关键环节。尽管海龟具有极强的韧性，但目前所有物种都面临着栖息地丧失、塑料污染、气候变化以及渔具误捕的威胁。
+
+海龟卵孵化期间的沙子温度，决定了新生幼体是雄性还是雌性。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b5%b7%e9%be%9f%e6%97%a5&form=hpcapt&filters=HpDate:"20260615_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260616_SevenMileTurtle"&FORM=HPQUIZ "必应主页测验 2026 6月 16")
+[下载480](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_800x480.jpg&rf=LaDigue_800x480.jpg "七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛")
+[下载720](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_1280x720.jpg&rf=LaDigue_1280x720.jpg "七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛")
+[下载1080](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_UHD.jpg&rf=LaDigue_UHD.jpg "七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛")
+
+---
 ### 06月15日：岁月雕琢，风景始成
 #### 大烟山国家公园，田纳西州，美国（© Mint Images/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_1280x720.jpg&rf=LaDigue_1280x720.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_UHD.jpg&rf=LaDigue_UHD.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
-
----
-### 06月01日：历史的况味
-#### 巴勒莫暮色下的天际线，西西里岛，意大利（© Sean Pavone/Getty Images）
-
-![历史的况味](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_800x480.jpg&rf=LaDigue_800x480.jpg "历史的况味")
-
-巴勒莫（Palermo）坐落于意大利南部，是西西里岛的首府。这是一座历史、艺术与文化交织的城市，呈现出一种生动且带有几分繁杂之美的和谐。它由腓尼基人始建，后历经罗马人、阿拉伯人、诺曼人及西班牙人的雕琢，承载了地中海沿岸诸多文明迁移的印记。这种厚重的历史底蕴在建筑中清晰可见：从被联合国教科文组织（UNESCO）列入名录的阿拉伯-诺曼式宫殿与教堂，到勾勒出历史街区轮廓的巴洛克式立面，无不昭示着往昔的辉煌。
-
-您知道吗？巴勒莫的马西莫剧院（Teatro Massimo）是意大利最大的歌剧院。它以近乎完美的音效闻名于世，同时也是电影《教父3》那段震撼人心的结尾戏的取景地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e5%b7%b4%e5%8b%92%e8%8e%ab&form=hpcapt&filters=HpDate:"20260531_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260601_OlivaPalermo"&FORM=HPQUIZ "必应主页测验 2026 6月 1")
-[下载480](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_800x480.jpg&rf=LaDigue_800x480.jpg "巴勒莫暮色下的天际线，西西里岛，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_1280x720.jpg&rf=LaDigue_1280x720.jpg "巴勒莫暮色下的天际线，西西里岛，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴勒莫暮色下的天际线，西西里岛，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_UHD.jpg&rf=LaDigue_UHD.jpg "巴勒莫暮色下的天际线，西西里岛，意大利")
 
 ---
