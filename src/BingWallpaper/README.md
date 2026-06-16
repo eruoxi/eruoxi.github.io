@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月17日：蜿蜒而上
+#### 特雷莫拉公路在圣哥达山口，艾罗洛，瑞士（© Sandro Bisaro/Getty Images）
+
+![蜿蜒而上](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_800x480.jpg&rf=LaDigue_800x480.jpg "蜿蜒而上")
+
+沿着那如丝带般盘旋的连续弯道，您将领略到瑞士最具传奇色彩的驾驶路线之一：特雷莫拉公路（Tremola Road）。它是位于艾罗洛（Airolo）上方、通往圣哥达山口（Saint Gotthard Pass）的历史悠久的南坡入口。该公路始建于 19 世纪初期，并在 1951 年的重建中基本定型，被公认为瑞士最长的历史道路建筑纪念碑。其最引人入胜的一段路程在短短 2.5 英里（约 4 公里）内爬升了约 980 英尺（约 300 米），在花岗岩鹅卵石铺就的 24 个著名发卡弯中盘旋而上，路缘筑有坚固的挡土墙。全路段长约 7 英里（约 11 公里），总计 37 个弯道。请减速慢行——每一处曲线都像是一场穿越时空的旅行，虽然牺牲了车速，却能换取壮丽的山地景观，并俯瞰上勒文蒂纳山谷（upper Leventina Valley）的广阔视野。无论您是驾驶、骑行还是停车拍照，都请留意那个以此标志性“之”字形道路为背景的“瑞士环游之路”（Grand Tour of Switzerland）摄影打卡点。
+
+“特雷莫拉”一词源于意大利语“tremolare”（意为颤动），生动地描述了往昔马车在特雷莫拉公路（位于艾罗洛，瑞士）的鹅卵石路面上行驶时产生的剧烈震动。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%89%b9%e9%9b%b7%e8%8e%ab%e6%8b%89%e5%85%ac%e8%b7%af&form=hpcapt&filters=HpDate:"20260616_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260617_TremolaRoad"&FORM=HPQUIZ "必应主页测验 2026 6月 17")
+[下载480](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_800x480.jpg&rf=LaDigue_800x480.jpg "特雷莫拉公路在圣哥达山口，艾罗洛，瑞士")
+[下载720](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_1280x720.jpg&rf=LaDigue_1280x720.jpg "特雷莫拉公路在圣哥达山口，艾罗洛，瑞士")
+[下载1080](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特雷莫拉公路在圣哥达山口，艾罗洛，瑞士")
+[下载UHD](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_UHD.jpg&rf=LaDigue_UHD.jpg "特雷莫拉公路在圣哥达山口，艾罗洛，瑞士")
+
+---
 ### 06月16日：蔚蓝海礁的守护者
 #### 七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛（© Alex Mustard/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_1280x720.jpg&rf=LaDigue_1280x720.jpg "骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_UHD.jpg&rf=LaDigue_UHD.jpg "骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙")
-
----
-### 06月02日：穿行于蓝色之间
-#### 穿越西台吉乃尔湖的公路，青海省，中国（© Kaicheng Xu/Getty Images）
-
-![穿行于蓝色之间](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_800x480.jpg&rf=LaDigue_800x480.jpg "穿行于蓝色之间")
-
-在青藏高原北缘、中国西部的荒漠之中，西台吉乃尔湖以一种超现实的姿态横跨在偏远的柴达木盆地。315国道的一段延伸线直接纵贯其浅水区，营造出一种公路悬浮于两个世界之间的视觉错觉。受卤水中矿物质浓度差异的影响，湖水呈现出鲜明的对比：一侧常显深邃的蓝色，另一侧则呈现柔和的绿色。
-
-这种独特的“双色湖”现象源于公路的阻隔作用。虽然湖水两侧均富含锂、铜、镁等矿物元素，但由于两侧的蒸发速率与水深各异，导致其对光的吸收与折射产生了明显的物理差异。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e6%9f%b4%e8%be%be%e6%9c%a8%e7%9b%86%e5%9c%b0&form=hpcapt&filters=HpDate:"20260601_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260602_Qinghai"&FORM=HPQUIZ "必应主页测验 2026 6月 2")
-[下载480](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_800x480.jpg&rf=LaDigue_800x480.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
-[下载720](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_1280x720.jpg&rf=LaDigue_1280x720.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_UHD.jpg&rf=LaDigue_UHD.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
 
 ---
