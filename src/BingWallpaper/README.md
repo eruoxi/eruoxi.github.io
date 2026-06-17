@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月18日：坚如磐石的奇观
+#### 萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁（© Creative-Family/Getty Images Plus）
+
+![坚如磐石的奇观](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_800x480.jpg&rf=LaDigue_800x480.jpg "坚如磐石的奇观")
+
+萨克塞华曼（Sacsayhuamán）坐落于秘鲁库斯科的高处，通过石材展现了印加帝国的宏大雄心。这座宏伟的建筑群始建于15世纪，曾是印加帝国神圣都城的一部分。从高空俯瞰，其布局清晰呈现：梯田、开阔的广场以及塔楼遗迹，共同构成了一座经过精密规划的卫城。其中最为壮观的墙体由巨型石块砌成，至今依然屹立不倒。部分石材高度超过 27 英尺（约 8.2 米），且在未使用灰浆的情况下实现了极度精确的无缝拼接，这使得该结构历经数百年的地震仍完好无损。
+
+萨克塞华曼遗址（位于库斯科，秘鲁）中最重的单体巨石重量超过 120 吨，是在完全没有使用轮式工具的情况下，仅凭人力从数英里外的采石场搬运而来的。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%a7%98%e9%b2%81%e8%90%a8%e5%85%8b%e5%a1%9e%e5%8d%8e%e6%9b%bc&form=hpcapt&filters=HpDate:"20260617_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260618_Saqsaywaman"&FORM=HPQUIZ "必应主页测验 2026 6月 18")
+[下载480](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_800x480.jpg&rf=LaDigue_800x480.jpg "萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁")
+[下载720](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁")
+[下载1080](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁")
+[下载UHD](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_UHD.jpg&rf=LaDigue_UHD.jpg "萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁")
+
+---
 ### 06月17日：蜿蜒而上
 #### 特雷莫拉公路在圣哥达山口，艾罗洛，瑞士（© Sandro Bisaro/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_1280x720.jpg&rf=LaDigue_1280x720.jpg "梳理羽毛的雪鹭，佛罗里达州中部，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梳理羽毛的雪鹭，佛罗里达州中部，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_UHD.jpg&rf=LaDigue_UHD.jpg "梳理羽毛的雪鹭，佛罗里达州中部，美国")
-
----
-### 06月03日：路之所止，行之所启
-#### 骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙（© Artur Debat/Getty Images）
-
-![路之所止，行之所启](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_800x480.jpg&rf=LaDigue_800x480.jpg "路之所止，行之所启")
-
-虽然日常的通勤之路或许不像今日画面中那般波澜壮阔，但这并不妨碍我们跨上单车，开始蹬踏。在“世界自行车日”到来之际，联合国向全球发出倡议，邀我们重新审视两轮出行的无限可能——无论是在穿梭于现代都市，还是纵贯于偏远荒原。每年的6月3日，这一由联合国发起的国际纪念日旨在认可自行车作为一种务实的出行方式，在促进公众健康、降低碳排放以及提升交通普惠性方面所发挥的关键作用。
-
-巴德纳斯雷亚莱斯因其酷似火星地表而闻名，美国国家航空航天局（NASA）的科学家曾利用这里来研究火星地貌是如何在数千年间经受风蚀演化的。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e8%87%aa%e8%a1%8c%e8%bd%a6%e6%97%a5&form=hpcapt&filters=HpDate:"20260602_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260603_BardenasReales"&FORM=HPQUIZ "必应主页测验 2026 6月 3")
-[下载480](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_800x480.jpg&rf=LaDigue_800x480.jpg "骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_1280x720.jpg&rf=LaDigue_1280x720.jpg "骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_UHD.jpg&rf=LaDigue_UHD.jpg "骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙")
 
 ---
