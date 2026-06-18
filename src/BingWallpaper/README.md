@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月19日：龙吟古韵
+#### 湖中的龙舟，中国（©  Zhonghui Bao/Getty Images）
+
+![龙吟古韵](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN3070279417_800x480.jpg&rf=LaDigue_800x480.jpg "龙吟古韵")
+
+在华夏大地的万顷碧波上，龙舟竞渡已绵延了两千多年。这项如今享誉全球的体育活动，不仅是一场速度与力量的博弈，更是一枚深深烙印在中华儿女血脉中的文化符号。龙舟的起源众说纷纭，融汇了神话、历史与军事的多重色彩，共同构成了端午文化的底蕴。
+
+流体力学原理在龙舟竞渡中表现显著，其细长的船体设计能有效减少水的阻力，使训练有素的团队能够实现惊人的航行速度。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ab%af%e5%8d%88%e8%8a%82&form=hpcapt&filters=HpDate:"20260618_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260619_DragonBoatFestivalY26"&FORM=HPQUIZ "必应主页测验 2026 6月 19")
+[下载480](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN3070279417_800x480.jpg&rf=LaDigue_800x480.jpg "湖中的龙舟，中国")
+[下载720](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN3070279417_1280x720.jpg&rf=LaDigue_1280x720.jpg "湖中的龙舟，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN3070279417_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "湖中的龙舟，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN3070279417_UHD.jpg&rf=LaDigue_UHD.jpg "湖中的龙舟，中国")
+
+---
 ### 06月18日：坚如磐石的奇观
 #### 萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁（© Creative-Family/Getty Images Plus）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WedLapland_ZH-CN2365942547_1280x720.jpg&rf=LaDigue_1280x720.jpg "从斯基尔夫山俯瞰拉帕达伦河三角洲, 萨雷克国家公园, 拉波尼亚, 瑞典拉普兰")
 [下载1080](https://cn.bing.com/th?id=OHR.WedLapland_ZH-CN2365942547_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从斯基尔夫山俯瞰拉帕达伦河三角洲, 萨雷克国家公园, 拉波尼亚, 瑞典拉普兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.WedLapland_ZH-CN2365942547_UHD.jpg&rf=LaDigue_UHD.jpg "从斯基尔夫山俯瞰拉帕达伦河三角洲, 萨雷克国家公园, 拉波尼亚, 瑞典拉普兰")
-
----
-### 06月04日：优雅羽饰
-#### 梳理羽毛的雪鹭，佛罗里达州中部，美国（© Donald M. Jones/Minden Pictures）
-
-![优雅羽饰](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_800x480.jpg&rf=LaDigue_800x480.jpg "优雅羽饰")
-
-名如其诗，形亦如画。这就是雪鹭（Snowy egret）——通体洁白的羽衣，衬托着黑色长腿下明黄色的“脚掌”，构成了一幅极具视觉冲击力的画面。曾几何时，人类对这种鹭鸟在繁殖季节长出的装饰性婚羽（形似蕾丝般轻柔飘逸的丝状羽毛）有着极大的市场需求，用于点缀时尚女帽。这一嗜好险些让该物种走向灭绝，幸而后续的自然保护行动成功挽救了它们。
-
-雪鹭常与苍鹭成群觅食，利用大型鹭鸟惊扰出的水底动向，从而锁定并捕食那些原本隐藏的猎物。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%9b%aa%e9%b9%ad&form=hpcapt&filters=HpDate:"20260603_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260604_PreeningEgret"&FORM=HPQUIZ "必应主页测验 2026 6月 4")
-[下载480](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_800x480.jpg&rf=LaDigue_800x480.jpg "梳理羽毛的雪鹭，佛罗里达州中部，美国")
-[下载720](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_1280x720.jpg&rf=LaDigue_1280x720.jpg "梳理羽毛的雪鹭，佛罗里达州中部，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梳理羽毛的雪鹭，佛罗里达州中部，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_UHD.jpg&rf=LaDigue_UHD.jpg "梳理羽毛的雪鹭，佛罗里达州中部，美国")
 
 ---
