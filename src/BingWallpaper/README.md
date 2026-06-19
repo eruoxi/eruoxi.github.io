@@ -1,19 +1,36 @@
 ## Bing Wallpaper(最近15天)
+### 06月20日：海洋中冰封的大教堂
+#### 漂浮在南极半岛西部海域的拱形冰山, 南大洋（© Steven Kazlowski/Nature Picture Library）
+
+![海洋中冰封的大教堂](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_800x480.jpg&rf=LaDigue_800x480.jpg "海洋中冰封的大教堂")
+
+在南极半岛沿岸，一道冰雕般的拱形结构从南大洋拔地而起，而南极半岛是地球上变暖速度最快的地区之一。这道拱形结构最初是由积雪压实而成，历经数千年演变为冰川。最终，冰川或漂浮冰架的一部分断裂脱落——这一过程被称为冰崩——形成了漂浮的冰山。
+
+冰山在融化过程中可能因重心变化突然翻转，其释放的能量甚至足以在平静海面上掀起较大波浪。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%86%b0%e5%b1%b1&form=hpcapt&filters=HpDate:"20260619_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260620_ArchedIceberg"&FORM=HPQUIZ "必应主页测验 2026 6月 20")
+[下载480](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_800x480.jpg&rf=LaDigue_800x480.jpg "漂浮在南极半岛西部海域的拱形冰山, 南大洋")
+[下载720](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_1280x720.jpg&rf=LaDigue_1280x720.jpg "漂浮在南极半岛西部海域的拱形冰山, 南大洋")
+[下载1080](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "漂浮在南极半岛西部海域的拱形冰山, 南大洋")
+[下载UHD](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_UHD.jpg&rf=LaDigue_UHD.jpg "漂浮在南极半岛西部海域的拱形冰山, 南大洋")
+
+---
 ### 06月19日：龙吟古韵
 #### 湖中的龙舟，中国（©  Zhonghui Bao/Getty Images）
 
-![龙吟古韵](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN3070279417_800x480.jpg&rf=LaDigue_800x480.jpg "龙吟古韵")
+![龙吟古韵](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_800x480.jpg&rf=LaDigue_800x480.jpg "龙吟古韵")
 
-在华夏大地的万顷碧波上，龙舟竞渡已绵延了两千多年。这项如今享誉全球的体育活动，不仅是一场速度与力量的博弈，更是一枚深深烙印在中华儿女血脉中的文化符号。龙舟的起源众说纷纭，融汇了神话、历史与军事的多重色彩，共同构成了端午文化的底蕴。
+在华夏大地的万顷碧波上，龙舟竞渡已绵延了两千多年。这项如今享誉全球的体育活动，不仅是一场速度与力量的博弈，更是一枚深深烙印在中华儿女血脉中的文化符号。龙舟的起源众说纷纭，融汇了神话、历史等多重色彩，共同构成了端午文化的底蕴。
 
 流体力学原理在龙舟竞渡中表现显著，其细长的船体设计能有效减少水的阻力，使训练有素的团队能够实现惊人的航行速度。
 
 [Bing搜索](https://cn.bing.com/search?q=%e7%ab%af%e5%8d%88%e8%8a%82&form=hpcapt&filters=HpDate:"20260618_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 19")
 [必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260619_DragonBoatFestivalY26"&FORM=HPQUIZ "必应主页测验 2026 6月 19")
-[下载480](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN3070279417_800x480.jpg&rf=LaDigue_800x480.jpg "湖中的龙舟，中国")
-[下载720](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN3070279417_1280x720.jpg&rf=LaDigue_1280x720.jpg "湖中的龙舟，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN3070279417_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "湖中的龙舟，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN3070279417_UHD.jpg&rf=LaDigue_UHD.jpg "湖中的龙舟，中国")
+[下载480](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_800x480.jpg&rf=LaDigue_800x480.jpg "湖中的龙舟，中国")
+[下载720](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_1280x720.jpg&rf=LaDigue_1280x720.jpg "湖中的龙舟，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "湖中的龙舟，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_UHD.jpg&rf=LaDigue_UHD.jpg "湖中的龙舟，中国")
 
 ---
 ### 06月18日：坚如磐石的奇观
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_1280x720.jpg&rf=LaDigue_1280x720.jpg "纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_UHD.jpg&rf=LaDigue_UHD.jpg "纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国")
-
----
-### 06月05日：无人问津之地的静默力量
-#### 从斯基尔夫山俯瞰拉帕达伦河三角洲, 萨雷克国家公园, 拉波尼亚, 瑞典拉普兰（© Robert Haasmann/Getty Images）
-
-![无人问津之地的静默力量](https://cn.bing.com/th?id=OHR.WedLapland_ZH-CN2365942547_800x480.jpg&rf=LaDigue_800x480.jpg "无人问津之地的静默力量")
-
-如果大自然也有“请勿打扰”的标志，那它一定会挂在萨雷克国家公园上空，这里常被称为“欧洲最后的荒野”。在世界环境日这一天，瑞典拉普兰的这片偏远角落提醒我们，当人类退后一步，让大自然主导一切时，地球会是什么样子。
-
-斯基尔费悬崖提供约700米近乎垂直的俯瞰视角，可观赏下方拉帕达伦辫状河三角洲。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%8e%af%e5%a2%83%e6%97%a5&form=hpcapt&filters=HpDate:"20260604_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260605_WedLapland"&FORM=HPQUIZ "必应主页测验 2026 6月 5")
-[下载480](https://cn.bing.com/th?id=OHR.WedLapland_ZH-CN2365942547_800x480.jpg&rf=LaDigue_800x480.jpg "从斯基尔夫山俯瞰拉帕达伦河三角洲, 萨雷克国家公园, 拉波尼亚, 瑞典拉普兰")
-[下载720](https://cn.bing.com/th?id=OHR.WedLapland_ZH-CN2365942547_1280x720.jpg&rf=LaDigue_1280x720.jpg "从斯基尔夫山俯瞰拉帕达伦河三角洲, 萨雷克国家公园, 拉波尼亚, 瑞典拉普兰")
-[下载1080](https://cn.bing.com/th?id=OHR.WedLapland_ZH-CN2365942547_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从斯基尔夫山俯瞰拉帕达伦河三角洲, 萨雷克国家公园, 拉波尼亚, 瑞典拉普兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.WedLapland_ZH-CN2365942547_UHD.jpg&rf=LaDigue_UHD.jpg "从斯基尔夫山俯瞰拉帕达伦河三角洲, 萨雷克国家公园, 拉波尼亚, 瑞典拉普兰")
 
 ---
