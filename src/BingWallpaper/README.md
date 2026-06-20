@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月21日：鸟类好爸爸
+#### 企鹅爸爸正在检查蛋的情况（© McDonald Wildlife Photography Inc./Getty Images）
+
+![鸟类好爸爸](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_800x480.jpg&rf=LaDigue_800x480.jpg "鸟类好爸爸")
+
+六月的第三个星期日是父亲节——一个感谢那些默默守护、悉心照料孩子成长的长辈们的日子。在世界各地，父亲的角色可以呈现出令人意想不到的非凡形式。
+
+对海马而言，雄性会将受精卵放入自己的育儿袋中，并在孵化前为它们提供氧气、养分和全方位的保护。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%88%b6%e4%ba%b2%e8%8a%82&form=hpcapt&filters=HpDate:"20260620_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260621_EggDad"&FORM=HPQUIZ "必应主页测验 2026 6月 21")
+[下载480](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_800x480.jpg&rf=LaDigue_800x480.jpg "企鹅爸爸正在检查蛋的情况")
+[下载720](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_1280x720.jpg&rf=LaDigue_1280x720.jpg "企鹅爸爸正在检查蛋的情况")
+[下载1080](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "企鹅爸爸正在检查蛋的情况")
+[下载UHD](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_UHD.jpg&rf=LaDigue_UHD.jpg "企鹅爸爸正在检查蛋的情况")
+
+---
 ### 06月20日：海洋中冰封的大教堂
 #### 漂浮在南极半岛西部海域的拱形冰山, 南大洋（© Steven Kazlowski/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1280x720.jpg&rf=LaDigue_1280x720.jpg "邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰")
 [下载1080](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_UHD.jpg&rf=LaDigue_UHD.jpg "邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰")
-
----
-### 06月06日：多走走，多思考
-#### 纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国（© The best photo is earned/Getty Images Plus）
-
-![多走走，多思考](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_800x480.jpg&rf=LaDigue_800x480.jpg "多走走，多思考")
-
-如果你最近沉迷于电子屏幕，今天正是改变的好时机——我们建议你去徒步旅行。
-
-纳奇兹古道曾是商人将货物顺流运至新奥尔良后返回内陆的重要陆路通道。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%b3%e5%a5%87%e5%85%b9%e5%b0%8f%e5%be%84%e6%97%a5%e5%87%ba%e6%ad%a5%e9%81%93&form=hpcapt&filters=HpDate:"20260605_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260606_HikingNatchez"&FORM=HPQUIZ "必应主页测验 2026 6月 6")
-[下载480](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_800x480.jpg&rf=LaDigue_800x480.jpg "纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_1280x720.jpg&rf=LaDigue_1280x720.jpg "纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_UHD.jpg&rf=LaDigue_UHD.jpg "纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国")
 
 ---
