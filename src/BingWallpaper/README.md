@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月23日：天际线上的印记
+#### 本州岛上的富士山, 日本（© phutthiseth thongtae/Getty Images）
+
+![天际线上的印记](https://cn.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_800x480.jpg&rf=LaDigue_800x480.jpg "天际线上的印记")
+
+富士山是日本最高峰，海拔12,389英尺（约3700米），耸立于本州岛，位于东京西南约60英里（约97公里）处。这座近乎完美的锥形山峰是一座火山——自1707年12月最后一次喷发后便一直处于休眠状态，但仍被归类为活火山。那次大规模喷发被称为宝荣喷发，火山灰和其他火山碎屑喷涌而出，席卷日本东部，甚至远至江户（今东京）。除了地质学意义之外，富士山长期以来被视为神圣的景观和朝圣登山的目的地，这体现了日本自然、宗教和日常生活的交融。这种经久不衰的文化魅力也是它于2013年被联合国教科文组织列为世界遗产的原因之一，被誉为“神圣之地和艺术灵感的源泉”。众所周知，在晴朗的日子里，富士山从远处就能清晰可见，但这并非必然——云层可能在几分钟内将其遮蔽。无论您是徒步攀登，还是只是从火车车窗瞥见它，它依然是日本地平线上的标志性景观。
+
+富士山通常从10月开始积雪，山顶白雪往往能持续半年以上，也因此成为日本“四季景观”意象的重要组成部分。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%af%8c%e5%a3%ab%e5%b1%b1&form=hpcapt&filters=HpDate:"20260622_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260623_Fujisan"&FORM=HPQUIZ "必应主页测验 2026 6月 23")
+[下载480](https://cn.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_800x480.jpg&rf=LaDigue_800x480.jpg "本州岛上的富士山, 日本")
+[下载720](https://cn.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_1280x720.jpg&rf=LaDigue_1280x720.jpg "本州岛上的富士山, 日本")
+[下载1080](https://cn.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "本州岛上的富士山, 日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_UHD.jpg&rf=LaDigue_UHD.jpg "本州岛上的富士山, 日本")
+
+---
 ### 06月22日：一个郁郁葱葱的王国
 #### 奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国（© Chris Moore/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_1280x720.jpg&rf=LaDigue_1280x720.jpg "韦尔纳扎, 五渔村, 利古里亚, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦尔纳扎, 五渔村, 利古里亚, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_UHD.jpg&rf=LaDigue_UHD.jpg "韦尔纳扎, 五渔村, 利古里亚, 意大利")
-
----
-### 06月08日：随波逐流
-#### 在海洋中游动的狮鬃水母（© Alexander Semenov Images/Shutterstock）
-
-![随波逐流](https://cn.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_800x480.jpg&rf=LaDigue_800x480.jpg "随波逐流")
-
-今天是世界海洋日，让我们跟随这种随波逐流的生物的脚步吧！想看看狮鬃水母吗？那就去寒冷的北方海域寻找吧。它的伞状体分为八个瓣状结构，伞状体下方垂着长长的触手和口腕。随着水流漂移，它身上的刺细胞会捕获浮游生物和小鱼。对人类来说，被蜇一下会很疼。每个人的反应都不一样，即使是搁浅在海里的触手也可能造成疼痛。所以，记住一条简单的原则：欣赏它，然后就不要打扰它。北极水域的一些狮鬃水母伞状体直径超过6英尺（约1.8米），但大多数目击到的都是风暴或强流过后靠近海岸的小型个体。
-
-虽然大部分是水，但狮鬃水母的长度可达 120 英尺——甚至超过了蓝鲸。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b5%b7%e6%b4%8b%e6%97%a5&form=hpcapt&filters=HpDate:"20260607_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260608_Cyanea"&FORM=HPQUIZ "必应主页测验 2026 6月 8")
-[下载480](https://cn.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_800x480.jpg&rf=LaDigue_800x480.jpg "在海洋中游动的狮鬃水母")
-[下载720](https://cn.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_1280x720.jpg&rf=LaDigue_1280x720.jpg "在海洋中游动的狮鬃水母")
-[下载1080](https://cn.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在海洋中游动的狮鬃水母")
-[下载UHD](https://cn.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_UHD.jpg&rf=LaDigue_UHD.jpg "在海洋中游动的狮鬃水母")
 
 ---
