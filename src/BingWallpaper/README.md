@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月24日：花粉与翅膀相遇
+#### 蝴蝶正在黄花上授粉（© lzh/Getty Images）
+
+![花粉与翅膀相遇](https://cn.bing.com/th?id=OHR.BFPollin_ZH-CN7654067396_800x480.jpg&rf=LaDigue_800x480.jpg "花粉与翅膀相遇")
+
+放大观察维持大地生机的微小交易：一只蝴蝶停在黄色的花朵上，吮吸着花蜜。它吸食花蜜的同时，花粉沾满了它的身体，搭上了前往下一朵花的“顺风车”——这是开花植物悄无声息的繁殖方式之一。传粉者并非只有蜜蜂。蝴蝶、鸟类、蝙蝠、甲虫以及许多其他昆虫都在帮助传播花粉，从而支持野生植物以及我们食用的许多水果和蔬菜的生长。
+
+我们所吃的食物中，大约有三分之一要归功于授粉昆虫。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%9d%b4%e8%9d%b6%e6%8e%88%e7%b2%89&form=hpcapt&filters=HpDate:"20260623_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260624_BFPollin"&FORM=HPQUIZ "必应主页测验 2026 6月 24")
+[下载480](https://cn.bing.com/th?id=OHR.BFPollin_ZH-CN7654067396_800x480.jpg&rf=LaDigue_800x480.jpg "蝴蝶正在黄花上授粉")
+[下载720](https://cn.bing.com/th?id=OHR.BFPollin_ZH-CN7654067396_1280x720.jpg&rf=LaDigue_1280x720.jpg "蝴蝶正在黄花上授粉")
+[下载1080](https://cn.bing.com/th?id=OHR.BFPollin_ZH-CN7654067396_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蝴蝶正在黄花上授粉")
+[下载UHD](https://cn.bing.com/th?id=OHR.BFPollin_ZH-CN7654067396_UHD.jpg&rf=LaDigue_UHD.jpg "蝴蝶正在黄花上授粉")
+
+---
 ### 06月23日：天际线上的印记
 #### 本州岛上的富士山, 日本（© phutthiseth thongtae/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_1280x720.jpg&rf=LaDigue_1280x720.jpg "赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛")
 [下载1080](https://cn.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_UHD.jpg&rf=LaDigue_UHD.jpg "赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛")
-
----
-### 06月09日：品尝日落
-#### 韦尔纳扎, 五渔村, 利古里亚, 意大利（© Kelly Cheng/Getty Images）
-
-![品尝日落](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_800x480.jpg&rf=LaDigue_800x480.jpg "品尝日落")
-
-韦尔纳扎是意大利利古里亚大区五渔村的一个海滨小镇。它围绕着该地区唯一的天然港口而建，自古以来就与大海紧密相连。韦尔纳扎最早的文字记载可追溯到1080年，当时它是一个设防的定居点和海上基地，后来成为热那亚共和国海岸防御体系的一部分。时至今日，小镇依然保留着昔日的风貌，多利亚城堡的遗址和俯瞰海湾的瞭望塔诉说着它的历史。在水边，矗立着圣玛格丽塔·安提阿教堂，这座教堂最早的文字记载可追溯到1318年，并在之后的几个世纪中不断扩建，如今教堂的钟楼俯瞰着港口。房屋和狭窄的街道上方，陡峭的梯田上种植着葡萄园和橄榄树，这些梯田是由一代又一代的工匠用石头精心雕琢而成，构成了五渔村国家公园的景观，而五渔村国家公园本身也是联合国教科文组织世界遗产的一部分。想象一下这里的餐前小酌：一杯当地白葡萄酒，港口景色尽收眼底，还有利古里亚的特色美食，如佛卡夏面包和罗勒香蒜酱——简直就是一张可以品尝的明信片。
-
-韦尔纳扎港湾的日落被认为是意大利最常被拍摄的景观之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e9%9f%a6%e5%b0%94%e7%ba%b3%e6%89%8e%e4%ba%94%e6%b8%94%e6%9d%91&form=hpcapt&filters=HpDate:"20260608_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260609_CTNPVernazza"&FORM=HPQUIZ "必应主页测验 2026 6月 9")
-[下载480](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_800x480.jpg&rf=LaDigue_800x480.jpg "韦尔纳扎, 五渔村, 利古里亚, 意大利")
-[下载720](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_1280x720.jpg&rf=LaDigue_1280x720.jpg "韦尔纳扎, 五渔村, 利古里亚, 意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦尔纳扎, 五渔村, 利古里亚, 意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_UHD.jpg&rf=LaDigue_UHD.jpg "韦尔纳扎, 五渔村, 利古里亚, 意大利")
 
 ---
