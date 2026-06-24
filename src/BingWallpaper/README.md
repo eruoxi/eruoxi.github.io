@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月25日：在广场中感受历史
+#### 布鲁塞尔大广场上的建筑群, 比利时（© Vladislav Zolotov/Getty Images Plus）
+
+![在广场中感受历史](https://cn.bing.com/th?id=OHR.GrandPlace_ZH-CN8806496436_800x480.jpg&rf=LaDigue_800x480.jpg "在广场中感受历史")
+
+在比利时，很少有哪个广场能像大广场那样承载如此丰富的历史。广场周围的建筑，正如照片所示，最初都是行会会所，每座会所都由特定的行业出资兴建。酿酒师、面包师、商人和工匠们将建筑视为一种语言，通过浮雕、纹章和大量的金箔，将工作、地位和竞争关系凝结于石头之上。各种建筑风格在此交融碰撞，毫不拘束。哥特式的垂直线条与巴洛克式的曲线并肩而立，而市政厅——这座比周围建筑更古老、造型大胆不对称的建筑——则将整个建筑群和谐地连接起来。
+
+布鲁塞尔大广场并非严格的正方形，而是略呈梯形，这种微妙的透视结构会产生“视觉矫正”效果，使市政厅在空间中显得更加居中与平衡。该遗址于1998年被列入联合国教科文组织世界遗产名录。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e9%b2%81%e5%a1%9e%e5%b0%94%e5%a4%a7%e5%b9%bf%e5%9c%ba&form=hpcapt&filters=HpDate:"20260624_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260625_GrandPlace"&FORM=HPQUIZ "必应主页测验 2026 6月 25")
+[下载480](https://cn.bing.com/th?id=OHR.GrandPlace_ZH-CN8806496436_800x480.jpg&rf=LaDigue_800x480.jpg "布鲁塞尔大广场上的建筑群, 比利时")
+[下载720](https://cn.bing.com/th?id=OHR.GrandPlace_ZH-CN8806496436_1280x720.jpg&rf=LaDigue_1280x720.jpg "布鲁塞尔大广场上的建筑群, 比利时")
+[下载1080](https://cn.bing.com/th?id=OHR.GrandPlace_ZH-CN8806496436_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布鲁塞尔大广场上的建筑群, 比利时")
+[下载UHD](https://cn.bing.com/th?id=OHR.GrandPlace_ZH-CN8806496436_UHD.jpg&rf=LaDigue_UHD.jpg "布鲁塞尔大广场上的建筑群, 比利时")
+
+---
 ### 06月24日：花粉与翅膀相遇
 #### 蝴蝶正在黄花上授粉（© lzh/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Limpets_ZH-CN4991771513_1280x720.jpg&rf=LaDigue_1280x720.jpg "退潮时裸露在乌尔萨海滩海岸上的帽贝, 葡萄牙")
 [下载1080](https://cn.bing.com/th?id=OHR.Limpets_ZH-CN4991771513_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "退潮时裸露在乌尔萨海滩海岸上的帽贝, 葡萄牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.Limpets_ZH-CN4991771513_UHD.jpg&rf=LaDigue_UHD.jpg "退潮时裸露在乌尔萨海滩海岸上的帽贝, 葡萄牙")
-
----
-### 06月10日：一抹蓝色
-#### 赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛（© Juan Maria Coy Vergara/Getty Images）
-
-![一抹蓝色](https://cn.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_800x480.jpg&rf=LaDigue_800x480.jpg "一抹蓝色")
-
-从空中俯瞰，湖泊平静的湖面与周围崎岖的地形形成鲜明对比。赫瑙萨波鲁尔火山口湖（也称布拉赫鲁尔湖）位于菲亚拉巴克自然保护区的中心地带，这片位于冰岛高地的偏远地区，其地貌更多地受到火山活动而非人类活动的影响。火山口的形成源于岩浆与地下水的接触，引发了一场爆炸，最终雕琢出如今可见的圆形盆地。
-
-深邃的水位与贫瘠的营养限制了藻类生长。这种清澈度使光线得以被强烈吸收，从而造就了其深蓝色调。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%86%b0%e5%b2%9b%e8%b5%ab%e7%91%99%e8%90%a8%e6%b3%a2%e9%b2%81%e5%b0%94&form=hpcapt&filters=HpDate:"20260609_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260610_Hnausapollur"&FORM=HPQUIZ "必应主页测验 2026 6月 10")
-[下载480](https://cn.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_800x480.jpg&rf=LaDigue_800x480.jpg "赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛")
-[下载720](https://cn.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_1280x720.jpg&rf=LaDigue_1280x720.jpg "赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛")
-[下载1080](https://cn.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_UHD.jpg&rf=LaDigue_UHD.jpg "赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛")
 
 ---
