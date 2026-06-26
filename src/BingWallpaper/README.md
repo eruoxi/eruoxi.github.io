@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月27日：逐渐失去立足之地的树木
+#### 博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国（© Frances/Adobe Stock）
+
+![逐渐失去立足之地的树木](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_800x480.jpg&rf=LaDigue_800x480.jpg "逐渐失去立足之地的树木")
+
+在美国南卡罗来纳州亨廷岛州立公园内的博尼亚德海滩，最先映入眼帘的是那些树木。紧接着，一个疑问便会浮现：为何一根根被海水漂白的树干和裸露的树根散落在沙滩上，仿佛一幕正在坍塌的景象被按下了暂停键？自20世纪80年代以来，亨廷岛一直面临严重的海滩侵蚀问题，其侵蚀速率位居美国东海岸前列。在部分区域，海岸线每年后退幅度最高可达约30英尺（约9米）。
+
+博尼亚德海滩上许多仍然矗立的枯树遗骸因长期受到盐分环境影响而减缓腐朽过程，从而形成独特的海岸自然雕塑景观。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%ba%a8%e5%bb%b7%e5%b2%9b&form=hpcapt&filters=HpDate:"20260626_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260627_BoneyardBeach"&FORM=HPQUIZ "必应主页测验 2026 6月 27")
+[下载480](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_800x480.jpg&rf=LaDigue_800x480.jpg "博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1280x720.jpg&rf=LaDigue_1280x720.jpg "博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_UHD.jpg&rf=LaDigue_UHD.jpg "博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国")
+
+---
 ### 06月26日：时事
 #### 泰晤士河, 伦敦, 英格兰（© Daniel Lange/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_1280x720.jpg&rf=LaDigue_1280x720.jpg "落日，恶地国家公园，南达科他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "落日，恶地国家公园，南达科他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_UHD.jpg&rf=LaDigue_UHD.jpg "落日，恶地国家公园，南达科他州，美国")
-
----
-### 06月12日：惊鸿一瞥
-#### 黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙（© Andres M. Dominguez/Nature Picture Library）
-
-![惊鸿一瞥](https://cn.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_800x480.jpg&rf=LaDigue_800x480.jpg "惊鸿一瞥")
-
-一抹绚丽的色彩掠过朦胧的野花丛，那是黄喉蜂虎正掠空而过。在展翅捕食间，其羽翼闪烁着青金石绿、金黄与栗红交织的光泽，并通过敏捷的空中转体在飞行中捕捉昆虫。蜜蜂和马蜂是它们最青睐的猎物。在进食前，这种鸟类通常会先拔除猎物的尾刺——这一行为能有效降低自身受伤的风险。在气候温暖的月份里，黄喉蜂虎广泛繁殖于欧洲南部、地中海地区以及亚洲西部等部分地区。
-
-黄喉蜂虎能挖掘长达3米的筑巢隧道，它们仅凭喙部和双足，就能清理出超过7公斤的泥土。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%bb%84%e5%96%89%e8%9c%82%e8%99%8e&form=hpcapt&filters=HpDate:"20260611_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260612_SpainBeeEater"&FORM=HPQUIZ "必应主页测验 2026 6月 12")
-[下载480](https://cn.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_800x480.jpg&rf=LaDigue_800x480.jpg "黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_1280x720.jpg&rf=LaDigue_1280x720.jpg "黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_UHD.jpg&rf=LaDigue_UHD.jpg "黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙")
 
 ---
