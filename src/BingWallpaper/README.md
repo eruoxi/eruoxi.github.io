@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月28日：看起来很精神
+#### 温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国（© Eric Mischke/Getty Images）
+
+![看起来很精神](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_800x480.jpg&rf=LaDigue_800x480.jpg "看起来很精神")
+
+在索诺拉沙漠，作为生存大师的巨人柱仙人掌赋予了“坚守”（stick around）一词新的含义。这种巨型植物伸展着躯干与枝臂，向四面八方昂然挺立，已然成为美国西南部的标志性象征。
+
+巨柱仙人掌洁白的花朵是亚利桑那州的州花。它们在晚春短暂盛开，能够吸引大量蜜蜂采蜜，并孕育出广受欢迎的沙漠蜂蜜。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%a8%e4%ba%ba%e6%9f%b1%e4%bb%99%e4%ba%ba%e6%8e%8c&form=hpcapt&filters=HpDate:"20260627_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260628_SaguaroSun"&FORM=HPQUIZ "必应主页测验 2026 6月 28")
+[下载480](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_800x480.jpg&rf=LaDigue_800x480.jpg "温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_1280x720.jpg&rf=LaDigue_1280x720.jpg "温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_UHD.jpg&rf=LaDigue_UHD.jpg "温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国")
+
+---
 ### 06月27日：逐渐失去立足之地的树木
 #### 博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国（© Frances/Adobe Stock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_1280x720.jpg&rf=LaDigue_1280x720.jpg "绿头鸭")
 [下载1080](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "绿头鸭")
 [下载UHD](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_UHD.jpg&rf=LaDigue_UHD.jpg "绿头鸭")
-
----
-### 06月13日：岁月的层峦
-#### 落日，恶地国家公园，南达科他州，美国（© Troy Harrison/Getty Images）
-
-![岁月的层峦](https://cn.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_800x480.jpg&rf=LaDigue_800x480.jpg "岁月的层峦")
-
-层叠的嵴线横跨南达科他州的恶地国家公园。随着光影变幻，饱受侵蚀的山峰与沟谷悉数呈现在眼前，其间交织着粉红、灰白与金黄的岩层条带。时至今日，风力和流水仍在持续重塑这片地貌，不断剥蚀着质地松软的沉积岩，从而让数百万年的地球历史展露无遗。这些岩层分别由远古河流的沉积物、火山灰，以及该区域曾被浅海覆盖时期的沉积物交替堆积而成。
-
-恶地公园的黄土丘揭示了 3400 万年前的一场重大气候剧变——当时的温暖海域逐渐干涸，演变为气候更凉爽的陆地地貌。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%81%b6%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260612_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260613_BadSunset"&FORM=HPQUIZ "必应主页测验 2026 6月 13")
-[下载480](https://cn.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_800x480.jpg&rf=LaDigue_800x480.jpg "落日，恶地国家公园，南达科他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_1280x720.jpg&rf=LaDigue_1280x720.jpg "落日，恶地国家公园，南达科他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "落日，恶地国家公园，南达科他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_UHD.jpg&rf=LaDigue_UHD.jpg "落日，恶地国家公园，南达科他州，美国")
 
 ---
