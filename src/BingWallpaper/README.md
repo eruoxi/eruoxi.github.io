@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月29日：生于烈火，拥于碧水
+#### 波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚（© Frederick Millett/Shutterstock）
+
+![生于烈火，拥于碧水](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_800x480.jpg&rf=LaDigue_800x480.jpg "生于烈火，拥于碧水")
+
+“国际热带日”于每年6月29日纪念，旨在聚焦北回归线与南回归线之间那片广阔的区域——在这里，温暖的气候与充沛的降水塑造着人们的日常生活。该区域虽仅占地球表面积的约40%，却承载了全球约80%的生物多样性，对于地球生态健康与人类文化而言至关重要。
+
+波拉波拉岛的泻湖栖息着鹰魟，它们常成群活动，在太平洋最清澈的海域之一的沙质海底优雅滑行。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e7%83%ad%e5%b8%a6%e6%97%a5&form=hpcapt&filters=HpDate:"20260628_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260629_BoraBoraLagoon"&FORM=HPQUIZ "必应主页测验 2026 6月 29")
+[下载480](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_800x480.jpg&rf=LaDigue_800x480.jpg "波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_1280x720.jpg&rf=LaDigue_1280x720.jpg "波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_UHD.jpg&rf=LaDigue_UHD.jpg "波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚")
+
+---
 ### 06月28日：看起来很精神
 #### 温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国（© Eric Mischke/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_1280x720.jpg&rf=LaDigue_1280x720.jpg "大烟山国家公园，田纳西州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大烟山国家公园，田纳西州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_UHD.jpg&rf=LaDigue_UHD.jpg "大烟山国家公园，田纳西州，美国")
-
----
-### 06月14日：潜羽探清波
-#### 绿头鸭（© Philippe Paternolli/Getty Images）
-
-![潜羽探清波](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_800x480.jpg&rf=LaDigue_800x480.jpg "潜羽探清波")
-
-拂晓时分，绿头鸭掠过平静的水面，宛如画笔划过画布。其波光粼粼的羽衣在晨光下熠熠生辉——雄鸟那标志性的翠绿色头部与雌鸟斑驳的褐色羽毛形成了鲜明对比。从法国卡马格的沼泽湿地到荷兰阿姆斯特丹的城市运河，随处可见它们的身影，它们堪称欧洲水生生态景观中最为常见的标志性物种。
-
-绿头鸭具有极强的适应能力，是全球分布最广的鸭科鸟类。从天然湿地到城市公园及运河等人工环境，它们均能良好繁衍。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%bb%bf%e5%a4%b4%e9%b8%ad&form=hpcapt&filters=HpDate:"20260613_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260614_DuckPond"&FORM=HPQUIZ "必应主页测验 2026 6月 14")
-[下载480](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_800x480.jpg&rf=LaDigue_800x480.jpg "绿头鸭")
-[下载720](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_1280x720.jpg&rf=LaDigue_1280x720.jpg "绿头鸭")
-[下载1080](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "绿头鸭")
-[下载UHD](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_UHD.jpg&rf=LaDigue_UHD.jpg "绿头鸭")
 
 ---
