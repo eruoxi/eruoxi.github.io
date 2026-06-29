@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 06月30日：阴影被拉得修长之处
+#### 马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚（© danm/Getty Images）
+
+![阴影被拉得修长之处](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_800x480.jpg&rf=LaDigue_800x480.jpg "阴影被拉得修长之处")
+
+当夕阳在马赛马拉国家保护区缓缓西沉，马赛长颈鹿的剪影映衬着绚烂如火的天空与辽阔原野，显得格外醒目。这座保护区位于肯尼亚西南部，与坦桑尼亚的塞伦盖蒂国家公园接壤，占地约580平方英里；随着夜幕降临，这里又度过了精彩的一天。这是一片广袤无垠的土地，也是世界上最壮观的野生动物乐园之一。起伏的草原、零星点缀的金合欢树，以及孕育万物的马拉河，共同构成了上演难忘邂逅的绝佳舞台。
+
+长颈鹿的心脏重量可超过11千克（25磅），能够将血液克服重力输送至近2米高的头部，是陆地动物中极为强大的循环系统之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e8%b5%9b%e9%a9%ac%e6%8b%89%e5%9b%bd%e5%ae%b6%e4%bf%9d%e6%8a%a4%e5%8c%ba&form=hpcapt&filters=HpDate:"20260629_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260630_MasaiGiraffe"&FORM=HPQUIZ "必应主页测验 2026 6月 30")
+[下载480](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_800x480.jpg&rf=LaDigue_800x480.jpg "马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_1280x720.jpg&rf=LaDigue_1280x720.jpg "马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚")
+
+---
 ### 06月29日：生于烈火，拥于碧水
 #### 波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚（© Frederick Millett/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_1280x720.jpg&rf=LaDigue_1280x720.jpg "七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛")
 [下载1080](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_UHD.jpg&rf=LaDigue_UHD.jpg "七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛")
-
----
-### 06月15日：岁月雕琢，风景始成
-#### 大烟山国家公园，田纳西州，美国（© Mint Images/Getty Images）
-
-![岁月雕琢，风景始成](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_800x480.jpg&rf=LaDigue_800x480.jpg "岁月雕琢，风景始成")
-
-这片山脉历经了漫长地质岁月的雕琢，而1934年6月15日的法令则让它们获得了长久的保护——就在这一天，横跨田纳西州与北卡罗来纳州的大烟山国家公园正式建立。该公园占地面积超过522,000英亩（约21.1万公顷），其名称源于常年环绕在其嵴线之上的天然蓝色烟雾。作为阿巴拉契亚山脉的一部分，这些山峰的形成史可以追溯到3亿多年前。
-
-每年六月，大烟山国家公园都会迎来同步发光萤火虫。它们齐声闪烁，上演一场罕见而壮观的天然灯光秀。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e7%83%9f%e5%b1%b1%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260614_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260615_ParkEstd"&FORM=HPQUIZ "必应主页测验 2026 6月 15")
-[下载480](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_800x480.jpg&rf=LaDigue_800x480.jpg "大烟山国家公园，田纳西州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_1280x720.jpg&rf=LaDigue_1280x720.jpg "大烟山国家公园，田纳西州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大烟山国家公园，田纳西州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_UHD.jpg&rf=LaDigue_UHD.jpg "大烟山国家公园，田纳西州，美国")
 
 ---
