@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月01日：大西洋雕琢而成的加拿大
+#### 地牢省立公园, 纽芬兰和拉布拉多省, 加拿大（© Kaitlyn McLachlan/Getty Images）
+
+![大西洋雕琢而成的加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_800x480.jpg&rf=LaDigue_800x480.jpg "大西洋雕琢而成的加拿大")
+
+位于纽芬兰岛博纳维斯塔半岛的地牢省立公园，长期受到大西洋海浪的塑造与侵蚀。公园最著名的景观“地牢（Dungeon）”实际上是一处巨大的塌陷海蚀洞，其顶部因持续侵蚀而坍塌，形成直通天空的壮观开口。这一地貌生动展示了海洋作用如何在数千年间不断改造坚硬岩石。
+
+“地牢”塌陷海洞形成了天然的半封闭空间，海浪拍击时产生的回声会随着海况变化而改变，形成独特的海岸声学现象。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%b0%e7%89%a2%e7%9c%81%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260630_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260701_DungeonPark"&FORM=HPQUIZ "必应主页测验 2026 7月 1")
+[下载480](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_800x480.jpg&rf=LaDigue_800x480.jpg "地牢省立公园, 纽芬兰和拉布拉多省, 加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1280x720.jpg&rf=LaDigue_1280x720.jpg "地牢省立公园, 纽芬兰和拉布拉多省, 加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "地牢省立公园, 纽芬兰和拉布拉多省, 加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg&rf=LaDigue_UHD.jpg "地牢省立公园, 纽芬兰和拉布拉多省, 加拿大")
+
+---
 ### 06月30日：阴影被拉得修长之处
 #### 马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚（© danm/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_1280x720.jpg&rf=LaDigue_1280x720.jpg "特雷莫拉公路在圣哥达山口，艾罗洛，瑞士")
 [下载1080](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特雷莫拉公路在圣哥达山口，艾罗洛，瑞士")
 [下载UHD](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_UHD.jpg&rf=LaDigue_UHD.jpg "特雷莫拉公路在圣哥达山口，艾罗洛，瑞士")
-
----
-### 06月16日：蔚蓝海礁的守护者
-#### 七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛（© Alex Mustard/Nature Picture Library）
-
-![蔚蓝海礁的守护者](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_800x480.jpg&rf=LaDigue_800x480.jpg "蔚蓝海礁的守护者")
-
-世界海龟日”聚焦于海洋中最古老的“航行者”——这些爬行动物已在地球上生存了超过一亿年。每年的6月 16日定为世界海龟日，旨在提高公众对海龟生态重要性及其面临日益严峻威胁的关注。海龟在维持海草床和珊瑚礁系统健康方面发挥着核心作用，而这些生态系统支撑着多样化的海洋生物。在觅食地与筑巢地之间的长途迁徙是其生命周期的关键环节。尽管海龟具有极强的韧性，但目前所有物种都面临着栖息地丧失、塑料污染、气候变化以及渔具误捕的威胁。
-
-海龟卵孵化期间的沙子温度，决定了新生幼体是雄性还是雌性。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b5%b7%e9%be%9f%e6%97%a5&form=hpcapt&filters=HpDate:"20260615_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260616_SevenMileTurtle"&FORM=HPQUIZ "必应主页测验 2026 6月 16")
-[下载480](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_800x480.jpg&rf=LaDigue_800x480.jpg "七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛")
-[下载720](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_1280x720.jpg&rf=LaDigue_1280x720.jpg "七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛")
-[下载1080](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_UHD.jpg&rf=LaDigue_UHD.jpg "七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛")
 
 ---
