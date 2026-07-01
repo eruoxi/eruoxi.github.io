@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月02日：走进埃斯纳神圣的世界
+#### 埃斯纳神庙穹顶天花板, 埃及（© Nick Brundle Photography/Getty Images）
+
+![走进埃斯纳神圣的世界](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_800x480.jpg&rf=LaDigue_800x480.jpg "走进埃斯纳神圣的世界")
+
+在埃及卢克索以南的埃斯纳神庙（Temple of Esna），游客将步入一个充满生机的世界，这里供奉着公羊头神——赫努姆（Khnum）；传说他曾用尼罗河的黏土塑造了人类。这座神庙主要建于托勒密王朝和罗马统治时期，其现存的大厅由24根高耸的石柱支撑，每根柱子上都雕刻着精美的浮雕与颂扬诸神的仪式铭文。
+
+数个世纪以来，埃斯纳神庙的大部分区域曾被淤泥和周边建筑掩埋，这在一定程度上减少了风化作用，使许多雕刻得以较好保存。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9f%83%e5%8f%8a%e5%9f%83%e6%96%af%e7%ba%b3%e7%a5%9e%e5%ba%99&form=hpcapt&filters=HpDate:"20260701_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260702_TempleEsna"&FORM=HPQUIZ "必应主页测验 2026 7月 2")
+[下载480](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_800x480.jpg&rf=LaDigue_800x480.jpg "埃斯纳神庙穹顶天花板, 埃及")
+[下载720](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃斯纳神庙穹顶天花板, 埃及")
+[下载1080](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃斯纳神庙穹顶天花板, 埃及")
+[下载UHD](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_UHD.jpg&rf=LaDigue_UHD.jpg "埃斯纳神庙穹顶天花板, 埃及")
+
+---
 ### 07月01日：大西洋雕琢而成的加拿大
 #### 地牢省立公园, 纽芬兰和拉布拉多省, 加拿大（© Kaitlyn McLachlan/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁")
 [下载1080](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁")
 [下载UHD](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_UHD.jpg&rf=LaDigue_UHD.jpg "萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁")
-
----
-### 06月17日：蜿蜒而上
-#### 特雷莫拉公路在圣哥达山口，艾罗洛，瑞士（© Sandro Bisaro/Getty Images）
-
-![蜿蜒而上](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_800x480.jpg&rf=LaDigue_800x480.jpg "蜿蜒而上")
-
-沿着那如丝带般盘旋的连续弯道，您将领略到瑞士最具传奇色彩的驾驶路线之一：特雷莫拉公路（Tremola Road）。它是位于艾罗洛（Airolo）上方、通往圣哥达山口（Saint Gotthard Pass）的历史悠久的南坡入口。该公路始建于 19 世纪初期，并在 1951 年的重建中基本定型，被公认为瑞士最长的历史道路建筑纪念碑。其最引人入胜的一段路程在短短 2.5 英里（约 4 公里）内爬升了约 980 英尺（约 300 米），在花岗岩鹅卵石铺就的 24 个著名发卡弯中盘旋而上，路缘筑有坚固的挡土墙。全路段长约 7 英里（约 11 公里），总计 37 个弯道。请减速慢行——每一处曲线都像是一场穿越时空的旅行，虽然牺牲了车速，却能换取壮丽的山地景观，并俯瞰上勒文蒂纳山谷（upper Leventina Valley）的广阔视野。无论您是驾驶、骑行还是停车拍照，都请留意那个以此标志性“之”字形道路为背景的“瑞士环游之路”（Grand Tour of Switzerland）摄影打卡点。
-
-“特雷莫拉”一词源于意大利语“tremolare”（意为颤动），生动地描述了往昔马车在特雷莫拉公路（位于艾罗洛，瑞士）的鹅卵石路面上行驶时产生的剧烈震动。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%89%b9%e9%9b%b7%e8%8e%ab%e6%8b%89%e5%85%ac%e8%b7%af&form=hpcapt&filters=HpDate:"20260616_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260617_TremolaRoad"&FORM=HPQUIZ "必应主页测验 2026 6月 17")
-[下载480](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_800x480.jpg&rf=LaDigue_800x480.jpg "特雷莫拉公路在圣哥达山口，艾罗洛，瑞士")
-[下载720](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_1280x720.jpg&rf=LaDigue_1280x720.jpg "特雷莫拉公路在圣哥达山口，艾罗洛，瑞士")
-[下载1080](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特雷莫拉公路在圣哥达山口，艾罗洛，瑞士")
-[下载UHD](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_UHD.jpg&rf=LaDigue_UHD.jpg "特雷莫拉公路在圣哥达山口，艾罗洛，瑞士")
 
 ---
