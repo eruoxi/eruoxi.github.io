@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月03日：流光之诗
+#### 小溪上方的萤火虫，冈山县，日本（© tdub303/Getty Images）
+
+![流光之诗](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_800x480.jpg&rf=LaDigue_800x480.jpg "流光之诗")
+
+在冈山县（Okayama Prefecture），当湿润的空气笼罩在溪流之上，被称为“hotaru”的日本萤火虫便开始发出信号。在温暖无风的夜晚，如果条件理想，它们通常会在日落约两小时后开始发光，发散出一种水边独有的静谧感。
+
+环境健康的生物指标在冈山县，日本表现得尤为典型，特别是源氏萤（Luciola cruciata）对水质极其敏感，它们需要含氧量高且清澈的流动水源以及极低的光污染环境才能完成其复杂的生命周期
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%90%a4%e7%81%ab%e8%99%ab&form=hpcapt&filters=HpDate:"20260702_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260703_FirefliesJapan"&FORM=HPQUIZ "必应主页测验 2026 7月 3")
+[下载480](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_800x480.jpg&rf=LaDigue_800x480.jpg "小溪上方的萤火虫，冈山县，日本")
+[下载720](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_1280x720.jpg&rf=LaDigue_1280x720.jpg "小溪上方的萤火虫，冈山县，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "小溪上方的萤火虫，冈山县，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_UHD.jpg&rf=LaDigue_UHD.jpg "小溪上方的萤火虫，冈山县，日本")
+
+---
 ### 07月02日：走进埃斯纳神圣的世界
 #### 埃斯纳神庙穹顶天花板, 埃及（© Nick Brundle Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_1280x720.jpg&rf=LaDigue_1280x720.jpg "湖中的龙舟，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "湖中的龙舟，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_UHD.jpg&rf=LaDigue_UHD.jpg "湖中的龙舟，中国")
-
----
-### 06月18日：坚如磐石的奇观
-#### 萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁（© Creative-Family/Getty Images Plus）
-
-![坚如磐石的奇观](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_800x480.jpg&rf=LaDigue_800x480.jpg "坚如磐石的奇观")
-
-萨克塞华曼（Sacsayhuamán）坐落于秘鲁库斯科的高处，通过石材展现了印加帝国的宏大雄心。这座宏伟的建筑群始建于15世纪，曾是印加帝国神圣都城的一部分。从高空俯瞰，其布局清晰呈现：梯田、开阔的广场以及塔楼遗迹，共同构成了一座经过精密规划的卫城。其中最为壮观的墙体由巨型石块砌成，至今依然屹立不倒。部分石材高度超过 27 英尺（约 8.2 米），且在未使用灰浆的情况下实现了极度精确的无缝拼接，这使得该结构历经数百年的地震仍完好无损。
-
-萨克塞华曼遗址（位于库斯科，秘鲁）中最重的单体巨石重量超过 120 吨，是在完全没有使用轮式工具的情况下，仅凭人力从数英里外的采石场搬运而来的。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a7%98%e9%b2%81%e8%90%a8%e5%85%8b%e5%a1%9e%e5%8d%8e%e6%9b%bc&form=hpcapt&filters=HpDate:"20260617_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260618_Saqsaywaman"&FORM=HPQUIZ "必应主页测验 2026 6月 18")
-[下载480](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_800x480.jpg&rf=LaDigue_800x480.jpg "萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁")
-[下载720](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_1280x720.jpg&rf=LaDigue_1280x720.jpg "萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁")
-[下载1080](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁")
-[下载UHD](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_UHD.jpg&rf=LaDigue_UHD.jpg "萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁")
 
 ---
