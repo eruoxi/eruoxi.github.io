@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月04日：此行，不虚绕道
+#### 凯泽斯堡，阿尔萨斯，法国（© Federica Gentile/Getty Images）
+
+![此行，不虚绕道](https://cn.bing.com/th?id=OHR.KaysersbergVillage_ZH-CN0445080679_800x480.jpg&rf=LaDigue_800x480.jpg "此行，不虚绕道")
+
+7月4日，环法自行车赛拉开帷幕——这正是聚焦法国东北部阿尔萨斯地区凯泽斯堡（Kaysersberg）村落的绝佳时机。这座历史名城坐落在维斯河（Weiss River）畔，位于科尔马（Colmar）西北约12公里处，地处孚日山脉（Vosges Mountains）的东坡。
+
+白鹳（Ciconia ciconia）的复育生境在凯泽斯堡，阿尔萨斯，法国具有典型的生态指标意义，自1970年代险些灭绝后的保护行动，使这种标志性鸟类重新在村落的烟囱顶端筑巢，成为衡量当地跨区域生态系统健康的重要标志。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%87%af%e6%b3%bd%e6%96%af%e5%a0%a1&form=hpcapt&filters=HpDate:"20260703_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260704_KaysersbergVillage"&FORM=HPQUIZ "必应主页测验 2026 7月 4")
+[下载480](https://cn.bing.com/th?id=OHR.KaysersbergVillage_ZH-CN0445080679_800x480.jpg&rf=LaDigue_800x480.jpg "凯泽斯堡，阿尔萨斯，法国")
+[下载720](https://cn.bing.com/th?id=OHR.KaysersbergVillage_ZH-CN0445080679_1280x720.jpg&rf=LaDigue_1280x720.jpg "凯泽斯堡，阿尔萨斯，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.KaysersbergVillage_ZH-CN0445080679_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "凯泽斯堡，阿尔萨斯，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KaysersbergVillage_ZH-CN0445080679_UHD.jpg&rf=LaDigue_UHD.jpg "凯泽斯堡，阿尔萨斯，法国")
+
+---
 ### 07月03日：流光之诗
 #### 小溪上方的萤火虫，冈山县，日本（© tdub303/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_1280x720.jpg&rf=LaDigue_1280x720.jpg "漂浮在南极半岛西部海域的拱形冰山, 南大洋")
 [下载1080](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "漂浮在南极半岛西部海域的拱形冰山, 南大洋")
 [下载UHD](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_UHD.jpg&rf=LaDigue_UHD.jpg "漂浮在南极半岛西部海域的拱形冰山, 南大洋")
-
----
-### 06月19日：龙吟古韵
-#### 湖中的龙舟，中国（©  Zhonghui Bao/Getty Images）
-
-![龙吟古韵](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_800x480.jpg&rf=LaDigue_800x480.jpg "龙吟古韵")
-
-在华夏大地的万顷碧波上，龙舟竞渡已绵延了两千多年。这项如今享誉全球的体育活动，不仅是一场速度与力量的博弈，更是一枚深深烙印在中华儿女血脉中的文化符号。龙舟的起源众说纷纭，融汇了神话、历史等多重色彩，共同构成了端午文化的底蕴。
-
-流体力学原理在龙舟竞渡中表现显著，其细长的船体设计能有效减少水的阻力，使训练有素的团队能够实现惊人的航行速度。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ab%af%e5%8d%88%e8%8a%82&form=hpcapt&filters=HpDate:"20260618_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260619_DragonBoatFestivalY26"&FORM=HPQUIZ "必应主页测验 2026 6月 19")
-[下载480](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_800x480.jpg&rf=LaDigue_800x480.jpg "湖中的龙舟，中国")
-[下载720](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_1280x720.jpg&rf=LaDigue_1280x720.jpg "湖中的龙舟，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "湖中的龙舟，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_UHD.jpg&rf=LaDigue_UHD.jpg "湖中的龙舟，中国")
 
 ---
