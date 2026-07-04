@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月05日：紫色花海
+#### 瓦朗索勒高原的薰衣草行，普罗旺斯，法国（© Robert Harding/Shutterstock）
+
+![紫色花海](https://cn.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_800x480.jpg&rf=LaDigue_800x480.jpg "紫色花海")
+
+在法国东南部，瓦朗索勒高原（Valensole Plateau）的夏季伴随着阵阵紫蓝色的波浪而至。瓦朗索勒作为该地区最大的高原之一，坐落在迪朗斯河（Durance）与阿斯河（Asse）流域之间的韦尔东地区自然公园（Verdon Regional Natural Park）内，毗邻韦尔东大峡谷（Gorges du Verdon）及其湖泊。从6月中旬到7月初，受海拔和天气影响，薰衣草与杂交薰衣草（Lavandin）竞相绽放，将大地转化为普罗旺斯最具标志性的景观之一。空气中弥漫着清冽、干爽且极具地中海特色的香气。
+
+独特的碱性石质土壤在瓦朗索勒高原，普罗旺斯，法国为植物提供了卓越的排水性能，这种地质特性对于薰衣草在高海拔地中海气候下生存至关重要，能有效防止冬季根部腐烂并提升精油品质。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%96%b0%e8%a1%a3%e8%8d%89%e5%b1%9e&form=hpcapt&filters=HpDate:"20260704_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260705_LavenderRows"&FORM=HPQUIZ "必应主页测验 2026 7月 5")
+[下载480](https://cn.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_800x480.jpg&rf=LaDigue_800x480.jpg "瓦朗索勒高原的薰衣草行，普罗旺斯，法国")
+[下载720](https://cn.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓦朗索勒高原的薰衣草行，普罗旺斯，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦朗索勒高原的薰衣草行，普罗旺斯，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_UHD.jpg&rf=LaDigue_UHD.jpg "瓦朗索勒高原的薰衣草行，普罗旺斯，法国")
+
+---
 ### 07月04日：此行，不虚绕道
 #### 凯泽斯堡，阿尔萨斯，法国（© Federica Gentile/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_1280x720.jpg&rf=LaDigue_1280x720.jpg "企鹅爸爸正在检查蛋的情况")
 [下载1080](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "企鹅爸爸正在检查蛋的情况")
 [下载UHD](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_UHD.jpg&rf=LaDigue_UHD.jpg "企鹅爸爸正在检查蛋的情况")
-
----
-### 06月20日：海洋中冰封的大教堂
-#### 漂浮在南极半岛西部海域的拱形冰山, 南大洋（© Steven Kazlowski/Nature Picture Library）
-
-![海洋中冰封的大教堂](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_800x480.jpg&rf=LaDigue_800x480.jpg "海洋中冰封的大教堂")
-
-在南极半岛沿岸，一道冰雕般的拱形结构从南大洋拔地而起，而南极半岛是地球上变暖速度最快的地区之一。这道拱形结构最初是由积雪压实而成，历经数千年演变为冰川。最终，冰川或漂浮冰架的一部分断裂脱落——这一过程被称为冰崩——形成了漂浮的冰山。
-
-冰山在融化过程中可能因重心变化突然翻转，其释放的能量甚至足以在平静海面上掀起较大波浪。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%86%b0%e5%b1%b1&form=hpcapt&filters=HpDate:"20260619_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260620_ArchedIceberg"&FORM=HPQUIZ "必应主页测验 2026 6月 20")
-[下载480](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_800x480.jpg&rf=LaDigue_800x480.jpg "漂浮在南极半岛西部海域的拱形冰山, 南大洋")
-[下载720](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_1280x720.jpg&rf=LaDigue_1280x720.jpg "漂浮在南极半岛西部海域的拱形冰山, 南大洋")
-[下载1080](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "漂浮在南极半岛西部海域的拱形冰山, 南大洋")
-[下载UHD](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_UHD.jpg&rf=LaDigue_UHD.jpg "漂浮在南极半岛西部海域的拱形冰山, 南大洋")
 
 ---
