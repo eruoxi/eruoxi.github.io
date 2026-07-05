@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月06日：百代镌刻之城
+#### 锡拉库萨的日落，西西里岛，意大利（© Balate Dorin/Getty Images）
+
+![百代镌刻之城](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_800x480.jpg&rf=LaDigue_800x480.jpg "百代镌刻之城")
+
+意大利锡拉库萨（Syracuse）位于西西里岛，由来自科林斯的希腊移民于公元前 734 年左右建立。它曾发展成为古地中海最伟大的强权之一，现已被列入联合国教科文组织世界遗产名录——“锡拉库萨和潘塔立克石墓群”。这座城市永远与阿基米德（Archimedes）联系在一起，他的天才至今仍在塑造着城市的身份；同时也与柏拉图（Plato）紧密相连，他曾满怀着哲学可能重塑政治生活的希望来到此处。这种层叠的历史在马尼亚切城堡（Castello Maniace）中依然清晰可感，这座 13 世纪为神圣罗马帝国皇帝腓特烈二世建造的海滨要塞，至今仍令世人赞叹。
+
+原生纸莎草的生态孤岛在锡拉库萨，西西里岛，意大利表现出极高的植物学价值，林特奥斯河（Arethusa Spring）不仅是当地重要的淡水水源，更是全欧洲唯一一处野生纸莎草自然生长的原生生境。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%94%a1%e6%8b%89%e5%ba%93%e8%90%a8+%e8%a5%bf%e8%a5%bf%e9%87%8c%e5%b2%9b&form=hpcapt&filters=HpDate:"20260705_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260706_SyracuseItaly"&FORM=HPQUIZ "必应主页测验 2026 7月 6")
+[下载480](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_800x480.jpg&rf=LaDigue_800x480.jpg "锡拉库萨的日落，西西里岛，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_1280x720.jpg&rf=LaDigue_1280x720.jpg "锡拉库萨的日落，西西里岛，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "锡拉库萨的日落，西西里岛，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_UHD.jpg&rf=LaDigue_UHD.jpg "锡拉库萨的日落，西西里岛，意大利")
+
+---
 ### 07月05日：紫色花海
 #### 瓦朗索勒高原的薰衣草行，普罗旺斯，法国（© Robert Harding/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_1280x720.jpg&rf=LaDigue_1280x720.jpg "奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_UHD.jpg&rf=LaDigue_UHD.jpg "奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国")
-
----
-### 06月21日：鸟类好爸爸
-#### 企鹅爸爸正在检查蛋的情况（© McDonald Wildlife Photography Inc./Getty Images）
-
-![鸟类好爸爸](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_800x480.jpg&rf=LaDigue_800x480.jpg "鸟类好爸爸")
-
-六月的第三个星期日是父亲节——一个感谢那些默默守护、悉心照料孩子成长的长辈们的日子。在世界各地，父亲的角色可以呈现出令人意想不到的非凡形式。
-
-对海马而言，雄性会将受精卵放入自己的育儿袋中，并在孵化前为它们提供氧气、养分和全方位的保护。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%88%b6%e4%ba%b2%e8%8a%82&form=hpcapt&filters=HpDate:"20260620_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260621_EggDad"&FORM=HPQUIZ "必应主页测验 2026 6月 21")
-[下载480](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_800x480.jpg&rf=LaDigue_800x480.jpg "企鹅爸爸正在检查蛋的情况")
-[下载720](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_1280x720.jpg&rf=LaDigue_1280x720.jpg "企鹅爸爸正在检查蛋的情况")
-[下载1080](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "企鹅爸爸正在检查蛋的情况")
-[下载UHD](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_UHD.jpg&rf=LaDigue_UHD.jpg "企鹅爸爸正在检查蛋的情况")
 
 ---
