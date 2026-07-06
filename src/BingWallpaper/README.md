@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月07日：林冠华彩
+#### 板嘴山巨嘴鸟与兰花，厄瓜多尔（© Murray Cooper/Minden Pictures）
+
+![林冠华彩](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_800x480.jpg&rf=LaDigue_800x480.jpg "林冠华彩")
+
+拥有如多功能工具般的喙部和色彩斑斓的羽毛——板嘴山巨嘴鸟（Plate-billed mountain toucan）是安第斯山脉最具辨识度的鸟类之一。它栖息在厄瓜多尔和哥伦比亚西南部潮湿的山地森林中，已完全适应了林冠层高处的生存环境。
+
+板嘴山巨嘴鸟色彩艳丽的喙部带有一个淡黄色的“角质板”，这一罕见特征正是其命名的由来。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%9d%bf%e5%98%b4%e5%b1%b1%e5%b7%a8%e5%98%b4%e9%b8%9f&form=hpcapt&filters=HpDate:"20260706_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260707_MountainToucanOrchids"&FORM=HPQUIZ "必应主页测验 2026 7月 7")
+[下载480](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_800x480.jpg&rf=LaDigue_800x480.jpg "板嘴山巨嘴鸟与兰花，厄瓜多尔")
+[下载720](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_1280x720.jpg&rf=LaDigue_1280x720.jpg "板嘴山巨嘴鸟与兰花，厄瓜多尔")
+[下载1080](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "板嘴山巨嘴鸟与兰花，厄瓜多尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_UHD.jpg&rf=LaDigue_UHD.jpg "板嘴山巨嘴鸟与兰花，厄瓜多尔")
+
+---
 ### 07月06日：百代镌刻之城
 #### 锡拉库萨的日落，西西里岛，意大利（© Balate Dorin/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_1280x720.jpg&rf=LaDigue_1280x720.jpg "本州岛上的富士山, 日本")
 [下载1080](https://cn.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "本州岛上的富士山, 日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_UHD.jpg&rf=LaDigue_UHD.jpg "本州岛上的富士山, 日本")
-
----
-### 06月22日：一个郁郁葱葱的王国
-#### 奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国（© Chris Moore/Tandem Stills + Motion）
-
-![一个郁郁葱葱的王国](https://cn.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_800x480.jpg&rf=LaDigue_800x480.jpg "一个郁郁葱葱的王国")
-
-6月22日是世界雨林日，这是一个全球性的日子，也是全年呼吁人们保护世界剩余雨林的行动。这些生态系统并非地图上的点点星罗棋布。它们遍布热带地区及其他地区，却仅覆盖地球表面约6%的面积。想想南美洲的亚马逊雨林、非洲的刚果盆地以及东南亚的森林吧。
-
-尽管热带雨林仅占地球表面积的 6%，但却是世界上一半以上物种的家园。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e9%9b%a8%e6%9e%97%e6%97%a5&form=hpcapt&filters=HpDate:"20260621_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260622_QuinaultFerns"&FORM=HPQUIZ "必应主页测验 2026 6月 22")
-[下载480](https://cn.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_800x480.jpg&rf=LaDigue_800x480.jpg "奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_1280x720.jpg&rf=LaDigue_1280x720.jpg "奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_UHD.jpg&rf=LaDigue_UHD.jpg "奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国")
 
 ---
