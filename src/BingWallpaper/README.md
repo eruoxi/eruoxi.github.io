@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月08日：远古火山的回响
+#### 阿蒂特兰湖的日出，危地马拉（© shayes17/Getty Images）
+
+![远古火山的回响](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_800x480.jpg&rf=LaDigue_800x480.jpg "远古火山的回响")
+
+阿蒂特兰湖（Lake Atitlán）坐落于危地马拉西部高地，占据了一处巨大的破火山口。其深蓝色的湖水被陡峭的火山口壁以及阿蒂特兰（Atitlán）、托利曼（Tolimán）和圣佩德罗（San Pedro）这三座锥形火山所环绕。木质码头向静谧的湖面延伸，勾勒出平静水面与火山活动造就的崎岖地形之间的强烈对比。
+
+独特的内流盆地机制在阿蒂特兰湖，危地马拉表现显著，该湖泊没有通往海洋的天然地表出口，其水位主要依靠自然蒸发和地下的火山裂缝网络进行调节。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%b1%e5%9c%b0%e9%a9%ac%e6%8b%89+%e9%98%bf%e8%92%82%e7%89%b9%e5%85%b0%e6%b9%96&form=hpcapt&filters=HpDate:"20260707_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260708_LakeAtitlan"&FORM=HPQUIZ "必应主页测验 2026 7月 8")
+[下载480](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_800x480.jpg&rf=LaDigue_800x480.jpg "阿蒂特兰湖的日出，危地马拉")
+[下载720](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿蒂特兰湖的日出，危地马拉")
+[下载1080](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿蒂特兰湖的日出，危地马拉")
+[下载UHD](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_UHD.jpg&rf=LaDigue_UHD.jpg "阿蒂特兰湖的日出，危地马拉")
+
+---
 ### 07月07日：林冠华彩
 #### 板嘴山巨嘴鸟与兰花，厄瓜多尔（© Murray Cooper/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BFPollin_ZH-CN7654067396_1280x720.jpg&rf=LaDigue_1280x720.jpg "蝴蝶正在黄花上授粉")
 [下载1080](https://cn.bing.com/th?id=OHR.BFPollin_ZH-CN7654067396_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蝴蝶正在黄花上授粉")
 [下载UHD](https://cn.bing.com/th?id=OHR.BFPollin_ZH-CN7654067396_UHD.jpg&rf=LaDigue_UHD.jpg "蝴蝶正在黄花上授粉")
-
----
-### 06月23日：天际线上的印记
-#### 本州岛上的富士山, 日本（© phutthiseth thongtae/Getty Images）
-
-![天际线上的印记](https://cn.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_800x480.jpg&rf=LaDigue_800x480.jpg "天际线上的印记")
-
-富士山是日本最高峰，海拔12,389英尺（约3700米），耸立于本州岛，位于东京西南约60英里（约97公里）处。这座近乎完美的锥形山峰是一座火山——自1707年12月最后一次喷发后便一直处于休眠状态，但仍被归类为活火山。那次大规模喷发被称为宝荣喷发，火山灰和其他火山碎屑喷涌而出，席卷日本东部，甚至远至江户（今东京）。除了地质学意义之外，富士山长期以来被视为神圣的景观和朝圣登山的目的地，这体现了日本自然、宗教和日常生活的交融。这种经久不衰的文化魅力也是它于2013年被联合国教科文组织列为世界遗产的原因之一，被誉为“神圣之地和艺术灵感的源泉”。众所周知，在晴朗的日子里，富士山从远处就能清晰可见，但这并非必然——云层可能在几分钟内将其遮蔽。无论您是徒步攀登，还是只是从火车车窗瞥见它，它依然是日本地平线上的标志性景观。
-
-富士山通常从10月开始积雪，山顶白雪往往能持续半年以上，也因此成为日本“四季景观”意象的重要组成部分。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%af%8c%e5%a3%ab%e5%b1%b1&form=hpcapt&filters=HpDate:"20260622_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260623_Fujisan"&FORM=HPQUIZ "必应主页测验 2026 6月 23")
-[下载480](https://cn.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_800x480.jpg&rf=LaDigue_800x480.jpg "本州岛上的富士山, 日本")
-[下载720](https://cn.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_1280x720.jpg&rf=LaDigue_1280x720.jpg "本州岛上的富士山, 日本")
-[下载1080](https://cn.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "本州岛上的富士山, 日本")
-[下载UHD](https://cn.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_UHD.jpg&rf=LaDigue_UHD.jpg "本州岛上的富士山, 日本")
 
 ---
