@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月09日：步步传承
+#### 在沙巴的水稻田，老街，越南（© Anujak Jaimook/Getty Images）
+
+![步步传承](https://cn.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_800x480.jpg&rf=LaDigue_800x480.jpg "步步传承")
+
+阳光穿透流云，洒在沙巴（Sapa）的层层坡地之上，那里的水稻田宛如“活的阶梯”，顺着山脊倾泻而下。这一高地地区位于越南老街省（Lào Cai），其地貌既受大自然的造化，也离不开人类双手的雕琢。数个世纪以来，包括赫蒙族（Hmong）在内的当地少数民族世代在此开垦并维护着这些梯田，他们引导水源流过陡峭的山坡，以维持每个生长季节的灌溉需求。
+
+“稻-鱼-鸭”共生系统在沙巴，老街，越南被广泛应用，通过在该生态位引入鱼类与鸭子实现自然肥田并控制病虫害，显著提升了高地农业的可持续性。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%b6%8a%e5%8d%97%e8%80%81%e8%a1%97&form=hpcapt&filters=HpDate:"20260708_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260709_SapaVietnam"&FORM=HPQUIZ "必应主页测验 2026 7月 9")
+[下载480](https://cn.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_800x480.jpg&rf=LaDigue_800x480.jpg "在沙巴的水稻田，老街，越南")
+[下载720](https://cn.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_1280x720.jpg&rf=LaDigue_1280x720.jpg "在沙巴的水稻田，老街，越南")
+[下载1080](https://cn.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在沙巴的水稻田，老街，越南")
+[下载UHD](https://cn.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_UHD.jpg&rf=LaDigue_UHD.jpg "在沙巴的水稻田，老街，越南")
+
+---
 ### 07月08日：远古火山的回响
 #### 阿蒂特兰湖的日出，危地马拉（© shayes17/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GrandPlace_ZH-CN8806496436_1280x720.jpg&rf=LaDigue_1280x720.jpg "布鲁塞尔大广场上的建筑群, 比利时")
 [下载1080](https://cn.bing.com/th?id=OHR.GrandPlace_ZH-CN8806496436_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布鲁塞尔大广场上的建筑群, 比利时")
 [下载UHD](https://cn.bing.com/th?id=OHR.GrandPlace_ZH-CN8806496436_UHD.jpg&rf=LaDigue_UHD.jpg "布鲁塞尔大广场上的建筑群, 比利时")
-
----
-### 06月24日：花粉与翅膀相遇
-#### 蝴蝶正在黄花上授粉（© lzh/Getty Images）
-
-![花粉与翅膀相遇](https://cn.bing.com/th?id=OHR.BFPollin_ZH-CN7654067396_800x480.jpg&rf=LaDigue_800x480.jpg "花粉与翅膀相遇")
-
-放大观察维持大地生机的微小交易：一只蝴蝶停在黄色的花朵上，吮吸着花蜜。它吸食花蜜的同时，花粉沾满了它的身体，搭上了前往下一朵花的“顺风车”——这是开花植物悄无声息的繁殖方式之一。传粉者并非只有蜜蜂。蝴蝶、鸟类、蝙蝠、甲虫以及许多其他昆虫都在帮助传播花粉，从而支持野生植物以及我们食用的许多水果和蔬菜的生长。
-
-我们所吃的食物中，大约有三分之一要归功于授粉昆虫。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%9d%b4%e8%9d%b6%e6%8e%88%e7%b2%89&form=hpcapt&filters=HpDate:"20260623_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260624_BFPollin"&FORM=HPQUIZ "必应主页测验 2026 6月 24")
-[下载480](https://cn.bing.com/th?id=OHR.BFPollin_ZH-CN7654067396_800x480.jpg&rf=LaDigue_800x480.jpg "蝴蝶正在黄花上授粉")
-[下载720](https://cn.bing.com/th?id=OHR.BFPollin_ZH-CN7654067396_1280x720.jpg&rf=LaDigue_1280x720.jpg "蝴蝶正在黄花上授粉")
-[下载1080](https://cn.bing.com/th?id=OHR.BFPollin_ZH-CN7654067396_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蝴蝶正在黄花上授粉")
-[下载UHD](https://cn.bing.com/th?id=OHR.BFPollin_ZH-CN7654067396_UHD.jpg&rf=LaDigue_UHD.jpg "蝴蝶正在黄花上授粉")
 
 ---
