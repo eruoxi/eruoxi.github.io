@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月10日：陆地与海洋的鸟瞰图
+#### 陆地与海洋的鸟瞰图，维多利亚州，澳大利亚（© Nearmap/Getty Images）
+
+![陆地与海洋的鸟瞰图](https://cn.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_800x480.jpg&rf=LaDigue_800x480.jpg "陆地与海洋的鸟瞰图")
+
+维多利亚州位于澳大利亚东南部，坐拥由南大洋雕琢而成的绵延千余英里的海岸线。从高空俯瞰，这里的海滩宛如一条条宽阔的浅色沙带，边缘环绕着碧绿的海水与崎岖的峭壁。这种海陆交融的独特景致构成了该地区的主要魅力所在。著名的“大洋路”沿这段海岸线蜿蜒延伸约150英里，途经热门冲浪胜地、林木葱郁的海角以及各具特色的海滨小镇。
+
+十二使徒岩一直在发生变化；在2005年发生一次重大坍塌后，最初的石灰岩柱目前仅存八座。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%be%b3%e5%a4%a7%e5%88%a9%e4%ba%9a%e7%bb%b4%e5%a4%9a%e5%88%a9%e4%ba%9a%e5%b7%9e&form=hpcapt&filters=HpDate:"20260709_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260710_VictoriaBeach"&FORM=HPQUIZ "必应主页测验 2026 7月 10")
+[下载480](https://cn.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_800x480.jpg&rf=LaDigue_800x480.jpg "陆地与海洋的鸟瞰图，维多利亚州，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_1280x720.jpg&rf=LaDigue_1280x720.jpg "陆地与海洋的鸟瞰图，维多利亚州，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "陆地与海洋的鸟瞰图，维多利亚州，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_UHD.jpg&rf=LaDigue_UHD.jpg "陆地与海洋的鸟瞰图，维多利亚州，澳大利亚")
+
+---
 ### 07月09日：步步传承
 #### 在沙巴的水稻田，老街，越南（© Anujak Jaimook/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_1280x720.jpg&rf=LaDigue_1280x720.jpg "泰晤士河, 伦敦, 英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰晤士河, 伦敦, 英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_UHD.jpg&rf=LaDigue_UHD.jpg "泰晤士河, 伦敦, 英格兰")
-
----
-### 06月25日：在广场中感受历史
-#### 布鲁塞尔大广场上的建筑群, 比利时（© Vladislav Zolotov/Getty Images Plus）
-
-![在广场中感受历史](https://cn.bing.com/th?id=OHR.GrandPlace_ZH-CN8806496436_800x480.jpg&rf=LaDigue_800x480.jpg "在广场中感受历史")
-
-在比利时，很少有哪个广场能像大广场那样承载如此丰富的历史。广场周围的建筑，正如照片所示，最初都是行会会所，每座会所都由特定的行业出资兴建。酿酒师、面包师、商人和工匠们将建筑视为一种语言，通过浮雕、纹章和大量的金箔，将工作、地位和竞争关系凝结于石头之上。各种建筑风格在此交融碰撞，毫不拘束。哥特式的垂直线条与巴洛克式的曲线并肩而立，而市政厅——这座比周围建筑更古老、造型大胆不对称的建筑——则将整个建筑群和谐地连接起来。
-
-布鲁塞尔大广场并非严格的正方形，而是略呈梯形，这种微妙的透视结构会产生“视觉矫正”效果，使市政厅在空间中显得更加居中与平衡。该遗址于1998年被列入联合国教科文组织世界遗产名录。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e9%b2%81%e5%a1%9e%e5%b0%94%e5%a4%a7%e5%b9%bf%e5%9c%ba&form=hpcapt&filters=HpDate:"20260624_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260625_GrandPlace"&FORM=HPQUIZ "必应主页测验 2026 6月 25")
-[下载480](https://cn.bing.com/th?id=OHR.GrandPlace_ZH-CN8806496436_800x480.jpg&rf=LaDigue_800x480.jpg "布鲁塞尔大广场上的建筑群, 比利时")
-[下载720](https://cn.bing.com/th?id=OHR.GrandPlace_ZH-CN8806496436_1280x720.jpg&rf=LaDigue_1280x720.jpg "布鲁塞尔大广场上的建筑群, 比利时")
-[下载1080](https://cn.bing.com/th?id=OHR.GrandPlace_ZH-CN8806496436_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布鲁塞尔大广场上的建筑群, 比利时")
-[下载UHD](https://cn.bing.com/th?id=OHR.GrandPlace_ZH-CN8806496436_UHD.jpg&rf=LaDigue_UHD.jpg "布鲁塞尔大广场上的建筑群, 比利时")
 
 ---
