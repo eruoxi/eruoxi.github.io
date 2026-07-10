@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月11日：布列塔尼的潮汐之约
+#### 圣古斯坦港, 欧赖, 布列塔尼, 法国（© Rolf E. Staerk/Shutterstock）
+
+![布列塔尼的潮汐之约](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_800x480.jpg&rf=LaDigue_800x480.jpg "布列塔尼的潮汐之约")
+
+在法国，圣古斯坦港位于奥雷上城区下方，一条小海湾在此汇入莫尔比昂湾。港口坐落于奥雷河与洛克河的交汇处，营造出如诗如画的静谧氛围。13世纪，布列塔尼公爵在此修建了一座桥梁、一座港口和一座城堡；如今城堡已不复存在，但鹅卵石铺就的码头、狭窄的巷道和木结构房屋依然沿水而建。从共和国广场出发，沿着城堡街一路向下，途经艺术工作室和画廊，最终抵达海滨；洛克河畔的坡道建于古老的防御工事之上，可以饱览港口的景色。穿过四拱石桥，即可到达圣索沃尔广场，然后拾级而上，前往圣吉尔达教堂，小镇从那里开始逐渐升高，俯瞰着港口。码头也见证了一段跨大西洋的历史：本杰明·富兰克林于1776年抵达此地，如今一个码头以他的名字命名。如今，咖啡馆和小船点缀着这片区域，而附近的奥雷镇则拥有远近闻名的每周集市和热闹的夏季活动。
+
+该港口水源流向的莫尔比汉湾拥有欧洲最强劲的潮汐流，在其狭窄的湾口处，水流速度可高达每秒4米。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%95%e5%9b%bd%e6%ac%a7%e8%b5%96%e5%9c%a3%e5%8f%a4%e6%96%af%e5%bd%93%e6%b8%af&form=hpcapt&filters=HpDate:"20260710_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260711_AurayBrittany"&FORM=HPQUIZ "必应主页测验 2026 7月 11")
+[下载480](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_800x480.jpg&rf=LaDigue_800x480.jpg "圣古斯坦港, 欧赖, 布列塔尼, 法国")
+[下载720](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣古斯坦港, 欧赖, 布列塔尼, 法国")
+[下载1080](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣古斯坦港, 欧赖, 布列塔尼, 法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_UHD.jpg&rf=LaDigue_UHD.jpg "圣古斯坦港, 欧赖, 布列塔尼, 法国")
+
+---
 ### 07月10日：陆地与海洋的鸟瞰图
 #### 陆地与海洋的鸟瞰图，维多利亚州，澳大利亚（© Nearmap/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1280x720.jpg&rf=LaDigue_1280x720.jpg "博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_UHD.jpg&rf=LaDigue_UHD.jpg "博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国")
-
----
-### 06月26日：时事
-#### 泰晤士河, 伦敦, 英格兰（© Daniel Lange/Getty Images）
-
-![时事](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_800x480.jpg&rf=LaDigue_800x480.jpg "时事")
-
-议会大厦、钟楼和巨型摩天轮有什么共同之处？它们都矗立在泰晤士河畔，仿佛伦敦为了营造戏剧性效果而精心布局了这些标志性建筑。
-
-泰晤士河防洪闸于1984年建成，是世界上规模最大的可移动防洪设施之一，用于保护伦敦免受北海风暴潮引发的洪水威胁。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b3%b0%e6%99%a4%e5%a3%ab%e6%b2%b3&form=hpcapt&filters=HpDate:"20260625_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260626_ThamesSummer"&FORM=HPQUIZ "必应主页测验 2026 6月 26")
-[下载480](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_800x480.jpg&rf=LaDigue_800x480.jpg "泰晤士河, 伦敦, 英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_1280x720.jpg&rf=LaDigue_1280x720.jpg "泰晤士河, 伦敦, 英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰晤士河, 伦敦, 英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_UHD.jpg&rf=LaDigue_UHD.jpg "泰晤士河, 伦敦, 英格兰")
 
 ---
