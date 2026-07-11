@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月12日：缅因州的狂野一面
+#### 卡塔丁森林和水域国家纪念地，缅因州，美国（© Cavan Images/Offset/Shutterstock）
+
+![缅因州的狂野一面](https://cn.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_800x480.jpg&rf=LaDigue_800x480.jpg "缅因州的狂野一面")
+
+如果你想寻找缅因州最原始的自然风光，这里就是了。卡塔丁森林和水域国家纪念碑横跨约87,500英亩的北部原始森林——静谧的池塘倒映着天空，茂密的森林仿佛吞噬了所有声音。不要指望这里人潮涌动或生活便利。在这里，泥泞的道路颠簸不已，手机信号也很快就会消失。但这正是它的魅力所在。漫步在静谧的池塘边，或沿着佩诺布斯科特河东支流漂流，你会立刻感受到这片荒野的气息，仿佛置身其中，触手可及。
+
+保护这片荒野的全部87,500英亩土地，是由小蜜蜂（Burt's Bees）化妆品公司的联合创始人罗克珊·昆比（Roxanne Quimby）私人出资购买，随后无偿捐赠给美国公众的。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e5%a1%94%e4%b8%81%e6%a3%ae%e6%9e%97%e5%92%8c%e6%b0%b4%e5%9f%9f%e5%9b%bd%e5%ae%b6%e7%ba%aa%e5%bf%b5%e7%a2%91&form=hpcapt&filters=HpDate:"20260711_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260712_KatahdinWWNM"&FORM=HPQUIZ "必应主页测验 2026 7月 12")
+[下载480](https://cn.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_800x480.jpg&rf=LaDigue_800x480.jpg "卡塔丁森林和水域国家纪念地，缅因州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡塔丁森林和水域国家纪念地，缅因州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡塔丁森林和水域国家纪念地，缅因州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_UHD.jpg&rf=LaDigue_UHD.jpg "卡塔丁森林和水域国家纪念地，缅因州，美国")
+
+---
 ### 07月11日：布列塔尼的潮汐之约
 #### 圣古斯坦港, 欧赖, 布列塔尼, 法国（© Rolf E. Staerk/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_1280x720.jpg&rf=LaDigue_1280x720.jpg "温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_UHD.jpg&rf=LaDigue_UHD.jpg "温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国")
-
----
-### 06月27日：逐渐失去立足之地的树木
-#### 博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国（© Frances/Adobe Stock）
-
-![逐渐失去立足之地的树木](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_800x480.jpg&rf=LaDigue_800x480.jpg "逐渐失去立足之地的树木")
-
-在美国南卡罗来纳州亨廷岛州立公园内的博尼亚德海滩，最先映入眼帘的是那些树木。紧接着，一个疑问便会浮现：为何一根根被海水漂白的树干和裸露的树根散落在沙滩上，仿佛一幕正在坍塌的景象被按下了暂停键？自20世纪80年代以来，亨廷岛一直面临严重的海滩侵蚀问题，其侵蚀速率位居美国东海岸前列。在部分区域，海岸线每年后退幅度最高可达约30英尺（约9米）。
-
-博尼亚德海滩上许多仍然矗立的枯树遗骸因长期受到盐分环境影响而减缓腐朽过程，从而形成独特的海岸自然雕塑景观。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%ba%a8%e5%bb%b7%e5%b2%9b&form=hpcapt&filters=HpDate:"20260626_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260627_BoneyardBeach"&FORM=HPQUIZ "必应主页测验 2026 6月 27")
-[下载480](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_800x480.jpg&rf=LaDigue_800x480.jpg "博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1280x720.jpg&rf=LaDigue_1280x720.jpg "博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_UHD.jpg&rf=LaDigue_UHD.jpg "博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国")
 
 ---
