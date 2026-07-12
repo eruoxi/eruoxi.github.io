@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月13日：为摇滚而生
+#### 羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国（© Mark Skalny/Getty Images）
+
+![为摇滚而生](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_800x480.jpg&rf=LaDigue_800x480.jpg "为摇滚而生")
+
+7月13日是国际岩石日，旨在庆祝我们脚下地质构造的基石，并激发人们对岩石如何塑造地球地貌和历史的好奇心。从古代工具到现代矿物用途，这些坚实的结构蕴藏着火山喷发、大陆漂移以及数百万年来生命演化的线索。很少有地方能像羚羊峡谷那样生动地展现这段历史。羚羊峡谷位于亚利桑那州佩吉市以东的纳瓦霍族保留地，是一条狭窄的缝隙型峡谷。它由纳瓦霍砂岩经山洪和侵蚀作用雕琢而成，光滑流畅的岩壁展现了水和沉积物如何随着时间的推移塑造岩石。阳光透过峡谷狭窄的缝隙照射进来，在经受了数百年自然力量雕琢的红色和橙色岩石上，形成一道道光束，跳跃闪烁。在国际岩石日，像这样的景观将地质学变成了一座活生生的艺术馆——邀请游客们将岩石视为地球动态历史的不断演进的记录，而不是静止的物体。
+
+羚羊峡谷砂岩墙面上独特的流线型波纹，主要是由每年季风季节的突发山洪冲刷而成的，这些山洪可能会在短短几分钟内迅速席卷狭窄的缝隙峡谷。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%be%9a%e7%be%8a%e5%b3%a1%e8%b0%b7&form=hpcapt&filters=HpDate:"20260712_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260713_NavajoSandstone"&FORM=HPQUIZ "必应主页测验 2026 7月 13")
+[下载480](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_800x480.jpg&rf=LaDigue_800x480.jpg "羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_1280x720.jpg&rf=LaDigue_1280x720.jpg "羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_UHD.jpg&rf=LaDigue_UHD.jpg "羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国")
+
+---
 ### 07月12日：缅因州的狂野一面
 #### 卡塔丁森林和水域国家纪念地，缅因州，美国（© Cavan Images/Offset/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_1280x720.jpg&rf=LaDigue_1280x720.jpg "波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_UHD.jpg&rf=LaDigue_UHD.jpg "波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚")
-
----
-### 06月28日：看起来很精神
-#### 温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国（© Eric Mischke/Getty Images）
-
-![看起来很精神](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_800x480.jpg&rf=LaDigue_800x480.jpg "看起来很精神")
-
-在索诺拉沙漠，作为生存大师的巨人柱仙人掌赋予了“坚守”（stick around）一词新的含义。这种巨型植物伸展着躯干与枝臂，向四面八方昂然挺立，已然成为美国西南部的标志性象征。
-
-巨柱仙人掌洁白的花朵是亚利桑那州的州花。它们在晚春短暂盛开，能够吸引大量蜜蜂采蜜，并孕育出广受欢迎的沙漠蜂蜜。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%a8%e4%ba%ba%e6%9f%b1%e4%bb%99%e4%ba%ba%e6%8e%8c&form=hpcapt&filters=HpDate:"20260627_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260628_SaguaroSun"&FORM=HPQUIZ "必应主页测验 2026 6月 28")
-[下载480](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_800x480.jpg&rf=LaDigue_800x480.jpg "温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国")
-[下载720](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_1280x720.jpg&rf=LaDigue_1280x720.jpg "温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_UHD.jpg&rf=LaDigue_UHD.jpg "温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国")
 
 ---
