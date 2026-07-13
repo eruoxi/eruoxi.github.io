@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月14日：奇妙的真相
+#### 柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马（© Shane Gross/Nature Picture Library）
+
+![奇妙的真相](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_800x480.jpg&rf=LaDigue_800x480.jpg "奇妙的真相")
+
+7月14日是世界鲨鱼日，它呼吁我们用海洋的真实面貌取代电影中的恐慌。鲨鱼已经在海洋中遨游了超过4.2亿年，作为顶级掠食者，它们有助于维持海洋生态系统的平衡。
+
+格陵兰鲨的寿命可达400年，是脊椎动物中寿命最长的物种之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%9f%a0%e6%aa%ac%e9%b2%a8&form=hpcapt&filters=HpDate:"20260713_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260714_LemonShark"&FORM=HPQUIZ "必应主页测验 2026 7月 14")
+[下载480](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_800x480.jpg&rf=LaDigue_800x480.jpg "柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马")
+[下载720](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_1280x720.jpg&rf=LaDigue_1280x720.jpg "柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马")
+[下载1080](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马")
+[下载UHD](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_UHD.jpg&rf=LaDigue_UHD.jpg "柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马")
+
+---
 ### 07月13日：为摇滚而生
 #### 羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国（© Mark Skalny/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_1280x720.jpg&rf=LaDigue_1280x720.jpg "马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚")
-
----
-### 06月29日：生于烈火，拥于碧水
-#### 波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚（© Frederick Millett/Shutterstock）
-
-![生于烈火，拥于碧水](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_800x480.jpg&rf=LaDigue_800x480.jpg "生于烈火，拥于碧水")
-
-“国际热带日”于每年6月29日纪念，旨在聚焦北回归线与南回归线之间那片广阔的区域——在这里，温暖的气候与充沛的降水塑造着人们的日常生活。该区域虽仅占地球表面积的约40%，却承载了全球约80%的生物多样性，对于地球生态健康与人类文化而言至关重要。
-
-波拉波拉岛的泻湖栖息着鹰魟，它们常成群活动，在太平洋最清澈的海域之一的沙质海底优雅滑行。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e7%83%ad%e5%b8%a6%e6%97%a5&form=hpcapt&filters=HpDate:"20260628_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260629_BoraBoraLagoon"&FORM=HPQUIZ "必应主页测验 2026 6月 29")
-[下载480](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_800x480.jpg&rf=LaDigue_800x480.jpg "波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚")
-[下载720](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_1280x720.jpg&rf=LaDigue_1280x720.jpg "波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_UHD.jpg&rf=LaDigue_UHD.jpg "波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚")
 
 ---
