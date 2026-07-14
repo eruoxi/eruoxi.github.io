@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月15日：攀登后的奖励
+#### 玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国（© Steve Dunleavy/Getty Images）
+
+![攀登后的奖励](https://cn.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_800x480.jpg&rf=LaDigue_800x480.jpg "攀登后的奖励")
+
+如果山脉能够记录过去，那么位于加利福尼亚州毕晓普附近的约翰·缪尔荒野保护区将拥有丰富的历史资料可供分享。这里的山谷、湖泊和花岗岩地貌诉说着数百万年来的演变历程。这片广袤的保护区成立于1964年，横跨内华达山脉超过65万英亩的土地，并以博物学家约翰·缪尔的名字命名。如今，太平洋山脊步道和约翰·缪尔步道的部分路段穿过这里，吸引着徒步旅行者来到美国本土最大的高海拔荒野地区之一。
+
+约翰·缪尔荒野包含阿拉斯加州以外美国本土的一些最高山峰，其中包括惠特尼峰，它是美国本土最高的山脉，海拔达14,505英尺（约 4,421 米）。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a6%e7%bf%b0%c2%b7%e7%bc%aa%e5%b0%94%e8%8d%92%e9%87%8e&form=hpcapt&filters=HpDate:"20260714_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260715_MarieLake"&FORM=HPQUIZ "必应主页测验 2026 7月 15")
+[下载480](https://cn.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_800x480.jpg&rf=LaDigue_800x480.jpg "玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_1280x720.jpg&rf=LaDigue_1280x720.jpg "玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_UHD.jpg&rf=LaDigue_UHD.jpg "玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国")
+
+---
 ### 07月14日：奇妙的真相
 #### 柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马（© Shane Gross/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1280x720.jpg&rf=LaDigue_1280x720.jpg "地牢省立公园, 纽芬兰和拉布拉多省, 加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "地牢省立公园, 纽芬兰和拉布拉多省, 加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg&rf=LaDigue_UHD.jpg "地牢省立公园, 纽芬兰和拉布拉多省, 加拿大")
-
----
-### 06月30日：阴影被拉得修长之处
-#### 马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚（© danm/Getty Images）
-
-![阴影被拉得修长之处](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_800x480.jpg&rf=LaDigue_800x480.jpg "阴影被拉得修长之处")
-
-当夕阳在马赛马拉国家保护区缓缓西沉，马赛长颈鹿的剪影映衬着绚烂如火的天空与辽阔原野，显得格外醒目。这座保护区位于肯尼亚西南部，与坦桑尼亚的塞伦盖蒂国家公园接壤，占地约580平方英里；随着夜幕降临，这里又度过了精彩的一天。这是一片广袤无垠的土地，也是世界上最壮观的野生动物乐园之一。起伏的草原、零星点缀的金合欢树，以及孕育万物的马拉河，共同构成了上演难忘邂逅的绝佳舞台。
-
-长颈鹿的心脏重量可超过11千克（25磅），能够将血液克服重力输送至近2米高的头部，是陆地动物中极为强大的循环系统之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e8%b5%9b%e9%a9%ac%e6%8b%89%e5%9b%bd%e5%ae%b6%e4%bf%9d%e6%8a%a4%e5%8c%ba&form=hpcapt&filters=HpDate:"20260629_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 6月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260630_MasaiGiraffe"&FORM=HPQUIZ "必应主页测验 2026 6月 30")
-[下载480](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_800x480.jpg&rf=LaDigue_800x480.jpg "马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_1280x720.jpg&rf=LaDigue_1280x720.jpg "马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚")
 
 ---
