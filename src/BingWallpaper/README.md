@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月16日：滨水变色龙
+#### 海军码头，芝加哥，伊利诺伊州，美国（© Christopher.F Photography/Getty Images）
+
+![滨水变色龙](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_800x480.jpg&rf=LaDigue_800x480.jpg "滨水变色龙")
+
+有些地方的建造目的单一，而有些地方则不断推陈出新。位于伊利诺伊州芝加哥的海军码头就属于后者。这座码头向湖中延伸超过3000英尺，是爱德华·H·贝内特和丹尼尔·伯纳姆于1909年制定的芝加哥规划的一部分。码头于1916年开放，最初是为了服务于密歇根湖上的航运、休闲娱乐和客运而建。为了纪念第一次世界大战的海军老兵，码头被更名为海军码头。
+
+海军码头最初被命名为“市立码头”，但在 1927 年被正式更名为“海军码头”，以纪念在第一次世界大战期间服役的海军官兵。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8a%9d%e5%8a%a0%e5%93%a5%e6%b5%b7%e5%86%9b%e7%a0%81%e5%a4%b4&form=hpcapt&filters=HpDate:"20260715_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260716_NavyPier"&FORM=HPQUIZ "必应主页测验 2026 7月 16")
+[下载480](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_800x480.jpg&rf=LaDigue_800x480.jpg "海军码头，芝加哥，伊利诺伊州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_1280x720.jpg&rf=LaDigue_1280x720.jpg "海军码头，芝加哥，伊利诺伊州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海军码头，芝加哥，伊利诺伊州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_UHD.jpg&rf=LaDigue_UHD.jpg "海军码头，芝加哥，伊利诺伊州，美国")
+
+---
 ### 07月15日：攀登后的奖励
 #### 玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国（© Steve Dunleavy/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃斯纳神庙穹顶天花板, 埃及")
 [下载1080](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃斯纳神庙穹顶天花板, 埃及")
 [下载UHD](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_UHD.jpg&rf=LaDigue_UHD.jpg "埃斯纳神庙穹顶天花板, 埃及")
-
----
-### 07月01日：大西洋雕琢而成的加拿大
-#### 地牢省立公园, 纽芬兰和拉布拉多省, 加拿大（© Kaitlyn McLachlan/Getty Images）
-
-![大西洋雕琢而成的加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_800x480.jpg&rf=LaDigue_800x480.jpg "大西洋雕琢而成的加拿大")
-
-位于纽芬兰岛博纳维斯塔半岛的地牢省立公园，长期受到大西洋海浪的塑造与侵蚀。公园最著名的景观“地牢（Dungeon）”实际上是一处巨大的塌陷海蚀洞，其顶部因持续侵蚀而坍塌，形成直通天空的壮观开口。这一地貌生动展示了海洋作用如何在数千年间不断改造坚硬岩石。
-
-“地牢”塌陷海洞形成了天然的半封闭空间，海浪拍击时产生的回声会随着海况变化而改变，形成独特的海岸声学现象。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%b0%e7%89%a2%e7%9c%81%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260630_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260701_DungeonPark"&FORM=HPQUIZ "必应主页测验 2026 7月 1")
-[下载480](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_800x480.jpg&rf=LaDigue_800x480.jpg "地牢省立公园, 纽芬兰和拉布拉多省, 加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1280x720.jpg&rf=LaDigue_1280x720.jpg "地牢省立公园, 纽芬兰和拉布拉多省, 加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "地牢省立公园, 纽芬兰和拉布拉多省, 加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg&rf=LaDigue_UHD.jpg "地牢省立公园, 纽芬兰和拉布拉多省, 加拿大")
 
 ---
