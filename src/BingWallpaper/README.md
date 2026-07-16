@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月17日：希腊式的逃离
+#### 瓦伊海滩上的日光浴躺椅，克里特岛，希腊（© borchee/Getty Images）
+
+![希腊式的逃离](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_800x480.jpg&rf=LaDigue_800x480.jpg "希腊式的逃离")
+
+在克里特岛的东北角，坐落着一个远离游客喧嚣的静谧之地瓦伊。这片区域的核心景观是其海滩：金黄色的沙滩沿着平静的爱琴海浅水缓缓展开，设有躺椅、遮阳伞与淋浴设施，为游泳、放松或安静休憩提供理想场所。瓦伊最引人注目的特色在于其沙滩背后有着欧洲最大的天然棕榈林。该棕榈林由5000多棵克里特枣椰树构成，这是一种仅分布于克里特岛及土耳其部分地区的特有树种。
+
+克里特岛是欧洲最早的高级文明：米诺斯文明的发源地，其兴盛时期约从公元前2700年延续至公元前1420年。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%8c%e8%85%8a%e5%85%8b%e9%87%8c%e7%89%b9%e5%b2%9b&form=hpcapt&filters=HpDate:"20260716_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260717_VaiUmbrellas"&FORM=HPQUIZ "必应主页测验 2026 7月 17")
+[下载480](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_800x480.jpg&rf=LaDigue_800x480.jpg "瓦伊海滩上的日光浴躺椅，克里特岛，希腊")
+[下载720](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓦伊海滩上的日光浴躺椅，克里特岛，希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦伊海滩上的日光浴躺椅，克里特岛，希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg&rf=LaDigue_UHD.jpg "瓦伊海滩上的日光浴躺椅，克里特岛，希腊")
+
+---
 ### 07月16日：滨水变色龙
 #### 海军码头，芝加哥，伊利诺伊州，美国（© Christopher.F Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_1280x720.jpg&rf=LaDigue_1280x720.jpg "小溪上方的萤火虫，冈山县，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "小溪上方的萤火虫，冈山县，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_UHD.jpg&rf=LaDigue_UHD.jpg "小溪上方的萤火虫，冈山县，日本")
-
----
-### 07月02日：走进埃斯纳神圣的世界
-#### 埃斯纳神庙穹顶天花板, 埃及（© Nick Brundle Photography/Getty Images）
-
-![走进埃斯纳神圣的世界](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_800x480.jpg&rf=LaDigue_800x480.jpg "走进埃斯纳神圣的世界")
-
-在埃及卢克索以南的埃斯纳神庙（Temple of Esna），游客将步入一个充满生机的世界，这里供奉着公羊头神——赫努姆（Khnum）；传说他曾用尼罗河的黏土塑造了人类。这座神庙主要建于托勒密王朝和罗马统治时期，其现存的大厅由24根高耸的石柱支撑，每根柱子上都雕刻着精美的浮雕与颂扬诸神的仪式铭文。
-
-数个世纪以来，埃斯纳神庙的大部分区域曾被淤泥和周边建筑掩埋，这在一定程度上减少了风化作用，使许多雕刻得以较好保存。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9f%83%e5%8f%8a%e5%9f%83%e6%96%af%e7%ba%b3%e7%a5%9e%e5%ba%99&form=hpcapt&filters=HpDate:"20260701_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260702_TempleEsna"&FORM=HPQUIZ "必应主页测验 2026 7月 2")
-[下载480](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_800x480.jpg&rf=LaDigue_800x480.jpg "埃斯纳神庙穹顶天花板, 埃及")
-[下载720](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_1280x720.jpg&rf=LaDigue_1280x720.jpg "埃斯纳神庙穹顶天花板, 埃及")
-[下载1080](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃斯纳神庙穹顶天花板, 埃及")
-[下载UHD](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_UHD.jpg&rf=LaDigue_UHD.jpg "埃斯纳神庙穹顶天花板, 埃及")
 
 ---
