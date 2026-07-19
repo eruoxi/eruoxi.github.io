@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月20日：月瞰寰宇
+#### 月球与地球由阿耳忒弥斯2号机组人员拍摄（© NASA）
+
+![月瞰寰宇](https://cn.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_800x480.jpg&rf=LaDigue_800x480.jpg "月瞰寰宇")
+
+从月球那遍布环形山的表面望去，地球在无垠的黑暗中呈现为一抹微光闪烁的娥眉状——这一罕见的奇观与我们惯常的地面观测视角截然相反。这片由数十亿年撞击作用塑造的荒芜地貌，完整地保存了早期太阳系的演化记录。7月20日是国际月球日，旨在纪念1969年阿波罗11号任务中人类首次踏上月球表面的历史性时刻。该纪念日由联合国于2021年设立，不仅致敬过去的辉煌成就，更聚焦于当下持续不断的月球探测努力。
+
+月球的自转速率与其绕地球公转的速率完全同步，由于这种“同步自转”特性，我们在地球上观测时始终只能看到月球的同一面。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%9c%88%e7%90%83%e6%97%a5&form=hpcapt&filters=HpDate:"20260719_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260720_Artemis"&FORM=HPQUIZ "必应主页测验 2026 7月 20")
+[下载480](https://cn.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_800x480.jpg&rf=LaDigue_800x480.jpg "月球与地球由阿耳忒弥斯2号机组人员拍摄")
+[下载720](https://cn.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_1280x720.jpg&rf=LaDigue_1280x720.jpg "月球与地球由阿耳忒弥斯2号机组人员拍摄")
+[下载1080](https://cn.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "月球与地球由阿耳忒弥斯2号机组人员拍摄")
+[下载UHD](https://cn.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_UHD.jpg&rf=LaDigue_UHD.jpg "月球与地球由阿耳忒弥斯2号机组人员拍摄")
+
+---
 ### 07月19日：敛羽栖时
 #### 不同亚种的家燕聚在一起休息（© Oscar Dominguez/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_1280x720.jpg&rf=LaDigue_1280x720.jpg "锡拉库萨的日落，西西里岛，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "锡拉库萨的日落，西西里岛，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_UHD.jpg&rf=LaDigue_UHD.jpg "锡拉库萨的日落，西西里岛，意大利")
-
----
-### 07月05日：紫色花海
-#### 瓦朗索勒高原的薰衣草行，普罗旺斯，法国（© Robert Harding/Shutterstock）
-
-![紫色花海](https://cn.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_800x480.jpg&rf=LaDigue_800x480.jpg "紫色花海")
-
-在法国东南部，瓦朗索勒高原（Valensole Plateau）的夏季伴随着阵阵紫蓝色的波浪而至。瓦朗索勒作为该地区最大的高原之一，坐落在迪朗斯河（Durance）与阿斯河（Asse）流域之间的韦尔东地区自然公园（Verdon Regional Natural Park）内，毗邻韦尔东大峡谷（Gorges du Verdon）及其湖泊。从6月中旬到7月初，受海拔和天气影响，薰衣草与杂交薰衣草（Lavandin）竞相绽放，将大地转化为普罗旺斯最具标志性的景观之一。空气中弥漫着清冽、干爽且极具地中海特色的香气。
-
-独特的碱性石质土壤在瓦朗索勒高原，普罗旺斯，法国为植物提供了卓越的排水性能，这种地质特性对于薰衣草在高海拔地中海气候下生存至关重要，能有效防止冬季根部腐烂并提升精油品质。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%96%b0%e8%a1%a3%e8%8d%89%e5%b1%9e&form=hpcapt&filters=HpDate:"20260704_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260705_LavenderRows"&FORM=HPQUIZ "必应主页测验 2026 7月 5")
-[下载480](https://cn.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_800x480.jpg&rf=LaDigue_800x480.jpg "瓦朗索勒高原的薰衣草行，普罗旺斯，法国")
-[下载720](https://cn.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓦朗索勒高原的薰衣草行，普罗旺斯，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦朗索勒高原的薰衣草行，普罗旺斯，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_UHD.jpg&rf=LaDigue_UHD.jpg "瓦朗索勒高原的薰衣草行，普罗旺斯，法国")
 
 ---
