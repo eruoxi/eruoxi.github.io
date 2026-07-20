@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月21日：拱影寻踪
+#### 圣卡塔琳娜拱门，安提瓜，危地马拉（© Filippo Maria Bianchi/Getty Images）
+
+![拱影寻踪](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_800x480.jpg&rf=LaDigue_800x480.jpg "拱影寻踪")
+
+有些建筑的初衷并非为了引人注目，但时间却另有安排。清晨时分，圣卡塔琳娜拱门在危地马拉安提瓜的街道上熠熠生辉，其鲜艳的黄色外墙精准地捕捉着晨光，石板路向前延伸，远方的水火山拔地而起。这座拱门建于17世纪，旨在解决一个实际问题：幽居修女需要在修道院建筑之间穿行，以符合宗教誓约中不被街道行人直视的要求。正是这种对隐私的克制，而非对景观的追求，造就了如今中美洲出镜率最高的地标之一。讽刺的是，这种反差随时间的沉淀而愈发迷人。
+
+这座标志性的法制时钟于19世纪30年代被增设，至今仍需每三天人工手动上弦一次，在圣卡塔琳娜拱门，安提瓜，危地马拉。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%b1%e5%9c%b0%e9%a9%ac%e6%8b%89%e5%9c%a3%e5%8d%a1%e5%a1%94%e7%90%b3%e5%a8%9c%e6%8b%b1%e9%97%a8&form=hpcapt&filters=HpDate:"20260720_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260721_SantaCatalina"&FORM=HPQUIZ "必应主页测验 2026 7月 21")
+[下载480](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_800x480.jpg&rf=LaDigue_800x480.jpg "圣卡塔琳娜拱门，安提瓜，危地马拉")
+[下载720](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣卡塔琳娜拱门，安提瓜，危地马拉")
+[下载1080](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣卡塔琳娜拱门，安提瓜，危地马拉")
+[下载UHD](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_UHD.jpg&rf=LaDigue_UHD.jpg "圣卡塔琳娜拱门，安提瓜，危地马拉")
+
+---
 ### 07月20日：月瞰寰宇
 #### 月球与地球由阿耳忒弥斯2号机组人员拍摄（© NASA）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_1280x720.jpg&rf=LaDigue_1280x720.jpg "板嘴山巨嘴鸟与兰花，厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "板嘴山巨嘴鸟与兰花，厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_UHD.jpg&rf=LaDigue_UHD.jpg "板嘴山巨嘴鸟与兰花，厄瓜多尔")
-
----
-### 07月06日：百代镌刻之城
-#### 锡拉库萨的日落，西西里岛，意大利（© Balate Dorin/Getty Images）
-
-![百代镌刻之城](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_800x480.jpg&rf=LaDigue_800x480.jpg "百代镌刻之城")
-
-意大利锡拉库萨（Syracuse）位于西西里岛，由来自科林斯的希腊移民于公元前 734 年左右建立。它曾发展成为古地中海最伟大的强权之一，现已被列入联合国教科文组织世界遗产名录——“锡拉库萨和潘塔立克石墓群”。这座城市永远与阿基米德（Archimedes）联系在一起，他的天才至今仍在塑造着城市的身份；同时也与柏拉图（Plato）紧密相连，他曾满怀着哲学可能重塑政治生活的希望来到此处。这种层叠的历史在马尼亚切城堡（Castello Maniace）中依然清晰可感，这座 13 世纪为神圣罗马帝国皇帝腓特烈二世建造的海滨要塞，至今仍令世人赞叹。
-
-原生纸莎草的生态孤岛在锡拉库萨，西西里岛，意大利表现出极高的植物学价值，林特奥斯河（Arethusa Spring）不仅是当地重要的淡水水源，更是全欧洲唯一一处野生纸莎草自然生长的原生生境。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%94%a1%e6%8b%89%e5%ba%93%e8%90%a8+%e8%a5%bf%e8%a5%bf%e9%87%8c%e5%b2%9b&form=hpcapt&filters=HpDate:"20260705_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260706_SyracuseItaly"&FORM=HPQUIZ "必应主页测验 2026 7月 6")
-[下载480](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_800x480.jpg&rf=LaDigue_800x480.jpg "锡拉库萨的日落，西西里岛，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_1280x720.jpg&rf=LaDigue_1280x720.jpg "锡拉库萨的日落，西西里岛，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "锡拉库萨的日落，西西里岛，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_UHD.jpg&rf=LaDigue_UHD.jpg "锡拉库萨的日落，西西里岛，意大利")
 
 ---
