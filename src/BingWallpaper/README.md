@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月22日：细微之举，影响深远
+#### 珊瑚礁与海滩在拉贾安帕特，印度尼西亚（© SergeUWPhoto/Shutterstock）
+
+![细微之举，影响深远](https://cn.bing.com/th?id=OHR.CoralAwareness_ZH-CN1621627126_800x480.jpg&rf=LaDigue_800x480.jpg "细微之举，影响深远")
+
+想象一座由动物建造的城市，在阳光下熠熠生辉，并在海浪之下涌动着生命。这就是珊瑚礁。在珊瑚礁意识周（Coral Reef Awareness Week）期间，我们赞美这些非凡的生态系统，以及依赖其生存的无数物种
+
+珊瑚礁作为“21世纪的药库”在拉贾安帕特，印度尼西亚及全球海洋中展现出巨大的生物医学价值，其产生的独特化合物正被用于开发治疗癌症及心脏病的新型药物。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8f%8a%e7%91%9a%e7%a4%81%e6%84%8f%e8%af%86%e5%91%a8&form=hpcapt&filters=HpDate:"20260721_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260722_CoralAwareness"&FORM=HPQUIZ "必应主页测验 2026 7月 22")
+[下载480](https://cn.bing.com/th?id=OHR.CoralAwareness_ZH-CN1621627126_800x480.jpg&rf=LaDigue_800x480.jpg "珊瑚礁与海滩在拉贾安帕特，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.CoralAwareness_ZH-CN1621627126_1280x720.jpg&rf=LaDigue_1280x720.jpg "珊瑚礁与海滩在拉贾安帕特，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.CoralAwareness_ZH-CN1621627126_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "珊瑚礁与海滩在拉贾安帕特，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.CoralAwareness_ZH-CN1621627126_UHD.jpg&rf=LaDigue_UHD.jpg "珊瑚礁与海滩在拉贾安帕特，印度尼西亚")
+
+---
 ### 07月21日：拱影寻踪
 #### 圣卡塔琳娜拱门，安提瓜，危地马拉（© Filippo Maria Bianchi/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿蒂特兰湖的日出，危地马拉")
 [下载1080](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿蒂特兰湖的日出，危地马拉")
 [下载UHD](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_UHD.jpg&rf=LaDigue_UHD.jpg "阿蒂特兰湖的日出，危地马拉")
-
----
-### 07月07日：林冠华彩
-#### 板嘴山巨嘴鸟与兰花，厄瓜多尔（© Murray Cooper/Minden Pictures）
-
-![林冠华彩](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_800x480.jpg&rf=LaDigue_800x480.jpg "林冠华彩")
-
-拥有如多功能工具般的喙部和色彩斑斓的羽毛——板嘴山巨嘴鸟（Plate-billed mountain toucan）是安第斯山脉最具辨识度的鸟类之一。它栖息在厄瓜多尔和哥伦比亚西南部潮湿的山地森林中，已完全适应了林冠层高处的生存环境。
-
-板嘴山巨嘴鸟色彩艳丽的喙部带有一个淡黄色的“角质板”，这一罕见特征正是其命名的由来。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9d%bf%e5%98%b4%e5%b1%b1%e5%b7%a8%e5%98%b4%e9%b8%9f&form=hpcapt&filters=HpDate:"20260706_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260707_MountainToucanOrchids"&FORM=HPQUIZ "必应主页测验 2026 7月 7")
-[下载480](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_800x480.jpg&rf=LaDigue_800x480.jpg "板嘴山巨嘴鸟与兰花，厄瓜多尔")
-[下载720](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_1280x720.jpg&rf=LaDigue_1280x720.jpg "板嘴山巨嘴鸟与兰花，厄瓜多尔")
-[下载1080](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "板嘴山巨嘴鸟与兰花，厄瓜多尔")
-[下载UHD](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_UHD.jpg&rf=LaDigue_UHD.jpg "板嘴山巨嘴鸟与兰花，厄瓜多尔")
 
 ---
