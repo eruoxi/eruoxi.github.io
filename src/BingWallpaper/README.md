@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月23日：瓣叠交响
+#### 粉红色大丽花（© Harald Biebel/Getty Images）
+
+![瓣叠交响](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_800x480.jpg&rf=LaDigue_800x480.jpg "瓣叠交响")
+
+有些花卉静谧地装点着花园，而大丽花（Dahlias）的登场则宛如领衔主演。这些原产于墨西哥的菊科（Asteraceae）成员拥有超过5.7万个培育品种，这在很大程度上归功于其独特的遗传特征。大丽花是典型的八倍体（Octoploids），意味着它们拥有八组染色体，这种多倍体特征使其花朵形态极具多样性，既有如纽扣般娇小的品种，也有直径达14英寸的巨型花冠。
+
+大丽花的一个阿兹特克语名称常被译为“水管花”，这源于该植物细长且中空的茎部特征，这种中空茎在古代曾被用作输送水分的管道。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e4%b8%bd%e8%8a%b1%e5%b1%9e%e6%a4%8d%e7%89%a9&form=hpcapt&filters=HpDate:"20260722_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260723_PinkDahlia"&FORM=HPQUIZ "必应主页测验 2026 7月 23")
+[下载480](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_800x480.jpg&rf=LaDigue_800x480.jpg "粉红色大丽花")
+[下载720](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1280x720.jpg&rf=LaDigue_1280x720.jpg "粉红色大丽花")
+[下载1080](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "粉红色大丽花")
+[下载UHD](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_UHD.jpg&rf=LaDigue_UHD.jpg "粉红色大丽花")
+
+---
 ### 07月22日：细微之举，影响深远
 #### 珊瑚礁与海滩在拉贾安帕特，印度尼西亚（© SergeUWPhoto/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_1280x720.jpg&rf=LaDigue_1280x720.jpg "在沙巴的水稻田，老街，越南")
 [下载1080](https://cn.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在沙巴的水稻田，老街，越南")
 [下载UHD](https://cn.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_UHD.jpg&rf=LaDigue_UHD.jpg "在沙巴的水稻田，老街，越南")
-
----
-### 07月08日：远古火山的回响
-#### 阿蒂特兰湖的日出，危地马拉（© shayes17/Getty Images）
-
-![远古火山的回响](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_800x480.jpg&rf=LaDigue_800x480.jpg "远古火山的回响")
-
-阿蒂特兰湖（Lake Atitlán）坐落于危地马拉西部高地，占据了一处巨大的破火山口。其深蓝色的湖水被陡峭的火山口壁以及阿蒂特兰（Atitlán）、托利曼（Tolimán）和圣佩德罗（San Pedro）这三座锥形火山所环绕。木质码头向静谧的湖面延伸，勾勒出平静水面与火山活动造就的崎岖地形之间的强烈对比。
-
-独特的内流盆地机制在阿蒂特兰湖，危地马拉表现显著，该湖泊没有通往海洋的天然地表出口，其水位主要依靠自然蒸发和地下的火山裂缝网络进行调节。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%b1%e5%9c%b0%e9%a9%ac%e6%8b%89+%e9%98%bf%e8%92%82%e7%89%b9%e5%85%b0%e6%b9%96&form=hpcapt&filters=HpDate:"20260707_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260708_LakeAtitlan"&FORM=HPQUIZ "必应主页测验 2026 7月 8")
-[下载480](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_800x480.jpg&rf=LaDigue_800x480.jpg "阿蒂特兰湖的日出，危地马拉")
-[下载720](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿蒂特兰湖的日出，危地马拉")
-[下载1080](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿蒂特兰湖的日出，危地马拉")
-[下载UHD](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_UHD.jpg&rf=LaDigue_UHD.jpg "阿蒂特兰湖的日出，危地马拉")
 
 ---
