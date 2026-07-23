@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月24日：缤纷多彩的一家人
+#### 美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔（© Tui De Roy/Nature Picture Library）
+
+![缤纷多彩的一家人](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_ZH-CN1152519387_800x480.jpg&rf=LaDigue_800x480.jpg "缤纷多彩的一家人")
+
+除了引人注目的体色，栖息在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔的美洲红鹳还以其高度同步的求偶仪式而闻名。数百只红鹳会参与一场极具仪式感的“集体舞”，它们整齐划一地行进，并有节奏地左右摆动头部以吸引配偶。这种集体行为确保了整个集群能在同一时间进行繁殖，从而在群岛严酷的火山地貌中最大限度地提高雏鸟的存活率。
+
+红鹳双亲均能分泌“嗉囊乳”来哺育雏鸟，这种营养丰富的物质类似于哺乳动物的乳汁，在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e6%b4%b2%e7%ba%a2%e9%b9%b3&form=hpcapt&filters=HpDate:"20260723_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260724_GalapagosFlamingos"&FORM=HPQUIZ "必应主页测验 2026 7月 24")
+[下载480](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_ZH-CN1152519387_800x480.jpg&rf=LaDigue_800x480.jpg "美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔")
+[下载720](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_ZH-CN1152519387_1280x720.jpg&rf=LaDigue_1280x720.jpg "美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔")
+[下载1080](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_ZH-CN1152519387_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_ZH-CN1152519387_UHD.jpg&rf=LaDigue_UHD.jpg "美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔")
+
+---
 ### 07月23日：瓣叠交响
 #### 粉红色大丽花（© Harald Biebel/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_1280x720.jpg&rf=LaDigue_1280x720.jpg "陆地与海洋的鸟瞰图，维多利亚州，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "陆地与海洋的鸟瞰图，维多利亚州，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_UHD.jpg&rf=LaDigue_UHD.jpg "陆地与海洋的鸟瞰图，维多利亚州，澳大利亚")
-
----
-### 07月09日：步步传承
-#### 在沙巴的水稻田，老街，越南（© Anujak Jaimook/Getty Images）
-
-![步步传承](https://cn.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_800x480.jpg&rf=LaDigue_800x480.jpg "步步传承")
-
-阳光穿透流云，洒在沙巴（Sapa）的层层坡地之上，那里的水稻田宛如“活的阶梯”，顺着山脊倾泻而下。这一高地地区位于越南老街省（Lào Cai），其地貌既受大自然的造化，也离不开人类双手的雕琢。数个世纪以来，包括赫蒙族（Hmong）在内的当地少数民族世代在此开垦并维护着这些梯田，他们引导水源流过陡峭的山坡，以维持每个生长季节的灌溉需求。
-
-“稻-鱼-鸭”共生系统在沙巴，老街，越南被广泛应用，通过在该生态位引入鱼类与鸭子实现自然肥田并控制病虫害，显著提升了高地农业的可持续性。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%b6%8a%e5%8d%97%e8%80%81%e8%a1%97&form=hpcapt&filters=HpDate:"20260708_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260709_SapaVietnam"&FORM=HPQUIZ "必应主页测验 2026 7月 9")
-[下载480](https://cn.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_800x480.jpg&rf=LaDigue_800x480.jpg "在沙巴的水稻田，老街，越南")
-[下载720](https://cn.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_1280x720.jpg&rf=LaDigue_1280x720.jpg "在沙巴的水稻田，老街，越南")
-[下载1080](https://cn.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在沙巴的水稻田，老街，越南")
-[下载UHD](https://cn.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_UHD.jpg&rf=LaDigue_UHD.jpg "在沙巴的水稻田，老街，越南")
 
 ---
