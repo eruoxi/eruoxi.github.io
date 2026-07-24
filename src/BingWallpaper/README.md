@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月25日：加境幽廊
+#### 大教堂海滩，加利西亚，西班牙（© Tui De Roy/Amazing Aerial Agency/Abobe Stock）
+
+![加境幽廊](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_800x480.jpg&rf=LaDigue_800x480.jpg "加境幽廊")
+
+在西班牙遥远的西北部，加利西亚与大西洋交汇。漫长的海岸线在海浪的强力冲刷下，形成了由悬崖、内湾和海蚀平台交织而成的地貌。雨水充沛的山丘与密林向海绵延，这种景观带有鲜明的大西洋气候基调，使其在感官上更接近于爱尔兰，而非人们惯常印象中的西班牙南部。
+
+除了因酷似教堂的拱门而闻名外，该地标的官方定名为“圣水海滩”，在大教堂海滩，加利西亚，西班牙。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e5%8a%a0%e5%88%a9%e8%a5%bf%e4%ba%9a&form=hpcapt&filters=HpDate:"20260724_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260725_GaliciaBeach"&FORM=HPQUIZ "必应主页测验 2026 7月 25")
+[下载480](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_800x480.jpg&rf=LaDigue_800x480.jpg "大教堂海滩，加利西亚，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_1280x720.jpg&rf=LaDigue_1280x720.jpg "大教堂海滩，加利西亚，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大教堂海滩，加利西亚，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_UHD.jpg&rf=LaDigue_UHD.jpg "大教堂海滩，加利西亚，西班牙")
+
+---
 ### 07月24日：缤纷多彩的一家人
 #### 美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔（© Tui De Roy/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣古斯坦港, 欧赖, 布列塔尼, 法国")
 [下载1080](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣古斯坦港, 欧赖, 布列塔尼, 法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_UHD.jpg&rf=LaDigue_UHD.jpg "圣古斯坦港, 欧赖, 布列塔尼, 法国")
-
----
-### 07月10日：陆地与海洋的鸟瞰图
-#### 陆地与海洋的鸟瞰图，维多利亚州，澳大利亚（© Nearmap/Getty Images）
-
-![陆地与海洋的鸟瞰图](https://cn.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_800x480.jpg&rf=LaDigue_800x480.jpg "陆地与海洋的鸟瞰图")
-
-维多利亚州位于澳大利亚东南部，坐拥由南大洋雕琢而成的绵延千余英里的海岸线。从高空俯瞰，这里的海滩宛如一条条宽阔的浅色沙带，边缘环绕着碧绿的海水与崎岖的峭壁。这种海陆交融的独特景致构成了该地区的主要魅力所在。著名的“大洋路”沿这段海岸线蜿蜒延伸约150英里，途经热门冲浪胜地、林木葱郁的海角以及各具特色的海滨小镇。
-
-十二使徒岩一直在发生变化；在2005年发生一次重大坍塌后，最初的石灰岩柱目前仅存八座。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%be%b3%e5%a4%a7%e5%88%a9%e4%ba%9a%e7%bb%b4%e5%a4%9a%e5%88%a9%e4%ba%9a%e5%b7%9e&form=hpcapt&filters=HpDate:"20260709_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260710_VictoriaBeach"&FORM=HPQUIZ "必应主页测验 2026 7月 10")
-[下载480](https://cn.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_800x480.jpg&rf=LaDigue_800x480.jpg "陆地与海洋的鸟瞰图，维多利亚州，澳大利亚")
-[下载720](https://cn.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_1280x720.jpg&rf=LaDigue_1280x720.jpg "陆地与海洋的鸟瞰图，维多利亚州，澳大利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "陆地与海洋的鸟瞰图，维多利亚州，澳大利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_UHD.jpg&rf=LaDigue_UHD.jpg "陆地与海洋的鸟瞰图，维多利亚州，澳大利亚")
 
 ---
