@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月26日：海陆际会，生机肇始
+#### 红树上的日出在小猪群岛，洪都拉斯（© Mac Stone/Tandem Stills + Motion）
+
+![海陆际会，生机肇始](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_800x480.jpg&rf=LaDigue_800x480.jpg "海陆际会，生机肇始")
+
+在洪都拉斯小猪群岛的日出时分——那是掩映在红树林湿地中低矮的沿海小岛——一株红树将其交错的根系挺立于如镜的水面之上。这幅动人的画面精准捕捉了7月26日所庆祝的主题：保护红树林生态系统国际日，该节日的设立旨在呼吁全球关注这些至关重要的海岸森林。
+
+红树具有特殊的“胎生”特性，其种子在脱离母树掉入潮汐前就已在枝头萌发，在小猪群岛，洪都拉斯。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bf%9d%e6%8a%a4%e7%ba%a2%e6%a0%91%e6%9e%97%e7%94%9f%e6%80%81%e7%b3%bb%e7%bb%9f%e5%9b%bd%e9%99%85%e6%97%a5&form=hpcapt&filters=HpDate:"20260725_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260726_RedMangroveSunrise"&FORM=HPQUIZ "必应主页测验 2026 7月 26")
+[下载480](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_800x480.jpg&rf=LaDigue_800x480.jpg "红树上的日出在小猪群岛，洪都拉斯")
+[下载720](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_1280x720.jpg&rf=LaDigue_1280x720.jpg "红树上的日出在小猪群岛，洪都拉斯")
+[下载1080](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红树上的日出在小猪群岛，洪都拉斯")
+[下载UHD](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_UHD.jpg&rf=LaDigue_UHD.jpg "红树上的日出在小猪群岛，洪都拉斯")
+
+---
 ### 07月25日：加境幽廊
 #### 大教堂海滩，加利西亚，西班牙（© Tui De Roy/Amazing Aerial Agency/Abobe Stock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡塔丁森林和水域国家纪念地，缅因州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡塔丁森林和水域国家纪念地，缅因州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_UHD.jpg&rf=LaDigue_UHD.jpg "卡塔丁森林和水域国家纪念地，缅因州，美国")
-
----
-### 07月11日：布列塔尼的潮汐之约
-#### 圣古斯坦港, 欧赖, 布列塔尼, 法国（© Rolf E. Staerk/Shutterstock）
-
-![布列塔尼的潮汐之约](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_800x480.jpg&rf=LaDigue_800x480.jpg "布列塔尼的潮汐之约")
-
-在法国，圣古斯坦港位于奥雷上城区下方，一条小海湾在此汇入莫尔比昂湾。港口坐落于奥雷河与洛克河的交汇处，营造出如诗如画的静谧氛围。13世纪，布列塔尼公爵在此修建了一座桥梁、一座港口和一座城堡；如今城堡已不复存在，但鹅卵石铺就的码头、狭窄的巷道和木结构房屋依然沿水而建。从共和国广场出发，沿着城堡街一路向下，途经艺术工作室和画廊，最终抵达海滨；洛克河畔的坡道建于古老的防御工事之上，可以饱览港口的景色。穿过四拱石桥，即可到达圣索沃尔广场，然后拾级而上，前往圣吉尔达教堂，小镇从那里开始逐渐升高，俯瞰着港口。码头也见证了一段跨大西洋的历史：本杰明·富兰克林于1776年抵达此地，如今一个码头以他的名字命名。如今，咖啡馆和小船点缀着这片区域，而附近的奥雷镇则拥有远近闻名的每周集市和热闹的夏季活动。
-
-该港口水源流向的莫尔比汉湾拥有欧洲最强劲的潮汐流，在其狭窄的湾口处，水流速度可高达每秒4米。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b3%95%e5%9b%bd%e6%ac%a7%e8%b5%96%e5%9c%a3%e5%8f%a4%e6%96%af%e5%bd%93%e6%b8%af&form=hpcapt&filters=HpDate:"20260710_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260711_AurayBrittany"&FORM=HPQUIZ "必应主页测验 2026 7月 11")
-[下载480](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_800x480.jpg&rf=LaDigue_800x480.jpg "圣古斯坦港, 欧赖, 布列塔尼, 法国")
-[下载720](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣古斯坦港, 欧赖, 布列塔尼, 法国")
-[下载1080](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣古斯坦港, 欧赖, 布列塔尼, 法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_UHD.jpg&rf=LaDigue_UHD.jpg "圣古斯坦港, 欧赖, 布列塔尼, 法国")
 
 ---
