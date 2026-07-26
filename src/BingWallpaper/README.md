@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月27日：仰望芝城，流光溢彩
+#### 蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国（© Felix Lipov/Shutterstock）
+
+![仰望芝城，流光溢彩](https://cn.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_800x480.jpg&rf=LaDigue_800x480.jpg "仰望芝城，流光溢彩")
+
+步入位于美国，伊利诺伊州，芝加哥文化中心的建筑内部，目光瞬间会被上方绚丽夺目的彩色顶棚——蒂芙尼穹顶所吸引。这座艺术杰作悬挂在普雷斯顿·布拉德利大厅上方，直径约38英尺，由约30,000片法夫里尔玻璃组成，每片玻璃都呈鱼鳞状。阳光透过其半透明的表面，在错综复杂的图案中映射出变幻莫测的蓝色与金色。
+
+穹顶基座饰有十二星座图案，其玻璃工艺旨在模仿波光粼粼且具有虹彩质感的海面，在美国伊利诺伊州芝加哥文化中心。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8a%9d%e5%8a%a0%e5%93%a5%e6%96%87%e5%8c%96%e4%b8%ad%e5%bf%83%e8%92%82%e8%8a%99%e5%b0%bc%e7%a9%b9%e9%a1%b6&form=hpcapt&filters=HpDate:"20260726_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260727_ChicagoTiffany"&FORM=HPQUIZ "必应主页测验 2026 7月 27")
+[下载480](https://cn.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_800x480.jpg&rf=LaDigue_800x480.jpg "蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_UHD.jpg&rf=LaDigue_UHD.jpg "蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国")
+
+---
 ### 07月26日：海陆际会，生机肇始
 #### 红树上的日出在小猪群岛，洪都拉斯（© Mac Stone/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_1280x720.jpg&rf=LaDigue_1280x720.jpg "羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_UHD.jpg&rf=LaDigue_UHD.jpg "羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国")
-
----
-### 07月12日：缅因州的狂野一面
-#### 卡塔丁森林和水域国家纪念地，缅因州，美国（© Cavan Images/Offset/Shutterstock）
-
-![缅因州的狂野一面](https://cn.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_800x480.jpg&rf=LaDigue_800x480.jpg "缅因州的狂野一面")
-
-如果你想寻找缅因州最原始的自然风光，这里就是了。卡塔丁森林和水域国家纪念碑横跨约87,500英亩的北部原始森林——静谧的池塘倒映着天空，茂密的森林仿佛吞噬了所有声音。不要指望这里人潮涌动或生活便利。在这里，泥泞的道路颠簸不已，手机信号也很快就会消失。但这正是它的魅力所在。漫步在静谧的池塘边，或沿着佩诺布斯科特河东支流漂流，你会立刻感受到这片荒野的气息，仿佛置身其中，触手可及。
-
-保护这片荒野的全部87,500英亩土地，是由小蜜蜂（Burt's Bees）化妆品公司的联合创始人罗克珊·昆比（Roxanne Quimby）私人出资购买，随后无偿捐赠给美国公众的。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%a1%e5%a1%94%e4%b8%81%e6%a3%ae%e6%9e%97%e5%92%8c%e6%b0%b4%e5%9f%9f%e5%9b%bd%e5%ae%b6%e7%ba%aa%e5%bf%b5%e7%a2%91&form=hpcapt&filters=HpDate:"20260711_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260712_KatahdinWWNM"&FORM=HPQUIZ "必应主页测验 2026 7月 12")
-[下载480](https://cn.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_800x480.jpg&rf=LaDigue_800x480.jpg "卡塔丁森林和水域国家纪念地，缅因州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡塔丁森林和水域国家纪念地，缅因州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡塔丁森林和水域国家纪念地，缅因州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_UHD.jpg&rf=LaDigue_UHD.jpg "卡塔丁森林和水域国家纪念地，缅因州，美国")
 
 ---
