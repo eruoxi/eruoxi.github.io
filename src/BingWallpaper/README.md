@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月28日：生机律动，恒久之衡
+#### 一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国（© Ian Shive/Tandem Stills + Motion）
+
+![生机律动，恒久之衡](https://cn.bing.com/th?id=OHR.ChannelKelp_ZH-CN8732903732_800x480.jpg&rf=LaDigue_800x480.jpg "生机律动，恒久之衡")
+
+在美国加利福尼亚州，海峡群岛国家公园，安纳卡帕岛附近，海洋孕育着属于自己的森林。在被称为“北美洲加拉帕戈斯”的海峡群岛国家公园内，巨藻的长度可超过 100 英尺，它们通过充满空气的气囊在水中形成具有浮力的丝带，并由底部的根状固着器锚定在海床之上。
+
+海獭是此处的关键种；通过捕食海胆，它们能防止海藻林被过度啃食，在安纳卡帕岛附近，海峡群岛国家公园，美国。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e8%87%aa%e7%84%b6%e4%bf%9d%e6%8a%a4%e6%97%a5&form=hpcapt&filters=HpDate:"20260727_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260728_ChannelKelp"&FORM=HPQUIZ "必应主页测验 2026 7月 28")
+[下载480](https://cn.bing.com/th?id=OHR.ChannelKelp_ZH-CN8732903732_800x480.jpg&rf=LaDigue_800x480.jpg "一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ChannelKelp_ZH-CN8732903732_1280x720.jpg&rf=LaDigue_1280x720.jpg "一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ChannelKelp_ZH-CN8732903732_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChannelKelp_ZH-CN8732903732_UHD.jpg&rf=LaDigue_UHD.jpg "一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国")
+
+---
 ### 07月27日：仰望芝城，流光溢彩
 #### 蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国（© Felix Lipov/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_1280x720.jpg&rf=LaDigue_1280x720.jpg "柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马")
 [下载1080](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马")
 [下载UHD](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_UHD.jpg&rf=LaDigue_UHD.jpg "柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马")
-
----
-### 07月13日：为摇滚而生
-#### 羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国（© Mark Skalny/Getty Images）
-
-![为摇滚而生](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_800x480.jpg&rf=LaDigue_800x480.jpg "为摇滚而生")
-
-7月13日是国际岩石日，旨在庆祝我们脚下地质构造的基石，并激发人们对岩石如何塑造地球地貌和历史的好奇心。从古代工具到现代矿物用途，这些坚实的结构蕴藏着火山喷发、大陆漂移以及数百万年来生命演化的线索。很少有地方能像羚羊峡谷那样生动地展现这段历史。羚羊峡谷位于亚利桑那州佩吉市以东的纳瓦霍族保留地，是一条狭窄的缝隙型峡谷。它由纳瓦霍砂岩经山洪和侵蚀作用雕琢而成，光滑流畅的岩壁展现了水和沉积物如何随着时间的推移塑造岩石。阳光透过峡谷狭窄的缝隙照射进来，在经受了数百年自然力量雕琢的红色和橙色岩石上，形成一道道光束，跳跃闪烁。在国际岩石日，像这样的景观将地质学变成了一座活生生的艺术馆——邀请游客们将岩石视为地球动态历史的不断演进的记录，而不是静止的物体。
-
-羚羊峡谷砂岩墙面上独特的流线型波纹，主要是由每年季风季节的突发山洪冲刷而成的，这些山洪可能会在短短几分钟内迅速席卷狭窄的缝隙峡谷。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%be%9a%e7%be%8a%e5%b3%a1%e8%b0%b7&form=hpcapt&filters=HpDate:"20260712_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260713_NavajoSandstone"&FORM=HPQUIZ "必应主页测验 2026 7月 13")
-[下载480](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_800x480.jpg&rf=LaDigue_800x480.jpg "羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_1280x720.jpg&rf=LaDigue_1280x720.jpg "羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_UHD.jpg&rf=LaDigue_UHD.jpg "羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国")
 
 ---
