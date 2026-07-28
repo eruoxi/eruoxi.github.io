@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月29日：虎啸归来，锐爪重临
+#### 孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度（© Archna Singh/Shutterstock）
+
+![虎啸归来，锐爪重临](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_800x480.jpg&rf=LaDigue_800x480.jpg "虎啸归来，锐爪重临")
+
+在全球老虎日这一天，这群孟加拉虎迈着自信的步伐走过印度，拉贾斯坦邦，兰坦博尔国家公园，展现出顶级掠食者对自身在食物链中地位的精准认知。孟加拉虎兼具隐蔽性与力量：成年个体的体长从鼻尖到尾端可超过10英尺，体重约500磅，行走时却能悄无声息。在视觉可见度是一把“双刃剑”的自然生境中，它们的斑纹发挥了关键作用，通过复杂的图案模式在环境中进行伪装，使猎物难以辨识其身形。
+
+老虎是卓越的游泳者，经常通过泡水来降温，这在大多数猫科动物中极为罕见，在兰坦博尔国家公园，拉贾斯坦邦，印度。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%85%a8%e7%90%83%e8%80%81%e8%99%8e%e6%97%a5&form=hpcapt&filters=HpDate:"20260728_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260729_TigerFamily"&FORM=HPQUIZ "必应主页测验 2026 7月 29")
+[下载480](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_800x480.jpg&rf=LaDigue_800x480.jpg "孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_1280x720.jpg&rf=LaDigue_1280x720.jpg "孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_UHD.jpg&rf=LaDigue_UHD.jpg "孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度")
+
+---
 ### 07月28日：生机律动，恒久之衡
 #### 一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国（© Ian Shive/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_1280x720.jpg&rf=LaDigue_1280x720.jpg "玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_UHD.jpg&rf=LaDigue_UHD.jpg "玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国")
-
----
-### 07月14日：奇妙的真相
-#### 柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马（© Shane Gross/Nature Picture Library）
-
-![奇妙的真相](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_800x480.jpg&rf=LaDigue_800x480.jpg "奇妙的真相")
-
-7月14日是世界鲨鱼日，它呼吁我们用海洋的真实面貌取代电影中的恐慌。鲨鱼已经在海洋中遨游了超过4.2亿年，作为顶级掠食者，它们有助于维持海洋生态系统的平衡。
-
-格陵兰鲨的寿命可达400年，是脊椎动物中寿命最长的物种之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9f%a0%e6%aa%ac%e9%b2%a8&form=hpcapt&filters=HpDate:"20260713_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260714_LemonShark"&FORM=HPQUIZ "必应主页测验 2026 7月 14")
-[下载480](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_800x480.jpg&rf=LaDigue_800x480.jpg "柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马")
-[下载720](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_1280x720.jpg&rf=LaDigue_1280x720.jpg "柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马")
-[下载1080](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马")
-[下载UHD](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_UHD.jpg&rf=LaDigue_UHD.jpg "柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马")
 
 ---
