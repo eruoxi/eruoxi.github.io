@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月30日：旷野无声，活态传承之境
+#### 在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国（© Westend61/Adobe Stock）
+
+![旷野无声，活态传承之境](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_800x480.jpg&rf=LaDigue_800x480.jpg "旷野无声，活态传承之境")
+
+在纳瓦霍族保留地，亚利桑那州与犹他州交界处，美国，有些景观举世闻名，而纪念碑谷则堪称传奇。这一沙漠奇观横跨州界，其地貌由高耸的砂岩孤峰塑造而成，这些孤峰从谷底拔地而起，高度可达1000英尺。在纳瓦霍语中，该地区被称为 Tsé Bii' Ndzisgaii（意为“岩石之谷”），它将壮丽的地质构造与鲜活的民族文化完美融合。
+
+阿甘结束其跨国长跑的著名地点位于163号美国国道，这里拥有俯瞰山谷的最具标志性视野，在纪念碑谷，纳瓦霍族保留地，美国。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%aa%e5%bf%b5%e7%a2%91%e8%b0%b7&form=hpcapt&filters=HpDate:"20260729_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260730_NavajoNation"&FORM=HPQUIZ "必应主页测验 2026 7月 30")
+[下载480](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_800x480.jpg&rf=LaDigue_800x480.jpg "在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_1280x720.jpg&rf=LaDigue_1280x720.jpg "在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_UHD.jpg&rf=LaDigue_UHD.jpg "在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国")
+
+---
 ### 07月29日：虎啸归来，锐爪重临
 #### 孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度（© Archna Singh/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_1280x720.jpg&rf=LaDigue_1280x720.jpg "海军码头，芝加哥，伊利诺伊州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海军码头，芝加哥，伊利诺伊州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_UHD.jpg&rf=LaDigue_UHD.jpg "海军码头，芝加哥，伊利诺伊州，美国")
-
----
-### 07月15日：攀登后的奖励
-#### 玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国（© Steve Dunleavy/Getty Images）
-
-![攀登后的奖励](https://cn.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_800x480.jpg&rf=LaDigue_800x480.jpg "攀登后的奖励")
-
-如果山脉能够记录过去，那么位于加利福尼亚州毕晓普附近的约翰·缪尔荒野保护区将拥有丰富的历史资料可供分享。这里的山谷、湖泊和花岗岩地貌诉说着数百万年来的演变历程。这片广袤的保护区成立于1964年，横跨内华达山脉超过65万英亩的土地，并以博物学家约翰·缪尔的名字命名。如今，太平洋山脊步道和约翰·缪尔步道的部分路段穿过这里，吸引着徒步旅行者来到美国本土最大的高海拔荒野地区之一。
-
-约翰·缪尔荒野包含阿拉斯加州以外美国本土的一些最高山峰，其中包括惠特尼峰，它是美国本土最高的山脉，海拔达14,505英尺（约 4,421 米）。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a6%e7%bf%b0%c2%b7%e7%bc%aa%e5%b0%94%e8%8d%92%e9%87%8e&form=hpcapt&filters=HpDate:"20260714_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260715_MarieLake"&FORM=HPQUIZ "必应主页测验 2026 7月 15")
-[下载480](https://cn.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_800x480.jpg&rf=LaDigue_800x480.jpg "玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_1280x720.jpg&rf=LaDigue_1280x720.jpg "玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_UHD.jpg&rf=LaDigue_UHD.jpg "玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国")
 
 ---
