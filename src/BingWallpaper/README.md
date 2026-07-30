@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 07月31日：穿越时光的足迹
+#### 鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国（© Eifel Kreutz/Getty Images）
+
+![穿越时光的足迹](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_800x480.jpg&rf=LaDigue_800x480.jpg "穿越时光的足迹")
+
+有些铁路会退出历史舞台，而“弗吉尼亚爬山虎步道”则实现了华丽转身。这条步道全长34.3英里，横贯弗吉尼亚州西南部，沿用了一条昔日的铁路线——该线路曾用于在阿巴拉契亚山脉间运输木材和铁矿石。步道那独特的名字，源自20世纪初那些在陡峭坡道上艰难爬行的蒸汽机车。
+
+这条步道的英文名字“Virginia creeper”（弗吉尼亚爬山虎）具有双重寓意：一是指沿铁轨茂盛生长的当地原生五叶爬山虎植物，二是指20世纪初蒸汽机车在攀爬陡峭山坡时如蜗牛爬行般缓慢的行驶速度。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%bc%97%e5%90%89%e5%b0%bc%e4%ba%9a%e7%88%ac%e5%b1%b1%e8%99%8e%e6%ad%a5%e9%81%93&form=hpcapt&filters=HpDate:"20260730_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 31")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260731_VirginiaTrail"&FORM=HPQUIZ "必应主页测验 2026 7月 31")
+[下载480](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_800x480.jpg&rf=LaDigue_800x480.jpg "鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_1280x720.jpg&rf=LaDigue_1280x720.jpg "鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_UHD.jpg&rf=LaDigue_UHD.jpg "鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国")
+
+---
 ### 07月30日：旷野无声，活态传承之境
 #### 在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国（© Westend61/Adobe Stock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓦伊海滩上的日光浴躺椅，克里特岛，希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦伊海滩上的日光浴躺椅，克里特岛，希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg&rf=LaDigue_UHD.jpg "瓦伊海滩上的日光浴躺椅，克里特岛，希腊")
-
----
-### 07月16日：滨水变色龙
-#### 海军码头，芝加哥，伊利诺伊州，美国（© Christopher.F Photography/Getty Images）
-
-![滨水变色龙](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_800x480.jpg&rf=LaDigue_800x480.jpg "滨水变色龙")
-
-有些地方的建造目的单一，而有些地方则不断推陈出新。位于伊利诺伊州芝加哥的海军码头就属于后者。这座码头向湖中延伸超过3000英尺，是爱德华·H·贝内特和丹尼尔·伯纳姆于1909年制定的芝加哥规划的一部分。码头于1916年开放，最初是为了服务于密歇根湖上的航运、休闲娱乐和客运而建。为了纪念第一次世界大战的海军老兵，码头被更名为海军码头。
-
-海军码头最初被命名为“市立码头”，但在 1927 年被正式更名为“海军码头”，以纪念在第一次世界大战期间服役的海军官兵。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8a%9d%e5%8a%a0%e5%93%a5%e6%b5%b7%e5%86%9b%e7%a0%81%e5%a4%b4&form=hpcapt&filters=HpDate:"20260715_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260716_NavyPier"&FORM=HPQUIZ "必应主页测验 2026 7月 16")
-[下载480](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_800x480.jpg&rf=LaDigue_800x480.jpg "海军码头，芝加哥，伊利诺伊州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_1280x720.jpg&rf=LaDigue_1280x720.jpg "海军码头，芝加哥，伊利诺伊州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海军码头，芝加哥，伊利诺伊州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_UHD.jpg&rf=LaDigue_UHD.jpg "海军码头，芝加哥，伊利诺伊州，美国")
 
 ---
