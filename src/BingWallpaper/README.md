@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月01日：基拉韦厄火山的威力
+#### 大批熔岩流涌入大洋，大岛，夏威夷州，美国（© Ken McCurdy/Getty Images）
+
+![基拉韦厄火山的威力](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_800x480.jpg&rf=LaDigue_800x480.jpg "基拉韦厄火山的威力")
+
+大多数地貌的演变历时数千年，而火山却能在短短数小时内重塑地貌——在夏威夷大岛，这一过程至今仍在持续。为了保护这一不断变化的环境及其所蕴含的科学与自然价值，夏威夷火山国家公园于1916年8月1日正式成立。一个多世纪以来，该公园一直致力于保护这片占地超过35万英亩的区域，其中包括火山地貌、原生森林以及各类珍稀野生动植物。
+
+当温度高达约1093摄氏度的熔岩与冰冷的太平洋海水相遇时，会产生被称为“熔岩雾霭”的剧烈化学反应，形成包含盐酸烟雾和微小火山玻璃颗粒的有害气云。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%8f%e5%a8%81%e5%a4%b7%e7%81%ab%e5%b1%b1%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260731_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260801_HawaiiLava"&FORM=HPQUIZ "必应主页测验 2026 8月 1")
+[下载480](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_800x480.jpg&rf=LaDigue_800x480.jpg "大批熔岩流涌入大洋，大岛，夏威夷州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_1280x720.jpg&rf=LaDigue_1280x720.jpg "大批熔岩流涌入大洋，大岛，夏威夷州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大批熔岩流涌入大洋，大岛，夏威夷州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_UHD.jpg&rf=LaDigue_UHD.jpg "大批熔岩流涌入大洋，大岛，夏威夷州，美国")
+
+---
 ### 07月31日：穿越时光的足迹
 #### 鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国（© Eifel Kreutz/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DevilsBridge_ZH-CN2164982440_1280x720.jpg&rf=LaDigue_1280x720.jpg "恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.DevilsBridge_ZH-CN2164982440_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.DevilsBridge_ZH-CN2164982440_UHD.jpg&rf=LaDigue_UHD.jpg "恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国")
-
----
-### 07月17日：希腊式的逃离
-#### 瓦伊海滩上的日光浴躺椅，克里特岛，希腊（© borchee/Getty Images）
-
-![希腊式的逃离](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_800x480.jpg&rf=LaDigue_800x480.jpg "希腊式的逃离")
-
-在克里特岛的东北角，坐落着一个远离游客喧嚣的静谧之地瓦伊。这片区域的核心景观是其海滩：金黄色的沙滩沿着平静的爱琴海浅水缓缓展开，设有躺椅、遮阳伞与淋浴设施，为游泳、放松或安静休憩提供理想场所。瓦伊最引人注目的特色在于其沙滩背后有着欧洲最大的天然棕榈林。该棕榈林由5000多棵克里特枣椰树构成，这是一种仅分布于克里特岛及土耳其部分地区的特有树种。
-
-克里特岛是欧洲最早的高级文明：米诺斯文明的发源地，其兴盛时期约从公元前2700年延续至公元前1420年。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%8c%e8%85%8a%e5%85%8b%e9%87%8c%e7%89%b9%e5%b2%9b&form=hpcapt&filters=HpDate:"20260716_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260717_VaiUmbrellas"&FORM=HPQUIZ "必应主页测验 2026 7月 17")
-[下载480](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_800x480.jpg&rf=LaDigue_800x480.jpg "瓦伊海滩上的日光浴躺椅，克里特岛，希腊")
-[下载720](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓦伊海滩上的日光浴躺椅，克里特岛，希腊")
-[下载1080](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦伊海滩上的日光浴躺椅，克里特岛，希腊")
-[下载UHD](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg&rf=LaDigue_UHD.jpg "瓦伊海滩上的日光浴躺椅，克里特岛，希腊")
 
 ---
