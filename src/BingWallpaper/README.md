@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月02日：色彩鲜艳的船只，历久弥新的传统
+#### 马尔萨什洛克港口五彩斑斓的渔船，马耳他（© Klubovy/Getty Images）
+
+![色彩鲜艳的船只，历久弥新的传统](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_800x480.jpg&rf=LaDigue_800x480.jpg "色彩鲜艳的船只，历久弥新的传统")
+
+色彩斑斓的“卢祖”（luzzu）——即马耳他的传统渔船——停满了马萨什洛克（Marsaxlokk）那避风港湾的水面；这座村庄坐落于马耳他东南沿海，距离首都瓦莱塔仅需短途车程。作为该国主要的渔业中心之一，这里的生活节奏始终与大海的律动保持着和谐的步调。村庄约有4000名居民，并以其充满活力的滨海区域而闻名——尤其是广受欢迎的周日鱼市，以及每天清晨满载新鲜渔获归来的船只。
+
+鲁佐（Luzzu）渔船船头绘制的双眼被称为“荷鲁斯之眼”或“奥西里斯之眼”，这一传统源自古腓尼基和古埃及，代代相传，旨在驱散恶灵并为渔民带来好运。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e8%80%b3%e4%bb%96%e9%a9%ac%e5%b0%94%e8%90%a8%e4%bb%80%e6%b4%9b%e5%85%8b&form=hpcapt&filters=HpDate:"20260801_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260802_HelsinkiBlue"&FORM=HPQUIZ "必应主页测验 2026 8月 2")
+[下载480](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_800x480.jpg&rf=LaDigue_800x480.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
+[下载720](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_1280x720.jpg&rf=LaDigue_1280x720.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
+[下载1080](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
+[下载UHD](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_UHD.jpg&rf=LaDigue_UHD.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
+
+---
 ### 08月01日：基拉韦厄火山的威力
 #### 大批熔岩流涌入大洋，大岛，夏威夷州，美国（© Ken McCurdy/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HirundoRustica_ZH-CN2798518247_1280x720.jpg&rf=LaDigue_1280x720.jpg "不同亚种的家燕聚在一起休息")
 [下载1080](https://cn.bing.com/th?id=OHR.HirundoRustica_ZH-CN2798518247_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "不同亚种的家燕聚在一起休息")
 [下载UHD](https://cn.bing.com/th?id=OHR.HirundoRustica_ZH-CN2798518247_UHD.jpg&rf=LaDigue_UHD.jpg "不同亚种的家燕聚在一起休息")
-
----
-### 07月18日：环影圆成
-#### 恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国（© Mike Mareen/Getty Images）
-
-![环影圆成](https://cn.bing.com/th?id=OHR.DevilsBridge_ZH-CN2164982440_800x480.jpg&rf=LaDigue_800x480.jpg "环影圆成")
-
-倒映在平静的水面上，拉科茨桥——通称为“恶魔桥”——在德国萨克森州构成了一个近乎完美的石环。这座窄长的玄武岩结构始建于1860年，经过精密的工程设计，使其拱形结构与水面倒影在湖面静止时能精准对齐，形成一个无缝的圆环。该建筑由当地产的火山石建成，与其说它具有实用功能，不如说它体现了精准的几何设计，其惊艳的造型纯粹是为了追求视觉上的美学冲击。作为热门的摄影题材，它还曾出现在包括《黑客帝国：矩阵重启》（2021年）在内的电影中。如今，由于桥体结构脆弱，为了对其进行保护，严禁行人通行，游客仅可从岸边观赏。
-
-这种“恶魔桥”的称谓源于古老的民间传说，意指只有撒旦才能建造出如此违背重力的拱形结构，在克罗姆劳，萨克森州，德国。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%81%b6%e9%ad%94%e6%a1%a5%e5%9c%a8%e5%85%8b%e7%bd%97%e5%a7%86%e5%8a%b3%e6%9d%9c%e9%b9%83%e8%8a%b1%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260717_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260718_DevilsBridge"&FORM=HPQUIZ "必应主页测验 2026 7月 18")
-[下载480](https://cn.bing.com/th?id=OHR.DevilsBridge_ZH-CN2164982440_800x480.jpg&rf=LaDigue_800x480.jpg "恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国")
-[下载720](https://cn.bing.com/th?id=OHR.DevilsBridge_ZH-CN2164982440_1280x720.jpg&rf=LaDigue_1280x720.jpg "恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.DevilsBridge_ZH-CN2164982440_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.DevilsBridge_ZH-CN2164982440_UHD.jpg&rf=LaDigue_UHD.jpg "恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国")
 
 ---
