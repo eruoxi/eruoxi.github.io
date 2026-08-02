@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月03日：色彩鲜艳的船只，历久弥新的传统
+#### 马尔萨什洛克港口五彩斑斓的渔船，马耳他（© Klubovy/Getty Images）
+
+![色彩鲜艳的船只，历久弥新的传统](https://cn.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_800x480.jpg&rf=LaDigue_800x480.jpg "色彩鲜艳的船只，历久弥新的传统")
+
+色彩斑斓的“卢祖”（luzzu）——即马耳他的传统渔船——停满了马萨什洛克（Marsaxlokk）那避风港湾的水面；这座村庄坐落于马耳他东南沿海，距离首都瓦莱塔仅需短途车程。作为该国主要的渔业中心之一，这里的生活节奏始终与大海的律动保持着和谐的步调。村庄约有4000名居民，并以其充满活力的滨海区域而闻名——尤其是广受欢迎的周日鱼市，以及每天清晨满载新鲜渔获归来的船只。
+
+鲁佐（Luzzu）渔船船头绘制的双眼被称为“荷鲁斯之眼”或“奥西里斯之眼”，这一传统源自古腓尼基和古埃及，代代相传，旨在驱散恶灵并为渔民带来好运。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e8%80%b3%e4%bb%96%e9%a9%ac%e5%b0%94%e8%90%a8%e4%bb%80%e6%b4%9b%e5%85%8b&form=hpcapt&filters=HpDate:"20260802_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260803_BoatsMalta"&FORM=HPQUIZ "必应主页测验 2026 8月 3")
+[下载480](https://cn.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_800x480.jpg&rf=LaDigue_800x480.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
+[下载720](https://cn.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_1280x720.jpg&rf=LaDigue_1280x720.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
+[下载1080](https://cn.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
+[下载UHD](https://cn.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_UHD.jpg&rf=LaDigue_UHD.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
+
+---
 ### 08月02日：色彩鲜艳的船只，历久弥新的传统
 #### 马尔萨什洛克港口五彩斑斓的渔船，马耳他（© Klubovy/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_1280x720.jpg&rf=LaDigue_1280x720.jpg "月球与地球由阿耳忒弥斯2号机组人员拍摄")
 [下载1080](https://cn.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "月球与地球由阿耳忒弥斯2号机组人员拍摄")
 [下载UHD](https://cn.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_UHD.jpg&rf=LaDigue_UHD.jpg "月球与地球由阿耳忒弥斯2号机组人员拍摄")
-
----
-### 07月19日：敛羽栖时
-#### 不同亚种的家燕聚在一起休息（© Oscar Dominguez/Tandem Stills + Motion）
-
-![敛羽栖时](https://cn.bing.com/th?id=OHR.HirundoRustica_ZH-CN2798518247_800x480.jpg&rf=LaDigue_800x480.jpg "敛羽栖时")
-
-一群家燕栖息在纤细的芦苇上，在片刻的宁静中聚集，与其往常疾速的身影形成了鲜明对比。这些鸟类以迅捷且极具灵动性的飞行能力及标志性的深叉状尾羽著称，其生理构造天生便高度适应不间断的飞行生活。它们能在半空中精准捕食昆虫，并在各大洲之间长途跋涉。羽色与斑纹的细微差异暗示此处可能聚集了多个亚种，这有力地证明了家燕广泛的全球分布范围。
-
-家燕每年在繁殖地与越冬地之间往返迁徙，其行程可达数千英里。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%ae%b6%e7%87%95&form=hpcapt&filters=HpDate:"20260718_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260719_HirundoRustica"&FORM=HPQUIZ "必应主页测验 2026 7月 19")
-[下载480](https://cn.bing.com/th?id=OHR.HirundoRustica_ZH-CN2798518247_800x480.jpg&rf=LaDigue_800x480.jpg "不同亚种的家燕聚在一起休息")
-[下载720](https://cn.bing.com/th?id=OHR.HirundoRustica_ZH-CN2798518247_1280x720.jpg&rf=LaDigue_1280x720.jpg "不同亚种的家燕聚在一起休息")
-[下载1080](https://cn.bing.com/th?id=OHR.HirundoRustica_ZH-CN2798518247_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "不同亚种的家燕聚在一起休息")
-[下载UHD](https://cn.bing.com/th?id=OHR.HirundoRustica_ZH-CN2798518247_UHD.jpg&rf=LaDigue_UHD.jpg "不同亚种的家燕聚在一起休息")
 
 ---
