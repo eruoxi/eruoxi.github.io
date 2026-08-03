@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月04日：呼呼，太棒了！
+#### 佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国（© mlorenzphotography/Getty Images）
+
+![呼呼，太棒了！](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_800x480.jpg&rf=LaDigue_800x480.jpg "呼呼，太棒了！")
+
+除了南极洲，猫头鹰的足迹遍及各大洲；它们以朝向正前方的双眼、能汇聚声波的扁平脸盘以及敏锐独特的听觉而著称。许多猫头鹰拥有边缘柔软的羽毛，这使它们能够近乎无声地进行捕猎。由于眼球在眼窝内无法转动，它们依靠灵活的颈部来观察周围环境。从森林到沙漠，猫头鹰栖息于多种多样的环境中，在维持生态系统平衡方面发挥着重要作用。
+
+猫头鹰能将头部旋转多达270度，以弥补其眼睛在眼窝中无法转动的缺陷。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8c%ab%e5%a4%b4%e9%b9%b0&form=hpcapt&filters=HpDate:"20260803_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260804_AdorableOwlet"&FORM=HPQUIZ "必应主页测验 2026 8月 4")
+[下载480](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_800x480.jpg&rf=LaDigue_800x480.jpg "佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_1280x720.jpg&rf=LaDigue_1280x720.jpg "佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_UHD.jpg&rf=LaDigue_UHD.jpg "佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国")
+
+---
 ### 08月03日：色彩鲜艳的船只，历久弥新的传统
 #### 马尔萨什洛克港口五彩斑斓的渔船，马耳他（© Klubovy/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣卡塔琳娜拱门，安提瓜，危地马拉")
 [下载1080](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣卡塔琳娜拱门，安提瓜，危地马拉")
 [下载UHD](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_UHD.jpg&rf=LaDigue_UHD.jpg "圣卡塔琳娜拱门，安提瓜，危地马拉")
-
----
-### 07月20日：月瞰寰宇
-#### 月球与地球由阿耳忒弥斯2号机组人员拍摄（© NASA）
-
-![月瞰寰宇](https://cn.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_800x480.jpg&rf=LaDigue_800x480.jpg "月瞰寰宇")
-
-从月球那遍布环形山的表面望去，地球在无垠的黑暗中呈现为一抹微光闪烁的娥眉状——这一罕见的奇观与我们惯常的地面观测视角截然相反。这片由数十亿年撞击作用塑造的荒芜地貌，完整地保存了早期太阳系的演化记录。7月20日是国际月球日，旨在纪念1969年阿波罗11号任务中人类首次踏上月球表面的历史性时刻。该纪念日由联合国于2021年设立，不仅致敬过去的辉煌成就，更聚焦于当下持续不断的月球探测努力。
-
-月球的自转速率与其绕地球公转的速率完全同步，由于这种“同步自转”特性，我们在地球上观测时始终只能看到月球的同一面。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%9c%88%e7%90%83%e6%97%a5&form=hpcapt&filters=HpDate:"20260719_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260720_Artemis"&FORM=HPQUIZ "必应主页测验 2026 7月 20")
-[下载480](https://cn.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_800x480.jpg&rf=LaDigue_800x480.jpg "月球与地球由阿耳忒弥斯2号机组人员拍摄")
-[下载720](https://cn.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_1280x720.jpg&rf=LaDigue_1280x720.jpg "月球与地球由阿耳忒弥斯2号机组人员拍摄")
-[下载1080](https://cn.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "月球与地球由阿耳忒弥斯2号机组人员拍摄")
-[下载UHD](https://cn.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_UHD.jpg&rf=LaDigue_UHD.jpg "月球与地球由阿耳忒弥斯2号机组人员拍摄")
 
 ---
