@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月05日：秘境之门，匠心传世
+#### 非斯皇宫装饰华丽的大门，摩洛哥（© cgst26/Shutterstock）
+
+![秘境之门，匠心传世](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_800x480.jpg&rf=LaDigue_800x480.jpg "秘境之门，匠心传世")
+
+在摩洛哥的非斯，被称为“达尔·马赫赞”的王宫自13世纪以来一直是权力的中心；当时，摩洛哥的统治者围绕它建立了一座设防的皇城。其高墙之内，花园、庭院、清真寺和皇家住所错落分布于广阔的建筑群中，且至今仍供国王使用，使其既是历史古迹，又是仍在运作的活跃宫廷。
+
+非斯皇宫那七扇标志性的青铜大门，至今仍由工匠使用柠檬汁和传统技艺进行精细的手工抛光，以保持其灿烂如金的光泽。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%9d%9e%e6%96%af%e7%9a%87%e5%ae%ab&form=hpcapt&filters=HpDate:"20260804_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260805_FezMorocco"&FORM=HPQUIZ "必应主页测验 2026 8月 5")
+[下载480](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_800x480.jpg&rf=LaDigue_800x480.jpg "非斯皇宫装饰华丽的大门，摩洛哥")
+[下载720](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_1280x720.jpg&rf=LaDigue_1280x720.jpg "非斯皇宫装饰华丽的大门，摩洛哥")
+[下载1080](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "非斯皇宫装饰华丽的大门，摩洛哥")
+[下载UHD](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_UHD.jpg&rf=LaDigue_UHD.jpg "非斯皇宫装饰华丽的大门，摩洛哥")
+
+---
 ### 08月04日：呼呼，太棒了！
 #### 佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国（© mlorenzphotography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CoralAwareness_ZH-CN1621627126_1280x720.jpg&rf=LaDigue_1280x720.jpg "珊瑚礁与海滩在拉贾安帕特，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.CoralAwareness_ZH-CN1621627126_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "珊瑚礁与海滩在拉贾安帕特，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.CoralAwareness_ZH-CN1621627126_UHD.jpg&rf=LaDigue_UHD.jpg "珊瑚礁与海滩在拉贾安帕特，印度尼西亚")
-
----
-### 07月21日：拱影寻踪
-#### 圣卡塔琳娜拱门，安提瓜，危地马拉（© Filippo Maria Bianchi/Getty Images）
-
-![拱影寻踪](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_800x480.jpg&rf=LaDigue_800x480.jpg "拱影寻踪")
-
-有些建筑的初衷并非为了引人注目，但时间却另有安排。清晨时分，圣卡塔琳娜拱门在危地马拉安提瓜的街道上熠熠生辉，其鲜艳的黄色外墙精准地捕捉着晨光，石板路向前延伸，远方的水火山拔地而起。这座拱门建于17世纪，旨在解决一个实际问题：幽居修女需要在修道院建筑之间穿行，以符合宗教誓约中不被街道行人直视的要求。正是这种对隐私的克制，而非对景观的追求，造就了如今中美洲出镜率最高的地标之一。讽刺的是，这种反差随时间的沉淀而愈发迷人。
-
-这座标志性的法制时钟于19世纪30年代被增设，至今仍需每三天人工手动上弦一次，在圣卡塔琳娜拱门，安提瓜，危地马拉。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%b1%e5%9c%b0%e9%a9%ac%e6%8b%89%e5%9c%a3%e5%8d%a1%e5%a1%94%e7%90%b3%e5%a8%9c%e6%8b%b1%e9%97%a8&form=hpcapt&filters=HpDate:"20260720_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260721_SantaCatalina"&FORM=HPQUIZ "必应主页测验 2026 7月 21")
-[下载480](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_800x480.jpg&rf=LaDigue_800x480.jpg "圣卡塔琳娜拱门，安提瓜，危地马拉")
-[下载720](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣卡塔琳娜拱门，安提瓜，危地马拉")
-[下载1080](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣卡塔琳娜拱门，安提瓜，危地马拉")
-[下载UHD](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_UHD.jpg&rf=LaDigue_UHD.jpg "圣卡塔琳娜拱门，安提瓜，危地马拉")
 
 ---
