@@ -1,4 +1,38 @@
 ## Bing Wallpaper(最近15天)
+### 08月08日：迈向无限
+#### 蒂斯河畔斯托克顿无限桥，英格兰（© Bahadir Yeniceri/Shutterstock）
+
+![迈向无限](https://cn.bing.com/th?id=OHR.StocktonInfinity_ZH-CN5941379745_800x480.jpg&rf=LaDigue_800x480.jpg "迈向无限")
+
+8月8日，国际无限日让好奇心成为主角。这项庆祝活动的灵感来自横置的数字8——象征永无止境的无限符号。纽约哲学家让-皮埃尔·阿迪·费尼奥于1987年创立这一节日，邀请每个人通过科学、艺术和想象力探索宏大理念。它不只关乎数学，也关乎从浩瀚宇宙到人类创造力边界的种种可能。
+
+由于无法设置中央桥墩，无限桥采用不等高系杆拱和倒置鞍形结构，为180米长的桥身增强刚度。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%97%a0%e9%99%90%e6%97%a5&form=hpcapt&filters=HpDate:"20260807_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260808_StocktonInfinity"&FORM=HPQUIZ "必应主页测验 2026 8月 8")
+[下载480](https://cn.bing.com/th?id=OHR.StocktonInfinity_ZH-CN5941379745_800x480.jpg&rf=LaDigue_800x480.jpg "蒂斯河畔斯托克顿无限桥，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.StocktonInfinity_ZH-CN5941379745_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒂斯河畔斯托克顿无限桥，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.StocktonInfinity_ZH-CN5941379745_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒂斯河畔斯托克顿无限桥，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.StocktonInfinity_ZH-CN5941379745_UHD.jpg&rf=LaDigue_UHD.jpg "蒂斯河畔斯托克顿无限桥，英格兰")
+
+---
+### 08月07日：指引船只穿越历史
+#### 圣胡安岛石灰窑灯塔，华盛顿州，美国（© Edmund Lowe Photography/Shutterstock）
+
+![指引船只穿越历史](https://cn.bing.com/th?id=OHR.LimeKiln_ZH-CN5664152522_800x480.jpg&rf=LaDigue_800x480.jpg "指引船只穿越历史")
+
+每年的8月7日是“全国灯塔日”，这一节日旨在颂扬那些数百年来指引船只安全航行于美国沿海的灯塔。这一日期是为了纪念乔治·华盛顿总统签署生效的《1789年灯塔法案》。
+
+石灰窑点州立公园被认为是全球最佳的陆基观鲸地点之一，因为这里的海岸水深急剧下降，使得虎鲸群能够游至非常靠近岩石绝壁的海域。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%9f%b3%e7%81%b0%e7%aa%91%e7%81%af%e5%a1%94&form=hpcapt&filters=HpDate:"20260806_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260807_LimeKiln"&FORM=HPQUIZ "必应主页测验 2026 8月 7")
+[下载480](https://cn.bing.com/th?id=OHR.LimeKiln_ZH-CN5664152522_800x480.jpg&rf=LaDigue_800x480.jpg "圣胡安岛石灰窑灯塔，华盛顿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.LimeKiln_ZH-CN5664152522_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣胡安岛石灰窑灯塔，华盛顿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.LimeKiln_ZH-CN5664152522_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣胡安岛石灰窑灯塔，华盛顿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LimeKiln_ZH-CN5664152522_UHD.jpg&rf=LaDigue_UHD.jpg "圣胡安岛石灰窑灯塔，华盛顿州，美国")
+
+---
 ### 08月06日：生死渡口，勇者的史诗
 #### 马赛马拉迁徙的角马群横渡马拉河, 肯尼亚（© Manoj Shah/Getty Images）
 
@@ -218,39 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_1280x720.jpg&rf=LaDigue_1280x720.jpg "大教堂海滩，加利西亚，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大教堂海滩，加利西亚，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_UHD.jpg&rf=LaDigue_UHD.jpg "大教堂海滩，加利西亚，西班牙")
-
----
-### 07月24日：缤纷多彩的一家人
-#### 美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔（© Tui De Roy/Nature Picture Library）
-
-![缤纷多彩的一家人](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_ZH-CN1152519387_800x480.jpg&rf=LaDigue_800x480.jpg "缤纷多彩的一家人")
-
-除了引人注目的体色，栖息在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔的美洲红鹳还以其高度同步的求偶仪式而闻名。数百只红鹳会参与一场极具仪式感的“集体舞”，它们整齐划一地行进，并有节奏地左右摆动头部以吸引配偶。这种集体行为确保了整个集群能在同一时间进行繁殖，从而在群岛严酷的火山地貌中最大限度地提高雏鸟的存活率。
-
-红鹳双亲均能分泌“嗉囊乳”来哺育雏鸟，这种营养丰富的物质类似于哺乳动物的乳汁，在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e6%b4%b2%e7%ba%a2%e9%b9%b3&form=hpcapt&filters=HpDate:"20260723_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260724_GalapagosFlamingos"&FORM=HPQUIZ "必应主页测验 2026 7月 24")
-[下载480](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_ZH-CN1152519387_800x480.jpg&rf=LaDigue_800x480.jpg "美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔")
-[下载720](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_ZH-CN1152519387_1280x720.jpg&rf=LaDigue_1280x720.jpg "美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔")
-[下载1080](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_ZH-CN1152519387_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔")
-[下载UHD](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_ZH-CN1152519387_UHD.jpg&rf=LaDigue_UHD.jpg "美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔")
-
----
-### 07月23日：瓣叠交响
-#### 粉红色大丽花（© Harald Biebel/Getty Images）
-
-![瓣叠交响](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_800x480.jpg&rf=LaDigue_800x480.jpg "瓣叠交响")
-
-有些花卉静谧地装点着花园，而大丽花（Dahlias）的登场则宛如领衔主演。这些原产于墨西哥的菊科（Asteraceae）成员拥有超过5.7万个培育品种，这在很大程度上归功于其独特的遗传特征。大丽花是典型的八倍体（Octoploids），意味着它们拥有八组染色体，这种多倍体特征使其花朵形态极具多样性，既有如纽扣般娇小的品种，也有直径达14英寸的巨型花冠。
-
-大丽花的一个阿兹特克语名称常被译为“水管花”，这源于该植物细长且中空的茎部特征，这种中空茎在古代曾被用作输送水分的管道。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%a7%e4%b8%bd%e8%8a%b1%e5%b1%9e%e6%a4%8d%e7%89%a9&form=hpcapt&filters=HpDate:"20260722_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260723_PinkDahlia"&FORM=HPQUIZ "必应主页测验 2026 7月 23")
-[下载480](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_800x480.jpg&rf=LaDigue_800x480.jpg "粉红色大丽花")
-[下载720](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1280x720.jpg&rf=LaDigue_1280x720.jpg "粉红色大丽花")
-[下载1080](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "粉红色大丽花")
-[下载UHD](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_UHD.jpg&rf=LaDigue_UHD.jpg "粉红色大丽花")
 
 ---
