@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月09日：身份认同的建筑表达
+#### 让-马里·吉巴乌文化中心，新喀里多尼亚（© Fabien Astre/Alamy）
+
+![身份认同的建筑表达](https://cn.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_800x480.jpg&rf=LaDigue_800x480.jpg "身份认同的建筑表达")
+
+今天，世界土著人民国际日邀请我们更深入地了解那些历史远早于文字记载的社群。联合国于1994年设立这一纪念日，并于1995年首次举行活动；日期所纪念的是1982年一次致力于保护全球土著人民权利的重要会议。如今，约90个国家生活着超过4.76亿土著人民，他们延续着数千种文化，也传承着全球约7,000种语言中的大多数。
+
+文化中心的十座高耸“构筑体”高度各异，其中最高的一座在新喀里多尼亚的景观中高达28米。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%9c%9f%e8%91%97%e4%ba%ba%e6%b0%91%e5%9b%bd%e9%99%85%e6%97%a5&form=hpcapt&filters=HpDate:"20260808_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260809_JMTjibaou"&FORM=HPQUIZ "必应主页测验 2026 8月 9")
+[下载480](https://cn.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_800x480.jpg&rf=LaDigue_800x480.jpg "让-马里·吉巴乌文化中心，新喀里多尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_1280x720.jpg&rf=LaDigue_1280x720.jpg "让-马里·吉巴乌文化中心，新喀里多尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "让-马里·吉巴乌文化中心，新喀里多尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_UHD.jpg&rf=LaDigue_UHD.jpg "让-马里·吉巴乌文化中心，新喀里多尼亚")
+
+---
 ### 08月08日：迈向无限
 #### 蒂斯河畔斯托克顿无限桥，英格兰（© Bahadir Yeniceri/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_1280x720.jpg&rf=LaDigue_1280x720.jpg "红树上的日出在小猪群岛，洪都拉斯")
 [下载1080](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红树上的日出在小猪群岛，洪都拉斯")
 [下载UHD](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_UHD.jpg&rf=LaDigue_UHD.jpg "红树上的日出在小猪群岛，洪都拉斯")
-
----
-### 07月25日：加境幽廊
-#### 大教堂海滩，加利西亚，西班牙（© Tui De Roy/Amazing Aerial Agency/Abobe Stock）
-
-![加境幽廊](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_800x480.jpg&rf=LaDigue_800x480.jpg "加境幽廊")
-
-在西班牙遥远的西北部，加利西亚与大西洋交汇。漫长的海岸线在海浪的强力冲刷下，形成了由悬崖、内湾和海蚀平台交织而成的地貌。雨水充沛的山丘与密林向海绵延，这种景观带有鲜明的大西洋气候基调，使其在感官上更接近于爱尔兰，而非人们惯常印象中的西班牙南部。
-
-除了因酷似教堂的拱门而闻名外，该地标的官方定名为“圣水海滩”，在大教堂海滩，加利西亚，西班牙。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e5%8a%a0%e5%88%a9%e8%a5%bf%e4%ba%9a&form=hpcapt&filters=HpDate:"20260724_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260725_GaliciaBeach"&FORM=HPQUIZ "必应主页测验 2026 7月 25")
-[下载480](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_800x480.jpg&rf=LaDigue_800x480.jpg "大教堂海滩，加利西亚，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_1280x720.jpg&rf=LaDigue_1280x720.jpg "大教堂海滩，加利西亚，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大教堂海滩，加利西亚，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_UHD.jpg&rf=LaDigue_UHD.jpg "大教堂海滩，加利西亚，西班牙")
 
 ---
