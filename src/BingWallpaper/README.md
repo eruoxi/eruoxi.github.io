@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月10日：两片沙漠交汇之地
+#### 约书亚树国家公园，加利福尼亚州，美国（© JJ Landscapes/Getty Images）
+
+![两片沙漠交汇之地](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_800x480.jpg&rf=LaDigue_800x480.jpg "两片沙漠交汇之地")
+
+两片大沙漠交汇之处，约书亚树国家公园展现出由风、时间和极端环境塑造的冷峻迷人景观。在南加利福尼亚州，海拔较高的莫哈韦沙漠与更炎热、地势更低的科罗拉多沙漠相融，形成独特的生态系统组合与非凡的生物多样性。
+
+约书亚树地区的二长花岗岩最初是熔融岩体，在一亿多年前于地下冷却形成。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a6%e4%b9%a6%e4%ba%9a%e6%a0%91%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260809_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260810_SandPath"&FORM=HPQUIZ "必应主页测验 2026 8月 10")
+[下载480](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_800x480.jpg&rf=LaDigue_800x480.jpg "约书亚树国家公园，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_1280x720.jpg&rf=LaDigue_1280x720.jpg "约书亚树国家公园，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "约书亚树国家公园，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_UHD.jpg&rf=LaDigue_UHD.jpg "约书亚树国家公园，加利福尼亚州，美国")
+
+---
 ### 08月09日：身份认同的建筑表达
 #### 让-马里·吉巴乌文化中心，新喀里多尼亚（© Fabien Astre/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_UHD.jpg&rf=LaDigue_UHD.jpg "蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国")
-
----
-### 07月26日：海陆际会，生机肇始
-#### 红树上的日出在小猪群岛，洪都拉斯（© Mac Stone/Tandem Stills + Motion）
-
-![海陆际会，生机肇始](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_800x480.jpg&rf=LaDigue_800x480.jpg "海陆际会，生机肇始")
-
-在洪都拉斯小猪群岛的日出时分——那是掩映在红树林湿地中低矮的沿海小岛——一株红树将其交错的根系挺立于如镜的水面之上。这幅动人的画面精准捕捉了7月26日所庆祝的主题：保护红树林生态系统国际日，该节日的设立旨在呼吁全球关注这些至关重要的海岸森林。
-
-红树具有特殊的“胎生”特性，其种子在脱离母树掉入潮汐前就已在枝头萌发，在小猪群岛，洪都拉斯。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bf%9d%e6%8a%a4%e7%ba%a2%e6%a0%91%e6%9e%97%e7%94%9f%e6%80%81%e7%b3%bb%e7%bb%9f%e5%9b%bd%e9%99%85%e6%97%a5&form=hpcapt&filters=HpDate:"20260725_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260726_RedMangroveSunrise"&FORM=HPQUIZ "必应主页测验 2026 7月 26")
-[下载480](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_800x480.jpg&rf=LaDigue_800x480.jpg "红树上的日出在小猪群岛，洪都拉斯")
-[下载720](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_1280x720.jpg&rf=LaDigue_1280x720.jpg "红树上的日出在小猪群岛，洪都拉斯")
-[下载1080](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红树上的日出在小猪群岛，洪都拉斯")
-[下载UHD](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_UHD.jpg&rf=LaDigue_UHD.jpg "红树上的日出在小猪群岛，洪都拉斯")
 
 ---
