@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月12日：值得守护的巨兽
+#### 安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚（© Ibrahim Suha Derbent/Getty Images）
+
+![值得守护的巨兽](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_800x480.jpg&rf=LaDigue_800x480.jpg "值得守护的巨兽")
+
+8月12日世界大象日，让我们停下脚步，不仅思考这些动物的庞大体型，也体会它们生命的深度。在图片所示的肯尼亚安博塞利国家公园等地，非洲草原象群并非只是穿越景观；它们还会记住这片土地。母象首领带领家族往返于不同水源，行进路线既由地形塑造，也由记忆指引。
+
+2024年的一项研究利用在安博塞利录制的叫声发现，非洲象会用类似个体名字的叫声彼此称呼。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%a4%a7%e8%b1%a1%e6%97%a5&form=hpcapt&filters=HpDate:"20260811_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260812_ElephantDay"&FORM=HPQUIZ "必应主页测验 2026 8月 12")
+[下载480](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_800x480.jpg&rf=LaDigue_800x480.jpg "安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_1280x720.jpg&rf=LaDigue_1280x720.jpg "安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_UHD.jpg&rf=LaDigue_UHD.jpg "安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚")
+
+---
 ### 08月11日：绚丽多彩的哥本哈根
 #### 哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦（© emicristea/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_1280x720.jpg&rf=LaDigue_1280x720.jpg "孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_UHD.jpg&rf=LaDigue_UHD.jpg "孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度")
-
----
-### 07月28日：生机律动，恒久之衡
-#### 一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国（© Ian Shive/Tandem Stills + Motion）
-
-![生机律动，恒久之衡](https://cn.bing.com/th?id=OHR.ChannelKelp_ZH-CN8732903732_800x480.jpg&rf=LaDigue_800x480.jpg "生机律动，恒久之衡")
-
-在美国加利福尼亚州，海峡群岛国家公园，安纳卡帕岛附近，海洋孕育着属于自己的森林。在被称为“北美洲加拉帕戈斯”的海峡群岛国家公园内，巨藻的长度可超过 100 英尺，它们通过充满空气的气囊在水中形成具有浮力的丝带，并由底部的根状固着器锚定在海床之上。
-
-海獭是此处的关键种；通过捕食海胆，它们能防止海藻林被过度啃食，在安纳卡帕岛附近，海峡群岛国家公园，美国。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e8%87%aa%e7%84%b6%e4%bf%9d%e6%8a%a4%e6%97%a5&form=hpcapt&filters=HpDate:"20260727_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260728_ChannelKelp"&FORM=HPQUIZ "必应主页测验 2026 7月 28")
-[下载480](https://cn.bing.com/th?id=OHR.ChannelKelp_ZH-CN8732903732_800x480.jpg&rf=LaDigue_800x480.jpg "一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.ChannelKelp_ZH-CN8732903732_1280x720.jpg&rf=LaDigue_1280x720.jpg "一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.ChannelKelp_ZH-CN8732903732_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ChannelKelp_ZH-CN8732903732_UHD.jpg&rf=LaDigue_UHD.jpg "一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国")
 
 ---
