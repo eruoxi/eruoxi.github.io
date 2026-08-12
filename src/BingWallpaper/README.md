@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月13日：许个愿吧
+#### 泰德天文台上空的英仙座流星，加那利群岛，西班牙（© Westend61/Getty Images）
+
+![许个愿吧](https://cn.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_800x480.jpg&rf=LaDigue_800x480.jpg "许个愿吧")
+
+并非所有夏日传统都发生在地面。有些在数百英里高空上演，每次划过一颗流星。英仙座流星雨每年从7月中旬持续至8月下旬，并在8月12日至13日前后达到峰值。世界大部分地区都能看到它；在黑暗天空下，每小时往往会出现数十颗流星。想象自己抬头仰望，一道接一道亮光划过。数到多少颗时，你会忘记数目？每道亮光都来自斯威夫特-塔特尔彗星散落的碎屑，地球穿过其尘埃带时便形成流星。它们看起来像是从英仙座辐射而出。
+
+作为英仙座流星雨母体的斯威夫特-塔特尔彗星，绕太阳运行一周约需133年。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8b%b1%e4%bb%99%e5%ba%a7%e6%b5%81%e6%98%9f%e9%9b%a8&form=hpcapt&filters=HpDate:"20260812_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260813_PerseidasTenerife"&FORM=HPQUIZ "必应主页测验 2026 8月 13")
+[下载480](https://cn.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_800x480.jpg&rf=LaDigue_800x480.jpg "泰德天文台上空的英仙座流星，加那利群岛，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_1280x720.jpg&rf=LaDigue_1280x720.jpg "泰德天文台上空的英仙座流星，加那利群岛，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰德天文台上空的英仙座流星，加那利群岛，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_UHD.jpg&rf=LaDigue_UHD.jpg "泰德天文台上空的英仙座流星，加那利群岛，西班牙")
+
+---
 ### 08月12日：值得守护的巨兽
 #### 安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚（© Ibrahim Suha Derbent/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_1280x720.jpg&rf=LaDigue_1280x720.jpg "在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_UHD.jpg&rf=LaDigue_UHD.jpg "在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国")
-
----
-### 07月29日：虎啸归来，锐爪重临
-#### 孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度（© Archna Singh/Shutterstock）
-
-![虎啸归来，锐爪重临](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_800x480.jpg&rf=LaDigue_800x480.jpg "虎啸归来，锐爪重临")
-
-在全球老虎日这一天，这群孟加拉虎迈着自信的步伐走过印度，拉贾斯坦邦，兰坦博尔国家公园，展现出顶级掠食者对自身在食物链中地位的精准认知。孟加拉虎兼具隐蔽性与力量：成年个体的体长从鼻尖到尾端可超过10英尺，体重约500磅，行走时却能悄无声息。在视觉可见度是一把“双刃剑”的自然生境中，它们的斑纹发挥了关键作用，通过复杂的图案模式在环境中进行伪装，使猎物难以辨识其身形。
-
-老虎是卓越的游泳者，经常通过泡水来降温，这在大多数猫科动物中极为罕见，在兰坦博尔国家公园，拉贾斯坦邦，印度。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%85%a8%e7%90%83%e8%80%81%e8%99%8e%e6%97%a5&form=hpcapt&filters=HpDate:"20260728_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260729_TigerFamily"&FORM=HPQUIZ "必应主页测验 2026 7月 29")
-[下载480](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_800x480.jpg&rf=LaDigue_800x480.jpg "孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度")
-[下载720](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_1280x720.jpg&rf=LaDigue_1280x720.jpg "孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度")
-[下载1080](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_UHD.jpg&rf=LaDigue_UHD.jpg "孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度")
 
 ---
