@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月14日：为动物脚掌而建，而非行人
+#### 扎克舒夫附近的野生动物通道，波兰（© bbsferrari/Getty Images）
+
+![为动物脚掌而建，而非行人](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_800x480.jpg&rf=LaDigue_800x480.jpg "为动物脚掌而建，而非行人")
+
+道路解决了一个问题，却悄然制造了另一个问题。人类出行速度前所未有地提高，野生动物世代沿用的迁徙路线却被公路切断，导致碰撞事故增加、栖息地破碎化，野生动物种群彼此隔绝。为应对这一挑战，人们建造了称为生态桥的野生动物通道：这些桥梁或隧道旨在重新连接栖息地，让动物安全穿越繁忙道路。最早的一些现代案例于20世纪50年代出现在法国，这一理念很快传遍欧洲。荷兰等国通过建造覆盖土壤及草本、灌木和乔木等本土植被的宽阔绿色桥梁，推动了生态桥设计的完善。
+
+20世纪50年代，法国首次出现了野生动物通道，为动物们在被公路分割的新景观中开辟了一条生路。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%87%8e%e7%94%9f%e5%8a%a8%e7%89%a9%e9%80%9a%e9%81%93&form=hpcapt&filters=HpDate:"20260813_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260814_WildlifeCrossingPoland"&FORM=HPQUIZ "必应主页测验 2026 8月 14")
+[下载480](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_800x480.jpg&rf=LaDigue_800x480.jpg "扎克舒夫附近的野生动物通道，波兰")
+[下载720](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_1280x720.jpg&rf=LaDigue_1280x720.jpg "扎克舒夫附近的野生动物通道，波兰")
+[下载1080](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "扎克舒夫附近的野生动物通道，波兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_UHD.jpg&rf=LaDigue_UHD.jpg "扎克舒夫附近的野生动物通道，波兰")
+
+---
 ### 08月13日：许个愿吧
 #### 泰德天文台上空的英仙座流星，加那利群岛，西班牙（© Westend61/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_1280x720.jpg&rf=LaDigue_1280x720.jpg "鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_UHD.jpg&rf=LaDigue_UHD.jpg "鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国")
-
----
-### 07月30日：旷野无声，活态传承之境
-#### 在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国（© Westend61/Adobe Stock）
-
-![旷野无声，活态传承之境](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_800x480.jpg&rf=LaDigue_800x480.jpg "旷野无声，活态传承之境")
-
-在纳瓦霍族保留地，亚利桑那州与犹他州交界处，美国，有些景观举世闻名，而纪念碑谷则堪称传奇。这一沙漠奇观横跨州界，其地貌由高耸的砂岩孤峰塑造而成，这些孤峰从谷底拔地而起，高度可达1000英尺。在纳瓦霍语中，该地区被称为 Tsé Bii' Ndzisgaii（意为“岩石之谷”），它将壮丽的地质构造与鲜活的民族文化完美融合。
-
-阿甘结束其跨国长跑的著名地点位于163号美国国道，这里拥有俯瞰山谷的最具标志性视野，在纪念碑谷，纳瓦霍族保留地，美国。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%aa%e5%bf%b5%e7%a2%91%e8%b0%b7&form=hpcapt&filters=HpDate:"20260729_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260730_NavajoNation"&FORM=HPQUIZ "必应主页测验 2026 7月 30")
-[下载480](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_800x480.jpg&rf=LaDigue_800x480.jpg "在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_1280x720.jpg&rf=LaDigue_1280x720.jpg "在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_UHD.jpg&rf=LaDigue_UHD.jpg "在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国")
 
 ---
