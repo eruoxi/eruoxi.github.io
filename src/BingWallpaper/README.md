@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月15日：绝妙的平衡术
+#### 圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国（© Westend61/Getty Images）
+
+![绝妙的平衡术](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_800x480.jpg&rf=LaDigue_800x480.jpg "绝妙的平衡术")
+
+大自然善于平衡看似不可能之物。在新墨西哥州阿什斯利帕荒野地，高耸的石林以纤细石柱托起厚重岩帽。约7,500万年来，风、水和冰将这片偏远的恶地雕刻成一座露天展馆，景象更像异星，而非地球。
+
+阿什斯勒帕保存着全球最丰富的晚白垩世哺乳动物、爬行动物、植物和鱼类化石记录之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e4%bb%80%e6%96%af%e5%88%a9%e5%b8%95%e8%8d%92%e9%87%8e%e5%9c%b0&form=hpcapt&filters=HpDate:"20260814_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260815_ValleyDreams"&FORM=HPQUIZ "必应主页测验 2026 8月 15")
+[下载480](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_800x480.jpg&rf=LaDigue_800x480.jpg "圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_UHD.jpg&rf=LaDigue_UHD.jpg "圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国")
+
+---
 ### 08月14日：为动物脚掌而建，而非行人
 #### 扎克舒夫附近的野生动物通道，波兰（© bbsferrari/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_1280x720.jpg&rf=LaDigue_1280x720.jpg "大批熔岩流涌入大洋，大岛，夏威夷州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大批熔岩流涌入大洋，大岛，夏威夷州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_UHD.jpg&rf=LaDigue_UHD.jpg "大批熔岩流涌入大洋，大岛，夏威夷州，美国")
-
----
-### 07月31日：穿越时光的足迹
-#### 鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国（© Eifel Kreutz/Getty Images）
-
-![穿越时光的足迹](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_800x480.jpg&rf=LaDigue_800x480.jpg "穿越时光的足迹")
-
-有些铁路会退出历史舞台，而“弗吉尼亚爬山虎步道”则实现了华丽转身。这条步道全长34.3英里，横贯弗吉尼亚州西南部，沿用了一条昔日的铁路线——该线路曾用于在阿巴拉契亚山脉间运输木材和铁矿石。步道那独特的名字，源自20世纪初那些在陡峭坡道上艰难爬行的蒸汽机车。
-
-这条步道的英文名字“Virginia creeper”（弗吉尼亚爬山虎）具有双重寓意：一是指沿铁轨茂盛生长的当地原生五叶爬山虎植物，二是指20世纪初蒸汽机车在攀爬陡峭山坡时如蜗牛爬行般缓慢的行驶速度。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%bc%97%e5%90%89%e5%b0%bc%e4%ba%9a%e7%88%ac%e5%b1%b1%e8%99%8e%e6%ad%a5%e9%81%93&form=hpcapt&filters=HpDate:"20260730_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 7月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260731_VirginiaTrail"&FORM=HPQUIZ "必应主页测验 2026 7月 31")
-[下载480](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_800x480.jpg&rf=LaDigue_800x480.jpg "鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_1280x720.jpg&rf=LaDigue_1280x720.jpg "鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_UHD.jpg&rf=LaDigue_UHD.jpg "鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国")
 
 ---
