@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月16日：天鹅开启传奇之处
+#### 戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰（© Maria Janus/Shutterstock）
+
+![天鹅开启传奇之处](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_800x480.jpg&rf=LaDigue_800x480.jpg "天鹅开启传奇之处")
+
+天鹅、秘密藏身处和中世纪养鱼池有什么共同之处？它们都是罗斯埃里利方济各会修道院遗址故事的一部分。这座保存完好的爱尔兰方济各会修道院建于约1351年，常被称为罗斯修道院（俗称）；不过它从未设过院长，因为它本就不是隐修院。
+
+罗斯埃里利修道院在建立后的一个世纪间逐步扩建，现存塔楼建于1498年。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%88%b1%e5%b0%94%e5%85%b0%e7%bd%97%e6%96%af%c2%b7%e5%9f%83%e9%87%8c%e5%88%a9%e4%bf%ae%e9%81%93%e9%99%a2&form=hpcapt&filters=HpDate:"20260815_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260816_RossErrillyRuins"&FORM=HPQUIZ "必应主页测验 2026 8月 16")
+[下载480](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_800x480.jpg&rf=LaDigue_800x480.jpg "戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰")
+[下载720](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_1280x720.jpg&rf=LaDigue_1280x720.jpg "戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰")
+[下载1080](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_UHD.jpg&rf=LaDigue_UHD.jpg "戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰")
+
+---
 ### 08月15日：绝妙的平衡术
 #### 圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国（© Westend61/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_1280x720.jpg&rf=LaDigue_1280x720.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
 [下载1080](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
 [下载UHD](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_UHD.jpg&rf=LaDigue_UHD.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
-
----
-### 08月01日：基拉韦厄火山的威力
-#### 大批熔岩流涌入大洋，大岛，夏威夷州，美国（© Ken McCurdy/Getty Images）
-
-![基拉韦厄火山的威力](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_800x480.jpg&rf=LaDigue_800x480.jpg "基拉韦厄火山的威力")
-
-大多数地貌的演变历时数千年，而火山却能在短短数小时内重塑地貌——在夏威夷大岛，这一过程至今仍在持续。为了保护这一不断变化的环境及其所蕴含的科学与自然价值，夏威夷火山国家公园于1916年8月1日正式成立。一个多世纪以来，该公园一直致力于保护这片占地超过35万英亩的区域，其中包括火山地貌、原生森林以及各类珍稀野生动植物。
-
-当温度高达约1093摄氏度的熔岩与冰冷的太平洋海水相遇时，会产生被称为“熔岩雾霭”的剧烈化学反应，形成包含盐酸烟雾和微小火山玻璃颗粒的有害气云。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%8f%e5%a8%81%e5%a4%b7%e7%81%ab%e5%b1%b1%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260731_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260801_HawaiiLava"&FORM=HPQUIZ "必应主页测验 2026 8月 1")
-[下载480](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_800x480.jpg&rf=LaDigue_800x480.jpg "大批熔岩流涌入大洋，大岛，夏威夷州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_1280x720.jpg&rf=LaDigue_1280x720.jpg "大批熔岩流涌入大洋，大岛，夏威夷州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大批熔岩流涌入大洋，大岛，夏威夷州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_UHD.jpg&rf=LaDigue_UHD.jpg "大批熔岩流涌入大洋，大岛，夏威夷州，美国")
 
 ---
