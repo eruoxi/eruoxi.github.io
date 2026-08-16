@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月17日：珊瑚礁上的黄金地段
+#### 海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾（© Franco Banfi/Nature Picture Library）
+
+![珊瑚礁上的黄金地段](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_800x480.jpg&rf=LaDigue_800x480.jpg "珊瑚礁上的黄金地段")
+
+地点很重要。看看图片中菲律宾卡比劳岛附近卡比劳附近的灯塔礁的眼斑双锯鱼就知道了。在这片充满饥饿捕食者和激烈竞争的热带水域，它们占据了一块黄金地段：一只拥有数千个微小刺细胞的海葵。
+
+眼斑双锯鱼（俗称“公子小丑鱼”）的学名为 Amphiprion ocellaris；根据世界鱼类数据库（FishBase）的记录，该物种具有 11 根背鳍鳍棘。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%9c%bc%e6%96%91%e5%8f%8c%e9%94%af%e9%b1%bc&form=hpcapt&filters=HpDate:"20260816_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260817_CabilaoClowns"&FORM=HPQUIZ "必应主页测验 2026 8月 17")
+[下载480](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_800x480.jpg&rf=LaDigue_800x480.jpg "海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾")
+[下载720](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_1280x720.jpg&rf=LaDigue_1280x720.jpg "海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾")
+[下载1080](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾")
+[下载UHD](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_UHD.jpg&rf=LaDigue_UHD.jpg "海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾")
+
+---
 ### 08月16日：天鹅开启传奇之处
 #### 戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰（© Maria Janus/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_1280x720.jpg&rf=LaDigue_1280x720.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
 [下载1080](https://cn.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
 [下载UHD](https://cn.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_UHD.jpg&rf=LaDigue_UHD.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
-
----
-### 08月02日：色彩鲜艳的船只，历久弥新的传统
-#### 马尔萨什洛克港口五彩斑斓的渔船，马耳他（© Klubovy/Getty Images）
-
-![色彩鲜艳的船只，历久弥新的传统](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_800x480.jpg&rf=LaDigue_800x480.jpg "色彩鲜艳的船只，历久弥新的传统")
-
-色彩斑斓的“卢祖”（luzzu）——即马耳他的传统渔船——停满了马萨什洛克（Marsaxlokk）那避风港湾的水面；这座村庄坐落于马耳他东南沿海，距离首都瓦莱塔仅需短途车程。作为该国主要的渔业中心之一，这里的生活节奏始终与大海的律动保持着和谐的步调。村庄约有4000名居民，并以其充满活力的滨海区域而闻名——尤其是广受欢迎的周日鱼市，以及每天清晨满载新鲜渔获归来的船只。
-
-鲁佐（Luzzu）渔船船头绘制的双眼被称为“荷鲁斯之眼”或“奥西里斯之眼”，这一传统源自古腓尼基和古埃及，代代相传，旨在驱散恶灵并为渔民带来好运。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e8%80%b3%e4%bb%96%e9%a9%ac%e5%b0%94%e8%90%a8%e4%bb%80%e6%b4%9b%e5%85%8b&form=hpcapt&filters=HpDate:"20260801_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260802_HelsinkiBlue"&FORM=HPQUIZ "必应主页测验 2026 8月 2")
-[下载480](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_800x480.jpg&rf=LaDigue_800x480.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
-[下载720](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_1280x720.jpg&rf=LaDigue_1280x720.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
-[下载1080](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
-[下载UHD](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_UHD.jpg&rf=LaDigue_UHD.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
 
 ---
