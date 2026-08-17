@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月18日：星形城市的几何之美
+#### 弗留利要塞城市帕尔马诺瓦航拍图，意大利（© Riccardo Saponi/Getty Images）
+
+![星形城市的几何之美](https://cn.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_800x480.jpg&rf=LaDigue_800x480.jpg "星形城市的几何之美")
+
+从空中俯瞰，帕尔马诺瓦与其说是一座城镇，不如说是一颗精心绘制、嵌入意大利弗留利-威尼斯朱利亚平原的星。威尼斯共和国于1593年建立这座要塞城市，其设计兼顾防御、秩序与宏伟观感。街道从中央广场向外辐射，城墙则构成精确的九角星形。这种几何形态绝非偶然。帕尔马诺瓦成为近代早期军事建筑最具影响力的典范之一。其同心式防御工事最初由威尼斯修建，后来在拿破仑时期得到加固和扩建。
+
+帕尔马诺瓦所属的联合国教科文组织世界遗产由六个组成部分构成，横跨三国一千多公里。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e5%b8%95%e5%b0%94%e9%a9%ac%e8%af%ba%e7%93%a6&form=hpcapt&filters=HpDate:"20260817_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260818_Palmanova"&FORM=HPQUIZ "必应主页测验 2026 8月 18")
+[下载480](https://cn.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_800x480.jpg&rf=LaDigue_800x480.jpg "弗留利要塞城市帕尔马诺瓦航拍图，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_1280x720.jpg&rf=LaDigue_1280x720.jpg "弗留利要塞城市帕尔马诺瓦航拍图，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "弗留利要塞城市帕尔马诺瓦航拍图，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_UHD.jpg&rf=LaDigue_UHD.jpg "弗留利要塞城市帕尔马诺瓦航拍图，意大利")
+
+---
 ### 08月17日：珊瑚礁上的黄金地段
 #### 海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾（© Franco Banfi/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_1280x720.jpg&rf=LaDigue_1280x720.jpg "佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_UHD.jpg&rf=LaDigue_UHD.jpg "佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国")
-
----
-### 08月03日：色彩鲜艳的船只，历久弥新的传统
-#### 马尔萨什洛克港口五彩斑斓的渔船，马耳他（© Klubovy/Getty Images）
-
-![色彩鲜艳的船只，历久弥新的传统](https://cn.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_800x480.jpg&rf=LaDigue_800x480.jpg "色彩鲜艳的船只，历久弥新的传统")
-
-色彩斑斓的“卢祖”（luzzu）——即马耳他的传统渔船——停满了马萨什洛克（Marsaxlokk）那避风港湾的水面；这座村庄坐落于马耳他东南沿海，距离首都瓦莱塔仅需短途车程。作为该国主要的渔业中心之一，这里的生活节奏始终与大海的律动保持着和谐的步调。村庄约有4000名居民，并以其充满活力的滨海区域而闻名——尤其是广受欢迎的周日鱼市，以及每天清晨满载新鲜渔获归来的船只。
-
-鲁佐（Luzzu）渔船船头绘制的双眼被称为“荷鲁斯之眼”或“奥西里斯之眼”，这一传统源自古腓尼基和古埃及，代代相传，旨在驱散恶灵并为渔民带来好运。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e8%80%b3%e4%bb%96%e9%a9%ac%e5%b0%94%e8%90%a8%e4%bb%80%e6%b4%9b%e5%85%8b&form=hpcapt&filters=HpDate:"20260802_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260803_BoatsMalta"&FORM=HPQUIZ "必应主页测验 2026 8月 3")
-[下载480](https://cn.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_800x480.jpg&rf=LaDigue_800x480.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
-[下载720](https://cn.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_1280x720.jpg&rf=LaDigue_1280x720.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
-[下载1080](https://cn.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
-[下载UHD](https://cn.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_UHD.jpg&rf=LaDigue_UHD.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
 
 ---
