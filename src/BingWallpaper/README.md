@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月19日：浪潮间的通道
+#### 怀特克利夫公园，西温哥华，加拿大（© Aolin Chen/Getty Images）
+
+![浪潮间的通道](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_800x480.jpg&rf=LaDigue_800x480.jpg "浪潮间的通道")
+
+通往此处的最佳路径并非由混凝土铺就。每当退潮时，一条岩石小径便会显露出来，连接着加拿大西温哥华的怀特克利夫公园（Whytecliff Park）与怀特小岛（Whyte Islet）。数小时后，海水会悄然漫过这条通道，将“把握时机”也变成了体验的一部分。这片海岸线吸引着一代又一代的游客：潮汐开辟了道路，而湿滑的岩石则让人心存敬畏；作为回报，你将收获回望海滩与格伦伊格尔斯（Gleneagles）山坡民居时的壮丽景致。
+
+怀特克利夫公园于1993年成为加拿大首个咸水海洋保护区，为近岸栖息地提供保护。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%80%80%e7%89%b9%e5%85%8b%e5%88%a9%e5%a4%ab%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260818_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260819_WhyteCliffP"&FORM=HPQUIZ "必应主页测验 2026 8月 19")
+[下载480](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_800x480.jpg&rf=LaDigue_800x480.jpg "怀特克利夫公园，西温哥华，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_1280x720.jpg&rf=LaDigue_1280x720.jpg "怀特克利夫公园，西温哥华，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "怀特克利夫公园，西温哥华，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_UHD.jpg&rf=LaDigue_UHD.jpg "怀特克利夫公园，西温哥华，加拿大")
+
+---
 ### 08月18日：星形城市的几何之美
 #### 弗留利要塞城市帕尔马诺瓦航拍图，意大利（© Riccardo Saponi/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_1280x720.jpg&rf=LaDigue_1280x720.jpg "非斯皇宫装饰华丽的大门，摩洛哥")
 [下载1080](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "非斯皇宫装饰华丽的大门，摩洛哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_UHD.jpg&rf=LaDigue_UHD.jpg "非斯皇宫装饰华丽的大门，摩洛哥")
-
----
-### 08月04日：呼呼，太棒了！
-#### 佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国（© mlorenzphotography/Getty Images）
-
-![呼呼，太棒了！](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_800x480.jpg&rf=LaDigue_800x480.jpg "呼呼，太棒了！")
-
-除了南极洲，猫头鹰的足迹遍及各大洲；它们以朝向正前方的双眼、能汇聚声波的扁平脸盘以及敏锐独特的听觉而著称。许多猫头鹰拥有边缘柔软的羽毛，这使它们能够近乎无声地进行捕猎。由于眼球在眼窝内无法转动，它们依靠灵活的颈部来观察周围环境。从森林到沙漠，猫头鹰栖息于多种多样的环境中，在维持生态系统平衡方面发挥着重要作用。
-
-猫头鹰能将头部旋转多达270度，以弥补其眼睛在眼窝中无法转动的缺陷。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8c%ab%e5%a4%b4%e9%b9%b0&form=hpcapt&filters=HpDate:"20260803_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260804_AdorableOwlet"&FORM=HPQUIZ "必应主页测验 2026 8月 4")
-[下载480](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_800x480.jpg&rf=LaDigue_800x480.jpg "佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_1280x720.jpg&rf=LaDigue_1280x720.jpg "佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_UHD.jpg&rf=LaDigue_UHD.jpg "佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国")
 
 ---
