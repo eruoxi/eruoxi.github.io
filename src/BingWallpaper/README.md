@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月20日：鲸群之声
+#### 林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国（© John Hyde/Alamy）
+
+![鲸群之声](https://cn.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_800x480.jpg&rf=LaDigue_800x480.jpg "鲸群之声")
+
+在阿拉斯加东南部白雪覆盖的奇尔卡特山脉映衬下，一头虎鲸浮出林恩运河水面。虎鲸是海豚科体型最大的成员，也是海洋中最具辨识度的捕食者之一。阿拉斯加内湾航道寒冷且营养丰富的水域提供了充足的觅食地，既维系鲑鱼洄游，也滋养种类繁多的海洋生物，为这些非凡动物提供支持。
+
+成年雄性虎鲸的背鳍可高达约6英尺，明显高于成年雌性虎鲸的背鳍。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%99%8e%e9%b2%b8&form=hpcapt&filters=HpDate:"20260819_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260820_LynnCanalOrca"&FORM=HPQUIZ "必应主页测验 2026 8月 20")
+[下载480](https://cn.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_800x480.jpg&rf=LaDigue_800x480.jpg "林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_1280x720.jpg&rf=LaDigue_1280x720.jpg "林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_UHD.jpg&rf=LaDigue_UHD.jpg "林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国")
+
+---
 ### 08月19日：浪潮间的通道
 #### 怀特克利夫公园，西温哥华，加拿大（© Aolin Chen/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_1280x720.jpg&rf=LaDigue_1280x720.jpg "马赛马拉迁徙的角马群横渡马拉河, 肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉迁徙的角马群横渡马拉河, 肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉迁徙的角马群横渡马拉河, 肯尼亚")
-
----
-### 08月05日：秘境之门，匠心传世
-#### 非斯皇宫装饰华丽的大门，摩洛哥（© cgst26/Shutterstock）
-
-![秘境之门，匠心传世](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_800x480.jpg&rf=LaDigue_800x480.jpg "秘境之门，匠心传世")
-
-在摩洛哥的非斯，被称为“达尔·马赫赞”的王宫自13世纪以来一直是权力的中心；当时，摩洛哥的统治者围绕它建立了一座设防的皇城。其高墙之内，花园、庭院、清真寺和皇家住所错落分布于广阔的建筑群中，且至今仍供国王使用，使其既是历史古迹，又是仍在运作的活跃宫廷。
-
-非斯皇宫那七扇标志性的青铜大门，至今仍由工匠使用柠檬汁和传统技艺进行精细的手工抛光，以保持其灿烂如金的光泽。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%9d%9e%e6%96%af%e7%9a%87%e5%ae%ab&form=hpcapt&filters=HpDate:"20260804_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260805_FezMorocco"&FORM=HPQUIZ "必应主页测验 2026 8月 5")
-[下载480](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_800x480.jpg&rf=LaDigue_800x480.jpg "非斯皇宫装饰华丽的大门，摩洛哥")
-[下载720](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_1280x720.jpg&rf=LaDigue_1280x720.jpg "非斯皇宫装饰华丽的大门，摩洛哥")
-[下载1080](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "非斯皇宫装饰华丽的大门，摩洛哥")
-[下载UHD](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_UHD.jpg&rf=LaDigue_UHD.jpg "非斯皇宫装饰华丽的大门，摩洛哥")
 
 ---
