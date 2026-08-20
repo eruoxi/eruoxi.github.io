@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月21日：攀登在召唤
+#### 尤利尔山口蜿蜒的公路，瑞士（© Westend61/Getty Images）
+
+![攀登在召唤](https://cn.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_800x480.jpg&rf=LaDigue_800x480.jpg "攀登在召唤")
+
+有些山路本身就会成为旅行目的地，尤利尔山口正是其中之一。这座瑞士山口海拔高达7,493英尺，近2,000年来一直沿着一条路线连接着阿尔卑斯山的各个山谷。它的故事早在现代交通出现之前便已开始。没有护栏，也没有路面——只有一条供罗马时代的旅行者、商人和信使使用的路线。山顶附近的考古发现，包括无数枚硬币和两根罗马时期的皂石柱，表明这里可能曾有一处供攀越山口的人使用的圣所或歇脚处。
+
+尤利尔山口公路全年开放，但冬季路况下可能需要安装防滑链以确保安全通行。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%91%9e%e5%a3%ab%e5%b0%a4%e5%88%a9%e5%b0%94%e5%b1%b1%e5%8f%a3&form=hpcapt&filters=HpDate:"20260820_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260821_JulierPass"&FORM=HPQUIZ "必应主页测验 2026 8月 21")
+[下载480](https://cn.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_800x480.jpg&rf=LaDigue_800x480.jpg "尤利尔山口蜿蜒的公路，瑞士")
+[下载720](https://cn.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_1280x720.jpg&rf=LaDigue_1280x720.jpg "尤利尔山口蜿蜒的公路，瑞士")
+[下载1080](https://cn.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "尤利尔山口蜿蜒的公路，瑞士")
+[下载UHD](https://cn.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_UHD.jpg&rf=LaDigue_UHD.jpg "尤利尔山口蜿蜒的公路，瑞士")
+
+---
 ### 08月20日：鲸群之声
 #### 林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国（© John Hyde/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LimeKiln_ZH-CN5664152522_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣胡安岛石灰窑灯塔，华盛顿州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.LimeKiln_ZH-CN5664152522_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣胡安岛石灰窑灯塔，华盛顿州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LimeKiln_ZH-CN5664152522_UHD.jpg&rf=LaDigue_UHD.jpg "圣胡安岛石灰窑灯塔，华盛顿州，美国")
-
----
-### 08月06日：生死渡口，勇者的史诗
-#### 马赛马拉迁徙的角马群横渡马拉河, 肯尼亚（© Manoj Shah/Getty Images）
-
-![生死渡口，勇者的史诗](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_800x480.jpg&rf=LaDigue_800x480.jpg "生死渡口，勇者的史诗")
-
-在肯尼亚的马赛马拉，大地仿佛在移动。成群结队的角马——这种拥有极强耐力的蹄类食草动物——在季节性降雨滋润出的鲜嫩青草与水源的吸引下，浩浩荡荡地迁徙着。
-
-成年角马体重可达600磅，属于体型较大的食草性羚羊。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a7%92%e9%a9%ac&form=hpcapt&filters=HpDate:"20260805_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260806_MaraCrossing"&FORM=HPQUIZ "必应主页测验 2026 8月 6")
-[下载480](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_800x480.jpg&rf=LaDigue_800x480.jpg "马赛马拉迁徙的角马群横渡马拉河, 肯尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_1280x720.jpg&rf=LaDigue_1280x720.jpg "马赛马拉迁徙的角马群横渡马拉河, 肯尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉迁徙的角马群横渡马拉河, 肯尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉迁徙的角马群横渡马拉河, 肯尼亚")
 
 ---
