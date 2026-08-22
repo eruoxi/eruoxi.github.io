@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月23日：暑气渐消，金秋已至
+#### 在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国（© jia yu/Getty Images）
+
+![暑气渐消，金秋已至](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_800x480.jpg&rf=LaDigue_800x480.jpg "暑气渐消，金秋已至")
+
+处暑时节将至，航拍视角下的古塔迎着晨雾耸立于渐染秋色的林木之间，生动呈现了暑气消退、金秋将至的自然韵律，以及中国传统文化景观的悠久魅力 。这一时节的传统习俗包括放河灯、迎秋赏景以及饮用中草药煎剂（如凉茶/防暑汤），以调和四季交替时的身体平衡 。
+
+“处暑”标志着气温开始回落，预示着长江三角洲地区金秋收获季节的开启。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%84%e6%9a%91%e8%8a%82%e6%b0%94&form=hpcapt&filters=HpDate:"20260822_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260823_EndofHeatY26"&FORM=HPQUIZ "必应主页测验 2026 8月 23")
+[下载480](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_800x480.jpg&rf=LaDigue_800x480.jpg "在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_1280x720.jpg&rf=LaDigue_1280x720.jpg "在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_UHD.jpg&rf=LaDigue_UHD.jpg "在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国")
+
+---
 ### 08月22日：天蓝色的翅膀
 #### 普通蓝灰蝶，德文郡，英格兰（© Ross Hoddinott/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_1280x720.jpg&rf=LaDigue_1280x720.jpg "让-马里·吉巴乌文化中心，新喀里多尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "让-马里·吉巴乌文化中心，新喀里多尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_UHD.jpg&rf=LaDigue_UHD.jpg "让-马里·吉巴乌文化中心，新喀里多尼亚")
-
----
-### 08月08日：迈向无限
-#### 蒂斯河畔斯托克顿无限桥，英格兰（© Bahadir Yeniceri/Shutterstock）
-
-![迈向无限](https://cn.bing.com/th?id=OHR.StocktonInfinity_ZH-CN5941379745_800x480.jpg&rf=LaDigue_800x480.jpg "迈向无限")
-
-8月8日，国际无限日让好奇心成为主角。这项庆祝活动的灵感来自横置的数字8——象征永无止境的无限符号。纽约哲学家让-皮埃尔·阿迪·费尼奥于1987年创立这一节日，邀请每个人通过科学、艺术和想象力探索宏大理念。它不只关乎数学，也关乎从浩瀚宇宙到人类创造力边界的种种可能。
-
-由于无法设置中央桥墩，无限桥采用不等高系杆拱和倒置鞍形结构，为180米长的桥身增强刚度。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%97%a0%e9%99%90%e6%97%a5&form=hpcapt&filters=HpDate:"20260807_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260808_StocktonInfinity"&FORM=HPQUIZ "必应主页测验 2026 8月 8")
-[下载480](https://cn.bing.com/th?id=OHR.StocktonInfinity_ZH-CN5941379745_800x480.jpg&rf=LaDigue_800x480.jpg "蒂斯河畔斯托克顿无限桥，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.StocktonInfinity_ZH-CN5941379745_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒂斯河畔斯托克顿无限桥，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.StocktonInfinity_ZH-CN5941379745_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒂斯河畔斯托克顿无限桥，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.StocktonInfinity_ZH-CN5941379745_UHD.jpg&rf=LaDigue_UHD.jpg "蒂斯河畔斯托克顿无限桥，英格兰")
 
 ---
