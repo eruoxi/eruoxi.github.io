@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月24日：跨越历史
+#### 布鲁克林大桥，纽约市，美国（© shayes17/Getty Images）
+
+![跨越历史](https://cn.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_800x480.jpg&rf=LaDigue_800x480.jpg "跨越历史")
+
+布鲁克林大桥连接的不只是曼哈顿和布鲁克林——它还连接着历史、工程学以及几个令人惊讶的故事。大桥历经14年建造，于1883年开放，成为世界上第一座钢丝悬索桥，永久改变了纽约人跨越东河的方式。
+
+2024年，布鲁克林大桥日均承载103,051辆机动车、28,845名行人和5,504名骑行者。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e9%b2%81%e5%85%8b%e6%9e%97%e5%a4%a7%e6%a1%a5&form=hpcapt&filters=HpDate:"20260823_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260824_BKBridge"&FORM=HPQUIZ "必应主页测验 2026 8月 24")
+[下载480](https://cn.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_800x480.jpg&rf=LaDigue_800x480.jpg "布鲁克林大桥，纽约市，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_1280x720.jpg&rf=LaDigue_1280x720.jpg "布鲁克林大桥，纽约市，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布鲁克林大桥，纽约市，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_UHD.jpg&rf=LaDigue_UHD.jpg "布鲁克林大桥，纽约市，美国")
+
+---
 ### 08月23日：暑气渐消，金秋已至
 #### 在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国（© jia yu/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_1280x720.jpg&rf=LaDigue_1280x720.jpg "约书亚树国家公园，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "约书亚树国家公园，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_UHD.jpg&rf=LaDigue_UHD.jpg "约书亚树国家公园，加利福尼亚州，美国")
-
----
-### 08月09日：身份认同的建筑表达
-#### 让-马里·吉巴乌文化中心，新喀里多尼亚（© Fabien Astre/Alamy）
-
-![身份认同的建筑表达](https://cn.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_800x480.jpg&rf=LaDigue_800x480.jpg "身份认同的建筑表达")
-
-今天，世界土著人民国际日邀请我们更深入地了解那些历史远早于文字记载的社群。联合国于1994年设立这一纪念日，并于1995年首次举行活动；日期所纪念的是1982年一次致力于保护全球土著人民权利的重要会议。如今，约90个国家生活着超过4.76亿土著人民，他们延续着数千种文化，也传承着全球约7,000种语言中的大多数。
-
-文化中心的十座高耸“构筑体”高度各异，其中最高的一座在新喀里多尼亚的景观中高达28米。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%9c%9f%e8%91%97%e4%ba%ba%e6%b0%91%e5%9b%bd%e9%99%85%e6%97%a5&form=hpcapt&filters=HpDate:"20260808_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260809_JMTjibaou"&FORM=HPQUIZ "必应主页测验 2026 8月 9")
-[下载480](https://cn.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_800x480.jpg&rf=LaDigue_800x480.jpg "让-马里·吉巴乌文化中心，新喀里多尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_1280x720.jpg&rf=LaDigue_1280x720.jpg "让-马里·吉巴乌文化中心，新喀里多尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "让-马里·吉巴乌文化中心，新喀里多尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_UHD.jpg&rf=LaDigue_UHD.jpg "让-马里·吉巴乌文化中心，新喀里多尼亚")
 
 ---
