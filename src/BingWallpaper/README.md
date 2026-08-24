@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月25日：守护美国瑰宝
+#### 红木国家与州立公园的日出，加利福尼亚州，美国（© HadelProductions/Getty Images）
+
+![守护美国瑰宝](https://cn.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_800x480.jpg&rf=LaDigue_800x480.jpg "守护美国瑰宝")
+
+110年来，美国最杰出的户外课堂始终向人们开放，供大家探索。8月25日，美国国家公园管理局迎来其守护美国自然与文化瑰宝一个多世纪的纪念日。1916年，伍德罗·威尔逊总统签署《组织法》使其成为法律，该机构由此成立；如今，它负责管理全美数百座公园、纪念地、海滨和历史遗址。由护林员带领的项目、家庭活动和教育活动邀请游客亲近那些塑造了国家公园体系的景观与故事。
+
+夏季雾气约占海岸红杉水分来源的40%，帮助这些参天巨树安然度过干燥月份。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a2%e6%9d%89%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad%e4%b8%8e%e5%b7%9e%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260824_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260825_RedwoodPark"&FORM=HPQUIZ "必应主页测验 2026 8月 25")
+[下载480](https://cn.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_800x480.jpg&rf=LaDigue_800x480.jpg "红木国家与州立公园的日出，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_1280x720.jpg&rf=LaDigue_1280x720.jpg "红木国家与州立公园的日出，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红木国家与州立公园的日出，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_UHD.jpg&rf=LaDigue_UHD.jpg "红木国家与州立公园的日出，加利福尼亚州，美国")
+
+---
 ### 08月24日：跨越历史
 #### 布鲁克林大桥，纽约市，美国（© shayes17/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_1280x720.jpg&rf=LaDigue_1280x720.jpg "哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦")
 [下载1080](https://cn.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦")
 [下载UHD](https://cn.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_UHD.jpg&rf=LaDigue_UHD.jpg "哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦")
-
----
-### 08月10日：两片沙漠交汇之地
-#### 约书亚树国家公园，加利福尼亚州，美国（© JJ Landscapes/Getty Images）
-
-![两片沙漠交汇之地](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_800x480.jpg&rf=LaDigue_800x480.jpg "两片沙漠交汇之地")
-
-两片大沙漠交汇之处，约书亚树国家公园展现出由风、时间和极端环境塑造的冷峻迷人景观。在南加利福尼亚州，海拔较高的莫哈韦沙漠与更炎热、地势更低的科罗拉多沙漠相融，形成独特的生态系统组合与非凡的生物多样性。
-
-约书亚树地区的二长花岗岩最初是熔融岩体，在一亿多年前于地下冷却形成。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a6%e4%b9%a6%e4%ba%9a%e6%a0%91%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260809_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260810_SandPath"&FORM=HPQUIZ "必应主页测验 2026 8月 10")
-[下载480](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_800x480.jpg&rf=LaDigue_800x480.jpg "约书亚树国家公园，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_1280x720.jpg&rf=LaDigue_1280x720.jpg "约书亚树国家公园，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "约书亚树国家公园，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_UHD.jpg&rf=LaDigue_UHD.jpg "约书亚树国家公园，加利福尼亚州，美国")
 
 ---
