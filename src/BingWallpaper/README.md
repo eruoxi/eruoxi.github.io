@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月26日：流光溢彩的天空
+#### 基尔丘山上空的极光，冰岛（© Cavan Images/Alamy）
+
+![流光溢彩的天空](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_800x480.jpg&rf=LaDigue_800x480.jpg "流光溢彩的天空")
+
+随着冰岛的夜晚再次变长，游客很快又会仰望天空，期待一睹北极光。北极光是一种发光现象，当来自太阳的粒子与地球高层大气中的气体相互作用时，便会形成闪烁的绿色、粉色、紫色，有时甚至是红色光带。冰岛地处北方，秋冬季夜晚日益漫长而黑暗，因此成为全球首屈一指的极光观赏地之一。
+
+极光有时还可能伴随微弱声响，不过相关报告较少，其形成机制仍在研究中。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%9e%81%e5%85%89&form=hpcapt&filters=HpDate:"20260825_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260826_AurorasIceland"&FORM=HPQUIZ "必应主页测验 2026 8月 26")
+[下载480](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_800x480.jpg&rf=LaDigue_800x480.jpg "基尔丘山上空的极光，冰岛")
+[下载720](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_1280x720.jpg&rf=LaDigue_1280x720.jpg "基尔丘山上空的极光，冰岛")
+[下载1080](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "基尔丘山上空的极光，冰岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_UHD.jpg&rf=LaDigue_UHD.jpg "基尔丘山上空的极光，冰岛")
+
+---
 ### 08月25日：守护美国瑰宝
 #### 红木国家与州立公园的日出，加利福尼亚州，美国（© HadelProductions/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_1280x720.jpg&rf=LaDigue_1280x720.jpg "安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_UHD.jpg&rf=LaDigue_UHD.jpg "安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚")
-
----
-### 08月11日：绚丽多彩的哥本哈根
-#### 哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦（© emicristea/Getty Images）
-
-![绚丽多彩的哥本哈根](https://cn.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_800x480.jpg&rf=LaDigue_800x480.jpg "绚丽多彩的哥本哈根")
-
-哥本哈根新港运河是一条标志性水道，鲜艳色彩与深厚历史在此交融。它于17世纪70年代在克里斯蒂安五世统治时期挖建，曾是重要门户，货船可由此将货物直接卸入城市中心。远在成为今天明信片般完美的地标之前，这座港口曾以粗犷闻名：水手云集、酒馆喧闹，与色彩明快的山墙联排屋并立。
-
-汉斯·克里斯蒂安·安徒生一生中曾在新港的18号、20号和67号三个不同地址居住。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%93%a5%e6%9c%ac%e5%93%88%e6%a0%b9%e6%96%b0%e6%b8%af%e8%bf%90%e6%b2%b3&form=hpcapt&filters=HpDate:"20260810_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260811_ColorfulCop"&FORM=HPQUIZ "必应主页测验 2026 8月 11")
-[下载480](https://cn.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_800x480.jpg&rf=LaDigue_800x480.jpg "哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦")
-[下载720](https://cn.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_1280x720.jpg&rf=LaDigue_1280x720.jpg "哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦")
-[下载1080](https://cn.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦")
-[下载UHD](https://cn.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_UHD.jpg&rf=LaDigue_UHD.jpg "哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦")
 
 ---
