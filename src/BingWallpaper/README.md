@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月27日：湖水、野生动物与奇景
+#### 日出时的小红鹳群，马加迪湖，肯尼亚（© Denis-Huot/Nature Picture Library）
+
+![湖水、野生动物与奇景](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_800x480.jpg&rf=LaDigue_800x480.jpg "湖水、野生动物与奇景")
+
+想象一个没有这些自然奇观的世界——它们容纳着地球约90%的地表淡水。湖泊是地球上最宝贵的资源之一。它们提供清洁水源、支持野生动物、帮助调节气候，并维系全球各地的社区。为肯定湖泊的重要作用，联合国将8月27日定为世界湖泊日，并于2025年首次纪念。采取行动的必要性比以往任何时候都更为迫切。全球超过1.17亿个湖泊覆盖了近4%的陆地表面，但许多湖泊正面临污染、过度利用和气候变化带来的日益严峻的压力。
+
+马加迪湖位于火山盆地中，温泉为富含碳酸钠的高碱性湖水提供补给。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b9%96%e6%b3%8a%e6%97%a5&form=hpcapt&filters=HpDate:"20260826_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260827_LakeMagadi"&FORM=HPQUIZ "必应主页测验 2026 8月 27")
+[下载480](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_800x480.jpg&rf=LaDigue_800x480.jpg "日出时的小红鹳群，马加迪湖，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的小红鹳群，马加迪湖，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的小红鹳群，马加迪湖，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的小红鹳群，马加迪湖，肯尼亚")
+
+---
 ### 08月26日：流光溢彩的天空
 #### 基尔丘山上空的极光，冰岛（© Cavan Images/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_1280x720.jpg&rf=LaDigue_1280x720.jpg "泰德天文台上空的英仙座流星，加那利群岛，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰德天文台上空的英仙座流星，加那利群岛，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_UHD.jpg&rf=LaDigue_UHD.jpg "泰德天文台上空的英仙座流星，加那利群岛，西班牙")
-
----
-### 08月12日：值得守护的巨兽
-#### 安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚（© Ibrahim Suha Derbent/Getty Images）
-
-![值得守护的巨兽](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_800x480.jpg&rf=LaDigue_800x480.jpg "值得守护的巨兽")
-
-8月12日世界大象日，让我们停下脚步，不仅思考这些动物的庞大体型，也体会它们生命的深度。在图片所示的肯尼亚安博塞利国家公园等地，非洲草原象群并非只是穿越景观；它们还会记住这片土地。母象首领带领家族往返于不同水源，行进路线既由地形塑造，也由记忆指引。
-
-2024年的一项研究利用在安博塞利录制的叫声发现，非洲象会用类似个体名字的叫声彼此称呼。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%a4%a7%e8%b1%a1%e6%97%a5&form=hpcapt&filters=HpDate:"20260811_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260812_ElephantDay"&FORM=HPQUIZ "必应主页测验 2026 8月 12")
-[下载480](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_800x480.jpg&rf=LaDigue_800x480.jpg "安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_1280x720.jpg&rf=LaDigue_1280x720.jpg "安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_UHD.jpg&rf=LaDigue_UHD.jpg "安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚")
 
 ---
