@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月28日：潮汐塑造的传奇
+#### 涨潮时的圣米歇尔山，芒什省，诺曼底，法国（© Clement LEONARD/Getty Images）
+
+![潮汐塑造的传奇](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_800x480.jpg&rf=LaDigue_800x480.jpg "潮汐塑造的传奇")
+
+日落时分，圣米歇尔山从法国诺曼底的水面升起，宛如一座由海洋塑造的堡垒。修道院和村庄坐落在岩石潮汐岛上，矗立于欧洲最壮观的海岸环境之一。每天两次，海水退去，露出大片沙滩；随后潮水再次涌回，重新覆盖这片景观。涨潮时，圣米歇尔山又会变成一座岛屿。数百年来，旅行者一直根据这种潮汐节奏安排行程，在条件允许时穿越潮滩，并在数小时后观看海水归来。
+
+圣米歇尔山周围的潮差可达约14米，是欧洲潮差最大的地区之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e7%b1%b3%e6%ad%87%e5%b0%94%e5%b1%b1&form=hpcapt&filters=HpDate:"20260827_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260828_MichelSunset"&FORM=HPQUIZ "必应主页测验 2026 8月 28")
+[下载480](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_800x480.jpg&rf=LaDigue_800x480.jpg "涨潮时的圣米歇尔山，芒什省，诺曼底，法国")
+[下载720](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_1280x720.jpg&rf=LaDigue_1280x720.jpg "涨潮时的圣米歇尔山，芒什省，诺曼底，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "涨潮时的圣米歇尔山，芒什省，诺曼底，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_UHD.jpg&rf=LaDigue_UHD.jpg "涨潮时的圣米歇尔山，芒什省，诺曼底，法国")
+
+---
 ### 08月27日：湖水、野生动物与奇景
 #### 日出时的小红鹳群，马加迪湖，肯尼亚（© Denis-Huot/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_1280x720.jpg&rf=LaDigue_1280x720.jpg "扎克舒夫附近的野生动物通道，波兰")
 [下载1080](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "扎克舒夫附近的野生动物通道，波兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_UHD.jpg&rf=LaDigue_UHD.jpg "扎克舒夫附近的野生动物通道，波兰")
-
----
-### 08月13日：许个愿吧
-#### 泰德天文台上空的英仙座流星，加那利群岛，西班牙（© Westend61/Getty Images）
-
-![许个愿吧](https://cn.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_800x480.jpg&rf=LaDigue_800x480.jpg "许个愿吧")
-
-并非所有夏日传统都发生在地面。有些在数百英里高空上演，每次划过一颗流星。英仙座流星雨每年从7月中旬持续至8月下旬，并在8月12日至13日前后达到峰值。世界大部分地区都能看到它；在黑暗天空下，每小时往往会出现数十颗流星。想象自己抬头仰望，一道接一道亮光划过。数到多少颗时，你会忘记数目？每道亮光都来自斯威夫特-塔特尔彗星散落的碎屑，地球穿过其尘埃带时便形成流星。它们看起来像是从英仙座辐射而出。
-
-作为英仙座流星雨母体的斯威夫特-塔特尔彗星，绕太阳运行一周约需133年。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8b%b1%e4%bb%99%e5%ba%a7%e6%b5%81%e6%98%9f%e9%9b%a8&form=hpcapt&filters=HpDate:"20260812_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260813_PerseidasTenerife"&FORM=HPQUIZ "必应主页测验 2026 8月 13")
-[下载480](https://cn.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_800x480.jpg&rf=LaDigue_800x480.jpg "泰德天文台上空的英仙座流星，加那利群岛，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_1280x720.jpg&rf=LaDigue_1280x720.jpg "泰德天文台上空的英仙座流星，加那利群岛，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰德天文台上空的英仙座流星，加那利群岛，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_UHD.jpg&rf=LaDigue_UHD.jpg "泰德天文台上空的英仙座流星，加那利群岛，西班牙")
 
 ---
