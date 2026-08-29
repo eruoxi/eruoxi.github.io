@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月29日：读懂浪涛之间的讯息
+#### 冲浪者航拍图，圣卡塔琳娜州，巴西（© Wonderful Nature/Shutterstock）
+
+![读懂浪涛之间的讯息](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_800x480.jpg&rf=LaDigue_800x480.jpg "读懂浪涛之间的讯息")
+
+在巴西南部圣卡塔琳娜州近海，图片捕捉到一种熟悉的仪式：冲浪者在碎浪之外等待，冲浪板随着大西洋的波涛起伏。从空中看，几乎什么都没有发生，但真正的功课正是在此时开始。
+
+圣卡塔琳娜州海岸的若阿基纳海滩曾承办多项重要国际冲浪赛事。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e8%a5%bf%e5%9c%a3%e5%8d%a1%e5%a1%94%e7%90%b3%e5%a8%9c%e5%b7%9e&form=hpcapt&filters=HpDate:"20260828_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260829_SantaCatarina"&FORM=HPQUIZ "必应主页测验 2026 8月 29")
+[下载480](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_800x480.jpg&rf=LaDigue_800x480.jpg "冲浪者航拍图，圣卡塔琳娜州，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_1280x720.jpg&rf=LaDigue_1280x720.jpg "冲浪者航拍图，圣卡塔琳娜州，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冲浪者航拍图，圣卡塔琳娜州，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_UHD.jpg&rf=LaDigue_UHD.jpg "冲浪者航拍图，圣卡塔琳娜州，巴西")
+
+---
 ### 08月28日：潮汐塑造的传奇
 #### 涨潮时的圣米歇尔山，芒什省，诺曼底，法国（© Clement LEONARD/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_UHD.jpg&rf=LaDigue_UHD.jpg "圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国")
-
----
-### 08月14日：为动物脚掌而建，而非行人
-#### 扎克舒夫附近的野生动物通道，波兰（© bbsferrari/Getty Images）
-
-![为动物脚掌而建，而非行人](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_800x480.jpg&rf=LaDigue_800x480.jpg "为动物脚掌而建，而非行人")
-
-道路解决了一个问题，却悄然制造了另一个问题。人类出行速度前所未有地提高，野生动物世代沿用的迁徙路线却被公路切断，导致碰撞事故增加、栖息地破碎化，野生动物种群彼此隔绝。为应对这一挑战，人们建造了称为生态桥的野生动物通道：这些桥梁或隧道旨在重新连接栖息地，让动物安全穿越繁忙道路。最早的一些现代案例于20世纪50年代出现在法国，这一理念很快传遍欧洲。荷兰等国通过建造覆盖土壤及草本、灌木和乔木等本土植被的宽阔绿色桥梁，推动了生态桥设计的完善。
-
-20世纪50年代，法国首次出现了野生动物通道，为动物们在被公路分割的新景观中开辟了一条生路。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%87%8e%e7%94%9f%e5%8a%a8%e7%89%a9%e9%80%9a%e9%81%93&form=hpcapt&filters=HpDate:"20260813_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260814_WildlifeCrossingPoland"&FORM=HPQUIZ "必应主页测验 2026 8月 14")
-[下载480](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_800x480.jpg&rf=LaDigue_800x480.jpg "扎克舒夫附近的野生动物通道，波兰")
-[下载720](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_1280x720.jpg&rf=LaDigue_1280x720.jpg "扎克舒夫附近的野生动物通道，波兰")
-[下载1080](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "扎克舒夫附近的野生动物通道，波兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_UHD.jpg&rf=LaDigue_UHD.jpg "扎克舒夫附近的野生动物通道，波兰")
 
 ---
