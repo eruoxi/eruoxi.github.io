@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月30日：名为鲨鱼的巨型鱼类
+#### 鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚（© Pete Oxford/Nature Picture Library）
+
+![名为鲨鱼的巨型鱼类](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_800x480.jpg&rf=LaDigue_800x480.jpg "名为鲨鱼的巨型鱼类")
+
+今天，国际鲸鲨日将目光投向世界上最大的鱼类。鲸鲨虽然名字中带有“鲸”，却不是鲸类，而是鱼类；体长可达60英尺，体重约20吨。它们分布在温暖的热带海域，张着嘴在水中缓缓游动，滤食浮游生物、鱼卵和其他微小猎物。每条鲸鲨身上独特的白色斑点图案都各不相同，就像人类的指纹。
+
+鲸鲨的寿命可能达到或超过一个世纪，这使世界上最大的鱼拥有令人意外的漫长生命。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%b2%b8%e9%b2%a8&form=hpcapt&filters=HpDate:"20260829_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260830_YellowShark"&FORM=HPQUIZ "必应主页测验 2026 8月 30")
+[下载480](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_800x480.jpg&rf=LaDigue_800x480.jpg "鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_1280x720.jpg&rf=LaDigue_1280x720.jpg "鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg&rf=LaDigue_UHD.jpg "鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚")
+
+---
 ### 08月29日：读懂浪涛之间的讯息
 #### 冲浪者航拍图，圣卡塔琳娜州，巴西（© Wonderful Nature/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_1280x720.jpg&rf=LaDigue_1280x720.jpg "戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰")
 [下载1080](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_UHD.jpg&rf=LaDigue_UHD.jpg "戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰")
-
----
-### 08月15日：绝妙的平衡术
-#### 圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国（© Westend61/Getty Images）
-
-![绝妙的平衡术](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_800x480.jpg&rf=LaDigue_800x480.jpg "绝妙的平衡术")
-
-大自然善于平衡看似不可能之物。在新墨西哥州阿什斯利帕荒野地，高耸的石林以纤细石柱托起厚重岩帽。约7,500万年来，风、水和冰将这片偏远的恶地雕刻成一座露天展馆，景象更像异星，而非地球。
-
-阿什斯勒帕保存着全球最丰富的晚白垩世哺乳动物、爬行动物、植物和鱼类化石记录之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%98%bf%e4%bb%80%e6%96%af%e5%88%a9%e5%b8%95%e8%8d%92%e9%87%8e%e5%9c%b0&form=hpcapt&filters=HpDate:"20260814_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260815_ValleyDreams"&FORM=HPQUIZ "必应主页测验 2026 8月 15")
-[下载480](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_800x480.jpg&rf=LaDigue_800x480.jpg "圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_UHD.jpg&rf=LaDigue_UHD.jpg "圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国")
 
 ---
