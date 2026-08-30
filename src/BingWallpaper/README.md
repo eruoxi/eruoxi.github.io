@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 08月31日：图案艺术的典范
+#### 雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦（© Piero M. Bianchi/Getty Images）
+
+![图案艺术的典范](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_800x480.jpg&rf=LaDigue_800x480.jpg "图案艺术的典范")
+
+站在雷吉斯坦广场上，你很容易明白为什么这里被视为撒马尔罕的建筑核心——撒马尔罕是中亚最古老的城市之一。这座位于乌兹别克斯坦的广场三面矗立着三座宏伟的经学院——伊斯兰学术中心——它们高耸的门廊吸引着人们仰头观望。然而，广场上一些最珍贵的瑰宝，只有在你走近细看时才会显露出来。
+
+2001年，撒马尔罕被列入联合国教科文组织《世界遗产名录》，获誉为拥有2500多年历史的世界文化交汇地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%92%92%e9%a9%ac%e5%b0%94%e7%bd%95&form=hpcapt&filters=HpDate:"20260830_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 31")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260831_SamarkandCeiling"&FORM=HPQUIZ "必应主页测验 2026 8月 31")
+[下载480](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_800x480.jpg&rf=LaDigue_800x480.jpg "雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦")
+[下载720](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_1280x720.jpg&rf=LaDigue_1280x720.jpg "雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦")
+[下载1080](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦")
+[下载UHD](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_UHD.jpg&rf=LaDigue_UHD.jpg "雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦")
+
+---
 ### 08月30日：名为鲨鱼的巨型鱼类
 #### 鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚（© Pete Oxford/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_1280x720.jpg&rf=LaDigue_1280x720.jpg "海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾")
 [下载1080](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾")
 [下载UHD](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_UHD.jpg&rf=LaDigue_UHD.jpg "海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾")
-
----
-### 08月16日：天鹅开启传奇之处
-#### 戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰（© Maria Janus/Shutterstock）
-
-![天鹅开启传奇之处](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_800x480.jpg&rf=LaDigue_800x480.jpg "天鹅开启传奇之处")
-
-天鹅、秘密藏身处和中世纪养鱼池有什么共同之处？它们都是罗斯埃里利方济各会修道院遗址故事的一部分。这座保存完好的爱尔兰方济各会修道院建于约1351年，常被称为罗斯修道院（俗称）；不过它从未设过院长，因为它本就不是隐修院。
-
-罗斯埃里利修道院在建立后的一个世纪间逐步扩建，现存塔楼建于1498年。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%88%b1%e5%b0%94%e5%85%b0%e7%bd%97%e6%96%af%c2%b7%e5%9f%83%e9%87%8c%e5%88%a9%e4%bf%ae%e9%81%93%e9%99%a2&form=hpcapt&filters=HpDate:"20260815_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260816_RossErrillyRuins"&FORM=HPQUIZ "必应主页测验 2026 8月 16")
-[下载480](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_800x480.jpg&rf=LaDigue_800x480.jpg "戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰")
-[下载720](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_1280x720.jpg&rf=LaDigue_1280x720.jpg "戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰")
-[下载1080](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_UHD.jpg&rf=LaDigue_UHD.jpg "戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰")
 
 ---
