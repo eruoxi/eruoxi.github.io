@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月01日：脚下的世界
+#### 马鬃小皮伞，白俄罗斯（© Máté/Nature Picture Library）
+
+![脚下的世界](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_800x480.jpg&rf=LaDigue_800x480.jpg "脚下的世界")
+
+九月的全国蘑菇月旨在赞颂一个常常不为人注意的世界。在森林地表、草坪和落叶下方，真菌网络循环利用养分，帮助生态系统蓬勃发展。我们看到的蘑菇只是这些隐秘生物的子实体，它们短暂现身释放孢子，随后又从视野中消失。它们并非植物；真菌自成一界，并在大自然的循环中发挥着至关重要的作用。
+
+宾夕法尼亚州东南部的肯尼特广场享誉全球，被誉为“世界蘑菇之都”。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e9%ac%83%e5%b0%8f%e7%9a%ae%e4%bc%9e&form=hpcapt&filters=HpDate:"20260831_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260901_HorseHairShroom"&FORM=HPQUIZ "必应主页测验 2026 9月 1")
+[下载480](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_800x480.jpg&rf=LaDigue_800x480.jpg "马鬃小皮伞，白俄罗斯")
+[下载720](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_1280x720.jpg&rf=LaDigue_1280x720.jpg "马鬃小皮伞，白俄罗斯")
+[下载1080](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马鬃小皮伞，白俄罗斯")
+[下载UHD](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg&rf=LaDigue_UHD.jpg "马鬃小皮伞，白俄罗斯")
+
+---
 ### 08月31日：图案艺术的典范
 #### 雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦（© Piero M. Bianchi/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_1280x720.jpg&rf=LaDigue_1280x720.jpg "弗留利要塞城市帕尔马诺瓦航拍图，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "弗留利要塞城市帕尔马诺瓦航拍图，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_UHD.jpg&rf=LaDigue_UHD.jpg "弗留利要塞城市帕尔马诺瓦航拍图，意大利")
-
----
-### 08月17日：珊瑚礁上的黄金地段
-#### 海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾（© Franco Banfi/Nature Picture Library）
-
-![珊瑚礁上的黄金地段](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_800x480.jpg&rf=LaDigue_800x480.jpg "珊瑚礁上的黄金地段")
-
-地点很重要。看看图片中菲律宾卡比劳岛附近卡比劳附近的灯塔礁的眼斑双锯鱼就知道了。在这片充满饥饿捕食者和激烈竞争的热带水域，它们占据了一块黄金地段：一只拥有数千个微小刺细胞的海葵。
-
-眼斑双锯鱼（俗称“公子小丑鱼”）的学名为 Amphiprion ocellaris；根据世界鱼类数据库（FishBase）的记录，该物种具有 11 根背鳍鳍棘。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%9c%bc%e6%96%91%e5%8f%8c%e9%94%af%e9%b1%bc&form=hpcapt&filters=HpDate:"20260816_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260817_CabilaoClowns"&FORM=HPQUIZ "必应主页测验 2026 8月 17")
-[下载480](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_800x480.jpg&rf=LaDigue_800x480.jpg "海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾")
-[下载720](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_1280x720.jpg&rf=LaDigue_1280x720.jpg "海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾")
-[下载1080](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾")
-[下载UHD](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_UHD.jpg&rf=LaDigue_UHD.jpg "海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾")
 
 ---
