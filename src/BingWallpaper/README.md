@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月02日：海岸边的缤纷色彩
+#### 传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰（© stevendocwra/Getty Images）
+
+![海岸边的缤纷色彩](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_800x480.jpg&rf=LaDigue_800x480.jpg "海岸边的缤纷色彩")
+
+在英格兰东海岸，萨福克遗产海岸融合了风吹不息的石南荒原、湿地、砾石海滩和开阔的北海景观。索思沃尔德是这里最著名的城镇之一，水域与历史在此密不可分。小镇几乎被大海、布莱斯河和周围的湿地环绕，坐落在一片狭长的半岛上；数百年来的渔业、贸易和临水生活共同塑造了这里。
+
+索思沃尔德灯塔于1890年9月3日投入使用，如今其灯光射程可达24海里。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%90%a8%e7%a6%8f%e5%85%8b%e9%83%a1%e7%b4%a2%e6%96%af%e6%b2%83%e5%b0%94%e5%be%b7&form=hpcapt&filters=HpDate:"20260901_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260902_SuffolkHuts"&FORM=HPQUIZ "必应主页测验 2026 9月 2")
+[下载480](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_800x480.jpg&rf=LaDigue_800x480.jpg "传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_1280x720.jpg&rf=LaDigue_1280x720.jpg "传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg&rf=LaDigue_UHD.jpg "传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰")
+
+---
 ### 09月01日：脚下的世界
 #### 马鬃小皮伞，白俄罗斯（© Máté/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_1280x720.jpg&rf=LaDigue_1280x720.jpg "怀特克利夫公园，西温哥华，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "怀特克利夫公园，西温哥华，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_UHD.jpg&rf=LaDigue_UHD.jpg "怀特克利夫公园，西温哥华，加拿大")
-
----
-### 08月18日：星形城市的几何之美
-#### 弗留利要塞城市帕尔马诺瓦航拍图，意大利（© Riccardo Saponi/Getty Images）
-
-![星形城市的几何之美](https://cn.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_800x480.jpg&rf=LaDigue_800x480.jpg "星形城市的几何之美")
-
-从空中俯瞰，帕尔马诺瓦与其说是一座城镇，不如说是一颗精心绘制、嵌入意大利弗留利-威尼斯朱利亚平原的星。威尼斯共和国于1593年建立这座要塞城市，其设计兼顾防御、秩序与宏伟观感。街道从中央广场向外辐射，城墙则构成精确的九角星形。这种几何形态绝非偶然。帕尔马诺瓦成为近代早期军事建筑最具影响力的典范之一。其同心式防御工事最初由威尼斯修建，后来在拿破仑时期得到加固和扩建。
-
-帕尔马诺瓦所属的联合国教科文组织世界遗产由六个组成部分构成，横跨三国一千多公里。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%84%8f%e5%a4%a7%e5%88%a9%e5%b8%95%e5%b0%94%e9%a9%ac%e8%af%ba%e7%93%a6&form=hpcapt&filters=HpDate:"20260817_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260818_Palmanova"&FORM=HPQUIZ "必应主页测验 2026 8月 18")
-[下载480](https://cn.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_800x480.jpg&rf=LaDigue_800x480.jpg "弗留利要塞城市帕尔马诺瓦航拍图，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_1280x720.jpg&rf=LaDigue_1280x720.jpg "弗留利要塞城市帕尔马诺瓦航拍图，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "弗留利要塞城市帕尔马诺瓦航拍图，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_UHD.jpg&rf=LaDigue_UHD.jpg "弗留利要塞城市帕尔马诺瓦航拍图，意大利")
 
 ---
