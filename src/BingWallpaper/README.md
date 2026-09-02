@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月03日：一部守护荒野的法案
+#### 郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国（© James Hager/Getty Images）
+
+![一部守护荒野的法案](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_800x480.jpg&rf=LaDigue_800x480.jpg "一部守护荒野的法案")
+
+波浪通常属于海洋。但在亚利桑那州北部，它们却从沙漠中涌起。郊狼丘是朱红悬崖国家纪念区的一部分，其盘旋起伏的砂岩地貌由远古沙丘和数百万年的侵蚀共同塑造而成，造就了一片即使静止不动也仿佛泛着涟漪的景观。
+
+《荒野法》通常禁止在指定荒野地区修建永久性道路或开展商业活动。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%9c%b1%e7%ba%a2%e6%82%ac%e5%b4%96%e5%9b%bd%e5%ae%b6%e7%ba%aa%e5%bf%b5%e5%8c%ba&form=hpcapt&filters=HpDate:"20260902_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260903_AZWilderness"&FORM=HPQUIZ "必应主页测验 2026 9月 3")
+[下载480](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_800x480.jpg&rf=LaDigue_800x480.jpg "郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_1280x720.jpg&rf=LaDigue_1280x720.jpg "郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_UHD.jpg&rf=LaDigue_UHD.jpg "郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国")
+
+---
 ### 09月02日：海岸边的缤纷色彩
 #### 传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰（© stevendocwra/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_1280x720.jpg&rf=LaDigue_1280x720.jpg "林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_UHD.jpg&rf=LaDigue_UHD.jpg "林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国")
-
----
-### 08月19日：浪潮间的通道
-#### 怀特克利夫公园，西温哥华，加拿大（© Aolin Chen/Getty Images）
-
-![浪潮间的通道](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_800x480.jpg&rf=LaDigue_800x480.jpg "浪潮间的通道")
-
-通往此处的最佳路径并非由混凝土铺就。每当退潮时，一条岩石小径便会显露出来，连接着加拿大西温哥华的怀特克利夫公园（Whytecliff Park）与怀特小岛（Whyte Islet）。数小时后，海水会悄然漫过这条通道，将“把握时机”也变成了体验的一部分。这片海岸线吸引着一代又一代的游客：潮汐开辟了道路，而湿滑的岩石则让人心存敬畏；作为回报，你将收获回望海滩与格伦伊格尔斯（Gleneagles）山坡民居时的壮丽景致。
-
-怀特克利夫公园于1993年成为加拿大首个咸水海洋保护区，为近岸栖息地提供保护。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%80%80%e7%89%b9%e5%85%8b%e5%88%a9%e5%a4%ab%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260818_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260819_WhyteCliffP"&FORM=HPQUIZ "必应主页测验 2026 8月 19")
-[下载480](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_800x480.jpg&rf=LaDigue_800x480.jpg "怀特克利夫公园，西温哥华，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_1280x720.jpg&rf=LaDigue_1280x720.jpg "怀特克利夫公园，西温哥华，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "怀特克利夫公园，西温哥华，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_UHD.jpg&rf=LaDigue_UHD.jpg "怀特克利夫公园，西温哥华，加拿大")
 
 ---
