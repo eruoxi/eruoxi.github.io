@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月04日：地平线上的红与白
+#### 韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国（© bluejayphoto/Getty Images）
+
+![地平线上的红与白](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_800x480.jpg&rf=LaDigue_800x480.jpg "地平线上的红与白")
+
+韦斯特黑弗桑德灯塔高耸于德国北海沿岸的盐沼之上，凭借醒目的红白条纹一眼便可辨认。灯塔建于1906年至1908年间，一个多世纪以来一直是艾德施泰特半岛的标志，为穿行北海水域的船只指引航向。如今，它仍是德国北部最著名的海岸地标之一。登上157级台阶的游客，可以饱览周围的壮阔景色。
+
+韦斯特黑弗桑德灯塔是一座40米高的铸铁塔，左右两侧各有一座造型对称的原守塔人住宅。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%9f%a6%e6%96%af%e7%89%b9%e9%bb%91%e5%bc%97%e6%a1%91%e5%be%b7%e7%81%af%e5%a1%94&form=hpcapt&filters=HpDate:"20260903_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260904_Westerheversand"&FORM=HPQUIZ "必应主页测验 2026 9月 4")
+[下载480](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_800x480.jpg&rf=LaDigue_800x480.jpg "韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国")
+[下载720](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_1280x720.jpg&rf=LaDigue_1280x720.jpg "韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_UHD.jpg&rf=LaDigue_UHD.jpg "韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国")
+
+---
 ### 09月03日：一部守护荒野的法案
 #### 郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国（© James Hager/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_1280x720.jpg&rf=LaDigue_1280x720.jpg "尤利尔山口蜿蜒的公路，瑞士")
 [下载1080](https://cn.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "尤利尔山口蜿蜒的公路，瑞士")
 [下载UHD](https://cn.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_UHD.jpg&rf=LaDigue_UHD.jpg "尤利尔山口蜿蜒的公路，瑞士")
-
----
-### 08月20日：鲸群之声
-#### 林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国（© John Hyde/Alamy）
-
-![鲸群之声](https://cn.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_800x480.jpg&rf=LaDigue_800x480.jpg "鲸群之声")
-
-在阿拉斯加东南部白雪覆盖的奇尔卡特山脉映衬下，一头虎鲸浮出林恩运河水面。虎鲸是海豚科体型最大的成员，也是海洋中最具辨识度的捕食者之一。阿拉斯加内湾航道寒冷且营养丰富的水域提供了充足的觅食地，既维系鲑鱼洄游，也滋养种类繁多的海洋生物，为这些非凡动物提供支持。
-
-成年雄性虎鲸的背鳍可高达约6英尺，明显高于成年雌性虎鲸的背鳍。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%99%8e%e9%b2%b8&form=hpcapt&filters=HpDate:"20260819_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260820_LynnCanalOrca"&FORM=HPQUIZ "必应主页测验 2026 8月 20")
-[下载480](https://cn.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_800x480.jpg&rf=LaDigue_800x480.jpg "林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_1280x720.jpg&rf=LaDigue_1280x720.jpg "林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_UHD.jpg&rf=LaDigue_UHD.jpg "林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国")
 
 ---
