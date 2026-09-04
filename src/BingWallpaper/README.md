@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月05日：小小鸟儿，巨大影响
+#### 龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加（© Paul Hobson/Nature Picture Library）
+
+![小小鸟儿，巨大影响](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_800x480.jpg&rf=LaDigue_800x480.jpg "小小鸟儿，巨大影响")
+
+全国蜂鸟日旨在赞颂自然界中最非凡的空中飞行专家。蜂鸟仅分布于美洲，这些小鸟能够原地悬停、向后飞行，翅膀每秒可拍动数十次。它们为寻找花蜜而造访花朵时，也充当重要的传粉者，帮助维系从高山草甸到热带雨林的各种生态系统。闪耀的羽毛、非凡的敏捷性和高能耗的生活方式，使它们成为世界上最迷人的鸟类之一。
+
+蜂鸟的新陈代谢率在所有脊椎动物中最高，可能每10分钟就要进食一次。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%85%a8%e5%9b%bd%e8%9c%82%e9%b8%9f%e6%97%a5&form=hpcapt&filters=HpDate:"20260904_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260905_GreenCrowned"&FORM=HPQUIZ "必应主页测验 2026 9月 5")
+[下载480](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_800x480.jpg&rf=LaDigue_800x480.jpg "龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加")
+[下载720](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_1280x720.jpg&rf=LaDigue_1280x720.jpg "龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加")
+[下载1080](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加")
+[下载UHD](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_UHD.jpg&rf=LaDigue_UHD.jpg "龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加")
+
+---
 ### 09月04日：地平线上的红与白
 #### 韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国（© bluejayphoto/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CommonBlue_ZH-CN8521430009_1280x720.jpg&rf=LaDigue_1280x720.jpg "普通蓝灰蝶，德文郡，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.CommonBlue_ZH-CN8521430009_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普通蓝灰蝶，德文郡，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.CommonBlue_ZH-CN8521430009_UHD.jpg&rf=LaDigue_UHD.jpg "普通蓝灰蝶，德文郡，英格兰")
-
----
-### 08月21日：攀登在召唤
-#### 尤利尔山口蜿蜒的公路，瑞士（© Westend61/Getty Images）
-
-![攀登在召唤](https://cn.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_800x480.jpg&rf=LaDigue_800x480.jpg "攀登在召唤")
-
-有些山路本身就会成为旅行目的地，尤利尔山口正是其中之一。这座瑞士山口海拔高达7,493英尺，近2,000年来一直沿着一条路线连接着阿尔卑斯山的各个山谷。它的故事早在现代交通出现之前便已开始。没有护栏，也没有路面——只有一条供罗马时代的旅行者、商人和信使使用的路线。山顶附近的考古发现，包括无数枚硬币和两根罗马时期的皂石柱，表明这里可能曾有一处供攀越山口的人使用的圣所或歇脚处。
-
-尤利尔山口公路全年开放，但冬季路况下可能需要安装防滑链以确保安全通行。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%91%9e%e5%a3%ab%e5%b0%a4%e5%88%a9%e5%b0%94%e5%b1%b1%e5%8f%a3&form=hpcapt&filters=HpDate:"20260820_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260821_JulierPass"&FORM=HPQUIZ "必应主页测验 2026 8月 21")
-[下载480](https://cn.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_800x480.jpg&rf=LaDigue_800x480.jpg "尤利尔山口蜿蜒的公路，瑞士")
-[下载720](https://cn.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_1280x720.jpg&rf=LaDigue_1280x720.jpg "尤利尔山口蜿蜒的公路，瑞士")
-[下载1080](https://cn.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "尤利尔山口蜿蜒的公路，瑞士")
-[下载UHD](https://cn.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_UHD.jpg&rf=LaDigue_UHD.jpg "尤利尔山口蜿蜒的公路，瑞士")
 
 ---
