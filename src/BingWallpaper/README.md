@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月06日：倒影满湖的水库
+#### 菲安斯湖，格兰屏国家公园，维多利亚州，澳大利亚（© tracielouise/Getty Images）
+
+![倒影满湖的水库](https://cn.bing.com/th?id=OHR.LakeFyans_ZH-CN1067187791_800x480.jpg&rf=LaDigue_800x480.jpg "倒影满湖的水库")
+
+乍看之下，今天的画面更像一片被淹没的林地，而不是湖泊。光秃的树干从水中伸出，倒影横贯水面，远处的格兰屏群山熠熠生辉。这里是菲安斯湖，一座位于澳大利亚维多利亚州格兰屏（加里维德）国家公园边缘的人工水库。这里深受划船者、垂钓者、帆船爱好者和滑水者欢迎，也为人们提供了欣赏澳大利亚最壮美景观之一的绝佳前排视角。
+
+菲安斯湖为阿勒山、斯托尔和大西部镇供水，并服务于部分协议供水用户。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%be%b3%e5%a4%a7%e5%88%a9%e4%ba%9a%e7%bb%b4%e5%a4%9a%e5%88%a9%e4%ba%9a%e5%b7%9e%e6%a0%bc%e5%85%b0%e5%b1%8f%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260905_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260906_LakeFyans"&FORM=HPQUIZ "必应主页测验 2026 9月 6")
+[下载480](https://cn.bing.com/th?id=OHR.LakeFyans_ZH-CN1067187791_800x480.jpg&rf=LaDigue_800x480.jpg "菲安斯湖，格兰屏国家公园，维多利亚州，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.LakeFyans_ZH-CN1067187791_1280x720.jpg&rf=LaDigue_1280x720.jpg "菲安斯湖，格兰屏国家公园，维多利亚州，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.LakeFyans_ZH-CN1067187791_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "菲安斯湖，格兰屏国家公园，维多利亚州，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.LakeFyans_ZH-CN1067187791_UHD.jpg&rf=LaDigue_UHD.jpg "菲安斯湖，格兰屏国家公园，维多利亚州，澳大利亚")
+
+---
 ### 09月05日：小小鸟儿，巨大影响
 #### 龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加（© Paul Hobson/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_1280x720.jpg&rf=LaDigue_1280x720.jpg "在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_UHD.jpg&rf=LaDigue_UHD.jpg "在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国")
-
----
-### 08月22日：天蓝色的翅膀
-#### 普通蓝灰蝶，德文郡，英格兰（© Ross Hoddinott/Nature Picture Library）
-
-![天蓝色的翅膀](https://cn.bing.com/th?id=OHR.CommonBlue_ZH-CN8521430009_800x480.jpg&rf=LaDigue_800x480.jpg "天蓝色的翅膀")
-
-田野中那一抹迅速掠过的蓝色背后，有一个开始得早得多的故事，故事的主角是一只小小的毛毛虫和一种令人惊讶的生存妙招。普通蓝灰蝶分布于欧洲、北非和亚洲部分地区，成虫以花蜜为食。它的生命始于一枚小小的卵，雌蝶通常会将卵产在百脉根等寄主植物上。真正令人惊讶的是它的毛毛虫阶段，此时蚂蚁会在其生存过程中扮演一个出人意料的角色。孵化后，毛毛虫会啃食叶片，然后进入蜕变的下一个阶段。在这一过程中，它会分泌一种名为蜜露的含糖物质，供蚂蚁取食。作为回报，蚂蚁可能会保护结茧的毛毛虫免受捕食者侵害。
-
-尽管外表纤弱，雄性普通蓝灰蝶仍会主动将竞争的雄蝶——有时甚至是体型更大的昆虫——逐出花朵繁茂的有利地盘。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%99%ae%e9%80%9a%e8%93%9d%e7%81%b0%e8%9d%b6&form=hpcapt&filters=HpDate:"20260821_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260822_CommonBlue"&FORM=HPQUIZ "必应主页测验 2026 8月 22")
-[下载480](https://cn.bing.com/th?id=OHR.CommonBlue_ZH-CN8521430009_800x480.jpg&rf=LaDigue_800x480.jpg "普通蓝灰蝶，德文郡，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.CommonBlue_ZH-CN8521430009_1280x720.jpg&rf=LaDigue_1280x720.jpg "普通蓝灰蝶，德文郡，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.CommonBlue_ZH-CN8521430009_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普通蓝灰蝶，德文郡，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.CommonBlue_ZH-CN8521430009_UHD.jpg&rf=LaDigue_UHD.jpg "普通蓝灰蝶，德文郡，英格兰")
 
 ---
