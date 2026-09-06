@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月07日：历史沿运河流淌之地
+#### 老市政厅，班贝格，德国（© SCStock/Getty Images）
+
+![历史沿运河流淌之地](https://cn.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_800x480.jpg&rf=LaDigue_800x480.jpg "历史沿运河流淌之地")
+
+班贝格老市政厅高踞于雷格尼茨河上，是德国班贝格最具代表性的地标之一。当地传说称，这座建筑之所以矗立在人工岛上，是因为城里的主教拒绝向市民提供修建市政厅的土地。据说居民于是自行在河中央造出一块地基，成就了这座建筑非凡的环境和历久弥新的魅力。
+
+班贝格老市政厅内设路德维希收藏馆，收藏来自重要制造中心的巴洛克时期彩陶和瓷器。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8f%ad%e8%b4%9d%e6%a0%bc&form=hpcapt&filters=HpDate:"20260906_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260907_BambergTownhall"&FORM=HPQUIZ "必应主页测验 2026 9月 7")
+[下载480](https://cn.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_800x480.jpg&rf=LaDigue_800x480.jpg "老市政厅，班贝格，德国")
+[下载720](https://cn.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_1280x720.jpg&rf=LaDigue_1280x720.jpg "老市政厅，班贝格，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "老市政厅，班贝格，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_UHD.jpg&rf=LaDigue_UHD.jpg "老市政厅，班贝格，德国")
+
+---
 ### 09月06日：倒影满湖的水库
 #### 菲安斯湖，格兰屏国家公园，维多利亚州，澳大利亚（© tracielouise/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_1280x720.jpg&rf=LaDigue_1280x720.jpg "布鲁克林大桥，纽约市，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布鲁克林大桥，纽约市，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_UHD.jpg&rf=LaDigue_UHD.jpg "布鲁克林大桥，纽约市，美国")
-
----
-### 08月23日：暑气渐消，金秋已至
-#### 在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国（© jia yu/Getty Images）
-
-![暑气渐消，金秋已至](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_800x480.jpg&rf=LaDigue_800x480.jpg "暑气渐消，金秋已至")
-
-处暑时节将至，航拍视角下的古塔迎着晨雾耸立于渐染秋色的林木之间，生动呈现了暑气消退、金秋将至的自然韵律，以及中国传统文化景观的悠久魅力 。这一时节的传统习俗包括放河灯、迎秋赏景以及饮用中草药煎剂（如凉茶/防暑汤），以调和四季交替时的身体平衡 。
-
-“处暑”标志着气温开始回落，预示着长江三角洲地区金秋收获季节的开启。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%84%e6%9a%91%e8%8a%82%e6%b0%94&form=hpcapt&filters=HpDate:"20260822_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260823_EndofHeatY26"&FORM=HPQUIZ "必应主页测验 2026 8月 23")
-[下载480](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_800x480.jpg&rf=LaDigue_800x480.jpg "在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国")
-[下载720](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_1280x720.jpg&rf=LaDigue_1280x720.jpg "在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_UHD.jpg&rf=LaDigue_UHD.jpg "在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国")
 
 ---
