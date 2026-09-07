@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月08日：金色田野
+#### 东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰（© Guy Edwardes/Minden Pictures）
+
+![金色田野](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_800x480.jpg&rf=LaDigue_800x480.jpg "金色田野")
+
+在汉普郡东米恩附近的金色田野中，一棵山毛榉独自挺立，成为英格兰南唐斯国家公园起伏景观中的醒目焦点。数百年来，农业塑造着这些白垩丘陵；时至今日，耕作仍是该地区的重要组成部分。当地排水良好的白垩土壤支撑着大规模旱作农业，其中小麦和大麦是最常见的作物。整个夏季，作物在田间逐渐成熟，随后收获季将乡野变成金色田块与麦茬交织的拼图。
+
+米恩河发源于东米恩村中心以南约一英里处，向前流淌约21英里后汇入索伦特海峡。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8b%b1%e6%a0%bc%e5%85%b0%e6%b1%89%e6%99%ae%e9%83%a1&form=hpcapt&filters=HpDate:"20260907_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260908_BeechEngland"&FORM=HPQUIZ "必应主页测验 2026 9月 8")
+[下载480](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_800x480.jpg&rf=LaDigue_800x480.jpg "东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_1280x720.jpg&rf=LaDigue_1280x720.jpg "东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_UHD.jpg&rf=LaDigue_UHD.jpg "东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰")
+
+---
 ### 09月07日：历史沿运河流淌之地
 #### 老市政厅，班贝格，德国（© SCStock/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_1280x720.jpg&rf=LaDigue_1280x720.jpg "红木国家与州立公园的日出，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红木国家与州立公园的日出，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_UHD.jpg&rf=LaDigue_UHD.jpg "红木国家与州立公园的日出，加利福尼亚州，美国")
-
----
-### 08月24日：跨越历史
-#### 布鲁克林大桥，纽约市，美国（© shayes17/Getty Images）
-
-![跨越历史](https://cn.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_800x480.jpg&rf=LaDigue_800x480.jpg "跨越历史")
-
-布鲁克林大桥连接的不只是曼哈顿和布鲁克林——它还连接着历史、工程学以及几个令人惊讶的故事。大桥历经14年建造，于1883年开放，成为世界上第一座钢丝悬索桥，永久改变了纽约人跨越东河的方式。
-
-2024年，布鲁克林大桥日均承载103,051辆机动车、28,845名行人和5,504名骑行者。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e9%b2%81%e5%85%8b%e6%9e%97%e5%a4%a7%e6%a1%a5&form=hpcapt&filters=HpDate:"20260823_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260824_BKBridge"&FORM=HPQUIZ "必应主页测验 2026 8月 24")
-[下载480](https://cn.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_800x480.jpg&rf=LaDigue_800x480.jpg "布鲁克林大桥，纽约市，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_1280x720.jpg&rf=LaDigue_1280x720.jpg "布鲁克林大桥，纽约市，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布鲁克林大桥，纽约市，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_UHD.jpg&rf=LaDigue_UHD.jpg "布鲁克林大桥，纽约市，美国")
 
 ---
