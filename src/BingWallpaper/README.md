@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月09日：印度西海岸的生活
+#### 安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度（© Amith Nag Photography/Getty Images）
+
+![印度西海岸的生活](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_800x480.jpg&rf=LaDigue_800x480.jpg "印度西海岸的生活")
+
+提到印度南部，人们常会想到香料贸易路线、古典音乐、民间舞蹈，以及数百年来连接印度与世界的海岸线。沿着这条海岸向西进入卡纳塔克邦，便会抵达安科拉附近一处更宁静的停靠点：加比特凯尼海滩。这里的生活围绕阿拉伯海展开，渔船在黎明前出海，载着当天的渔获归来。
+
+安科拉主要种植的卡里伊沙德芒果于2023年获得地理标志（GI）认证。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%b0%e5%ba%a6%e5%8d%a1%e7%ba%b3%e5%a1%94%e5%85%8b%e9%82%a6%e5%ae%89%e7%a7%91%e6%8b%89&form=hpcapt&filters=HpDate:"20260908_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260909_GabitKeni"&FORM=HPQUIZ "必应主页测验 2026 9月 9")
+[下载480](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_800x480.jpg&rf=LaDigue_800x480.jpg "安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_1280x720.jpg&rf=LaDigue_1280x720.jpg "安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_UHD.jpg&rf=LaDigue_UHD.jpg "安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度")
+
+---
 ### 09月08日：金色田野
 #### 东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰（© Guy Edwardes/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_1280x720.jpg&rf=LaDigue_1280x720.jpg "基尔丘山上空的极光，冰岛")
 [下载1080](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "基尔丘山上空的极光，冰岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_UHD.jpg&rf=LaDigue_UHD.jpg "基尔丘山上空的极光，冰岛")
-
----
-### 08月25日：守护美国瑰宝
-#### 红木国家与州立公园的日出，加利福尼亚州，美国（© HadelProductions/Getty Images）
-
-![守护美国瑰宝](https://cn.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_800x480.jpg&rf=LaDigue_800x480.jpg "守护美国瑰宝")
-
-110年来，美国最杰出的户外课堂始终向人们开放，供大家探索。8月25日，美国国家公园管理局迎来其守护美国自然与文化瑰宝一个多世纪的纪念日。1916年，伍德罗·威尔逊总统签署《组织法》使其成为法律，该机构由此成立；如今，它负责管理全美数百座公园、纪念地、海滨和历史遗址。由护林员带领的项目、家庭活动和教育活动邀请游客亲近那些塑造了国家公园体系的景观与故事。
-
-夏季雾气约占海岸红杉水分来源的40%，帮助这些参天巨树安然度过干燥月份。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a2%e6%9d%89%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad%e4%b8%8e%e5%b7%9e%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260824_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260825_RedwoodPark"&FORM=HPQUIZ "必应主页测验 2026 8月 25")
-[下载480](https://cn.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_800x480.jpg&rf=LaDigue_800x480.jpg "红木国家与州立公园的日出，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_1280x720.jpg&rf=LaDigue_1280x720.jpg "红木国家与州立公园的日出，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红木国家与州立公园的日出，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_UHD.jpg&rf=LaDigue_UHD.jpg "红木国家与州立公园的日出，加利福尼亚州，美国")
 
 ---
