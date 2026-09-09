@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月10日：俯瞰大地拼图
+#### 奥尔韦拉航拍图，安达卢西亚，西班牙（© Marco Bottigelli/Getty Images）
+
+![俯瞰大地拼图](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_800x480.jpg&rf=LaDigue_800x480.jpg "俯瞰大地拼图")
+
+你是否想过，安达卢西亚为何是西班牙最著名的地区之一？弗拉门戈、塔帕斯、摩尔式建筑和广阔的橄榄林都功不可没。在那些名城之外，还有奥尔韦拉这样的历史古镇。这座村庄被200多万棵橄榄树环绕，作为战略边境聚落发展而来，并在数百年的变迁中成形。奥尔韦拉城堡依然俯瞰着全镇，下方的化身圣母教堂则主导着天际线。前往拉西利亚文化中心，可以了解奥尔韦拉的中世纪历史与传统。
+
+奥尔韦拉的摩尔式城堡建于12世纪末，坐落在海拔约623米的高处。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e5%ae%89%e8%be%be%e5%8d%a2%e8%a5%bf%e4%ba%9a%e5%a4%a7%e5%8c%ba%e5%a5%a5%e5%b0%94%e9%9f%a6%e6%8b%89&form=hpcapt&filters=HpDate:"20260909_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260910_Olvera"&FORM=HPQUIZ "必应主页测验 2026 9月 10")
+[下载480](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_800x480.jpg&rf=LaDigue_800x480.jpg "奥尔韦拉航拍图，安达卢西亚，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥尔韦拉航拍图，安达卢西亚，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥尔韦拉航拍图，安达卢西亚，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_UHD.jpg&rf=LaDigue_UHD.jpg "奥尔韦拉航拍图，安达卢西亚，西班牙")
+
+---
 ### 09月09日：印度西海岸的生活
 #### 安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度（© Amith Nag Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的小红鹳群，马加迪湖，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的小红鹳群，马加迪湖，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的小红鹳群，马加迪湖，肯尼亚")
-
----
-### 08月26日：流光溢彩的天空
-#### 基尔丘山上空的极光，冰岛（© Cavan Images/Alamy）
-
-![流光溢彩的天空](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_800x480.jpg&rf=LaDigue_800x480.jpg "流光溢彩的天空")
-
-随着冰岛的夜晚再次变长，游客很快又会仰望天空，期待一睹北极光。北极光是一种发光现象，当来自太阳的粒子与地球高层大气中的气体相互作用时，便会形成闪烁的绿色、粉色、紫色，有时甚至是红色光带。冰岛地处北方，秋冬季夜晚日益漫长而黑暗，因此成为全球首屈一指的极光观赏地之一。
-
-极光有时还可能伴随微弱声响，不过相关报告较少，其形成机制仍在研究中。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%9e%81%e5%85%89&form=hpcapt&filters=HpDate:"20260825_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260826_AurorasIceland"&FORM=HPQUIZ "必应主页测验 2026 8月 26")
-[下载480](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_800x480.jpg&rf=LaDigue_800x480.jpg "基尔丘山上空的极光，冰岛")
-[下载720](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_1280x720.jpg&rf=LaDigue_1280x720.jpg "基尔丘山上空的极光，冰岛")
-[下载1080](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "基尔丘山上空的极光，冰岛")
-[下载UHD](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_UHD.jpg&rf=LaDigue_UHD.jpg "基尔丘山上空的极光，冰岛")
 
 ---
