@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月11日：地中海风情尽显
+#### 滨海自由城，法国里维埃拉，法国（© StockByM/Getty Images）
+
+![地中海风情尽显](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_800x480.jpg&rf=LaDigue_800x480.jpg "地中海风情尽显")
+
+九月，法国里维埃拉沐浴在更柔和的光线中，地中海植被也逐渐恢复生机。山丘间弥漫着阿勒颇松、迷迭香和野百里香的芳香。内陆地区，百年橄榄树和山顶村庄讲述着一个由希腊、罗马和普罗旺斯影响共同塑造的故事。
+
+滨海自由城的圣埃尔姆城堡奉萨伏依公爵埃马努埃莱·菲利贝托之命，于1557年建成，用于加强海岸防御。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%bb%a8%e6%b5%b7%e8%87%aa%e7%94%b1%e5%9f%8e&form=hpcapt&filters=HpDate:"20260910_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260911_FrenchRivieraVillage"&FORM=HPQUIZ "必应主页测验 2026 9月 11")
+[下载480](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_800x480.jpg&rf=LaDigue_800x480.jpg "滨海自由城，法国里维埃拉，法国")
+[下载720](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_1280x720.jpg&rf=LaDigue_1280x720.jpg "滨海自由城，法国里维埃拉，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "滨海自由城，法国里维埃拉，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_UHD.jpg&rf=LaDigue_UHD.jpg "滨海自由城，法国里维埃拉，法国")
+
+---
 ### 09月10日：俯瞰大地拼图
 #### 奥尔韦拉航拍图，安达卢西亚，西班牙（© Marco Bottigelli/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_1280x720.jpg&rf=LaDigue_1280x720.jpg "涨潮时的圣米歇尔山，芒什省，诺曼底，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "涨潮时的圣米歇尔山，芒什省，诺曼底，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_UHD.jpg&rf=LaDigue_UHD.jpg "涨潮时的圣米歇尔山，芒什省，诺曼底，法国")
-
----
-### 08月27日：湖水、野生动物与奇景
-#### 日出时的小红鹳群，马加迪湖，肯尼亚（© Denis-Huot/Nature Picture Library）
-
-![湖水、野生动物与奇景](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_800x480.jpg&rf=LaDigue_800x480.jpg "湖水、野生动物与奇景")
-
-想象一个没有这些自然奇观的世界——它们容纳着地球约90%的地表淡水。湖泊是地球上最宝贵的资源之一。它们提供清洁水源、支持野生动物、帮助调节气候，并维系全球各地的社区。为肯定湖泊的重要作用，联合国将8月27日定为世界湖泊日，并于2025年首次纪念。采取行动的必要性比以往任何时候都更为迫切。全球超过1.17亿个湖泊覆盖了近4%的陆地表面，但许多湖泊正面临污染、过度利用和气候变化带来的日益严峻的压力。
-
-马加迪湖位于火山盆地中，温泉为富含碳酸钠的高碱性湖水提供补给。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%b9%96%e6%b3%8a%e6%97%a5&form=hpcapt&filters=HpDate:"20260826_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260827_LakeMagadi"&FORM=HPQUIZ "必应主页测验 2026 8月 27")
-[下载480](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_800x480.jpg&rf=LaDigue_800x480.jpg "日出时的小红鹳群，马加迪湖，肯尼亚")
-[下载720](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_1280x720.jpg&rf=LaDigue_1280x720.jpg "日出时的小红鹳群，马加迪湖，肯尼亚")
-[下载1080](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的小红鹳群，马加迪湖，肯尼亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的小红鹳群，马加迪湖，肯尼亚")
 
 ---
