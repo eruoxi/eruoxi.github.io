@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月13日：高处的珊瑚礁
+#### 米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利（© Vithun Khamsong/Getty Images）
+
+![高处的珊瑚礁](https://cn.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_800x480.jpg&rf=LaDigue_800x480.jpg "高处的珊瑚礁")
+
+画面捕捉了意大利东北部威尼托大区米苏里纳群峰日出时的锯齿状天际线。前往附近三峰山的游客，往往本为那条著名路线而来，却发现自己的目光被米苏里纳群峰吸引。作为多洛米蒂山脉的一部分，这些针状山峰最高处超过9,300英尺，仿佛专为营造戏剧效果而雕琢。出人意料的是，它们最初是古老的珊瑚礁。
+
+联合国教科文组织的多洛米蒂山脉遗产地由九个组成部分构成，其中有18座海拔超过3000米的山峰。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%9a%e6%b4%9b%e7%b1%b3%e8%92%82%e5%b1%b1%e8%84%89%e7%b1%b3%e8%8b%8f%e9%87%8c%e7%ba%b3%e7%be%a4%e5%b3%b0&form=hpcapt&filters=HpDate:"20260912_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260913_MisurinaPeak"&FORM=HPQUIZ "必应主页测验 2026 9月 13")
+[下载480](https://cn.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_800x480.jpg&rf=LaDigue_800x480.jpg "米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_1280x720.jpg&rf=LaDigue_1280x720.jpg "米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_UHD.jpg&rf=LaDigue_UHD.jpg "米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利")
+
+---
 ### 09月12日：海浪与海岸的高手
 #### 墨西哥近海围猎沙丁鱼饵球的加州海狮，太平洋（© Henley Spiers/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_1280x720.jpg&rf=LaDigue_1280x720.jpg "鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg&rf=LaDigue_UHD.jpg "鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚")
-
----
-### 08月29日：读懂浪涛之间的讯息
-#### 冲浪者航拍图，圣卡塔琳娜州，巴西（© Wonderful Nature/Shutterstock）
-
-![读懂浪涛之间的讯息](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_800x480.jpg&rf=LaDigue_800x480.jpg "读懂浪涛之间的讯息")
-
-在巴西南部圣卡塔琳娜州近海，图片捕捉到一种熟悉的仪式：冲浪者在碎浪之外等待，冲浪板随着大西洋的波涛起伏。从空中看，几乎什么都没有发生，但真正的功课正是在此时开始。
-
-圣卡塔琳娜州海岸的若阿基纳海滩曾承办多项重要国际冲浪赛事。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e8%a5%bf%e5%9c%a3%e5%8d%a1%e5%a1%94%e7%90%b3%e5%a8%9c%e5%b7%9e&form=hpcapt&filters=HpDate:"20260828_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260829_SantaCatarina"&FORM=HPQUIZ "必应主页测验 2026 8月 29")
-[下载480](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_800x480.jpg&rf=LaDigue_800x480.jpg "冲浪者航拍图，圣卡塔琳娜州，巴西")
-[下载720](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_1280x720.jpg&rf=LaDigue_1280x720.jpg "冲浪者航拍图，圣卡塔琳娜州，巴西")
-[下载1080](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冲浪者航拍图，圣卡塔琳娜州，巴西")
-[下载UHD](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_UHD.jpg&rf=LaDigue_UHD.jpg "冲浪者航拍图，圣卡塔琳娜州，巴西")
 
 ---
