@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月14日：坚韧在此扎根
+#### 地肤田，中国（© lingqi xie/Getty Images）
+
+![坚韧在此扎根](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_800x480.jpg&rf=LaDigue_800x480.jpg "坚韧在此扎根")
+
+在今天的画面中，中国大地上铺展着绿色与深红色的地肤。地肤原产于欧亚大陆部分地区，19世纪末作为观赏植物和制作扫帚的材料来源被引入美国。它耐旱、耐热、耐盐碱土壤和少雨环境的能力，帮助其扩散至美国大平原及美国西部大部分地区。
+
+地肤属于苋科，与甜菜、菠菜和藜麦有植物学上的亲缘关系。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%b0%e8%82%a4&form=hpcapt&filters=HpDate:"20260913_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260914_KochiaChina"&FORM=HPQUIZ "必应主页测验 2026 9月 14")
+[下载480](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_800x480.jpg&rf=LaDigue_800x480.jpg "地肤田，中国")
+[下载720](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_1280x720.jpg&rf=LaDigue_1280x720.jpg "地肤田，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "地肤田，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_UHD.jpg&rf=LaDigue_UHD.jpg "地肤田，中国")
+
+---
 ### 09月13日：高处的珊瑚礁
 #### 米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利（© Vithun Khamsong/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_1280x720.jpg&rf=LaDigue_1280x720.jpg "雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦")
 [下载1080](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦")
 [下载UHD](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_UHD.jpg&rf=LaDigue_UHD.jpg "雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦")
-
----
-### 08月30日：名为鲨鱼的巨型鱼类
-#### 鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚（© Pete Oxford/Nature Picture Library）
-
-![名为鲨鱼的巨型鱼类](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_800x480.jpg&rf=LaDigue_800x480.jpg "名为鲨鱼的巨型鱼类")
-
-今天，国际鲸鲨日将目光投向世界上最大的鱼类。鲸鲨虽然名字中带有“鲸”，却不是鲸类，而是鱼类；体长可达60英尺，体重约20吨。它们分布在温暖的热带海域，张着嘴在水中缓缓游动，滤食浮游生物、鱼卵和其他微小猎物。每条鲸鲨身上独特的白色斑点图案都各不相同，就像人类的指纹。
-
-鲸鲨的寿命可能达到或超过一个世纪，这使世界上最大的鱼拥有令人意外的漫长生命。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%b2%b8%e9%b2%a8&form=hpcapt&filters=HpDate:"20260829_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260830_YellowShark"&FORM=HPQUIZ "必应主页测验 2026 8月 30")
-[下载480](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_800x480.jpg&rf=LaDigue_800x480.jpg "鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚")
-[下载720](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_1280x720.jpg&rf=LaDigue_1280x720.jpg "鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg&rf=LaDigue_UHD.jpg "鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚")
 
 ---
