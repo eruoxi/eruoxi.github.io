@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月15日：最炫者生存
+#### 红绿金刚鹦鹉（© markes51/Getty Images）
+
+![最炫者生存](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_800x480.jpg&rf=LaDigue_800x480.jpg "最炫者生存")
+
+进化偶尔也会偏爱繁复华丽。看看这些红绿金刚鹦鹉：它们拥有猩红色羽毛、鲜绿色翅膀和蓝色飞羽。它们生活在南美洲热带地区，日常活动以不易从地面察觉的方式将果实、种子与土壤联系在一起。
+
+大型金刚鹦鹉可产生数百磅每平方英寸的咬合压力，远高于普通人类，因而能轻松咬开坚硬的坚果和种子。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a2%e7%bb%bf%e9%87%91%e5%88%9a%e9%b9%a6%e9%b9%89&form=hpcapt&filters=HpDate:"20260914_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260915_RedMacawsFlight"&FORM=HPQUIZ "必应主页测验 2026 9月 15")
+[下载480](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_800x480.jpg&rf=LaDigue_800x480.jpg "红绿金刚鹦鹉")
+[下载720](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_1280x720.jpg&rf=LaDigue_1280x720.jpg "红绿金刚鹦鹉")
+[下载1080](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红绿金刚鹦鹉")
+[下载UHD](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_UHD.jpg&rf=LaDigue_UHD.jpg "红绿金刚鹦鹉")
+
+---
 ### 09月14日：坚韧在此扎根
 #### 地肤田，中国（© lingqi xie/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_1280x720.jpg&rf=LaDigue_1280x720.jpg "马鬃小皮伞，白俄罗斯")
 [下载1080](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马鬃小皮伞，白俄罗斯")
 [下载UHD](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg&rf=LaDigue_UHD.jpg "马鬃小皮伞，白俄罗斯")
-
----
-### 08月31日：图案艺术的典范
-#### 雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦（© Piero M. Bianchi/Getty Images）
-
-![图案艺术的典范](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_800x480.jpg&rf=LaDigue_800x480.jpg "图案艺术的典范")
-
-站在雷吉斯坦广场上，你很容易明白为什么这里被视为撒马尔罕的建筑核心——撒马尔罕是中亚最古老的城市之一。这座位于乌兹别克斯坦的广场三面矗立着三座宏伟的经学院——伊斯兰学术中心——它们高耸的门廊吸引着人们仰头观望。然而，广场上一些最珍贵的瑰宝，只有在你走近细看时才会显露出来。
-
-2001年，撒马尔罕被列入联合国教科文组织《世界遗产名录》，获誉为拥有2500多年历史的世界文化交汇地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%92%92%e9%a9%ac%e5%b0%94%e7%bd%95&form=hpcapt&filters=HpDate:"20260830_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 8月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260831_SamarkandCeiling"&FORM=HPQUIZ "必应主页测验 2026 8月 31")
-[下载480](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_800x480.jpg&rf=LaDigue_800x480.jpg "雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦")
-[下载720](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_1280x720.jpg&rf=LaDigue_1280x720.jpg "雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦")
-[下载1080](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦")
-[下载UHD](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_UHD.jpg&rf=LaDigue_UHD.jpg "雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦")
 
 ---
