@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月16日：北极的新晋探索者
+#### 斯瓦尔巴群岛玩耍的北极熊幼崽，挪威（© Danny Green/Nature Picture Library）
+
+![北极的新晋探索者](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_800x480.jpg&rf=LaDigue_800x480.jpg "北极的新晋探索者")
+
+两只北极熊幼崽小心翼翼地穿行在斯瓦尔巴群岛的雪地上；这片偏远的挪威群岛深入北冰洋腹地，由冰川、山脉和冰封峡湾构成。这片荒野属于巴伦支海地区，生活着全球最大的北极熊种群之一，约有2,600只。
+
+在经历了约一个世纪的大规模捕猎后，斯瓦尔巴群岛的北极熊自1973年起受到保护。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%9e%81%e7%86%8a&form=hpcapt&filters=HpDate:"20260915_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260916_IcyCubs"&FORM=HPQUIZ "必应主页测验 2026 9月 16")
+[下载480](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_800x480.jpg&rf=LaDigue_800x480.jpg "斯瓦尔巴群岛玩耍的北极熊幼崽，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯瓦尔巴群岛玩耍的北极熊幼崽，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯瓦尔巴群岛玩耍的北极熊幼崽，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_UHD.jpg&rf=LaDigue_UHD.jpg "斯瓦尔巴群岛玩耍的北极熊幼崽，挪威")
+
+---
 ### 09月15日：最炫者生存
 #### 红绿金刚鹦鹉（© markes51/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_1280x720.jpg&rf=LaDigue_1280x720.jpg "传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg&rf=LaDigue_UHD.jpg "传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰")
-
----
-### 09月01日：脚下的世界
-#### 马鬃小皮伞，白俄罗斯（© Máté/Nature Picture Library）
-
-![脚下的世界](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_800x480.jpg&rf=LaDigue_800x480.jpg "脚下的世界")
-
-九月的全国蘑菇月旨在赞颂一个常常不为人注意的世界。在森林地表、草坪和落叶下方，真菌网络循环利用养分，帮助生态系统蓬勃发展。我们看到的蘑菇只是这些隐秘生物的子实体，它们短暂现身释放孢子，随后又从视野中消失。它们并非植物；真菌自成一界，并在大自然的循环中发挥着至关重要的作用。
-
-宾夕法尼亚州东南部的肯尼特广场享誉全球，被誉为“世界蘑菇之都”。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%a9%ac%e9%ac%83%e5%b0%8f%e7%9a%ae%e4%bc%9e&form=hpcapt&filters=HpDate:"20260831_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260901_HorseHairShroom"&FORM=HPQUIZ "必应主页测验 2026 9月 1")
-[下载480](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_800x480.jpg&rf=LaDigue_800x480.jpg "马鬃小皮伞，白俄罗斯")
-[下载720](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_1280x720.jpg&rf=LaDigue_1280x720.jpg "马鬃小皮伞，白俄罗斯")
-[下载1080](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马鬃小皮伞，白俄罗斯")
-[下载UHD](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg&rf=LaDigue_UHD.jpg "马鬃小皮伞，白俄罗斯")
 
 ---
