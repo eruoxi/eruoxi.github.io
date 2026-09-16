@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月17日：为丰收举杯
+#### 桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国（© Marco Bottigelli/Getty Images）
+
+![为丰收举杯](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_800x480.jpg&rf=LaDigue_800x480.jpg "为丰收举杯")
+
+每年夏末秋初，法国最令人期待的传统之一——“vendanges”葡萄采摘季——如期而至。采摘时间因葡萄酒产区而异，并取决于天气状况、日照以及果实的成熟度。对许多葡萄园而言，采收仍主要依靠人工，工作人员会仔细挑选一串串葡萄，用于酿造法国一些最负盛名的葡萄酒。
+
+索林风车是伯恩丘现存最后一座仍可运转的公共风车；这座19世纪风车于1995年得到忠实修复。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a1%91%e7%89%b9%e5%a5%88%e8%91%a1%e8%90%84%e9%85%92%e4%ba%a7%e5%8c%ba&form=hpcapt&filters=HpDate:"20260916_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260917_Santenay"&FORM=HPQUIZ "必应主页测验 2026 9月 17")
+[下载480](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_800x480.jpg&rf=LaDigue_800x480.jpg "桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国")
+[下载720](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_1280x720.jpg&rf=LaDigue_1280x720.jpg "桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_UHD.jpg&rf=LaDigue_UHD.jpg "桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国")
+
+---
 ### 09月16日：北极的新晋探索者
 #### 斯瓦尔巴群岛玩耍的北极熊幼崽，挪威（© Danny Green/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_1280x720.jpg&rf=LaDigue_1280x720.jpg "郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_UHD.jpg&rf=LaDigue_UHD.jpg "郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国")
-
----
-### 09月02日：海岸边的缤纷色彩
-#### 传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰（© stevendocwra/Getty Images）
-
-![海岸边的缤纷色彩](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_800x480.jpg&rf=LaDigue_800x480.jpg "海岸边的缤纷色彩")
-
-在英格兰东海岸，萨福克遗产海岸融合了风吹不息的石南荒原、湿地、砾石海滩和开阔的北海景观。索思沃尔德是这里最著名的城镇之一，水域与历史在此密不可分。小镇几乎被大海、布莱斯河和周围的湿地环绕，坐落在一片狭长的半岛上；数百年来的渔业、贸易和临水生活共同塑造了这里。
-
-索思沃尔德灯塔于1890年9月3日投入使用，如今其灯光射程可达24海里。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%90%a8%e7%a6%8f%e5%85%8b%e9%83%a1%e7%b4%a2%e6%96%af%e6%b2%83%e5%b0%94%e5%be%b7&form=hpcapt&filters=HpDate:"20260901_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260902_SuffolkHuts"&FORM=HPQUIZ "必应主页测验 2026 9月 2")
-[下载480](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_800x480.jpg&rf=LaDigue_800x480.jpg "传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_1280x720.jpg&rf=LaDigue_1280x720.jpg "传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg&rf=LaDigue_UHD.jpg "传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰")
 
 ---
