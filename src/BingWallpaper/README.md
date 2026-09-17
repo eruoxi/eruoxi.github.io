@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月18日：穿越山口腹地
+#### 温纳茨山口，峰区国家公园，英格兰（© Daniel_Kay/Getty Images）
+
+![穿越山口腹地](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_800x480.jpg&rf=LaDigue_800x480.jpg "穿越山口腹地")
+
+在英格兰峰区，一条蜿蜒的长路从已有3亿多年历史的岩石间穿过。如此漫长的地质时间尺度本就令人惊叹，而这条路还穿越了温纳茨山口：这是一道狭窄的石灰岩峡谷，高耸的峭壁展现出远古海洋曾经覆盖英国这一地区的痕迹。
+
+温纳茨山口是峰区国家公园内一处壮观的石灰岩峡谷，位于卡斯尔顿附近，两侧峭壁陡峻嶙峋。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b3%b0%e5%8c%ba%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260917_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260918_WinnatsPassPeak"&FORM=HPQUIZ "必应主页测验 2026 9月 18")
+[下载480](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_800x480.jpg&rf=LaDigue_800x480.jpg "温纳茨山口，峰区国家公园，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_1280x720.jpg&rf=LaDigue_1280x720.jpg "温纳茨山口，峰区国家公园，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "温纳茨山口，峰区国家公园，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_UHD.jpg&rf=LaDigue_UHD.jpg "温纳茨山口，峰区国家公园，英格兰")
+
+---
 ### 09月17日：为丰收举杯
 #### 桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国（© Marco Bottigelli/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_1280x720.jpg&rf=LaDigue_1280x720.jpg "韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_UHD.jpg&rf=LaDigue_UHD.jpg "韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国")
-
----
-### 09月03日：一部守护荒野的法案
-#### 郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国（© James Hager/Getty Images）
-
-![一部守护荒野的法案](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_800x480.jpg&rf=LaDigue_800x480.jpg "一部守护荒野的法案")
-
-波浪通常属于海洋。但在亚利桑那州北部，它们却从沙漠中涌起。郊狼丘是朱红悬崖国家纪念区的一部分，其盘旋起伏的砂岩地貌由远古沙丘和数百万年的侵蚀共同塑造而成，造就了一片即使静止不动也仿佛泛着涟漪的景观。
-
-《荒野法》通常禁止在指定荒野地区修建永久性道路或开展商业活动。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%9c%b1%e7%ba%a2%e6%82%ac%e5%b4%96%e5%9b%bd%e5%ae%b6%e7%ba%aa%e5%bf%b5%e5%8c%ba&form=hpcapt&filters=HpDate:"20260902_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260903_AZWilderness"&FORM=HPQUIZ "必应主页测验 2026 9月 3")
-[下载480](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_800x480.jpg&rf=LaDigue_800x480.jpg "郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_1280x720.jpg&rf=LaDigue_1280x720.jpg "郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_UHD.jpg&rf=LaDigue_UHD.jpg "郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国")
 
 ---
