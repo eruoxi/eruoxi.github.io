@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月19日：慕尼黑啤酒节的阿尔卑斯之声
+#### 阿尔卑斯长号演奏者，巴伐利亚州，德国（© U. J. Alexander/Shutterstock）
+
+![慕尼黑啤酒节的阿尔卑斯之声](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_800x480.jpg&rf=LaDigue_800x480.jpg "慕尼黑啤酒节的阿尔卑斯之声")
+
+慕尼黑啤酒节于今天开幕，抵达德国巴伐利亚州的游客或许会听到一种甚至比这一著名节日本身更古老的声音：阿尔卑斯长号深沉而浑厚的鸣响。这种传统的阿尔卑斯乐器与巴伐利亚、奥地利和瑞士的文化紧密相连；过去，牧羊人曾用它跨越山谷彼此传递信息。
+
+已知最早提及瑞士阿尔卑斯长号的文字记录可追溯至1527年，见于圣乌尔班修道院的账簿。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%85%95%e5%b0%bc%e9%bb%91%e5%95%a4%e9%85%92%e8%8a%82&form=hpcapt&filters=HpDate:"20260918_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260919_AlphornBavaria"&FORM=HPQUIZ "必应主页测验 2026 9月 19")
+[下载480](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔卑斯长号演奏者，巴伐利亚州，德国")
+[下载720](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔卑斯长号演奏者，巴伐利亚州，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔卑斯长号演奏者，巴伐利亚州，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔卑斯长号演奏者，巴伐利亚州，德国")
+
+---
 ### 09月18日：穿越山口腹地
 #### 温纳茨山口，峰区国家公园，英格兰（© Daniel_Kay/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_1280x720.jpg&rf=LaDigue_1280x720.jpg "龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加")
 [下载1080](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加")
 [下载UHD](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_UHD.jpg&rf=LaDigue_UHD.jpg "龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加")
-
----
-### 09月04日：地平线上的红与白
-#### 韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国（© bluejayphoto/Getty Images）
-
-![地平线上的红与白](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_800x480.jpg&rf=LaDigue_800x480.jpg "地平线上的红与白")
-
-韦斯特黑弗桑德灯塔高耸于德国北海沿岸的盐沼之上，凭借醒目的红白条纹一眼便可辨认。灯塔建于1906年至1908年间，一个多世纪以来一直是艾德施泰特半岛的标志，为穿行北海水域的船只指引航向。如今，它仍是德国北部最著名的海岸地标之一。登上157级台阶的游客，可以饱览周围的壮阔景色。
-
-韦斯特黑弗桑德灯塔是一座40米高的铸铁塔，左右两侧各有一座造型对称的原守塔人住宅。
-
-[Bing搜索](https://cn.bing.com/search?q=%e9%9f%a6%e6%96%af%e7%89%b9%e9%bb%91%e5%bc%97%e6%a1%91%e5%be%b7%e7%81%af%e5%a1%94&form=hpcapt&filters=HpDate:"20260903_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260904_Westerheversand"&FORM=HPQUIZ "必应主页测验 2026 9月 4")
-[下载480](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_800x480.jpg&rf=LaDigue_800x480.jpg "韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国")
-[下载720](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_1280x720.jpg&rf=LaDigue_1280x720.jpg "韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_UHD.jpg&rf=LaDigue_UHD.jpg "韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国")
 
 ---
