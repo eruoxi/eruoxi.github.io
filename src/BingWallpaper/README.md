@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月20日：终获巴黎青睐的铁塔
+#### 日落时分的埃菲尔铁塔，巴黎，法国（© Alexander Spatari/Getty Images）
+
+![终获巴黎青睐的铁塔](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_800x480.jpg&rf=LaDigue_800x480.jpg "终获巴黎青睐的铁塔")
+
+几乎没有哪座城市像巴黎这样被赋予如此多的浪漫想象。然而，这座法国首都的历史并非始终像埃菲尔铁塔背后的落日霞光一样绚丽。铁塔为1889年世界博览会而建；这届世博会纪念法国大革命爆发一百周年，而铁塔最初计划作为博览会入口处的核心建筑。由工程师古斯塔夫·埃菲尔及其团队设计的这座钢铁地标，从战神广场拔地而起，高度接近1,000英尺，并成为当时世界上最高的建筑。
+
+如今埃菲尔铁塔高330米；2022年安装一根新的数字广播天线后，塔身增高了6米。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e9%bb%8e&form=hpcapt&filters=HpDate:"20260919_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260920_ParisSunset"&FORM=HPQUIZ "必应主页测验 2026 9月 20")
+[下载480](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_800x480.jpg&rf=LaDigue_800x480.jpg "日落时分的埃菲尔铁塔，巴黎，法国")
+[下载720](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时分的埃菲尔铁塔，巴黎，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时分的埃菲尔铁塔，巴黎，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_UHD.jpg&rf=LaDigue_UHD.jpg "日落时分的埃菲尔铁塔，巴黎，法国")
+
+---
 ### 09月19日：慕尼黑啤酒节的阿尔卑斯之声
 #### 阿尔卑斯长号演奏者，巴伐利亚州，德国（© U. J. Alexander/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.LakeFyans_ZH-CN1067187791_1280x720.jpg&rf=LaDigue_1280x720.jpg "菲安斯湖，格兰屏国家公园，维多利亚州，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.LakeFyans_ZH-CN1067187791_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "菲安斯湖，格兰屏国家公园，维多利亚州，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.LakeFyans_ZH-CN1067187791_UHD.jpg&rf=LaDigue_UHD.jpg "菲安斯湖，格兰屏国家公园，维多利亚州，澳大利亚")
-
----
-### 09月05日：小小鸟儿，巨大影响
-#### 龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加（© Paul Hobson/Nature Picture Library）
-
-![小小鸟儿，巨大影响](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_800x480.jpg&rf=LaDigue_800x480.jpg "小小鸟儿，巨大影响")
-
-全国蜂鸟日旨在赞颂自然界中最非凡的空中飞行专家。蜂鸟仅分布于美洲，这些小鸟能够原地悬停、向后飞行，翅膀每秒可拍动数十次。它们为寻找花蜜而造访花朵时，也充当重要的传粉者，帮助维系从高山草甸到热带雨林的各种生态系统。闪耀的羽毛、非凡的敏捷性和高能耗的生活方式，使它们成为世界上最迷人的鸟类之一。
-
-蜂鸟的新陈代谢率在所有脊椎动物中最高，可能每10分钟就要进食一次。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%85%a8%e5%9b%bd%e8%9c%82%e9%b8%9f%e6%97%a5&form=hpcapt&filters=HpDate:"20260904_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260905_GreenCrowned"&FORM=HPQUIZ "必应主页测验 2026 9月 5")
-[下载480](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_800x480.jpg&rf=LaDigue_800x480.jpg "龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加")
-[下载720](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_1280x720.jpg&rf=LaDigue_1280x720.jpg "龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加")
-[下载1080](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加")
-[下载UHD](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_UHD.jpg&rf=LaDigue_UHD.jpg "龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加")
 
 ---
