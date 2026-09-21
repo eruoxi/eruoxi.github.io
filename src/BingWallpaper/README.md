@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月22日：金色时节
+#### 瓜兹曼山口附近的秋日山杨林，犹他州，美国（© Danita Delimont/Shutterstock）
+
+![金色时节](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_800x480.jpg&rf=LaDigue_800x480.jpg "金色时节")
+
+在犹他州瓜兹曼山口附近，季节的变化以金色写满山坡。为美国西部染上色彩的山杨中，有许多是美洲山杨——北美分布最广的本土树种。眼前看似由一棵棵独立树木组成的森林，往往有着截然不同的真相：许多山杨形成彼此相连的无性系群落，树干从共享的根系网络中长出，并与相邻树干拥有相同的遗传密码。
+
+犹他州的“潘多”（Pando）颤杨林被认为是世界上最大且最古老的生物体之一；它由超过40,000棵基因完全相同的树干组成，这些树干通过一个延伸超过100英亩的巨大地下根系紧密相连。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%93%9c%e5%85%b9%e6%9b%bc%e5%b1%b1%e5%8f%a3%e9%99%84%e8%bf%91%e7%9a%84%e7%a7%8b%e6%97%a5%e5%b1%b1%e6%9d%a8%e6%9e%97&form=hpcapt&filters=HpDate:"20260921_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260922_FallAspens"&FORM=HPQUIZ "必应主页测验 2026 9月 22")
+[下载480](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_800x480.jpg&rf=LaDigue_800x480.jpg "瓜兹曼山口附近的秋日山杨林，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓜兹曼山口附近的秋日山杨林，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓜兹曼山口附近的秋日山杨林，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_UHD.jpg&rf=LaDigue_UHD.jpg "瓜兹曼山口附近的秋日山杨林，犹他州，美国")
+
+---
 ### 09月21日：皮毛与海洋之间的生命
 #### 正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国（© Suzi Eszterhas/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_1280x720.jpg&rf=LaDigue_1280x720.jpg "东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_UHD.jpg&rf=LaDigue_UHD.jpg "东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰")
-
----
-### 09月07日：历史沿运河流淌之地
-#### 老市政厅，班贝格，德国（© SCStock/Getty Images）
-
-![历史沿运河流淌之地](https://cn.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_800x480.jpg&rf=LaDigue_800x480.jpg "历史沿运河流淌之地")
-
-班贝格老市政厅高踞于雷格尼茨河上，是德国班贝格最具代表性的地标之一。当地传说称，这座建筑之所以矗立在人工岛上，是因为城里的主教拒绝向市民提供修建市政厅的土地。据说居民于是自行在河中央造出一块地基，成就了这座建筑非凡的环境和历久弥新的魅力。
-
-班贝格老市政厅内设路德维希收藏馆，收藏来自重要制造中心的巴洛克时期彩陶和瓷器。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8f%ad%e8%b4%9d%e6%a0%bc&form=hpcapt&filters=HpDate:"20260906_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260907_BambergTownhall"&FORM=HPQUIZ "必应主页测验 2026 9月 7")
-[下载480](https://cn.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_800x480.jpg&rf=LaDigue_800x480.jpg "老市政厅，班贝格，德国")
-[下载720](https://cn.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_1280x720.jpg&rf=LaDigue_1280x720.jpg "老市政厅，班贝格，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "老市政厅，班贝格，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_UHD.jpg&rf=LaDigue_UHD.jpg "老市政厅，班贝格，德国")
 
 ---
