@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月23日：金秋平分，地坛染黄
+#### 地坛公园秋日美景，北京，中国（© by Wei/Adobestock）
+
+![金秋平分，地坛染黄](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_800x480.jpg&rf=LaDigue_800x480.jpg "金秋平分，地坛染黄")
+
+金色地毯通常只出现在童话世界里，但在金秋时节的北京，它们却铺展在你的脚下。地坛公园（方泽坛）著名的银杏大道汇聚了200多株历史悠久的银杏树。每当秋风掠过，数以万计的扇形金叶翩翩飘落，将这座古老的皇家坛庙铺垫成一片如梦似幻的金黄海洋。
+
+秋分标志着昼夜平分，也预示着老北京最美丽的仲秋金色画卷正式展开。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%a7%8b%e5%88%86&form=hpcapt&filters=HpDate:"20260922_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260923_AutumnEquinoxY26"&FORM=HPQUIZ "必应主页测验 2026 9月 23")
+[下载480](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_800x480.jpg&rf=LaDigue_800x480.jpg "地坛公园秋日美景，北京，中国")
+[下载720](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_1280x720.jpg&rf=LaDigue_1280x720.jpg "地坛公园秋日美景，北京，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "地坛公园秋日美景，北京，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_UHD.jpg&rf=LaDigue_UHD.jpg "地坛公园秋日美景，北京，中国")
+
+---
 ### 09月22日：金色时节
 #### 瓜兹曼山口附近的秋日山杨林，犹他州，美国（© Danita Delimont/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_1280x720.jpg&rf=LaDigue_1280x720.jpg "安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_UHD.jpg&rf=LaDigue_UHD.jpg "安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度")
-
----
-### 09月08日：金色田野
-#### 东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰（© Guy Edwardes/Minden Pictures）
-
-![金色田野](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_800x480.jpg&rf=LaDigue_800x480.jpg "金色田野")
-
-在汉普郡东米恩附近的金色田野中，一棵山毛榉独自挺立，成为英格兰南唐斯国家公园起伏景观中的醒目焦点。数百年来，农业塑造着这些白垩丘陵；时至今日，耕作仍是该地区的重要组成部分。当地排水良好的白垩土壤支撑着大规模旱作农业，其中小麦和大麦是最常见的作物。整个夏季，作物在田间逐渐成熟，随后收获季将乡野变成金色田块与麦茬交织的拼图。
-
-米恩河发源于东米恩村中心以南约一英里处，向前流淌约21英里后汇入索伦特海峡。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8b%b1%e6%a0%bc%e5%85%b0%e6%b1%89%e6%99%ae%e9%83%a1&form=hpcapt&filters=HpDate:"20260907_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260908_BeechEngland"&FORM=HPQUIZ "必应主页测验 2026 9月 8")
-[下载480](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_800x480.jpg&rf=LaDigue_800x480.jpg "东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_1280x720.jpg&rf=LaDigue_1280x720.jpg "东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_UHD.jpg&rf=LaDigue_UHD.jpg "东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰")
 
 ---
