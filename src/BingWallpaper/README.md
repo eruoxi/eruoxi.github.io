@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月24日：火山灰与浪花相遇
+#### 黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙（© Westend61/Adobe Stock）
+
+![火山灰与浪花相遇](https://cn.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_800x480.jpg&rf=LaDigue_800x480.jpg "火山灰与浪花相遇")
+
+在西班牙加那利群岛的兰萨罗特岛，大自然的地质创造力尽情挥洒。赭黄与铁锈色条纹交错的悬崖之下，深色沙滩与大西洋相接，这是延续数百万年的火山活动留下的杰作。这段地质故事中有一章发生在距今并不久远的年代：1730年至1736年间，兰萨罗特岛各处出现了众多火山喷口，熔岩覆盖数十平方英里的土地，掩埋了道路、村庄和农田。
+
+兰萨罗特岛与奇尼霍群岛共同构成一座联合国教科文组织世界地质公园，范围涵盖陆地及周边海域。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e5%85%b0%e8%90%a8%e7%bd%97%e7%89%b9%e5%b2%9b&form=hpcapt&filters=HpDate:"20260923_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260924_ElGolfo"&FORM=HPQUIZ "必应主页测验 2026 9月 24")
+[下载480](https://cn.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_800x480.jpg&rf=LaDigue_800x480.jpg "黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_UHD.jpg&rf=LaDigue_UHD.jpg "黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙")
+
+---
 ### 09月23日：金秋平分，地坛染黄
 #### 地坛公园秋日美景，北京，中国（© by Wei/Adobestock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥尔韦拉航拍图，安达卢西亚，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥尔韦拉航拍图，安达卢西亚，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_UHD.jpg&rf=LaDigue_UHD.jpg "奥尔韦拉航拍图，安达卢西亚，西班牙")
-
----
-### 09月09日：印度西海岸的生活
-#### 安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度（© Amith Nag Photography/Getty Images）
-
-![印度西海岸的生活](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_800x480.jpg&rf=LaDigue_800x480.jpg "印度西海岸的生活")
-
-提到印度南部，人们常会想到香料贸易路线、古典音乐、民间舞蹈，以及数百年来连接印度与世界的海岸线。沿着这条海岸向西进入卡纳塔克邦，便会抵达安科拉附近一处更宁静的停靠点：加比特凯尼海滩。这里的生活围绕阿拉伯海展开，渔船在黎明前出海，载着当天的渔获归来。
-
-安科拉主要种植的卡里伊沙德芒果于2023年获得地理标志（GI）认证。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%b0%e5%ba%a6%e5%8d%a1%e7%ba%b3%e5%a1%94%e5%85%8b%e9%82%a6%e5%ae%89%e7%a7%91%e6%8b%89&form=hpcapt&filters=HpDate:"20260908_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260909_GabitKeni"&FORM=HPQUIZ "必应主页测验 2026 9月 9")
-[下载480](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_800x480.jpg&rf=LaDigue_800x480.jpg "安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度")
-[下载720](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_1280x720.jpg&rf=LaDigue_1280x720.jpg "安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度")
-[下载1080](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_UHD.jpg&rf=LaDigue_UHD.jpg "安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度")
 
 ---
