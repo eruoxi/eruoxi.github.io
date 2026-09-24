@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月25日：当月亮也来赴会
+#### 庆祝中秋节的中国灯笼（© LeeYiuTung/Getty Images）
+
+![当月亮也来赴会](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_800x480.jpg&rf=LaDigue_800x480.jpg "当月亮也来赴会")
+
+如果满月是你家宴上的贵宾，会是什么情景？这正是中秋节的意蕴，中秋节也被称为月亮节。这个节日在农历八月十五庆祝，是中国文化中最重要的节日之一。它的源头可追溯至3,000多年前周朝时期的祭月仪式。最广为人知的传说讲述了嫦娥服下长生不老药后飞上月宫的故事。
+
+中国曾制作出一个破纪录的月饼，重近13吨，直径超过26英尺。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e7%a7%8b%e8%8a%82&form=hpcapt&filters=HpDate:"20260924_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260925_MidAutumn2026"&FORM=HPQUIZ "必应主页测验 2026 9月 25")
+[下载480](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_800x480.jpg&rf=LaDigue_800x480.jpg "庆祝中秋节的中国灯笼")
+[下载720](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_1280x720.jpg&rf=LaDigue_1280x720.jpg "庆祝中秋节的中国灯笼")
+[下载1080](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "庆祝中秋节的中国灯笼")
+[下载UHD](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_UHD.jpg&rf=LaDigue_UHD.jpg "庆祝中秋节的中国灯笼")
+
+---
 ### 09月24日：火山灰与浪花相遇
 #### 黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙（© Westend61/Adobe Stock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_1280x720.jpg&rf=LaDigue_1280x720.jpg "滨海自由城，法国里维埃拉，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "滨海自由城，法国里维埃拉，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_UHD.jpg&rf=LaDigue_UHD.jpg "滨海自由城，法国里维埃拉，法国")
-
----
-### 09月10日：俯瞰大地拼图
-#### 奥尔韦拉航拍图，安达卢西亚，西班牙（© Marco Bottigelli/Getty Images）
-
-![俯瞰大地拼图](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_800x480.jpg&rf=LaDigue_800x480.jpg "俯瞰大地拼图")
-
-你是否想过，安达卢西亚为何是西班牙最著名的地区之一？弗拉门戈、塔帕斯、摩尔式建筑和广阔的橄榄林都功不可没。在那些名城之外，还有奥尔韦拉这样的历史古镇。这座村庄被200多万棵橄榄树环绕，作为战略边境聚落发展而来，并在数百年的变迁中成形。奥尔韦拉城堡依然俯瞰着全镇，下方的化身圣母教堂则主导着天际线。前往拉西利亚文化中心，可以了解奥尔韦拉的中世纪历史与传统。
-
-奥尔韦拉的摩尔式城堡建于12世纪末，坐落在海拔约623米的高处。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e5%ae%89%e8%be%be%e5%8d%a2%e8%a5%bf%e4%ba%9a%e5%a4%a7%e5%8c%ba%e5%a5%a5%e5%b0%94%e9%9f%a6%e6%8b%89&form=hpcapt&filters=HpDate:"20260909_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260910_Olvera"&FORM=HPQUIZ "必应主页测验 2026 9月 10")
-[下载480](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_800x480.jpg&rf=LaDigue_800x480.jpg "奥尔韦拉航拍图，安达卢西亚，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥尔韦拉航拍图，安达卢西亚，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥尔韦拉航拍图，安达卢西亚，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_UHD.jpg&rf=LaDigue_UHD.jpg "奥尔韦拉航拍图，安达卢西亚，西班牙")
 
 ---
