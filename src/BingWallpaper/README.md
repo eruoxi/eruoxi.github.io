@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月26日：写在大地上的故事
+#### 熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国（© Jeff Clay/Tandem Stills + Motion）
+
+![写在大地上的故事](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_800x480.jpg&rf=LaDigue_800x480.jpg "写在大地上的故事")
+
+熊的耳朵、着火的房屋和遍布急转弯的道路有什么共同之处？它们都是犹他州东南部公共土地故事的一部分。
+
+熊耳委员会汇集五个部落民族，共同参与指导这座国家纪念区的管理与保护。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%86%8a%e8%80%b3%e5%9b%bd%e5%ae%b6%e7%ba%aa%e5%bf%b5%e5%8c%ba&form=hpcapt&filters=HpDate:"20260925_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260926_BearsEars"&FORM=HPQUIZ "必应主页测验 2026 9月 26")
+[下载480](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_800x480.jpg&rf=LaDigue_800x480.jpg "熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_1280x720.jpg&rf=LaDigue_1280x720.jpg "熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_UHD.jpg&rf=LaDigue_UHD.jpg "熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国")
+
+---
 ### 09月25日：当月亮也来赴会
 #### 庆祝中秋节的中国灯笼（© LeeYiuTung/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SardineBait_ZH-CN3256234033_1280x720.jpg&rf=LaDigue_1280x720.jpg "墨西哥近海围猎沙丁鱼饵球的加州海狮，太平洋")
 [下载1080](https://cn.bing.com/th?id=OHR.SardineBait_ZH-CN3256234033_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "墨西哥近海围猎沙丁鱼饵球的加州海狮，太平洋")
 [下载UHD](https://cn.bing.com/th?id=OHR.SardineBait_ZH-CN3256234033_UHD.jpg&rf=LaDigue_UHD.jpg "墨西哥近海围猎沙丁鱼饵球的加州海狮，太平洋")
-
----
-### 09月11日：地中海风情尽显
-#### 滨海自由城，法国里维埃拉，法国（© StockByM/Getty Images）
-
-![地中海风情尽显](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_800x480.jpg&rf=LaDigue_800x480.jpg "地中海风情尽显")
-
-九月，法国里维埃拉沐浴在更柔和的光线中，地中海植被也逐渐恢复生机。山丘间弥漫着阿勒颇松、迷迭香和野百里香的芳香。内陆地区，百年橄榄树和山顶村庄讲述着一个由希腊、罗马和普罗旺斯影响共同塑造的故事。
-
-滨海自由城的圣埃尔姆城堡奉萨伏依公爵埃马努埃莱·菲利贝托之命，于1557年建成，用于加强海岸防御。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%bb%a8%e6%b5%b7%e8%87%aa%e7%94%b1%e5%9f%8e&form=hpcapt&filters=HpDate:"20260910_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260911_FrenchRivieraVillage"&FORM=HPQUIZ "必应主页测验 2026 9月 11")
-[下载480](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_800x480.jpg&rf=LaDigue_800x480.jpg "滨海自由城，法国里维埃拉，法国")
-[下载720](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_1280x720.jpg&rf=LaDigue_1280x720.jpg "滨海自由城，法国里维埃拉，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "滨海自由城，法国里维埃拉，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_UHD.jpg&rf=LaDigue_UHD.jpg "滨海自由城，法国里维埃拉，法国")
 
 ---
