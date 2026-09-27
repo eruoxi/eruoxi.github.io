@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月28日：可览美景的历史胜地
+#### 斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度（© R.M. Nunes/Getty Images）
+
+![可览美景的历史胜地](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_800x480.jpg&rf=LaDigue_800x480.jpg "可览美景的历史胜地")
+
+大多数初次到访印度拉贾斯坦邦斋浦尔的游客都知道这座城市有“粉红之城”的美誉，但更早的王都以琥珀堡为中心。这个王朝的大部分政治与建筑史正是在那里书写的。琥珀堡的营建历时一个多世纪，始于1592年拉贾·曼·辛格一世统治时期，之后由历代卡奇瓦哈统治者续建；他们统治的王国后来成为斋浦尔土邦。王室于 1727 年迁往新规划的斋浦尔城，但琥珀堡仍继续承担礼仪功能。
+
+琥珀堡是联合国教科文组织世界遗产“拉贾斯坦邦的山地要塞”所包含的六座堡垒之一；该遗产于 2013 年列入《世界遗产名录》。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8d%b0%e5%ba%a6%e6%8b%89%e8%b4%be%e6%96%af%e5%9d%a6%e9%82%a6%e6%96%8b%e6%b5%a6%e5%b0%94%e7%90%a5%e7%8f%80%e5%a0%a1&form=hpcapt&filters=HpDate:"20260927_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260928_AmberHall"&FORM=HPQUIZ "必应主页测验 2026 9月 28")
+[下载480](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_800x480.jpg&rf=LaDigue_800x480.jpg "斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_1280x720.jpg&rf=LaDigue_1280x720.jpg "斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_UHD.jpg&rf=LaDigue_UHD.jpg "斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度")
+
+---
 ### 09月27日：深海夜花园
 #### 海笔上的装饰蟹，科莫多国家公园，印度尼西亚（© Alex Mustard/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_1280x720.jpg&rf=LaDigue_1280x720.jpg "地肤田，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "地肤田，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_UHD.jpg&rf=LaDigue_UHD.jpg "地肤田，中国")
-
----
-### 09月13日：高处的珊瑚礁
-#### 米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利（© Vithun Khamsong/Getty Images）
-
-![高处的珊瑚礁](https://cn.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_800x480.jpg&rf=LaDigue_800x480.jpg "高处的珊瑚礁")
-
-画面捕捉了意大利东北部威尼托大区米苏里纳群峰日出时的锯齿状天际线。前往附近三峰山的游客，往往本为那条著名路线而来，却发现自己的目光被米苏里纳群峰吸引。作为多洛米蒂山脉的一部分，这些针状山峰最高处超过9,300英尺，仿佛专为营造戏剧效果而雕琢。出人意料的是，它们最初是古老的珊瑚礁。
-
-联合国教科文组织的多洛米蒂山脉遗产地由九个组成部分构成，其中有18座海拔超过3000米的山峰。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%9a%e6%b4%9b%e7%b1%b3%e8%92%82%e5%b1%b1%e8%84%89%e7%b1%b3%e8%8b%8f%e9%87%8c%e7%ba%b3%e7%be%a4%e5%b3%b0&form=hpcapt&filters=HpDate:"20260912_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260913_MisurinaPeak"&FORM=HPQUIZ "必应主页测验 2026 9月 13")
-[下载480](https://cn.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_800x480.jpg&rf=LaDigue_800x480.jpg "米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_1280x720.jpg&rf=LaDigue_1280x720.jpg "米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_UHD.jpg&rf=LaDigue_UHD.jpg "米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利")
 
 ---
