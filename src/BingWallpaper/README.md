@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月29日：冰川孕育之河
+#### 卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国（© jared lloyd/Getty Images）
+
+![冰川孕育之河](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_800x480.jpg&rf=LaDigue_800x480.jpg "冰川孕育之河")
+
+从空中俯瞰，卡西洛夫河宛如一条绿松石色的丝带，蜿蜒穿过阿拉斯加州的基奈半岛。鲜艳的蓝色河水源于从图斯图梅纳湖向下游输送的冰川粉砂；该湖是阿拉斯加州最大的淡水湖之一。河流全长约17英里，最终注入库克湾。它虽比著名的邻河基奈河短，却同样不同凡响。
+
+卡西洛夫河畔的克鲁克德溪州立休闲地在 5 月和 6 月最受欢迎，此时游客可从河岸垂钓帝王鲑。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e5%9b%bd%e9%98%bf%e6%8b%89%e6%96%af%e5%8a%a0%e5%b7%9e%e5%8d%a1%e8%a5%bf%e6%b4%9b%e5%a4%ab%e6%b2%b3&form=hpcapt&filters=HpDate:"20260928_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260929_KasilofRiver"&FORM=HPQUIZ "必应主页测验 2026 9月 29")
+[下载480](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_800x480.jpg&rf=LaDigue_800x480.jpg "卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_UHD.jpg&rf=LaDigue_UHD.jpg "卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国")
+
+---
 ### 09月28日：可览美景的历史胜地
 #### 斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度（© R.M. Nunes/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_1280x720.jpg&rf=LaDigue_1280x720.jpg "红绿金刚鹦鹉")
 [下载1080](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红绿金刚鹦鹉")
 [下载UHD](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_UHD.jpg&rf=LaDigue_UHD.jpg "红绿金刚鹦鹉")
-
----
-### 09月14日：坚韧在此扎根
-#### 地肤田，中国（© lingqi xie/Getty Images）
-
-![坚韧在此扎根](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_800x480.jpg&rf=LaDigue_800x480.jpg "坚韧在此扎根")
-
-在今天的画面中，中国大地上铺展着绿色与深红色的地肤。地肤原产于欧亚大陆部分地区，19世纪末作为观赏植物和制作扫帚的材料来源被引入美国。它耐旱、耐热、耐盐碱土壤和少雨环境的能力，帮助其扩散至美国大平原及美国西部大部分地区。
-
-地肤属于苋科，与甜菜、菠菜和藜麦有植物学上的亲缘关系。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9c%b0%e8%82%a4&form=hpcapt&filters=HpDate:"20260913_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260914_KochiaChina"&FORM=HPQUIZ "必应主页测验 2026 9月 14")
-[下载480](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_800x480.jpg&rf=LaDigue_800x480.jpg "地肤田，中国")
-[下载720](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_1280x720.jpg&rf=LaDigue_1280x720.jpg "地肤田，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "地肤田，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_UHD.jpg&rf=LaDigue_UHD.jpg "地肤田，中国")
 
 ---
