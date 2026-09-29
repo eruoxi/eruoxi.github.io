@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 09月30日：一张令人过目难忘的脸
+#### 雄性文须雀，诺福克郡，英格兰（© Andrew Sproule/Shutterstock）
+
+![一张令人过目难忘的脸](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_800x480.jpg&rf=LaDigue_800x480.jpg "一张令人过目难忘的脸")
+
+在英格兰诺福克郡，一只雄性文须雀稳稳地立在纤细的茎秆上。今天图片中的它有着浅蓝灰色的头部、亮橙色的喙，以及令这个物种得名的黑色面部斑纹，格外引人注目。尽管外表醒目，这种小鸟一生中的大部分时间却藏身于沼泽、湖岸和芦苇荡茂密的湿地植被中。
+
+文须雀广泛分布于欧洲和亚洲，从英国的湿地一直延伸到中亚和东亚的芦苇荡。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%87%e9%a1%bb%e9%9b%80&form=hpcapt&filters=HpDate:"20260929_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260930_BeardReedling"&FORM=HPQUIZ "必应主页测验 2026 9月 30")
+[下载480](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_800x480.jpg&rf=LaDigue_800x480.jpg "雄性文须雀，诺福克郡，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_1280x720.jpg&rf=LaDigue_1280x720.jpg "雄性文须雀，诺福克郡，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雄性文须雀，诺福克郡，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_UHD.jpg&rf=LaDigue_UHD.jpg "雄性文须雀，诺福克郡，英格兰")
+
+---
 ### 09月29日：冰川孕育之河
 #### 卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国（© jared lloyd/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯瓦尔巴群岛玩耍的北极熊幼崽，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯瓦尔巴群岛玩耍的北极熊幼崽，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_UHD.jpg&rf=LaDigue_UHD.jpg "斯瓦尔巴群岛玩耍的北极熊幼崽，挪威")
-
----
-### 09月15日：最炫者生存
-#### 红绿金刚鹦鹉（© markes51/Getty Images）
-
-![最炫者生存](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_800x480.jpg&rf=LaDigue_800x480.jpg "最炫者生存")
-
-进化偶尔也会偏爱繁复华丽。看看这些红绿金刚鹦鹉：它们拥有猩红色羽毛、鲜绿色翅膀和蓝色飞羽。它们生活在南美洲热带地区，日常活动以不易从地面察觉的方式将果实、种子与土壤联系在一起。
-
-大型金刚鹦鹉可产生数百磅每平方英寸的咬合压力，远高于普通人类，因而能轻松咬开坚硬的坚果和种子。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%ba%a2%e7%bb%bf%e9%87%91%e5%88%9a%e9%b9%a6%e9%b9%89&form=hpcapt&filters=HpDate:"20260914_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260915_RedMacawsFlight"&FORM=HPQUIZ "必应主页测验 2026 9月 15")
-[下载480](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_800x480.jpg&rf=LaDigue_800x480.jpg "红绿金刚鹦鹉")
-[下载720](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_1280x720.jpg&rf=LaDigue_1280x720.jpg "红绿金刚鹦鹉")
-[下载1080](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红绿金刚鹦鹉")
-[下载UHD](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_UHD.jpg&rf=LaDigue_UHD.jpg "红绿金刚鹦鹉")
 
 ---
