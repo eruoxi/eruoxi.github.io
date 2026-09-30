@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月01日：在花岗岩中读懂时间
+#### 奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国（© Robb Hirsch/Tandem Stills + Motion）
+
+![在花岗岩中读懂时间](https://cn.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_800x480.jpg&rf=LaDigue_800x480.jpg "在花岗岩中读懂时间")
+
+从这里望去，优胜美地一些最著名的地标也呈现出截然不同的一面。通常所见的半穹顶从优胜美地山谷上方拔地而起，而在这里，它露出陡峭的北壁，让这个熟悉的标志性景观看起来几乎令人感到陌生。远处还有特纳亚峡谷、云歇峰、特纳亚湖，以及记录着数百万年隆升、侵蚀与冰川作用的浅色岩石。奥姆斯特德观景点得名于景观设计师弗雷德里克·劳·奥姆斯特德及其子小弗雷德里克·劳·奥姆斯特德；父子二人的自然保护工作推动了美国国家公园运动的发展。这里提醒着人们：优胜美地不仅景色壮美，还是一片仍在以岩石讲述自身故事的土地。
+
+优胜美地国家公园约95%的面积被指定为荒野。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bc%98%e8%83%9c%e7%be%8e%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260930_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261001_OlmstedPoint"&FORM=HPQUIZ "必应主页测验 2026 10月 1")
+[下载480](https://cn.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_800x480.jpg&rf=LaDigue_800x480.jpg "奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_UHD.jpg&rf=LaDigue_UHD.jpg "奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国")
+
+---
 ### 09月30日：一张令人过目难忘的脸
 #### 雄性文须雀，诺福克郡，英格兰（© Andrew Sproule/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_1280x720.jpg&rf=LaDigue_1280x720.jpg "桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_UHD.jpg&rf=LaDigue_UHD.jpg "桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国")
-
----
-### 09月16日：北极的新晋探索者
-#### 斯瓦尔巴群岛玩耍的北极熊幼崽，挪威（© Danny Green/Nature Picture Library）
-
-![北极的新晋探索者](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_800x480.jpg&rf=LaDigue_800x480.jpg "北极的新晋探索者")
-
-两只北极熊幼崽小心翼翼地穿行在斯瓦尔巴群岛的雪地上；这片偏远的挪威群岛深入北冰洋腹地，由冰川、山脉和冰封峡湾构成。这片荒野属于巴伦支海地区，生活着全球最大的北极熊种群之一，约有2,600只。
-
-在经历了约一个世纪的大规模捕猎后，斯瓦尔巴群岛的北极熊自1973年起受到保护。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%9e%81%e7%86%8a&form=hpcapt&filters=HpDate:"20260915_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260916_IcyCubs"&FORM=HPQUIZ "必应主页测验 2026 9月 16")
-[下载480](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_800x480.jpg&rf=LaDigue_800x480.jpg "斯瓦尔巴群岛玩耍的北极熊幼崽，挪威")
-[下载720](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯瓦尔巴群岛玩耍的北极熊幼崽，挪威")
-[下载1080](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯瓦尔巴群岛玩耍的北极熊幼崽，挪威")
-[下载UHD](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_UHD.jpg&rf=LaDigue_UHD.jpg "斯瓦尔巴群岛玩耍的北极熊幼崽，挪威")
 
 ---
