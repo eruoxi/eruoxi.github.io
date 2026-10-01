@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月02日：一条值得保护的河流
+#### 查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国（© mtilghma/Getty Images）
+
+![一条值得保护的河流](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_800x480.jpg&rf=LaDigue_800x480.jpg "一条值得保护的河流")
+
+长期以来，河流在美国各地的生活中发挥着重要作用，为社区、野生动物和工业提供支持。1968年10月2日，林登·B·约翰逊总统签署《野生与风景河流法》，使其成为法律。该法建立了一个国家体系，用于保护具有卓越景观、休闲、地质、鱼类和野生动物、历史或文化价值的河流及河段。该法使指定河流保持自由流动状态，保护其水质，并旨在守护使它们值得获此指定的特质。
+
+查图加河在约50英里的流程中平均每英里下降49英尺，最终流入图加卢湖。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e5%9b%bd%e9%98%bf%e5%b7%b4%e6%8b%89%e5%a5%91%e4%ba%9a%e5%b1%b1%e8%84%89&form=hpcapt&filters=HpDate:"20261001_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261002_ChattoogaRiver"&FORM=HPQUIZ "必应主页测验 2026 10月 2")
+[下载480](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_800x480.jpg&rf=LaDigue_800x480.jpg "查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_1280x720.jpg&rf=LaDigue_1280x720.jpg "查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_UHD.jpg&rf=LaDigue_UHD.jpg "查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国")
+
+---
 ### 10月01日：在花岗岩中读懂时间
 #### 奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国（© Robb Hirsch/Tandem Stills + Motion）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_1280x720.jpg&rf=LaDigue_1280x720.jpg "温纳茨山口，峰区国家公园，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "温纳茨山口，峰区国家公园，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_UHD.jpg&rf=LaDigue_UHD.jpg "温纳茨山口，峰区国家公园，英格兰")
-
----
-### 09月17日：为丰收举杯
-#### 桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国（© Marco Bottigelli/Getty Images）
-
-![为丰收举杯](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_800x480.jpg&rf=LaDigue_800x480.jpg "为丰收举杯")
-
-每年夏末秋初，法国最令人期待的传统之一——“vendanges”葡萄采摘季——如期而至。采摘时间因葡萄酒产区而异，并取决于天气状况、日照以及果实的成熟度。对许多葡萄园而言，采收仍主要依靠人工，工作人员会仔细挑选一串串葡萄，用于酿造法国一些最负盛名的葡萄酒。
-
-索林风车是伯恩丘现存最后一座仍可运转的公共风车；这座19世纪风车于1995年得到忠实修复。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a1%91%e7%89%b9%e5%a5%88%e8%91%a1%e8%90%84%e9%85%92%e4%ba%a7%e5%8c%ba&form=hpcapt&filters=HpDate:"20260916_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260917_Santenay"&FORM=HPQUIZ "必应主页测验 2026 9月 17")
-[下载480](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_800x480.jpg&rf=LaDigue_800x480.jpg "桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国")
-[下载720](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_1280x720.jpg&rf=LaDigue_1280x720.jpg "桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_UHD.jpg&rf=LaDigue_UHD.jpg "桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国")
 
 ---
