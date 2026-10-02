@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月03日：捕捉、进食、重复
+#### 美国阿拉斯加州克拉克湖国家公园和自然保护区银鲑溪中的棕熊（© Danny Green/Nature Picture Library）
+
+![捕捉、进食、重复](https://cn.bing.com/th?id=OHR.GrizzlySwim_ZH-CN1005455737_800x480.jpg&rf=LaDigue_800x480.jpg "捕捉、进食、重复")
+
+大快朵颐、肚皮更鼓并为冬季囤积能量的时节到了。在阿拉斯加州，克拉克湖国家公园和自然保护区的棕熊充分利用10月仍可获取的食物。它们以鱼、莎草、浆果、根、蛤蜊和其他食物为食，以积累脂肪储备。有些棕熊在进入洞穴冬眠前体重可超过1,000磅。储存的脂肪帮助它们度过不吃不喝的冬季。
+
+棕熊幼崽在冬季洞穴中出生，体型很小且没有毛，有时不足半磅；到春天时会长到4至8磅。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%a3%95%e7%86%8a&form=hpcapt&filters=HpDate:"20261002_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261003_GrizzlySwim"&FORM=HPQUIZ "必应主页测验 2026 10月 3")
+[下载480](https://cn.bing.com/th?id=OHR.GrizzlySwim_ZH-CN1005455737_800x480.jpg&rf=LaDigue_800x480.jpg "美国阿拉斯加州克拉克湖国家公园和自然保护区银鲑溪中的棕熊")
+[下载720](https://cn.bing.com/th?id=OHR.GrizzlySwim_ZH-CN1005455737_1280x720.jpg&rf=LaDigue_1280x720.jpg "美国阿拉斯加州克拉克湖国家公园和自然保护区银鲑溪中的棕熊")
+[下载1080](https://cn.bing.com/th?id=OHR.GrizzlySwim_ZH-CN1005455737_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美国阿拉斯加州克拉克湖国家公园和自然保护区银鲑溪中的棕熊")
+[下载UHD](https://cn.bing.com/th?id=OHR.GrizzlySwim_ZH-CN1005455737_UHD.jpg&rf=LaDigue_UHD.jpg "美国阿拉斯加州克拉克湖国家公园和自然保护区银鲑溪中的棕熊")
+
+---
 ### 10月02日：一条值得保护的河流
 #### 查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国（© mtilghma/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔卑斯长号演奏者，巴伐利亚州，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔卑斯长号演奏者，巴伐利亚州，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔卑斯长号演奏者，巴伐利亚州，德国")
-
----
-### 09月18日：穿越山口腹地
-#### 温纳茨山口，峰区国家公园，英格兰（© Daniel_Kay/Getty Images）
-
-![穿越山口腹地](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_800x480.jpg&rf=LaDigue_800x480.jpg "穿越山口腹地")
-
-在英格兰峰区，一条蜿蜒的长路从已有3亿多年历史的岩石间穿过。如此漫长的地质时间尺度本就令人惊叹，而这条路还穿越了温纳茨山口：这是一道狭窄的石灰岩峡谷，高耸的峭壁展现出远古海洋曾经覆盖英国这一地区的痕迹。
-
-温纳茨山口是峰区国家公园内一处壮观的石灰岩峡谷，位于卡斯尔顿附近，两侧峭壁陡峻嶙峋。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b3%b0%e5%8c%ba%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260917_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260918_WinnatsPassPeak"&FORM=HPQUIZ "必应主页测验 2026 9月 18")
-[下载480](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_800x480.jpg&rf=LaDigue_800x480.jpg "温纳茨山口，峰区国家公园，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_1280x720.jpg&rf=LaDigue_1280x720.jpg "温纳茨山口，峰区国家公园，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "温纳茨山口，峰区国家公园，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_UHD.jpg&rf=LaDigue_UHD.jpg "温纳茨山口，峰区国家公园，英格兰")
 
 ---
