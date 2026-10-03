@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月04日：宇宙在召唤
+#### 阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日（© EVA MARIE UZCATEGUI/Getty Images）
+
+![宇宙在召唤](https://cn.bing.com/th?id=OHR.ArtemisRocket_ZH-CN1768541365_800x480.jpg&rf=LaDigue_800x480.jpg "宇宙在召唤")
+
+首先，你要造一枚火箭。然后，你要让它离开地球，飞往月球，在旅途中安然无恙，并将其航天器带回家。很简单，对吧？嗯，并非如此。世界空间周于每年10月4日至10日举行，旨在庆祝让此类任务成为可能的科学。联合国于1999年设立这一纪念活动，以纪念1957年10月4日斯普特尼克1号发射升空，以及1967年10月10日《外层空间条约》生效。今年的主题是“火箭革命”，重点关注推动太空探索不断发展的技术。
+
+在阿尔忒弥斯1号任务中，猎户座飞船距地球最远达268,563英里，超过此前任何为人类设计的航天器。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%a9%ba%e9%97%b4%e5%91%a8&form=hpcapt&filters=HpDate:"20261003_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261004_ArtemisRocket"&FORM=HPQUIZ "必应主页测验 2026 10月 4")
+[下载480](https://cn.bing.com/th?id=OHR.ArtemisRocket_ZH-CN1768541365_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日")
+[下载720](https://cn.bing.com/th?id=OHR.ArtemisRocket_ZH-CN1768541365_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日")
+[下载1080](https://cn.bing.com/th?id=OHR.ArtemisRocket_ZH-CN1768541365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日")
+[下载UHD](https://cn.bing.com/th?id=OHR.ArtemisRocket_ZH-CN1768541365_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日")
+
+---
 ### 10月03日：捕捉、进食、重复
 #### 美国阿拉斯加州克拉克湖国家公园和自然保护区银鲑溪中的棕熊（© Danny Green/Nature Picture Library）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时分的埃菲尔铁塔，巴黎，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时分的埃菲尔铁塔，巴黎，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_UHD.jpg&rf=LaDigue_UHD.jpg "日落时分的埃菲尔铁塔，巴黎，法国")
-
----
-### 09月19日：慕尼黑啤酒节的阿尔卑斯之声
-#### 阿尔卑斯长号演奏者，巴伐利亚州，德国（© U. J. Alexander/Shutterstock）
-
-![慕尼黑啤酒节的阿尔卑斯之声](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_800x480.jpg&rf=LaDigue_800x480.jpg "慕尼黑啤酒节的阿尔卑斯之声")
-
-慕尼黑啤酒节于今天开幕，抵达德国巴伐利亚州的游客或许会听到一种甚至比这一著名节日本身更古老的声音：阿尔卑斯长号深沉而浑厚的鸣响。这种传统的阿尔卑斯乐器与巴伐利亚、奥地利和瑞士的文化紧密相连；过去，牧羊人曾用它跨越山谷彼此传递信息。
-
-已知最早提及瑞士阿尔卑斯长号的文字记录可追溯至1527年，见于圣乌尔班修道院的账簿。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%85%95%e5%b0%bc%e9%bb%91%e5%95%a4%e9%85%92%e8%8a%82&form=hpcapt&filters=HpDate:"20260918_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260919_AlphornBavaria"&FORM=HPQUIZ "必应主页测验 2026 9月 19")
-[下载480](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔卑斯长号演奏者，巴伐利亚州，德国")
-[下载720](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔卑斯长号演奏者，巴伐利亚州，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔卑斯长号演奏者，巴伐利亚州，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔卑斯长号演奏者，巴伐利亚州，德国")
 
 ---
