@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月05日：纵身一跃，一次一课
+#### 南极洲的阿德利企鹅（© Otto Plantema/Minden Pictures）
+
+![纵身一跃，一次一课](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_800x480.jpg&rf=LaDigue_800x480.jpg "纵身一跃，一次一课")
+
+一只身高28英寸的鸟能教给我们哪些人生道理？非常多。在世界教师日这一天，阿德利企鹅带来了一份充满足智多谋、坚韧不拔和些许顽皮的课程计划。这一物种分布于南极海岸，以法国探险家儒勒·迪蒙·迪维尔的妻子阿黛尔之名命名；在1840年的一次远征中，人们发现了这些企鹅。
+
+阿德利企鹅没有牙齿，但它们的舌头和上腭长有被称为乳突的尖锐倒刺。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%95%99%e5%b8%88%e6%97%a5&form=hpcapt&filters=HpDate:"20261004_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261005_AdelieTeacher"&FORM=HPQUIZ "必应主页测验 2026 10月 5")
+[下载480](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_800x480.jpg&rf=LaDigue_800x480.jpg "南极洲的阿德利企鹅")
+[下载720](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_1280x720.jpg&rf=LaDigue_1280x720.jpg "南极洲的阿德利企鹅")
+[下载1080](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南极洲的阿德利企鹅")
+[下载UHD](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_UHD.jpg&rf=LaDigue_UHD.jpg "南极洲的阿德利企鹅")
+
+---
 ### 10月04日：宇宙在召唤
 #### 阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日（© EVA MARIE UZCATEGUI/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_1280x720.jpg&rf=LaDigue_1280x720.jpg "正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_UHD.jpg&rf=LaDigue_UHD.jpg "正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国")
-
----
-### 09月20日：终获巴黎青睐的铁塔
-#### 日落时分的埃菲尔铁塔，巴黎，法国（© Alexander Spatari/Getty Images）
-
-![终获巴黎青睐的铁塔](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_800x480.jpg&rf=LaDigue_800x480.jpg "终获巴黎青睐的铁塔")
-
-几乎没有哪座城市像巴黎这样被赋予如此多的浪漫想象。然而，这座法国首都的历史并非始终像埃菲尔铁塔背后的落日霞光一样绚丽。铁塔为1889年世界博览会而建；这届世博会纪念法国大革命爆发一百周年，而铁塔最初计划作为博览会入口处的核心建筑。由工程师古斯塔夫·埃菲尔及其团队设计的这座钢铁地标，从战神广场拔地而起，高度接近1,000英尺，并成为当时世界上最高的建筑。
-
-如今埃菲尔铁塔高330米；2022年安装一根新的数字广播天线后，塔身增高了6米。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e9%bb%8e&form=hpcapt&filters=HpDate:"20260919_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260920_ParisSunset"&FORM=HPQUIZ "必应主页测验 2026 9月 20")
-[下载480](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_800x480.jpg&rf=LaDigue_800x480.jpg "日落时分的埃菲尔铁塔，巴黎，法国")
-[下载720](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落时分的埃菲尔铁塔，巴黎，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时分的埃菲尔铁塔，巴黎，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_UHD.jpg&rf=LaDigue_UHD.jpg "日落时分的埃菲尔铁塔，巴黎，法国")
 
 ---
