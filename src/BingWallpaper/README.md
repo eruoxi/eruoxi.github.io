@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月06日：条纹中的地球故事
+#### 丹霞地貌，张掖国家地质公园，甘肃省，中国（© Weiquan Lin/Getty Images）
+
+![条纹中的地球故事](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_800x480.jpg&rf=LaDigue_800x480.jpg "条纹中的地球故事")
+
+如果一座山能用一道道条纹向你展示它的地质历史，会是什么样？在中国的张掖国家地质公园，岩石正是如此。红色、橙色、黄色、棕色以及其他大地色调的条带在山脊间绵延起伏。这种壮丽景观被称为丹霞地貌，由地质年代中沉积形成的多层沉积岩塑造而成。后来，构造力使岩石抬升并发生褶皱，而风化和侵蚀则将它们雕琢成山脊、峭壁、沟壑和山峰。
+
+张掖地质公园拥有577处文化遗址，展现当地历史及包括裕固族在内的多个族群文化。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e5%9c%b0%e8%b4%a8%e5%a4%9a%e6%a0%b7%e6%80%a7%e6%97%a5&form=hpcapt&filters=HpDate:"20261005_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261006_DanxiaLandform"&FORM=HPQUIZ "必应主页测验 2026 10月 6")
+[下载480](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_800x480.jpg&rf=LaDigue_800x480.jpg "丹霞地貌，张掖国家地质公园，甘肃省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_1280x720.jpg&rf=LaDigue_1280x720.jpg "丹霞地貌，张掖国家地质公园，甘肃省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丹霞地貌，张掖国家地质公园，甘肃省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_UHD.jpg&rf=LaDigue_UHD.jpg "丹霞地貌，张掖国家地质公园，甘肃省，中国")
+
+---
 ### 10月05日：纵身一跃，一次一课
 #### 南极洲的阿德利企鹅（© Otto Plantema/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓜兹曼山口附近的秋日山杨林，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓜兹曼山口附近的秋日山杨林，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_UHD.jpg&rf=LaDigue_UHD.jpg "瓜兹曼山口附近的秋日山杨林，犹他州，美国")
-
----
-### 09月21日：皮毛与海洋之间的生命
-#### 正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国（© Suzi Eszterhas/Minden Pictures）
-
-![皮毛与海洋之间的生命](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_800x480.jpg&rf=LaDigue_800x480.jpg "皮毛与海洋之间的生命")
-
-很少有动物既能称得上梳理皮毛的高手，又是水下森林的守护者。正因如此，每年9月最后一个完整周举行的海獭认知周鼓励人们进一步了解这些非凡的海洋哺乳动物，以及它们面临的种种挑战。
-
-海獭每平方英寸可长有多达100万根毛，因此拥有所有哺乳动物中最浓密的皮毛。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b5%b7%e7%8d%ad%e8%ae%a4%e7%9f%a5%e5%91%a8&form=hpcapt&filters=HpDate:"20260920_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260921_GroomingOtter"&FORM=HPQUIZ "必应主页测验 2026 9月 21")
-[下载480](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_800x480.jpg&rf=LaDigue_800x480.jpg "正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_1280x720.jpg&rf=LaDigue_1280x720.jpg "正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_UHD.jpg&rf=LaDigue_UHD.jpg "正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国")
 
 ---
