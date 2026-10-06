@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月07日：迷惑不解？沿着小径走
+#### 覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰（© Fulcanelli_AOS/Getty Images）
+
+![迷惑不解？沿着小径走](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_800x480.jpg&rf=LaDigue_800x480.jpg "迷惑不解？沿着小径走")
+
+如果一片森林能让你每转一个弯都捉摸不透，会是什么样？英国格洛斯特郡谜林位于英格兰迪恩森林的科尔福德附近，蜿蜒的小径穿过扭曲的树木、覆满苔藓的岩石和幽深的石质沟壑。这里不同寻常的岩层被称为“斯科尔斯”，是一种天然地质特征，随着时间推移逐渐裸露并发生改变，后来在罗马时期、甚至可能在更早以前被人们开采铁矿石。1848年，一名工人在一个岩洞内的陶罐中发现了3,000多枚罗马时代的钱币，使这片林地变成了一场现实中的寻宝之旅。
+
+英国格洛斯特郡谜林位于迪恩森林，是极为罕见的内陆温带雨林生态系统残片。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8b%b1%e5%9b%bd%e6%a0%bc%e6%b4%9b%e6%96%af%e7%89%b9%e9%83%a1%e8%b0%9c%e6%9e%97&form=hpcapt&filters=HpDate:"20261006_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261007_ForestofDean"&FORM=HPQUIZ "必应主页测验 2026 10月 7")
+[下载480](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_800x480.jpg&rf=LaDigue_800x480.jpg "覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_1280x720.jpg&rf=LaDigue_1280x720.jpg "覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_UHD.jpg&rf=LaDigue_UHD.jpg "覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰")
+
+---
 ### 10月06日：条纹中的地球故事
 #### 丹霞地貌，张掖国家地质公园，甘肃省，中国（© Weiquan Lin/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_1280x720.jpg&rf=LaDigue_1280x720.jpg "地坛公园秋日美景，北京，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "地坛公园秋日美景，北京，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_UHD.jpg&rf=LaDigue_UHD.jpg "地坛公园秋日美景，北京，中国")
-
----
-### 09月22日：金色时节
-#### 瓜兹曼山口附近的秋日山杨林，犹他州，美国（© Danita Delimont/Shutterstock）
-
-![金色时节](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_800x480.jpg&rf=LaDigue_800x480.jpg "金色时节")
-
-在犹他州瓜兹曼山口附近，季节的变化以金色写满山坡。为美国西部染上色彩的山杨中，有许多是美洲山杨——北美分布最广的本土树种。眼前看似由一棵棵独立树木组成的森林，往往有着截然不同的真相：许多山杨形成彼此相连的无性系群落，树干从共享的根系网络中长出，并与相邻树干拥有相同的遗传密码。
-
-犹他州的“潘多”（Pando）颤杨林被认为是世界上最大且最古老的生物体之一；它由超过40,000棵基因完全相同的树干组成，这些树干通过一个延伸超过100英亩的巨大地下根系紧密相连。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%93%9c%e5%85%b9%e6%9b%bc%e5%b1%b1%e5%8f%a3%e9%99%84%e8%bf%91%e7%9a%84%e7%a7%8b%e6%97%a5%e5%b1%b1%e6%9d%a8%e6%9e%97&form=hpcapt&filters=HpDate:"20260921_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260922_FallAspens"&FORM=HPQUIZ "必应主页测验 2026 9月 22")
-[下载480](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_800x480.jpg&rf=LaDigue_800x480.jpg "瓜兹曼山口附近的秋日山杨林，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_1280x720.jpg&rf=LaDigue_1280x720.jpg "瓜兹曼山口附近的秋日山杨林，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓜兹曼山口附近的秋日山杨林，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_UHD.jpg&rf=LaDigue_UHD.jpg "瓜兹曼山口附近的秋日山杨林，犹他州，美国")
 
 ---
