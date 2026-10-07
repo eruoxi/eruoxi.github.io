@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月08日：现在你“海”能看见我……
+#### 印度洋马约特岛，一只呈防御姿态的章鱼（© Gabriel Barathieu/Minden Pictures）
+
+![现在你“海”能看见我……](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_800x480.jpg&rf=LaDigue_800x480.jpg "现在你“海”能看见我……")
+
+显然有什么东西越界了。在印度洋马约特岛近海，这只章鱼摆出了一副防御姿态，仿佛在说：无论是什么正在靠近，都该重新考虑一下自己的生命选择。
+
+章鱼的化学触觉受体由古老的神经递质受体演化而来，并能检测难溶性分子。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%ab%a0%e9%b1%bc%e6%97%a5&form=hpcapt&filters=HpDate:"20261007_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261008_MayotteOctopus"&FORM=HPQUIZ "必应主页测验 2026 10月 8")
+[下载480](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_800x480.jpg&rf=LaDigue_800x480.jpg "印度洋马约特岛，一只呈防御姿态的章鱼")
+[下载720](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_1280x720.jpg&rf=LaDigue_1280x720.jpg "印度洋马约特岛，一只呈防御姿态的章鱼")
+[下载1080](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印度洋马约特岛，一只呈防御姿态的章鱼")
+[下载UHD](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_UHD.jpg&rf=LaDigue_UHD.jpg "印度洋马约特岛，一只呈防御姿态的章鱼")
+
+---
 ### 10月07日：迷惑不解？沿着小径走
 #### 覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰（© Fulcanelli_AOS/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_UHD.jpg&rf=LaDigue_UHD.jpg "黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙")
-
----
-### 09月23日：金秋平分，地坛染黄
-#### 地坛公园秋日美景，北京，中国（© by Wei/Adobestock）
-
-![金秋平分，地坛染黄](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_800x480.jpg&rf=LaDigue_800x480.jpg "金秋平分，地坛染黄")
-
-金色地毯通常只出现在童话世界里，但在金秋时节的北京，它们却铺展在你的脚下。地坛公园（方泽坛）著名的银杏大道汇聚了200多株历史悠久的银杏树。每当秋风掠过，数以万计的扇形金叶翩翩飘落，将这座古老的皇家坛庙铺垫成一片如梦似幻的金黄海洋。
-
-秋分标志着昼夜平分，也预示着老北京最美丽的仲秋金色画卷正式展开。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a7%8b%e5%88%86&form=hpcapt&filters=HpDate:"20260922_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260923_AutumnEquinoxY26"&FORM=HPQUIZ "必应主页测验 2026 9月 23")
-[下载480](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_800x480.jpg&rf=LaDigue_800x480.jpg "地坛公园秋日美景，北京，中国")
-[下载720](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_1280x720.jpg&rf=LaDigue_1280x720.jpg "地坛公园秋日美景，北京，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "地坛公园秋日美景，北京，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_UHD.jpg&rf=LaDigue_UHD.jpg "地坛公园秋日美景，北京，中国")
 
 ---
