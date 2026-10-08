@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月09日：科西嘉岛的岩石前哨
+#### 桑吉奈尔群岛景观，摄自科西嘉岛，法国（© Francesco Riccardo Iacomino/Getty Images）
+
+![科西嘉岛的岩石前哨](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_800x480.jpg&rf=LaDigue_800x480.jpg "科西嘉岛的岩石前哨")
+
+桑吉奈尔群岛就在法国科西嘉岛近海，从地中海中拔地而起，是一个由四座崎岖岩石岛屿组成的小型群岛。从一座历史悠久的瞭望塔望去，它们坐落在阿雅克肖湾的入口处。陡峭的悬崖、历经数百年的地标和开阔的海景，世世代代吸引着游客来到这一地区。尽管最远的岛屿距离海岸仅约1.2英里，但这片群岛给人的感觉却出奇地偏远：它四周被开阔水域环绕，并受到风、海浪和盐雾的塑造。
+
+建造桑吉奈尔灯塔时，石料必须用驳船运到岛上，再从岩石海岸吊运上去。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e8%a5%bf%e5%98%89%e5%b2%9b%e6%a1%91%e5%90%89%e5%a5%88%e5%b0%94%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20261008_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261009_IlesSanguinaires"&FORM=HPQUIZ "必应主页测验 2026 10月 9")
+[下载480](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_800x480.jpg&rf=LaDigue_800x480.jpg "桑吉奈尔群岛景观，摄自科西嘉岛，法国")
+[下载720](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_1280x720.jpg&rf=LaDigue_1280x720.jpg "桑吉奈尔群岛景观，摄自科西嘉岛，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "桑吉奈尔群岛景观，摄自科西嘉岛，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_UHD.jpg&rf=LaDigue_UHD.jpg "桑吉奈尔群岛景观，摄自科西嘉岛，法国")
+
+---
 ### 10月08日：现在你“海”能看见我……
 #### 印度洋马约特岛，一只呈防御姿态的章鱼（© Gabriel Barathieu/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_1280x720.jpg&rf=LaDigue_1280x720.jpg "庆祝中秋节的中国灯笼")
 [下载1080](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "庆祝中秋节的中国灯笼")
 [下载UHD](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_UHD.jpg&rf=LaDigue_UHD.jpg "庆祝中秋节的中国灯笼")
-
----
-### 09月24日：火山灰与浪花相遇
-#### 黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙（© Westend61/Adobe Stock）
-
-![火山灰与浪花相遇](https://cn.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_800x480.jpg&rf=LaDigue_800x480.jpg "火山灰与浪花相遇")
-
-在西班牙加那利群岛的兰萨罗特岛，大自然的地质创造力尽情挥洒。赭黄与铁锈色条纹交错的悬崖之下，深色沙滩与大西洋相接，这是延续数百万年的火山活动留下的杰作。这段地质故事中有一章发生在距今并不久远的年代：1730年至1736年间，兰萨罗特岛各处出现了众多火山喷口，熔岩覆盖数十平方英里的土地，掩埋了道路、村庄和农田。
-
-兰萨罗特岛与奇尼霍群岛共同构成一座联合国教科文组织世界地质公园，范围涵盖陆地及周边海域。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e5%85%b0%e8%90%a8%e7%bd%97%e7%89%b9%e5%b2%9b&form=hpcapt&filters=HpDate:"20260923_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260924_ElGolfo"&FORM=HPQUIZ "必应主页测验 2026 9月 24")
-[下载480](https://cn.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_800x480.jpg&rf=LaDigue_800x480.jpg "黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_UHD.jpg&rf=LaDigue_UHD.jpg "黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙")
 
 ---
