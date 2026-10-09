@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月10日：迁飞路线上的生命
+#### 蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国（© Hiroya Minakuchi/Minden Pictures）
+
+![迁飞路线上的生命](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_800x480.jpg&rf=LaDigue_800x480.jpg "迁飞路线上的生命")
+
+世界候鸟日旨在庆祝大自然最壮观的旅程之一。这项全球性活动于每年5月和10月举行，反映世界各地的迁徙模式，并强调保护鸟类赖以生存的栖息地和迁飞路线的重要性。“每一只鸟都很重要——您的观察至关重要！”是2026年的主题，着重说明个人和社区的观察可以如何为鸟类研究、监测和保护贡献力量，帮助科学家更好地了解迁徙。
+
+鸟类迁徙可以采取多种形式：有些鸟向北或向南迁徙，而另一些则迁往不同海拔或不同栖息地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%80%99%e9%b8%9f%e6%97%a5&form=hpcapt&filters=HpDate:"20261009_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261010_CormorantsFlight"&FORM=HPQUIZ "必应主页测验 2026 10月 10")
+[下载480](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_800x480.jpg&rf=LaDigue_800x480.jpg "蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_UHD.jpg&rf=LaDigue_UHD.jpg "蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国")
+
+---
 ### 10月09日：科西嘉岛的岩石前哨
 #### 桑吉奈尔群岛景观，摄自科西嘉岛，法国（© Francesco Riccardo Iacomino/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_1280x720.jpg&rf=LaDigue_1280x720.jpg "熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_UHD.jpg&rf=LaDigue_UHD.jpg "熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国")
-
----
-### 09月25日：当月亮也来赴会
-#### 庆祝中秋节的中国灯笼（© LeeYiuTung/Getty Images）
-
-![当月亮也来赴会](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_800x480.jpg&rf=LaDigue_800x480.jpg "当月亮也来赴会")
-
-如果满月是你家宴上的贵宾，会是什么情景？这正是中秋节的意蕴，中秋节也被称为月亮节。这个节日在农历八月十五庆祝，是中国文化中最重要的节日之一。它的源头可追溯至3,000多年前周朝时期的祭月仪式。最广为人知的传说讲述了嫦娥服下长生不老药后飞上月宫的故事。
-
-中国曾制作出一个破纪录的月饼，重近13吨，直径超过26英尺。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e7%a7%8b%e8%8a%82&form=hpcapt&filters=HpDate:"20260924_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260925_MidAutumn2026"&FORM=HPQUIZ "必应主页测验 2026 9月 25")
-[下载480](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_800x480.jpg&rf=LaDigue_800x480.jpg "庆祝中秋节的中国灯笼")
-[下载720](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_1280x720.jpg&rf=LaDigue_1280x720.jpg "庆祝中秋节的中国灯笼")
-[下载1080](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "庆祝中秋节的中国灯笼")
-[下载UHD](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_UHD.jpg&rf=LaDigue_UHD.jpg "庆祝中秋节的中国灯笼")
 
 ---
