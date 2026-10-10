@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月11日：秋色中转动的水轮
+#### 格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国（© dszc/Getty Images）
+
+![秋色中转动的水轮](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_800x480.jpg&rf=LaDigue_800x480.jpg "秋色中转动的水轮")
+
+格莱德溪磨坊坐落在西弗吉尼亚州巴布科克州立公园内格莱德溪的岩石水域上方，周围红色、橙色和金色交错。尽管它看起来像是拓荒时代的遗迹，但这座磨坊实际上是为致敬阿巴拉契亚地区的磨坊传统而精心建造的。
+
+20世纪30年代，民间资源保护队的海狸营和李营共同参与了巴布科克州立公园的建设。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e5%b8%83%e7%a7%91%e5%85%8b%e5%b7%9e%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20261010_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261011_BabcockSP"&FORM=HPQUIZ "必应主页测验 2026 10月 11")
+[下载480](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_800x480.jpg&rf=LaDigue_800x480.jpg "格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_1280x720.jpg&rf=LaDigue_1280x720.jpg "格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_UHD.jpg&rf=LaDigue_UHD.jpg "格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国")
+
+---
 ### 10月10日：迁飞路线上的生命
 #### 蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国（© Hiroya Minakuchi/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DecoCrab_ZH-CN0973306994_1280x720.jpg&rf=LaDigue_1280x720.jpg "海笔上的装饰蟹，科莫多国家公园，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.DecoCrab_ZH-CN0973306994_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海笔上的装饰蟹，科莫多国家公园，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.DecoCrab_ZH-CN0973306994_UHD.jpg&rf=LaDigue_UHD.jpg "海笔上的装饰蟹，科莫多国家公园，印度尼西亚")
-
----
-### 09月26日：写在大地上的故事
-#### 熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国（© Jeff Clay/Tandem Stills + Motion）
-
-![写在大地上的故事](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_800x480.jpg&rf=LaDigue_800x480.jpg "写在大地上的故事")
-
-熊的耳朵、着火的房屋和遍布急转弯的道路有什么共同之处？它们都是犹他州东南部公共土地故事的一部分。
-
-熊耳委员会汇集五个部落民族，共同参与指导这座国家纪念区的管理与保护。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%86%8a%e8%80%b3%e5%9b%bd%e5%ae%b6%e7%ba%aa%e5%bf%b5%e5%8c%ba&form=hpcapt&filters=HpDate:"20260925_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260926_BearsEars"&FORM=HPQUIZ "必应主页测验 2026 9月 26")
-[下载480](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_800x480.jpg&rf=LaDigue_800x480.jpg "熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_1280x720.jpg&rf=LaDigue_1280x720.jpg "熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_UHD.jpg&rf=LaDigue_UHD.jpg "熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国")
 
 ---
