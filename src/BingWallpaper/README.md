@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月13日：蓝与绿的交响曲
+#### 普利特维采湖群国家公园，克罗地亚（© Jan Wlodarczyk/Alamy）
+
+![蓝与绿的交响曲](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_800x480.jpg&rf=LaDigue_800x480.jpg "蓝与绿的交响曲")
+
+在克罗地亚的普利特维采湖群国家公园，水似乎无处不在。十六个阶梯状湖泊由瀑布、溪流和层叠而下的水流组成的网络连接起来，蜿蜒穿过森林覆盖的石灰岩峡谷。湖水的颜色不断变化，从翠绿到深蓝不等，这是由矿物质、阳光和不断变化的倒影共同造就的。普利特维采湖群国家公园成立于1949年，是克罗地亚历史最悠久、面积最大的国家公园。这里以石灰华屏障闻名，这种天然石灰岩构造是富含矿物质的水在数百年间沉积碳酸钙形成的。这些屏障仍在继续生长和变化，逐渐改变着公园内的瀑布和湖泊。
+
+普利特维采拥有84公顷的山毛榉和冷杉原始林，也是棕熊、灰狼和猞猁的家园。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%99%ae%e5%88%a9%e7%89%b9%e7%bb%b4%e9%87%87%e6%b9%96%e7%be%a4%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20261012_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261013_PlitviceAutumn"&FORM=HPQUIZ "必应主页测验 2026 10月 13")
+[下载480](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_800x480.jpg&rf=LaDigue_800x480.jpg "普利特维采湖群国家公园，克罗地亚")
+[下载720](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_1280x720.jpg&rf=LaDigue_1280x720.jpg "普利特维采湖群国家公园，克罗地亚")
+[下载1080](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普利特维采湖群国家公园，克罗地亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_UHD.jpg&rf=LaDigue_UHD.jpg "普利特维采湖群国家公园，克罗地亚")
+
+---
 ### 10月12日：从铁轨到潮汐
 #### 曼布尔斯码头，斯旺西，威尔士（© Helen Hotson/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_UHD.jpg&rf=LaDigue_UHD.jpg "卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国")
-
----
-### 09月28日：可览美景的历史胜地
-#### 斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度（© R.M. Nunes/Getty Images）
-
-![可览美景的历史胜地](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_800x480.jpg&rf=LaDigue_800x480.jpg "可览美景的历史胜地")
-
-大多数初次到访印度拉贾斯坦邦斋浦尔的游客都知道这座城市有“粉红之城”的美誉，但更早的王都以琥珀堡为中心。这个王朝的大部分政治与建筑史正是在那里书写的。琥珀堡的营建历时一个多世纪，始于1592年拉贾·曼·辛格一世统治时期，之后由历代卡奇瓦哈统治者续建；他们统治的王国后来成为斋浦尔土邦。王室于 1727 年迁往新规划的斋浦尔城，但琥珀堡仍继续承担礼仪功能。
-
-琥珀堡是联合国教科文组织世界遗产“拉贾斯坦邦的山地要塞”所包含的六座堡垒之一；该遗产于 2013 年列入《世界遗产名录》。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8d%b0%e5%ba%a6%e6%8b%89%e8%b4%be%e6%96%af%e5%9d%a6%e9%82%a6%e6%96%8b%e6%b5%a6%e5%b0%94%e7%90%a5%e7%8f%80%e5%a0%a1&form=hpcapt&filters=HpDate:"20260927_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260928_AmberHall"&FORM=HPQUIZ "必应主页测验 2026 9月 28")
-[下载480](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_800x480.jpg&rf=LaDigue_800x480.jpg "斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度")
-[下载720](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_1280x720.jpg&rf=LaDigue_1280x720.jpg "斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度")
-[下载1080](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_UHD.jpg&rf=LaDigue_UHD.jpg "斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度")
 
 ---
