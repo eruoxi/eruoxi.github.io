@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月14日：穿越时间的螺旋
+#### 侏罗纪时期的菊石化石（© J Nemchinova/Getty Images）
+
+![穿越时间的螺旋](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_800x480.jpg&rf=LaDigue_800x480.jpg "穿越时间的螺旋")
+
+我们如何知道早在人类出现之前地球是什么样子？化石提供了许多线索。国家化石日旨在赞颂古生物学，以及那些帮助科学家重建过去环境、追溯生命演化并了解数百万年前消失生物的发现。从恐龙到微小的海洋生物，这些过去的遗存保存着早已不复存在的远古世界的一个个瞬间。
+
+化石不一定非得是骨骼。足迹、洞道、巢穴以及古代生命留下的其他痕迹也可以成为化石。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e5%ae%b6%e5%8c%96%e7%9f%b3%e6%97%a5&form=hpcapt&filters=HpDate:"20261013_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261014_AmmoniteFossils"&FORM=HPQUIZ "必应主页测验 2026 10月 14")
+[下载480](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_800x480.jpg&rf=LaDigue_800x480.jpg "侏罗纪时期的菊石化石")
+[下载720](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_1280x720.jpg&rf=LaDigue_1280x720.jpg "侏罗纪时期的菊石化石")
+[下载1080](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "侏罗纪时期的菊石化石")
+[下载UHD](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_UHD.jpg&rf=LaDigue_UHD.jpg "侏罗纪时期的菊石化石")
+
+---
 ### 10月13日：蓝与绿的交响曲
 #### 普利特维采湖群国家公园，克罗地亚（© Jan Wlodarczyk/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_1280x720.jpg&rf=LaDigue_1280x720.jpg "雄性文须雀，诺福克郡，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雄性文须雀，诺福克郡，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_UHD.jpg&rf=LaDigue_UHD.jpg "雄性文须雀，诺福克郡，英格兰")
-
----
-### 09月29日：冰川孕育之河
-#### 卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国（© jared lloyd/Getty Images）
-
-![冰川孕育之河](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_800x480.jpg&rf=LaDigue_800x480.jpg "冰川孕育之河")
-
-从空中俯瞰，卡西洛夫河宛如一条绿松石色的丝带，蜿蜒穿过阿拉斯加州的基奈半岛。鲜艳的蓝色河水源于从图斯图梅纳湖向下游输送的冰川粉砂；该湖是阿拉斯加州最大的淡水湖之一。河流全长约17英里，最终注入库克湾。它虽比著名的邻河基奈河短，却同样不同凡响。
-
-卡西洛夫河畔的克鲁克德溪州立休闲地在 5 月和 6 月最受欢迎，此时游客可从河岸垂钓帝王鲑。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e5%9b%bd%e9%98%bf%e6%8b%89%e6%96%af%e5%8a%a0%e5%b7%9e%e5%8d%a1%e8%a5%bf%e6%b4%9b%e5%a4%ab%e6%b2%b3&form=hpcapt&filters=HpDate:"20260928_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260929_KasilofRiver"&FORM=HPQUIZ "必应主页测验 2026 9月 29")
-[下载480](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_800x480.jpg&rf=LaDigue_800x480.jpg "卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_1280x720.jpg&rf=LaDigue_1280x720.jpg "卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_UHD.jpg&rf=LaDigue_UHD.jpg "卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国")
 
 ---
