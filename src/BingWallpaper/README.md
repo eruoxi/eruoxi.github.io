@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月15日：桥梁、屋顶与暮色
+#### 弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰（© Piotr Mitelski/Shutterstock）
+
+![桥梁、屋顶与暮色](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_800x480.jpg&rf=LaDigue_800x480.jpg "桥梁、屋顶与暮色")
+
+暮色降临弗罗茨瓦夫，金色光芒洒满屋顶、教堂塔楼和中欧最引人注目的历史中心之一。这座位于波兰西南部的城市横跨多座岛屿和水道，由100多座桥梁连接，将中世纪建筑与充满活力的现代生活融为一体。城市中心是热闹的雷内克(Rynek)集市广场，该广场建于13世纪，哥特式老市政厅便坐落于此，它是弗罗茨瓦夫最易辨认的地标之一。
+
+弗罗茨瓦夫百年厅于1913年建成时，拥有当时世界上最大的钢筋混凝土穹顶。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%bc%97%e7%bd%97%e8%8c%a8%e7%93%a6%e5%a4%ab&form=hpcapt&filters=HpDate:"20261014_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261015_WroclawPoland"&FORM=HPQUIZ "必应主页测验 2026 10月 15")
+[下载480](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_800x480.jpg&rf=LaDigue_800x480.jpg "弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰")
+[下载720](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_1280x720.jpg&rf=LaDigue_1280x720.jpg "弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰")
+[下载1080](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_UHD.jpg&rf=LaDigue_UHD.jpg "弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰")
+
+---
 ### 10月14日：穿越时间的螺旋
 #### 侏罗纪时期的菊石化石（© J Nemchinova/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_UHD.jpg&rf=LaDigue_UHD.jpg "奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国")
-
----
-### 09月30日：一张令人过目难忘的脸
-#### 雄性文须雀，诺福克郡，英格兰（© Andrew Sproule/Shutterstock）
-
-![一张令人过目难忘的脸](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_800x480.jpg&rf=LaDigue_800x480.jpg "一张令人过目难忘的脸")
-
-在英格兰诺福克郡，一只雄性文须雀稳稳地立在纤细的茎秆上。今天图片中的它有着浅蓝灰色的头部、亮橙色的喙，以及令这个物种得名的黑色面部斑纹，格外引人注目。尽管外表醒目，这种小鸟一生中的大部分时间却藏身于沼泽、湖岸和芦苇荡茂密的湿地植被中。
-
-文须雀广泛分布于欧洲和亚洲，从英国的湿地一直延伸到中亚和东亚的芦苇荡。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%87%e9%a1%bb%e9%9b%80&form=hpcapt&filters=HpDate:"20260929_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 9月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20260930_BeardReedling"&FORM=HPQUIZ "必应主页测验 2026 9月 30")
-[下载480](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_800x480.jpg&rf=LaDigue_800x480.jpg "雄性文须雀，诺福克郡，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_1280x720.jpg&rf=LaDigue_1280x720.jpg "雄性文须雀，诺福克郡，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雄性文须雀，诺福克郡，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_UHD.jpg&rf=LaDigue_UHD.jpg "雄性文须雀，诺福克郡，英格兰")
 
 ---
