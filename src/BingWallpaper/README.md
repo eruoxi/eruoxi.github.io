@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月16日：一窥科罗拉多群峰
+#### 斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国（© lightphoto/Getty Images）
+
+![一窥科罗拉多群峰](https://cn.bing.com/th?id=OHR.SneffelsAutumn_ZH-CN3002661429_800x480.jpg&rf=LaDigue_800x480.jpg "一窥科罗拉多群峰")
+
+有些山会让你付出一番努力才能欣赏到美景，而攀登斯奈费尔斯山，最考验人的则是最后几百英尺。它高耸于科罗拉多州的圣胡安山脉，海拔14,150英尺，是一座“十四峰”，在里奇韦、乌雷和特柳赖德一带十分醒目。它坐落在占地16,587英亩的斯奈费尔斯山荒野区内，这片保护区于1980年获指定。徒步者可以从多条路线登山，包括经扬基博伊盆地和蓝湖群地区的路线。
+
+根据美国联邦荒野管理规定，斯奈费尔斯山荒野区通常禁止机动车辆和机械运输工具进入。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e5%a5%88%e8%b4%b9%e5%b0%94%e6%96%af%e5%b1%b1&form=hpcapt&filters=HpDate:"20261015_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261016_SneffelsAutumn"&FORM=HPQUIZ "必应主页测验 2026 10月 16")
+[下载480](https://cn.bing.com/th?id=OHR.SneffelsAutumn_ZH-CN3002661429_800x480.jpg&rf=LaDigue_800x480.jpg "斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SneffelsAutumn_ZH-CN3002661429_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SneffelsAutumn_ZH-CN3002661429_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SneffelsAutumn_ZH-CN3002661429_UHD.jpg&rf=LaDigue_UHD.jpg "斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国")
+
+---
 ### 10月15日：桥梁、屋顶与暮色
 #### 弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰（© Piotr Mitelski/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_1280x720.jpg&rf=LaDigue_1280x720.jpg "查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_UHD.jpg&rf=LaDigue_UHD.jpg "查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国")
-
----
-### 10月01日：在花岗岩中读懂时间
-#### 奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国（© Robb Hirsch/Tandem Stills + Motion）
-
-![在花岗岩中读懂时间](https://cn.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_800x480.jpg&rf=LaDigue_800x480.jpg "在花岗岩中读懂时间")
-
-从这里望去，优胜美地一些最著名的地标也呈现出截然不同的一面。通常所见的半穹顶从优胜美地山谷上方拔地而起，而在这里，它露出陡峭的北壁，让这个熟悉的标志性景观看起来几乎令人感到陌生。远处还有特纳亚峡谷、云歇峰、特纳亚湖，以及记录着数百万年隆升、侵蚀与冰川作用的浅色岩石。奥姆斯特德观景点得名于景观设计师弗雷德里克·劳·奥姆斯特德及其子小弗雷德里克·劳·奥姆斯特德；父子二人的自然保护工作推动了美国国家公园运动的发展。这里提醒着人们：优胜美地不仅景色壮美，还是一片仍在以岩石讲述自身故事的土地。
-
-优胜美地国家公园约95%的面积被指定为荒野。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bc%98%e8%83%9c%e7%be%8e%e5%9c%b0%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20260930_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261001_OlmstedPoint"&FORM=HPQUIZ "必应主页测验 2026 10月 1")
-[下载480](https://cn.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_800x480.jpg&rf=LaDigue_800x480.jpg "奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_1280x720.jpg&rf=LaDigue_1280x720.jpg "奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_UHD.jpg&rf=LaDigue_UHD.jpg "奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国")
 
 ---
