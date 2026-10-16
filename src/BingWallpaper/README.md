@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月17日：发掘尘封的过去
+#### 肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国（© Audrey Poree/Alamy）
+
+![发掘尘封的过去](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_800x480.jpg&rf=LaDigue_800x480.jpg "发掘尘封的过去")
+
+有些发现始于一把铲子，另一些则始于洞穴墙壁上的一幅图画。国际考古日既颂扬抽丝剥茧般的考古工作，也重视支撑发现的证据。这项年度活动由美国考古学会主办，始于2011年；随着参与范围扩展至全球，活动于2013年更名为“国际考古日”。如今，它通过讲座、博物馆项目、遗址参观、模拟发掘和动手实践活动，让公众更加贴近考古学。
+
+肖维岩洞保存着一名史前青少年的足迹，大约3万年前，这名青少年曾赤脚走过洞内通道。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e8%80%83%e5%8f%a4%e6%97%a5&form=hpcapt&filters=HpDate:"20261016_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261017_ChauvetPaintingsFrance"&FORM=HPQUIZ "必应主页测验 2026 10月 17")
+[下载480](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_800x480.jpg&rf=LaDigue_800x480.jpg "肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国")
+[下载720](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_1280x720.jpg&rf=LaDigue_1280x720.jpg "肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_UHD.jpg&rf=LaDigue_UHD.jpg "肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国")
+
+---
 ### 10月16日：一窥科罗拉多群峰
 #### 斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国（© lightphoto/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.GrizzlySwim_ZH-CN1005455737_1280x720.jpg&rf=LaDigue_1280x720.jpg "美国阿拉斯加州克拉克湖国家公园和自然保护区银鲑溪中的棕熊")
 [下载1080](https://cn.bing.com/th?id=OHR.GrizzlySwim_ZH-CN1005455737_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美国阿拉斯加州克拉克湖国家公园和自然保护区银鲑溪中的棕熊")
 [下载UHD](https://cn.bing.com/th?id=OHR.GrizzlySwim_ZH-CN1005455737_UHD.jpg&rf=LaDigue_UHD.jpg "美国阿拉斯加州克拉克湖国家公园和自然保护区银鲑溪中的棕熊")
-
----
-### 10月02日：一条值得保护的河流
-#### 查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国（© mtilghma/Getty Images）
-
-![一条值得保护的河流](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_800x480.jpg&rf=LaDigue_800x480.jpg "一条值得保护的河流")
-
-长期以来，河流在美国各地的生活中发挥着重要作用，为社区、野生动物和工业提供支持。1968年10月2日，林登·B·约翰逊总统签署《野生与风景河流法》，使其成为法律。该法建立了一个国家体系，用于保护具有卓越景观、休闲、地质、鱼类和野生动物、历史或文化价值的河流及河段。该法使指定河流保持自由流动状态，保护其水质，并旨在守护使它们值得获此指定的特质。
-
-查图加河在约50英里的流程中平均每英里下降49英尺，最终流入图加卢湖。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e5%9b%bd%e9%98%bf%e5%b7%b4%e6%8b%89%e5%a5%91%e4%ba%9a%e5%b1%b1%e8%84%89&form=hpcapt&filters=HpDate:"20261001_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261002_ChattoogaRiver"&FORM=HPQUIZ "必应主页测验 2026 10月 2")
-[下载480](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_800x480.jpg&rf=LaDigue_800x480.jpg "查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_1280x720.jpg&rf=LaDigue_1280x720.jpg "查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_UHD.jpg&rf=LaDigue_UHD.jpg "查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国")
 
 ---
