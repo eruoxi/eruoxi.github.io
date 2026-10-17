@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月18日：75载，风华正茂
+#### 多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士（© joe daniel price/Getty Images）
+
+![75载，风华正茂](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_800x480.jpg&rf=LaDigue_800x480.jpg "75载，风华正茂")
+
+如果公园也能写生日手记，威尔士斯诺登尼亚国家公园一定有许多精彩故事可讲。今天是这座公园成立75周年，纪念它于1951年获指定为国家公园。斯诺登尼亚占地823平方英里，拥有九条山脉和74英里海岸线，栖息地类型从泥炭地、原生林地到高地景观不一而足。斯诺登山海拔超过3,500英尺，是斯诺登尼亚的最高点。附近的卡内道山脉和格利德赖山脉群峰耸立，卡代尔伊德里斯山则矗立在南部。这些受保护的景观为野生动物提供了栖息地，其中包括17处国家级自然保护区和56处特殊科学价值地点。
+
+2015年，斯诺登尼亚被认定为国际暗夜保护区，以表彰其卓越的夜空质量和限制光污染的努力。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%94%e5%a3%ab%e6%96%af%e8%af%ba%e7%99%bb%e5%b0%bc%e4%ba%9a%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20261017_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261018_DolbadarnWales"&FORM=HPQUIZ "必应主页测验 2026 10月 18")
+[下载480](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_800x480.jpg&rf=LaDigue_800x480.jpg "多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士")
+[下载720](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_1280x720.jpg&rf=LaDigue_1280x720.jpg "多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士")
+[下载1080](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士")
+[下载UHD](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_UHD.jpg&rf=LaDigue_UHD.jpg "多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士")
+
+---
 ### 10月17日：发掘尘封的过去
 #### 肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国（© Audrey Poree/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ArtemisRocket_ZH-CN1768541365_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日")
 [下载1080](https://cn.bing.com/th?id=OHR.ArtemisRocket_ZH-CN1768541365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日")
 [下载UHD](https://cn.bing.com/th?id=OHR.ArtemisRocket_ZH-CN1768541365_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日")
-
----
-### 10月03日：捕捉、进食、重复
-#### 美国阿拉斯加州克拉克湖国家公园和自然保护区银鲑溪中的棕熊（© Danny Green/Nature Picture Library）
-
-![捕捉、进食、重复](https://cn.bing.com/th?id=OHR.GrizzlySwim_ZH-CN1005455737_800x480.jpg&rf=LaDigue_800x480.jpg "捕捉、进食、重复")
-
-大快朵颐、肚皮更鼓并为冬季囤积能量的时节到了。在阿拉斯加州，克拉克湖国家公园和自然保护区的棕熊充分利用10月仍可获取的食物。它们以鱼、莎草、浆果、根、蛤蜊和其他食物为食，以积累脂肪储备。有些棕熊在进入洞穴冬眠前体重可超过1,000磅。储存的脂肪帮助它们度过不吃不喝的冬季。
-
-棕熊幼崽在冬季洞穴中出生，体型很小且没有毛，有时不足半磅；到春天时会长到4至8磅。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%a3%95%e7%86%8a&form=hpcapt&filters=HpDate:"20261002_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261003_GrizzlySwim"&FORM=HPQUIZ "必应主页测验 2026 10月 3")
-[下载480](https://cn.bing.com/th?id=OHR.GrizzlySwim_ZH-CN1005455737_800x480.jpg&rf=LaDigue_800x480.jpg "美国阿拉斯加州克拉克湖国家公园和自然保护区银鲑溪中的棕熊")
-[下载720](https://cn.bing.com/th?id=OHR.GrizzlySwim_ZH-CN1005455737_1280x720.jpg&rf=LaDigue_1280x720.jpg "美国阿拉斯加州克拉克湖国家公园和自然保护区银鲑溪中的棕熊")
-[下载1080](https://cn.bing.com/th?id=OHR.GrizzlySwim_ZH-CN1005455737_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美国阿拉斯加州克拉克湖国家公园和自然保护区银鲑溪中的棕熊")
-[下载UHD](https://cn.bing.com/th?id=OHR.GrizzlySwim_ZH-CN1005455737_UHD.jpg&rf=LaDigue_UHD.jpg "美国阿拉斯加州克拉克湖国家公园和自然保护区银鲑溪中的棕熊")
 
 ---
