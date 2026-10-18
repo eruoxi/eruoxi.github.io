@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月19日：水上通衢
+#### 大运河，威尼斯，意大利（© Juan Romero/Cavan Images）
+
+![水上通衢](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_800x480.jpg&rf=LaDigue_800x480.jpg "水上通衢")
+
+如果一座城市最繁忙的街道根本没有路，会是什么样？在意大利威尼斯，交通沿着大运河往来。这条长2.4英里的水道以巨大的反S形蜿蜒穿过城市。当地人称它为“大运河”，它是威尼斯主要的水上交通通道，水上巴士、水上出租车、贡多拉、警用艇和其他船只都在此穿行。大运河沿着一条古河道延伸，这条河过去曾流入威尼斯潟湖。
+
+威尼斯及其潟湖于1987年列入联合国教科文组织世界遗产名录，并符合该遗产地全部六项文化标准。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%bc%e6%96%af%e5%a4%a7%e8%bf%90%e6%b2%b3&form=hpcapt&filters=HpDate:"20261018_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 19")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261019_VeniceSunrise"&FORM=HPQUIZ "必应主页测验 2026 10月 19")
+[下载480](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_800x480.jpg&rf=LaDigue_800x480.jpg "大运河，威尼斯，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_1280x720.jpg&rf=LaDigue_1280x720.jpg "大运河，威尼斯，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大运河，威尼斯，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_UHD.jpg&rf=LaDigue_UHD.jpg "大运河，威尼斯，意大利")
+
+---
 ### 10月18日：75载，风华正茂
 #### 多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士（© joe daniel price/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_1280x720.jpg&rf=LaDigue_1280x720.jpg "南极洲的阿德利企鹅")
 [下载1080](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南极洲的阿德利企鹅")
 [下载UHD](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_UHD.jpg&rf=LaDigue_UHD.jpg "南极洲的阿德利企鹅")
-
----
-### 10月04日：宇宙在召唤
-#### 阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日（© EVA MARIE UZCATEGUI/Getty Images）
-
-![宇宙在召唤](https://cn.bing.com/th?id=OHR.ArtemisRocket_ZH-CN1768541365_800x480.jpg&rf=LaDigue_800x480.jpg "宇宙在召唤")
-
-首先，你要造一枚火箭。然后，你要让它离开地球，飞往月球，在旅途中安然无恙，并将其航天器带回家。很简单，对吧？嗯，并非如此。世界空间周于每年10月4日至10日举行，旨在庆祝让此类任务成为可能的科学。联合国于1999年设立这一纪念活动，以纪念1957年10月4日斯普特尼克1号发射升空，以及1967年10月10日《外层空间条约》生效。今年的主题是“火箭革命”，重点关注推动太空探索不断发展的技术。
-
-在阿尔忒弥斯1号任务中，猎户座飞船距地球最远达268,563英里，超过此前任何为人类设计的航天器。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%a9%ba%e9%97%b4%e5%91%a8&form=hpcapt&filters=HpDate:"20261003_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 4")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261004_ArtemisRocket"&FORM=HPQUIZ "必应主页测验 2026 10月 4")
-[下载480](https://cn.bing.com/th?id=OHR.ArtemisRocket_ZH-CN1768541365_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日")
-[下载720](https://cn.bing.com/th?id=OHR.ArtemisRocket_ZH-CN1768541365_1280x720.jpg&rf=LaDigue_1280x720.jpg "阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日")
-[下载1080](https://cn.bing.com/th?id=OHR.ArtemisRocket_ZH-CN1768541365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日")
-[下载UHD](https://cn.bing.com/th?id=OHR.ArtemisRocket_ZH-CN1768541365_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日")
 
 ---
