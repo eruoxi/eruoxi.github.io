@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月20日：慢节奏生活
+#### 褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加（© Suzi Eszterhas/Minden Pictures）
+
+![慢节奏生活](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_800x480.jpg&rf=LaDigue_800x480.jpg "慢节奏生活")
+
+稳扎稳打才能赢得比赛——而褐喉三趾树懒似乎很乐意彻底放弃比赛。在国际树懒日，这种三趾哺乳动物为生存之道带来了另一番启示：保存能量，牢牢抓住，慢慢来。
+
+褐喉三趾树懒每天可能睡15至18小时，通常只在夜间短暂活动。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%a0%91%e6%87%92%e6%97%a5&form=hpcapt&filters=HpDate:"20261019_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261020_BrownSloth"&FORM=HPQUIZ "必应主页测验 2026 10月 20")
+[下载480](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_800x480.jpg&rf=LaDigue_800x480.jpg "褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加")
+[下载720](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_1280x720.jpg&rf=LaDigue_1280x720.jpg "褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加")
+[下载1080](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加")
+[下载UHD](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_UHD.jpg&rf=LaDigue_UHD.jpg "褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加")
+
+---
 ### 10月19日：水上通衢
 #### 大运河，威尼斯，意大利（© Juan Romero/Cavan Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_1280x720.jpg&rf=LaDigue_1280x720.jpg "丹霞地貌，张掖国家地质公园，甘肃省，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丹霞地貌，张掖国家地质公园，甘肃省，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_UHD.jpg&rf=LaDigue_UHD.jpg "丹霞地貌，张掖国家地质公园，甘肃省，中国")
-
----
-### 10月05日：纵身一跃，一次一课
-#### 南极洲的阿德利企鹅（© Otto Plantema/Minden Pictures）
-
-![纵身一跃，一次一课](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_800x480.jpg&rf=LaDigue_800x480.jpg "纵身一跃，一次一课")
-
-一只身高28英寸的鸟能教给我们哪些人生道理？非常多。在世界教师日这一天，阿德利企鹅带来了一份充满足智多谋、坚韧不拔和些许顽皮的课程计划。这一物种分布于南极海岸，以法国探险家儒勒·迪蒙·迪维尔的妻子阿黛尔之名命名；在1840年的一次远征中，人们发现了这些企鹅。
-
-阿德利企鹅没有牙齿，但它们的舌头和上腭长有被称为乳突的尖锐倒刺。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e6%95%99%e5%b8%88%e6%97%a5&form=hpcapt&filters=HpDate:"20261004_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261005_AdelieTeacher"&FORM=HPQUIZ "必应主页测验 2026 10月 5")
-[下载480](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_800x480.jpg&rf=LaDigue_800x480.jpg "南极洲的阿德利企鹅")
-[下载720](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_1280x720.jpg&rf=LaDigue_1280x720.jpg "南极洲的阿德利企鹅")
-[下载1080](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南极洲的阿德利企鹅")
-[下载UHD](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_UHD.jpg&rf=LaDigue_UHD.jpg "南极洲的阿德利企鹅")
 
 ---
