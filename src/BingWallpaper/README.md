@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月21日：飞掠河面
+#### 香江上的阮潢桥，顺化，越南（© VU PHAM VAN/Getty Images）
+
+![飞掠河面](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_800x480.jpg&rf=LaDigue_800x480.jpg "飞掠河面")
+
+阮潢桥弥合了新旧之间的距离，为顺化的天际线增添了一道崭新的纽带。这座横跨越南香江的现代钢拱地标于2025年3月26日通车。其设计名为“鹤望天姥”，灵感源自当地传说和附近的天姥寺。
+
+阮黄桥长约380米、宽43米，设有六条机动车道和两条人行步道。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%b6%8a%e5%8d%97%e9%a1%ba%e5%8c%96%e5%b8%82&form=hpcapt&filters=HpDate:"20261020_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261021_VietnamBridge"&FORM=HPQUIZ "必应主页测验 2026 10月 21")
+[下载480](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_800x480.jpg&rf=LaDigue_800x480.jpg "香江上的阮潢桥，顺化，越南")
+[下载720](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_1280x720.jpg&rf=LaDigue_1280x720.jpg "香江上的阮潢桥，顺化，越南")
+[下载1080](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "香江上的阮潢桥，顺化，越南")
+[下载UHD](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_UHD.jpg&rf=LaDigue_UHD.jpg "香江上的阮潢桥，顺化，越南")
+
+---
 ### 10月20日：慢节奏生活
 #### 褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加（© Suzi Eszterhas/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_1280x720.jpg&rf=LaDigue_1280x720.jpg "覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_UHD.jpg&rf=LaDigue_UHD.jpg "覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰")
-
----
-### 10月06日：条纹中的地球故事
-#### 丹霞地貌，张掖国家地质公园，甘肃省，中国（© Weiquan Lin/Getty Images）
-
-![条纹中的地球故事](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_800x480.jpg&rf=LaDigue_800x480.jpg "条纹中的地球故事")
-
-如果一座山能用一道道条纹向你展示它的地质历史，会是什么样？在中国的张掖国家地质公园，岩石正是如此。红色、橙色、黄色、棕色以及其他大地色调的条带在山脊间绵延起伏。这种壮丽景观被称为丹霞地貌，由地质年代中沉积形成的多层沉积岩塑造而成。后来，构造力使岩石抬升并发生褶皱，而风化和侵蚀则将它们雕琢成山脊、峭壁、沟壑和山峰。
-
-张掖地质公园拥有577处文化遗址，展现当地历史及包括裕固族在内的多个族群文化。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e5%9c%b0%e8%b4%a8%e5%a4%9a%e6%a0%b7%e6%80%a7%e6%97%a5&form=hpcapt&filters=HpDate:"20261005_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261006_DanxiaLandform"&FORM=HPQUIZ "必应主页测验 2026 10月 6")
-[下载480](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_800x480.jpg&rf=LaDigue_800x480.jpg "丹霞地貌，张掖国家地质公园，甘肃省，中国")
-[下载720](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_1280x720.jpg&rf=LaDigue_1280x720.jpg "丹霞地貌，张掖国家地质公园，甘肃省，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丹霞地貌，张掖国家地质公园，甘肃省，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_UHD.jpg&rf=LaDigue_UHD.jpg "丹霞地貌，张掖国家地质公园，甘肃省，中国")
 
 ---
