@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月22日：静水映斑斓
+#### 内藏山国立公园的秋景，韩国（© Twenty47studio/Getty Images）
+
+![静水映斑斓](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_800x480.jpg&rf=LaDigue_800x480.jpg "静水映斑斓")
+
+在韩国，很少有地方能像内藏山国立公园一样尽显秋日的魔力，这里的山坡闪耀着猩红、橙色、黄色和金色的绚丽光彩。公园位于韩国西南部，尤以鲜艳的枫叶色彩闻名，是韩国首屈一指的赏秋胜地之一。其名称意为“山中藏有许多秘密”，体现了这一地区丰富多样的景观。
+
+内藏山于1971年获指定，成为韩国第八座国家公园，其山地景观由此受到国家公园制度保护。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%86%85%e8%97%8f%e5%b1%b1%e5%9b%bd%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20261021_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261022_NaejangsanNP"&FORM=HPQUIZ "必应主页测验 2026 10月 22")
+[下载480](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_800x480.jpg&rf=LaDigue_800x480.jpg "内藏山国立公园的秋景，韩国")
+[下载720](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_1280x720.jpg&rf=LaDigue_1280x720.jpg "内藏山国立公园的秋景，韩国")
+[下载1080](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "内藏山国立公园的秋景，韩国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_UHD.jpg&rf=LaDigue_UHD.jpg "内藏山国立公园的秋景，韩国")
+
+---
 ### 10月21日：飞掠河面
 #### 香江上的阮潢桥，顺化，越南（© VU PHAM VAN/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_1280x720.jpg&rf=LaDigue_1280x720.jpg "印度洋马约特岛，一只呈防御姿态的章鱼")
 [下载1080](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印度洋马约特岛，一只呈防御姿态的章鱼")
 [下载UHD](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_UHD.jpg&rf=LaDigue_UHD.jpg "印度洋马约特岛，一只呈防御姿态的章鱼")
-
----
-### 10月07日：迷惑不解？沿着小径走
-#### 覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰（© Fulcanelli_AOS/Getty Images）
-
-![迷惑不解？沿着小径走](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_800x480.jpg&rf=LaDigue_800x480.jpg "迷惑不解？沿着小径走")
-
-如果一片森林能让你每转一个弯都捉摸不透，会是什么样？英国格洛斯特郡谜林位于英格兰迪恩森林的科尔福德附近，蜿蜒的小径穿过扭曲的树木、覆满苔藓的岩石和幽深的石质沟壑。这里不同寻常的岩层被称为“斯科尔斯”，是一种天然地质特征，随着时间推移逐渐裸露并发生改变，后来在罗马时期、甚至可能在更早以前被人们开采铁矿石。1848年，一名工人在一个岩洞内的陶罐中发现了3,000多枚罗马时代的钱币，使这片林地变成了一场现实中的寻宝之旅。
-
-英国格洛斯特郡谜林位于迪恩森林，是极为罕见的内陆温带雨林生态系统残片。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8b%b1%e5%9b%bd%e6%a0%bc%e6%b4%9b%e6%96%af%e7%89%b9%e9%83%a1%e8%b0%9c%e6%9e%97&form=hpcapt&filters=HpDate:"20261006_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261007_ForestofDean"&FORM=HPQUIZ "必应主页测验 2026 10月 7")
-[下载480](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_800x480.jpg&rf=LaDigue_800x480.jpg "覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_1280x720.jpg&rf=LaDigue_1280x720.jpg "覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_UHD.jpg&rf=LaDigue_UHD.jpg "覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰")
 
 ---
