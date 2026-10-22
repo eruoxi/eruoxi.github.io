@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月23日：荒野伙伴
+#### 两只灰狼，黄石国家公园，怀俄明州，美国（© John Morrison/Getty Images）
+
+![荒野伙伴](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_800x480.jpg&rf=LaDigue_800x480.jpg "荒野伙伴")
+
+两只灰狼穿行在怀俄明州黄石国家公园的山艾灌丛中，这里生活着北美洲一些最受密切关注的狼群。厚实的皮毛帮助它们抵御严冬，敏锐的感官则使它们成为技艺高超的猎手和交流者。
+
+灰狼可以通过嚎叫、肢体语言、气味标记以及多种发声方式进行交流，包括吠叫、呜咽和低吼。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%81%b0%e7%8b%bc&form=hpcapt&filters=HpDate:"20261022_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261023_YellowstoneWolves"&FORM=HPQUIZ "必应主页测验 2026 10月 23")
+[下载480](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_800x480.jpg&rf=LaDigue_800x480.jpg "两只灰狼，黄石国家公园，怀俄明州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_1280x720.jpg&rf=LaDigue_1280x720.jpg "两只灰狼，黄石国家公园，怀俄明州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "两只灰狼，黄石国家公园，怀俄明州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_UHD.jpg&rf=LaDigue_UHD.jpg "两只灰狼，黄石国家公园，怀俄明州，美国")
+
+---
 ### 10月22日：静水映斑斓
 #### 内藏山国立公园的秋景，韩国（© Twenty47studio/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_1280x720.jpg&rf=LaDigue_1280x720.jpg "桑吉奈尔群岛景观，摄自科西嘉岛，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "桑吉奈尔群岛景观，摄自科西嘉岛，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_UHD.jpg&rf=LaDigue_UHD.jpg "桑吉奈尔群岛景观，摄自科西嘉岛，法国")
-
----
-### 10月08日：现在你“海”能看见我……
-#### 印度洋马约特岛，一只呈防御姿态的章鱼（© Gabriel Barathieu/Minden Pictures）
-
-![现在你“海”能看见我……](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_800x480.jpg&rf=LaDigue_800x480.jpg "现在你“海”能看见我……")
-
-显然有什么东西越界了。在印度洋马约特岛近海，这只章鱼摆出了一副防御姿态，仿佛在说：无论是什么正在靠近，都该重新考虑一下自己的生命选择。
-
-章鱼的化学触觉受体由古老的神经递质受体演化而来，并能检测难溶性分子。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e7%ab%a0%e9%b1%bc%e6%97%a5&form=hpcapt&filters=HpDate:"20261007_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261008_MayotteOctopus"&FORM=HPQUIZ "必应主页测验 2026 10月 8")
-[下载480](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_800x480.jpg&rf=LaDigue_800x480.jpg "印度洋马约特岛，一只呈防御姿态的章鱼")
-[下载720](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_1280x720.jpg&rf=LaDigue_1280x720.jpg "印度洋马约特岛，一只呈防御姿态的章鱼")
-[下载1080](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印度洋马约特岛，一只呈防御姿态的章鱼")
-[下载UHD](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_UHD.jpg&rf=LaDigue_UHD.jpg "印度洋马约特岛，一只呈防御姿态的章鱼")
 
 ---
