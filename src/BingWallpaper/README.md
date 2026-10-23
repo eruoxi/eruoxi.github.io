@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月24日：书香里的极致华美
+#### 皇家葡萄牙语阅览室，里约热内卢，巴西（© Antonio Salaverry/Shutterstock）
+
+![书香里的极致华美](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_800x480.jpg&rf=LaDigue_800x480.jpg "书香里的极致华美")
+
+今天，我们走进巴西里约热内卢的皇家葡萄牙语阅览室。在这里，翻开一本书这一朴素举动，被赋予了宏伟的建筑抱负。巴西独立仅15年后，43名葡萄牙移民于1837年创办了这家机构；约半个世纪后，机构最终迁入眼前这座以华丽的新曼努埃尔式建成的建筑。书架环绕宽阔的阅览大厅，高逾70英尺；大厅上方覆盖着一扇巨型彩绘玻璃天窗，让自然光也成为设计的一部分。
+
+据场馆官网介绍，皇家葡萄牙语阅览室工作日10时至17时免费开放参观。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%9a%87%e5%ae%b6%e8%91%a1%e8%90%84%e7%89%99%e8%af%ad%e9%98%85%e8%a7%88%e5%ae%a4&form=hpcapt&filters=HpDate:"20261023_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261024_PortugueseLibrary"&FORM=HPQUIZ "必应主页测验 2026 10月 24")
+[下载480](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_800x480.jpg&rf=LaDigue_800x480.jpg "皇家葡萄牙语阅览室，里约热内卢，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_1280x720.jpg&rf=LaDigue_1280x720.jpg "皇家葡萄牙语阅览室，里约热内卢，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "皇家葡萄牙语阅览室，里约热内卢，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_UHD.jpg&rf=LaDigue_UHD.jpg "皇家葡萄牙语阅览室，里约热内卢，巴西")
+
+---
 ### 10月23日：荒野伙伴
 #### 两只灰狼，黄石国家公园，怀俄明州，美国（© John Morrison/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_UHD.jpg&rf=LaDigue_UHD.jpg "蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国")
-
----
-### 10月09日：科西嘉岛的岩石前哨
-#### 桑吉奈尔群岛景观，摄自科西嘉岛，法国（© Francesco Riccardo Iacomino/Getty Images）
-
-![科西嘉岛的岩石前哨](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_800x480.jpg&rf=LaDigue_800x480.jpg "科西嘉岛的岩石前哨")
-
-桑吉奈尔群岛就在法国科西嘉岛近海，从地中海中拔地而起，是一个由四座崎岖岩石岛屿组成的小型群岛。从一座历史悠久的瞭望塔望去，它们坐落在阿雅克肖湾的入口处。陡峭的悬崖、历经数百年的地标和开阔的海景，世世代代吸引着游客来到这一地区。尽管最远的岛屿距离海岸仅约1.2英里，但这片群岛给人的感觉却出奇地偏远：它四周被开阔水域环绕，并受到风、海浪和盐雾的塑造。
-
-建造桑吉奈尔灯塔时，石料必须用驳船运到岛上，再从岩石海岸吊运上去。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%a7%91%e8%a5%bf%e5%98%89%e5%b2%9b%e6%a1%91%e5%90%89%e5%a5%88%e5%b0%94%e7%be%a4%e5%b2%9b&form=hpcapt&filters=HpDate:"20261008_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261009_IlesSanguinaires"&FORM=HPQUIZ "必应主页测验 2026 10月 9")
-[下载480](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_800x480.jpg&rf=LaDigue_800x480.jpg "桑吉奈尔群岛景观，摄自科西嘉岛，法国")
-[下载720](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_1280x720.jpg&rf=LaDigue_1280x720.jpg "桑吉奈尔群岛景观，摄自科西嘉岛，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "桑吉奈尔群岛景观，摄自科西嘉岛，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_UHD.jpg&rf=LaDigue_UHD.jpg "桑吉奈尔群岛景观，摄自科西嘉岛，法国")
 
 ---
