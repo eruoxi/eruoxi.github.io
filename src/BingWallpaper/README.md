@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月25日：群峰与宁静相遇之地
+#### 玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大（© Andrey Popov/Getty Images）
+
+![群峰与宁静相遇之地](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_800x480.jpg&rf=LaDigue_800x480.jpg "群峰与宁静相遇之地")
+
+夜幕降临加拿大艾伯塔省的贾斯珀国家公园时，群山便有了全新的背景。该公园于2011年被指定为暗夜天空保护区，面积超过11,000平方千米，并采取了减少光污染的措施。在这里，繁星、行星和银河系联袂上演天幕奇观，让游客不由得仰望天空。晨光到来后，视线又从头顶的天空转向脚下的景致。
+
+据加拿大公园管理局介绍，精灵岛距玛琳湖北岸14公里，只能乘船抵达。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%8e%9b%e7%90%b3%e6%b9%96&form=hpcapt&filters=HpDate:"20261024_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261025_MaligneFest"&FORM=HPQUIZ "必应主页测验 2026 10月 25")
+[下载480](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_800x480.jpg&rf=LaDigue_800x480.jpg "玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_1280x720.jpg&rf=LaDigue_1280x720.jpg "玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_UHD.jpg&rf=LaDigue_UHD.jpg "玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大")
+
+---
 ### 10月24日：书香里的极致华美
 #### 皇家葡萄牙语阅览室，里约热内卢，巴西（© Antonio Salaverry/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_1280x720.jpg&rf=LaDigue_1280x720.jpg "格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_UHD.jpg&rf=LaDigue_UHD.jpg "格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国")
-
----
-### 10月10日：迁飞路线上的生命
-#### 蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国（© Hiroya Minakuchi/Minden Pictures）
-
-![迁飞路线上的生命](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_800x480.jpg&rf=LaDigue_800x480.jpg "迁飞路线上的生命")
-
-世界候鸟日旨在庆祝大自然最壮观的旅程之一。这项全球性活动于每年5月和10月举行，反映世界各地的迁徙模式，并强调保护鸟类赖以生存的栖息地和迁飞路线的重要性。“每一只鸟都很重要——您的观察至关重要！”是2026年的主题，着重说明个人和社区的观察可以如何为鸟类研究、监测和保护贡献力量，帮助科学家更好地了解迁徙。
-
-鸟类迁徙可以采取多种形式：有些鸟向北或向南迁徙，而另一些则迁往不同海拔或不同栖息地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%96%e7%95%8c%e5%80%99%e9%b8%9f%e6%97%a5&form=hpcapt&filters=HpDate:"20261009_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261010_CormorantsFlight"&FORM=HPQUIZ "必应主页测验 2026 10月 10")
-[下载480](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_800x480.jpg&rf=LaDigue_800x480.jpg "蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_1280x720.jpg&rf=LaDigue_1280x720.jpg "蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_UHD.jpg&rf=LaDigue_UHD.jpg "蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国")
 
 ---
