@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月26日：大自然的秋日乐章
+#### 秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚（© Nadya85/Getty Images）
+
+![大自然的秋日乐章](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的秋日乐章")
+
+在保加利亚的西罗多彼山脉，秋叶汇聚在奔腾的西托沃瀑布旁。瀑布位于普罗夫迪夫西南方向的西托沃村附近，从一座古老石桥下倾泻而下；桥拱如画框般圈住飞瀑，宛若童话书中的场景。覆满苔藓的石头和松树为秋日景观添上层层绿意，落叶则堆积在水边，或漂过一汪汪水潭。雨后和春季融雪期间，瀑布尤其奔涌欢腾，湍急水声回荡在周围的林地间。
+
+西罗多彼山脉被认定为关键生物多样性区域，这是对全球生物多样性至关重要地点的一项全球认定。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bf%9d%e5%8a%a0%e5%88%a9%e4%ba%9a%e6%99%ae%e7%bd%97%e5%a4%ab%e8%bf%aa%e5%a4%ab%e8%a5%bf%e6%89%98%e6%b2%83&form=hpcapt&filters=HpDate:"20261025_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261026_SitovoWaterfall"&FORM=HPQUIZ "必应主页测验 2026 10月 26")
+[下载480](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_800x480.jpg&rf=LaDigue_800x480.jpg "秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚")
+[下载720](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_UHD.jpg&rf=LaDigue_UHD.jpg "秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚")
+
+---
 ### 10月25日：群峰与宁静相遇之地
 #### 玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大（© Andrey Popov/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MumblesSwansea2026_ZH-CN5419531039_1280x720.jpg&rf=LaDigue_1280x720.jpg "曼布尔斯码头，斯旺西，威尔士")
 [下载1080](https://cn.bing.com/th?id=OHR.MumblesSwansea2026_ZH-CN5419531039_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼布尔斯码头，斯旺西，威尔士")
 [下载UHD](https://cn.bing.com/th?id=OHR.MumblesSwansea2026_ZH-CN5419531039_UHD.jpg&rf=LaDigue_UHD.jpg "曼布尔斯码头，斯旺西，威尔士")
-
----
-### 10月11日：秋色中转动的水轮
-#### 格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国（© dszc/Getty Images）
-
-![秋色中转动的水轮](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_800x480.jpg&rf=LaDigue_800x480.jpg "秋色中转动的水轮")
-
-格莱德溪磨坊坐落在西弗吉尼亚州巴布科克州立公园内格莱德溪的岩石水域上方，周围红色、橙色和金色交错。尽管它看起来像是拓荒时代的遗迹，但这座磨坊实际上是为致敬阿巴拉契亚地区的磨坊传统而精心建造的。
-
-20世纪30年代，民间资源保护队的海狸营和李营共同参与了巴布科克州立公园的建设。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e5%b8%83%e7%a7%91%e5%85%8b%e5%b7%9e%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20261010_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261011_BabcockSP"&FORM=HPQUIZ "必应主页测验 2026 10月 11")
-[下载480](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_800x480.jpg&rf=LaDigue_800x480.jpg "格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_1280x720.jpg&rf=LaDigue_1280x720.jpg "格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_UHD.jpg&rf=LaDigue_UHD.jpg "格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国")
 
 ---
