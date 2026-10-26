@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月27日：大自然的金色明镜
+#### 秋叶缤纷的池杉林，乔治亚州，美国（© Chris Moore/Getty Images）
+
+![大自然的金色明镜](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的金色明镜")
+
+这片池杉林倒映在平静的水面上，在落日余晖中熠熠生辉，呈现出色彩与对称之美，令人叹为观止。池杉原产于美国东南部，通常生长在浅水池塘、洼地和湿地生境中。这张照片拍摄于乔治亚州，当地的奥克弗诺基沼泽及其他低洼湿地中均可见这些树木。
+
+池杉会长出被称为“膝根”的瘤状根部结构，高出树木周围的水面或土壤。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b1%a0%e6%9d%89&form=hpcapt&filters=HpDate:"20261026_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261027_PondCypress"&FORM=HPQUIZ "必应主页测验 2026 10月 27")
+[下载480](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_800x480.jpg&rf=LaDigue_800x480.jpg "秋叶缤纷的池杉林，乔治亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋叶缤纷的池杉林，乔治亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋叶缤纷的池杉林，乔治亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_UHD.jpg&rf=LaDigue_UHD.jpg "秋叶缤纷的池杉林，乔治亚州，美国")
+
+---
 ### 10月26日：大自然的秋日乐章
 #### 秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚（© Nadya85/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_1280x720.jpg&rf=LaDigue_1280x720.jpg "普利特维采湖群国家公园，克罗地亚")
 [下载1080](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普利特维采湖群国家公园，克罗地亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_UHD.jpg&rf=LaDigue_UHD.jpg "普利特维采湖群国家公园，克罗地亚")
-
----
-### 10月12日：从铁轨到潮汐
-#### 曼布尔斯码头，斯旺西，威尔士（© Helen Hotson/Shutterstock）
-
-![从铁轨到潮汐](https://cn.bing.com/th?id=OHR.MumblesSwansea2026_ZH-CN5419531039_800x480.jpg&rf=LaDigue_800x480.jpg "从铁轨到潮汐")
-
-当铁路、救生艇站和海滨一日游在水边相遇，会得到什么？答案是曼布尔斯码头。这座维多利亚时代的地标向斯旺西湾延伸255米，于1898年5月10日开放，自此一直是威尔士海岸的一部分。
-
-曼布尔斯铁路曾在车厢上安装风帆，短暂试验以风力驱动车辆，但这项尝试并未持续多久。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%94%e5%a3%ab%e6%9b%bc%e5%b8%83%e5%b0%94%e6%96%af%e7%a0%81%e5%a4%b4&form=hpcapt&filters=HpDate:"20261011_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261012_MumblesSwansea2026"&FORM=HPQUIZ "必应主页测验 2026 10月 12")
-[下载480](https://cn.bing.com/th?id=OHR.MumblesSwansea2026_ZH-CN5419531039_800x480.jpg&rf=LaDigue_800x480.jpg "曼布尔斯码头，斯旺西，威尔士")
-[下载720](https://cn.bing.com/th?id=OHR.MumblesSwansea2026_ZH-CN5419531039_1280x720.jpg&rf=LaDigue_1280x720.jpg "曼布尔斯码头，斯旺西，威尔士")
-[下载1080](https://cn.bing.com/th?id=OHR.MumblesSwansea2026_ZH-CN5419531039_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼布尔斯码头，斯旺西，威尔士")
-[下载UHD](https://cn.bing.com/th?id=OHR.MumblesSwansea2026_ZH-CN5419531039_UHD.jpg&rf=LaDigue_UHD.jpg "曼布尔斯码头，斯旺西，威尔士")
 
 ---
