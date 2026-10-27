@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月28日：历史守望之地
+#### 库涅季采山城堡，波希米亚，捷克（© Marek Saroch/Alamy）
+
+![历史守望之地](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_800x480.jpg&rf=LaDigue_800x480.jpg "历史守望之地")
+
+这些城墙会讲述怎样的故事？库涅季采山城堡高踞于捷克波希米亚东部，见证了数百年的历史。城堡的历史可追溯至14世纪末，后来逐渐发展为一座宏伟的要塞和贵族宅邸。它地势高耸，可俯瞰周围乡野，也因此成为一处重要据点。
+
+1645年，一支瑞典军队攻占库涅季采山城堡，并在撤离前将其焚毁，加速了城堡此后的长期衰败。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%ba%93%e6%b6%85%e5%ad%a3%e9%87%87%e5%b1%b1%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20261027_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261028_KuneticeCastle"&FORM=HPQUIZ "必应主页测验 2026 10月 28")
+[下载480](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_800x480.jpg&rf=LaDigue_800x480.jpg "库涅季采山城堡，波希米亚，捷克")
+[下载720](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_1280x720.jpg&rf=LaDigue_1280x720.jpg "库涅季采山城堡，波希米亚，捷克")
+[下载1080](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "库涅季采山城堡，波希米亚，捷克")
+[下载UHD](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_UHD.jpg&rf=LaDigue_UHD.jpg "库涅季采山城堡，波希米亚，捷克")
+
+---
 ### 10月27日：大自然的金色明镜
 #### 秋叶缤纷的池杉林，乔治亚州，美国（© Chris Moore/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_1280x720.jpg&rf=LaDigue_1280x720.jpg "侏罗纪时期的菊石化石")
 [下载1080](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "侏罗纪时期的菊石化石")
 [下载UHD](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_UHD.jpg&rf=LaDigue_UHD.jpg "侏罗纪时期的菊石化石")
-
----
-### 10月13日：蓝与绿的交响曲
-#### 普利特维采湖群国家公园，克罗地亚（© Jan Wlodarczyk/Alamy）
-
-![蓝与绿的交响曲](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_800x480.jpg&rf=LaDigue_800x480.jpg "蓝与绿的交响曲")
-
-在克罗地亚的普利特维采湖群国家公园，水似乎无处不在。十六个阶梯状湖泊由瀑布、溪流和层叠而下的水流组成的网络连接起来，蜿蜒穿过森林覆盖的石灰岩峡谷。湖水的颜色不断变化，从翠绿到深蓝不等，这是由矿物质、阳光和不断变化的倒影共同造就的。普利特维采湖群国家公园成立于1949年，是克罗地亚历史最悠久、面积最大的国家公园。这里以石灰华屏障闻名，这种天然石灰岩构造是富含矿物质的水在数百年间沉积碳酸钙形成的。这些屏障仍在继续生长和变化，逐渐改变着公园内的瀑布和湖泊。
-
-普利特维采拥有84公顷的山毛榉和冷杉原始林，也是棕熊、灰狼和猞猁的家园。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%99%ae%e5%88%a9%e7%89%b9%e7%bb%b4%e9%87%87%e6%b9%96%e7%be%a4%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20261012_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261013_PlitviceAutumn"&FORM=HPQUIZ "必应主页测验 2026 10月 13")
-[下载480](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_800x480.jpg&rf=LaDigue_800x480.jpg "普利特维采湖群国家公园，克罗地亚")
-[下载720](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_1280x720.jpg&rf=LaDigue_1280x720.jpg "普利特维采湖群国家公园，克罗地亚")
-[下载1080](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普利特维采湖群国家公园，克罗地亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_UHD.jpg&rf=LaDigue_UHD.jpg "普利特维采湖群国家公园，克罗地亚")
 
 ---
