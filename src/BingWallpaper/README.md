@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月29日：薄雾邂逅千年时光
+#### 立石，埃夫伯里，威尔特郡，英格兰（© George W Johnson/Getty Images）
+
+![薄雾邂逅千年时光](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_800x480.jpg&rf=LaDigue_800x480.jpg "薄雾邂逅千年时光")
+
+晨雾在英格兰威尔特郡埃夫伯里的立石间飘荡，眼前景象仿佛超越了时间。这些古老的巨石构成了世界上最非凡的史前景观之一，其核心是一座约建于4500年前的宏大新石器时代纪念性建筑。埃夫伯里拥有世界上最大的史前石圈，还有一座巨型环形遗址，以及延伸至周围乡野的石列大道。它与附近的锡尔伯里山、西肯尼特大道等遗迹共同组成一处规模宏大的新石器时代遗址群，令一代又一代游客、研究人员和考古学家为之着迷。
+
+20世纪30年代，考古学家亚历山大·凯勒重新竖起了许多倒伏的埃夫伯里巨石，并用混凝土标出缺失巨石的位置。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%94%e7%89%b9%e9%83%a1%e5%9f%83%e5%a4%ab%e4%bc%af%e9%87%8c%e7%8e%af%e5%bd%a2%e9%81%97%e5%9d%80&form=hpcapt&filters=HpDate:"20261028_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 29")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261029_AveburyStones"&FORM=HPQUIZ "必应主页测验 2026 10月 29")
+[下载480](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_800x480.jpg&rf=LaDigue_800x480.jpg "立石，埃夫伯里，威尔特郡，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_1280x720.jpg&rf=LaDigue_1280x720.jpg "立石，埃夫伯里，威尔特郡，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "立石，埃夫伯里，威尔特郡，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_UHD.jpg&rf=LaDigue_UHD.jpg "立石，埃夫伯里，威尔特郡，英格兰")
+
+---
 ### 10月28日：历史守望之地
 #### 库涅季采山城堡，波希米亚，捷克（© Marek Saroch/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_1280x720.jpg&rf=LaDigue_1280x720.jpg "弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰")
 [下载1080](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_UHD.jpg&rf=LaDigue_UHD.jpg "弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰")
-
----
-### 10月14日：穿越时间的螺旋
-#### 侏罗纪时期的菊石化石（© J Nemchinova/Getty Images）
-
-![穿越时间的螺旋](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_800x480.jpg&rf=LaDigue_800x480.jpg "穿越时间的螺旋")
-
-我们如何知道早在人类出现之前地球是什么样子？化石提供了许多线索。国家化石日旨在赞颂古生物学，以及那些帮助科学家重建过去环境、追溯生命演化并了解数百万年前消失生物的发现。从恐龙到微小的海洋生物，这些过去的遗存保存着早已不复存在的远古世界的一个个瞬间。
-
-化石不一定非得是骨骼。足迹、洞道、巢穴以及古代生命留下的其他痕迹也可以成为化石。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e5%ae%b6%e5%8c%96%e7%9f%b3%e6%97%a5&form=hpcapt&filters=HpDate:"20261013_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 14")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261014_AmmoniteFossils"&FORM=HPQUIZ "必应主页测验 2026 10月 14")
-[下载480](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_800x480.jpg&rf=LaDigue_800x480.jpg "侏罗纪时期的菊石化石")
-[下载720](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_1280x720.jpg&rf=LaDigue_1280x720.jpg "侏罗纪时期的菊石化石")
-[下载1080](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "侏罗纪时期的菊石化石")
-[下载UHD](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_UHD.jpg&rf=LaDigue_UHD.jpg "侏罗纪时期的菊石化石")
 
 ---
