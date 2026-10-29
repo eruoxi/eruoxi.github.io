@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月30日：展翅高飞的时节
+#### 沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国（© Terry St.Louis/Getty Images）
+
+![展翅高飞的时节](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_800x480.jpg&rf=LaDigue_800x480.jpg "展翅高飞的时节")
+
+冬天为新墨西哥州的博斯克德尔阿帕奇国家野生动物保护区带来熟悉的节奏。沙丘鹤陆续飞来，湿地聚满鸟儿，这片区域成为季节性野生动物的聚集地。这座占地57,331英亩的保护区成立于1939年，旨在为迁徙的水鸟提供受保护的中途栖息地。如今，这里的湿地、田野和水道全年滋养着野生动物。画面中的沙丘鹤尤其是保护区冬季的标志性身影。
+
+西班牙语“Bosque del Apache”意为“阿帕奇人的树林”，得名于曾在里奥格兰德河沿岸树林扎营的阿帕奇人。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b2%99%e4%b8%98%e9%b9%a4&form=hpcapt&filters=HpDate:"20261029_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 30")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261030_AutumnCranes"&FORM=HPQUIZ "必应主页测验 2026 10月 30")
+[下载480](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_800x480.jpg&rf=LaDigue_800x480.jpg "沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_1280x720.jpg&rf=LaDigue_1280x720.jpg "沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_UHD.jpg&rf=LaDigue_UHD.jpg "沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国")
+
+---
 ### 10月29日：薄雾邂逅千年时光
 #### 立石，埃夫伯里，威尔特郡，英格兰（© George W Johnson/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SneffelsAutumn_ZH-CN3002661429_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SneffelsAutumn_ZH-CN3002661429_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SneffelsAutumn_ZH-CN3002661429_UHD.jpg&rf=LaDigue_UHD.jpg "斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国")
-
----
-### 10月15日：桥梁、屋顶与暮色
-#### 弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰（© Piotr Mitelski/Shutterstock）
-
-![桥梁、屋顶与暮色](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_800x480.jpg&rf=LaDigue_800x480.jpg "桥梁、屋顶与暮色")
-
-暮色降临弗罗茨瓦夫，金色光芒洒满屋顶、教堂塔楼和中欧最引人注目的历史中心之一。这座位于波兰西南部的城市横跨多座岛屿和水道，由100多座桥梁连接，将中世纪建筑与充满活力的现代生活融为一体。城市中心是热闹的雷内克(Rynek)集市广场，该广场建于13世纪，哥特式老市政厅便坐落于此，它是弗罗茨瓦夫最易辨认的地标之一。
-
-弗罗茨瓦夫百年厅于1913年建成时，拥有当时世界上最大的钢筋混凝土穹顶。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%bc%97%e7%bd%97%e8%8c%a8%e7%93%a6%e5%a4%ab&form=hpcapt&filters=HpDate:"20261014_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 15")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261015_WroclawPoland"&FORM=HPQUIZ "必应主页测验 2026 10月 15")
-[下载480](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_800x480.jpg&rf=LaDigue_800x480.jpg "弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰")
-[下载720](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_1280x720.jpg&rf=LaDigue_1280x720.jpg "弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰")
-[下载1080](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_UHD.jpg&rf=LaDigue_UHD.jpg "弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰")
 
 ---
