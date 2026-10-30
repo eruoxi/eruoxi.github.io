@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 10月31日：往昔帝国的幽影
+#### 圣巴尔多禄茂教堂，法兰克福，德国（© AlxeyPnferov/Getty Images）
+
+![往昔帝国的幽影](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_800x480.jpg&rf=LaDigue_800x480.jpg "往昔帝国的幽影")
+
+忘了烟雾机吧。德国法兰克福有更能烘托气氛的景物：一座哥特式大教堂，塔楼仿佛随时能上演一场午夜招魂会。画面中的圣巴尔多禄茂教堂有着中世纪风格的轮廓，简直像是万圣节特意挑选的布景。不过，这个节日本身的历史更加离奇。
+
+1562年至1792年，神圣罗马帝国的当选皇帝曾在法兰克福的圣巴尔多禄茂教堂举行加冕仪式。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%87%e5%9c%a3%e8%8a%82&form=hpcapt&filters=HpDate:"20261030_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 31")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261031_FrankfurtHalloween"&FORM=HPQUIZ "必应主页测验 2026 10月 31")
+[下载480](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_800x480.jpg&rf=LaDigue_800x480.jpg "圣巴尔多禄茂教堂，法兰克福，德国")
+[下载720](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣巴尔多禄茂教堂，法兰克福，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣巴尔多禄茂教堂，法兰克福，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_UHD.jpg&rf=LaDigue_UHD.jpg "圣巴尔多禄茂教堂，法兰克福，德国")
+
+---
 ### 10月30日：展翅高飞的时节
 #### 沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国（© Terry St.Louis/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_1280x720.jpg&rf=LaDigue_1280x720.jpg "肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_UHD.jpg&rf=LaDigue_UHD.jpg "肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国")
-
----
-### 10月16日：一窥科罗拉多群峰
-#### 斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国（© lightphoto/Getty Images）
-
-![一窥科罗拉多群峰](https://cn.bing.com/th?id=OHR.SneffelsAutumn_ZH-CN3002661429_800x480.jpg&rf=LaDigue_800x480.jpg "一窥科罗拉多群峰")
-
-有些山会让你付出一番努力才能欣赏到美景，而攀登斯奈费尔斯山，最考验人的则是最后几百英尺。它高耸于科罗拉多州的圣胡安山脉，海拔14,150英尺，是一座“十四峰”，在里奇韦、乌雷和特柳赖德一带十分醒目。它坐落在占地16,587英亩的斯奈费尔斯山荒野区内，这片保护区于1980年获指定。徒步者可以从多条路线登山，包括经扬基博伊盆地和蓝湖群地区的路线。
-
-根据美国联邦荒野管理规定，斯奈费尔斯山荒野区通常禁止机动车辆和机械运输工具进入。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%96%af%e5%a5%88%e8%b4%b9%e5%b0%94%e6%96%af%e5%b1%b1&form=hpcapt&filters=HpDate:"20261015_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 16")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261016_SneffelsAutumn"&FORM=HPQUIZ "必应主页测验 2026 10月 16")
-[下载480](https://cn.bing.com/th?id=OHR.SneffelsAutumn_ZH-CN3002661429_800x480.jpg&rf=LaDigue_800x480.jpg "斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.SneffelsAutumn_ZH-CN3002661429_1280x720.jpg&rf=LaDigue_1280x720.jpg "斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.SneffelsAutumn_ZH-CN3002661429_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SneffelsAutumn_ZH-CN3002661429_UHD.jpg&rf=LaDigue_UHD.jpg "斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国")
 
 ---
