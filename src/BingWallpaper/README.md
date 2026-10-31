@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月01日：林间迷雾
+#### 黑森林，巴登-符腾堡州，德国（© Britus/Getty Images）
+
+![林间迷雾](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_800x480.jpg&rf=LaDigue_800x480.jpg "林间迷雾")
+
+今天，我们一起欣赏笼罩在黑森林上空的朦胧景色。黑森林绵延约160公里，横跨德国西南部，汇集了葱郁的山丘、幽深的山谷、湖泊和迷人的小镇。最高峰费尔德贝格山海拔1,493米；多瑙河和内卡河也发源于黑森林。这里同样不乏历史与传统。林业长期以来在当地占据重要地位，而延续数百年的钟表制造传统，更让别具特色的布谷鸟钟名扬德国以外。
+
+黑森林传统民俗头饰“绒球帽”上有14个羊毛绒球；未婚女性传统上佩戴红色绒球帽。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%be%b7%e5%9b%bd%e9%bb%91%e6%a3%ae%e6%9e%97&form=hpcapt&filters=HpDate:"20261031_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 1")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261101_SchwarzwaldAutumn"&FORM=HPQUIZ "必应主页测验 2026 11月 1")
+[下载480](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_800x480.jpg&rf=LaDigue_800x480.jpg "黑森林，巴登-符腾堡州，德国")
+[下载720](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑森林，巴登-符腾堡州，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑森林，巴登-符腾堡州，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_UHD.jpg&rf=LaDigue_UHD.jpg "黑森林，巴登-符腾堡州，德国")
+
+---
 ### 10月31日：往昔帝国的幽影
 #### 圣巴尔多禄茂教堂，法兰克福，德国（© AlxeyPnferov/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_1280x720.jpg&rf=LaDigue_1280x720.jpg "多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士")
 [下载1080](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士")
 [下载UHD](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_UHD.jpg&rf=LaDigue_UHD.jpg "多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士")
-
----
-### 10月17日：发掘尘封的过去
-#### 肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国（© Audrey Poree/Alamy）
-
-![发掘尘封的过去](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_800x480.jpg&rf=LaDigue_800x480.jpg "发掘尘封的过去")
-
-有些发现始于一把铲子，另一些则始于洞穴墙壁上的一幅图画。国际考古日既颂扬抽丝剥茧般的考古工作，也重视支撑发现的证据。这项年度活动由美国考古学会主办，始于2011年；随着参与范围扩展至全球，活动于2013年更名为“国际考古日”。如今，它通过讲座、博物馆项目、遗址参观、模拟发掘和动手实践活动，让公众更加贴近考古学。
-
-肖维岩洞保存着一名史前青少年的足迹，大约3万年前，这名青少年曾赤脚走过洞内通道。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e8%80%83%e5%8f%a4%e6%97%a5&form=hpcapt&filters=HpDate:"20261016_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 17")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261017_ChauvetPaintingsFrance"&FORM=HPQUIZ "必应主页测验 2026 10月 17")
-[下载480](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_800x480.jpg&rf=LaDigue_800x480.jpg "肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国")
-[下载720](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_1280x720.jpg&rf=LaDigue_1280x720.jpg "肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国")
-[下载1080](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国")
-[下载UHD](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_UHD.jpg&rf=LaDigue_UHD.jpg "肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国")
 
 ---
