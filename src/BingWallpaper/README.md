@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月02日：写在冰上的未来
+#### 北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大（© Danita Delimont/Adobe Stock）
+
+![写在冰上的未来](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_800x480.jpg&rf=LaDigue_800x480.jpg "写在冰上的未来")
+
+11月也许让我们离节日季又近了一步，但北极熊有别的打算。它们聚集在加拿大马尼托巴省的哈得孙湾沿岸，等待海冰形成，以便重返冰面捕猎海豹。每年上演的这一幕催生了在11月第一周举行的北极熊周，以庆祝北极地区体型最大的陆生捕食者。北极熊是游泳健将、捕猎高手，也极其适应地球上最严酷的环境之一。然而，海冰不断缩减，意味着许多北极熊不得不在陆地上待更久，觅食更加困难，与人类相遇的风险也随之上升。
+
+为了寻找食物和合适的海冰，北极熊在一个季节里可能跋涉超过620英里。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%9e%81%e7%86%8a%e5%91%a8&form=hpcapt&filters=HpDate:"20261101_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 2")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261102_HudsonBear"&FORM=HPQUIZ "必应主页测验 2026 11月 2")
+[下载480](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_800x480.jpg&rf=LaDigue_800x480.jpg "北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大")
+
+---
 ### 11月01日：林间迷雾
 #### 黑森林，巴登-符腾堡州，德国（© Britus/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_1280x720.jpg&rf=LaDigue_1280x720.jpg "大运河，威尼斯，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大运河，威尼斯，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_UHD.jpg&rf=LaDigue_UHD.jpg "大运河，威尼斯，意大利")
-
----
-### 10月18日：75载，风华正茂
-#### 多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士（© joe daniel price/Getty Images）
-
-![75载，风华正茂](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_800x480.jpg&rf=LaDigue_800x480.jpg "75载，风华正茂")
-
-如果公园也能写生日手记，威尔士斯诺登尼亚国家公园一定有许多精彩故事可讲。今天是这座公园成立75周年，纪念它于1951年获指定为国家公园。斯诺登尼亚占地823平方英里，拥有九条山脉和74英里海岸线，栖息地类型从泥炭地、原生林地到高地景观不一而足。斯诺登山海拔超过3,500英尺，是斯诺登尼亚的最高点。附近的卡内道山脉和格利德赖山脉群峰耸立，卡代尔伊德里斯山则矗立在南部。这些受保护的景观为野生动物提供了栖息地，其中包括17处国家级自然保护区和56处特殊科学价值地点。
-
-2015年，斯诺登尼亚被认定为国际暗夜保护区，以表彰其卓越的夜空质量和限制光污染的努力。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%94%e5%a3%ab%e6%96%af%e8%af%ba%e7%99%bb%e5%b0%bc%e4%ba%9a%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20261017_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 18")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261018_DolbadarnWales"&FORM=HPQUIZ "必应主页测验 2026 10月 18")
-[下载480](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_800x480.jpg&rf=LaDigue_800x480.jpg "多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士")
-[下载720](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_1280x720.jpg&rf=LaDigue_1280x720.jpg "多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士")
-[下载1080](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士")
-[下载UHD](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_UHD.jpg&rf=LaDigue_UHD.jpg "多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士")
 
 ---
