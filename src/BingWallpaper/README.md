@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月03日：群峰间的宁静
+#### 布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利（© leonid_tit/Getty Images）
+
+![群峰间的宁静](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_800x480.jpg&rf=LaDigue_800x480.jpg "群峰间的宁静")
+
+布莱埃斯湖坐落在意大利北部南蒂罗尔的多洛米蒂山脉，海拔近1500米。湖泊四周森林环绕，法内斯-塞内斯-布莱埃斯湖自然公园的壮丽群峰耸立其间，以动人的碧绿和湛蓝湖水闻名。一条3.5公里长的步道环绕湖岸，游客也可以乘坐传统木质划艇，从另一种视角欣赏风光。这里还是多条山间徒步路线的起点，包括多洛米蒂山脉著名的多洛米蒂高山步道1号。
+
+布莱埃斯湖最深处达36米，平均水深约17米。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%9a%e6%b4%9b%e7%b1%b3%e8%92%82%e5%b1%b1%e8%84%89&form=hpcapt&filters=HpDate:"20261102_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 3")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261103_AlpineBraies"&FORM=HPQUIZ "必应主页测验 2026 11月 3")
+[下载480](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_800x480.jpg&rf=LaDigue_800x480.jpg "布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_1280x720.jpg&rf=LaDigue_1280x720.jpg "布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_UHD.jpg&rf=LaDigue_UHD.jpg "布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利")
+
+---
 ### 11月02日：写在冰上的未来
 #### 北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大（© Danita Delimont/Adobe Stock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_1280x720.jpg&rf=LaDigue_1280x720.jpg "褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加")
 [下载1080](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加")
 [下载UHD](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_UHD.jpg&rf=LaDigue_UHD.jpg "褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加")
-
----
-### 10月19日：水上通衢
-#### 大运河，威尼斯，意大利（© Juan Romero/Cavan Images）
-
-![水上通衢](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_800x480.jpg&rf=LaDigue_800x480.jpg "水上通衢")
-
-如果一座城市最繁忙的街道根本没有路，会是什么样？在意大利威尼斯，交通沿着大运河往来。这条长2.4英里的水道以巨大的反S形蜿蜒穿过城市。当地人称它为“大运河”，它是威尼斯主要的水上交通通道，水上巴士、水上出租车、贡多拉、警用艇和其他船只都在此穿行。大运河沿着一条古河道延伸，这条河过去曾流入威尼斯潟湖。
-
-威尼斯及其潟湖于1987年列入联合国教科文组织世界遗产名录，并符合该遗产地全部六项文化标准。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%bc%e6%96%af%e5%a4%a7%e8%bf%90%e6%b2%b3&form=hpcapt&filters=HpDate:"20261018_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 19")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261019_VeniceSunrise"&FORM=HPQUIZ "必应主页测验 2026 10月 19")
-[下载480](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_800x480.jpg&rf=LaDigue_800x480.jpg "大运河，威尼斯，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_1280x720.jpg&rf=LaDigue_1280x720.jpg "大运河，威尼斯，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大运河，威尼斯，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_UHD.jpg&rf=LaDigue_UHD.jpg "大运河，威尼斯，意大利")
 
 ---
