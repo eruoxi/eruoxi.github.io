@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月04日：泛舟如画秋林
+#### 五彩落羽杉间划船的人们，宣城，安徽省，中国（© Jackal Pan/Getty Images）
+
+![泛舟如画秋林](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_800x480.jpg&rf=LaDigue_800x480.jpg "泛舟如画秋林")
+
+在安徽省宣城，人们划船穿过色彩斑斓的落羽杉林。秋天将这片被水淹没的林地变成由琥珀色、铜色和深铁锈色交织而成的锦绣景致。落羽杉的学名是“Taxodium distichum”，它在针叶树中颇为特别：每年秋季，柔软如羽毛的针叶会先变成红褐色，然后脱落。在北美洲，落羽杉因能生长在沼泽、河漫滩等湿地环境而闻名，常长出称为“膝状根”的瘤状根部突起，露出周围的泥土和水面。
+
+落羽杉木材耐腐朽，历史上曾被用于制作木桶、铁路枕木和屋顶木瓦。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%90%bd%e7%be%bd%e6%9d%89&form=hpcapt&filters=HpDate:"20261103_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 4")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261104_AutumnChina"&FORM=HPQUIZ "必应主页测验 2026 11月 4")
+[下载480](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_800x480.jpg&rf=LaDigue_800x480.jpg "五彩落羽杉间划船的人们，宣城，安徽省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_1280x720.jpg&rf=LaDigue_1280x720.jpg "五彩落羽杉间划船的人们，宣城，安徽省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "五彩落羽杉间划船的人们，宣城，安徽省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_UHD.jpg&rf=LaDigue_UHD.jpg "五彩落羽杉间划船的人们，宣城，安徽省，中国")
+
+---
 ### 11月03日：群峰间的宁静
 #### 布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利（© leonid_tit/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_1280x720.jpg&rf=LaDigue_1280x720.jpg "香江上的阮潢桥，顺化，越南")
 [下载1080](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "香江上的阮潢桥，顺化，越南")
 [下载UHD](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_UHD.jpg&rf=LaDigue_UHD.jpg "香江上的阮潢桥，顺化，越南")
-
----
-### 10月20日：慢节奏生活
-#### 褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加（© Suzi Eszterhas/Minden Pictures）
-
-![慢节奏生活](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_800x480.jpg&rf=LaDigue_800x480.jpg "慢节奏生活")
-
-稳扎稳打才能赢得比赛——而褐喉三趾树懒似乎很乐意彻底放弃比赛。在国际树懒日，这种三趾哺乳动物为生存之道带来了另一番启示：保存能量，牢牢抓住，慢慢来。
-
-褐喉三趾树懒每天可能睡15至18小时，通常只在夜间短暂活动。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%9b%bd%e9%99%85%e6%a0%91%e6%87%92%e6%97%a5&form=hpcapt&filters=HpDate:"20261019_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 20")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261020_BrownSloth"&FORM=HPQUIZ "必应主页测验 2026 10月 20")
-[下载480](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_800x480.jpg&rf=LaDigue_800x480.jpg "褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加")
-[下载720](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_1280x720.jpg&rf=LaDigue_1280x720.jpg "褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加")
-[下载1080](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加")
-[下载UHD](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_UHD.jpg&rf=LaDigue_UHD.jpg "褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加")
 
 ---
