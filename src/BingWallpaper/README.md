@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月05日：向山巅再迈一步
+#### 石墙边的木制翻越梯，黑岩，湖区，英格兰（© Alex Treadway/Getty Images）
+
+![向山巅再迈一步](https://cn.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_800x480.jpg&rf=LaDigue_800x480.jpg "向山巅再迈一步")
+
+一座简朴的木制翻越梯，将人们引向英格兰最负盛名的风景区之一。被列为联合国教科文组织世界遗产的湖区，湖泊波光粼粼，山丘崎岖起伏，古老的石墙纵横其间；自然力量与世代相传的农耕传统共同塑造了这片景观。
+
+英格兰湖区于2017年被列入联合国教科文组织世界遗产名录，其独特的文化景观由此获得认可。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%8b%b1%e6%a0%bc%e5%85%b0%e6%b9%96%e5%8c%ba&form=hpcapt&filters=HpDate:"20261104_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 5")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261105_StileCrossing"&FORM=HPQUIZ "必应主页测验 2026 11月 5")
+[下载480](https://cn.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_800x480.jpg&rf=LaDigue_800x480.jpg "石墙边的木制翻越梯，黑岩，湖区，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_1280x720.jpg&rf=LaDigue_1280x720.jpg "石墙边的木制翻越梯，黑岩，湖区，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "石墙边的木制翻越梯，黑岩，湖区，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_UHD.jpg&rf=LaDigue_UHD.jpg "石墙边的木制翻越梯，黑岩，湖区，英格兰")
+
+---
 ### 11月04日：泛舟如画秋林
 #### 五彩落羽杉间划船的人们，宣城，安徽省，中国（© Jackal Pan/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_1280x720.jpg&rf=LaDigue_1280x720.jpg "内藏山国立公园的秋景，韩国")
 [下载1080](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "内藏山国立公园的秋景，韩国")
 [下载UHD](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_UHD.jpg&rf=LaDigue_UHD.jpg "内藏山国立公园的秋景，韩国")
-
----
-### 10月21日：飞掠河面
-#### 香江上的阮潢桥，顺化，越南（© VU PHAM VAN/Getty Images）
-
-![飞掠河面](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_800x480.jpg&rf=LaDigue_800x480.jpg "飞掠河面")
-
-阮潢桥弥合了新旧之间的距离，为顺化的天际线增添了一道崭新的纽带。这座横跨越南香江的现代钢拱地标于2025年3月26日通车。其设计名为“鹤望天姥”，灵感源自当地传说和附近的天姥寺。
-
-阮黄桥长约380米、宽43米，设有六条机动车道和两条人行步道。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%b6%8a%e5%8d%97%e9%a1%ba%e5%8c%96%e5%b8%82&form=hpcapt&filters=HpDate:"20261020_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 21")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261021_VietnamBridge"&FORM=HPQUIZ "必应主页测验 2026 10月 21")
-[下载480](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_800x480.jpg&rf=LaDigue_800x480.jpg "香江上的阮潢桥，顺化，越南")
-[下载720](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_1280x720.jpg&rf=LaDigue_1280x720.jpg "香江上的阮潢桥，顺化，越南")
-[下载1080](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "香江上的阮潢桥，顺化，越南")
-[下载UHD](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_UHD.jpg&rf=LaDigue_UHD.jpg "香江上的阮潢桥，顺化，越南")
 
 ---
