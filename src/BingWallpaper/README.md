@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月06日：穿越毛伊岛的绿色隧道
+#### 竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国（© MNStudio/Getty Images）
+
+![穿越毛伊岛的绿色隧道](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_800x480.jpg&rf=LaDigue_800x480.jpg "穿越毛伊岛的绿色隧道")
+
+火山、雨林和竹林？毛伊岛上的哈莱亚卡拉国家公园三者兼有。公园的范围从毛伊岛上海拔10023英尺的山顶一直延伸到海岸，保护着随海拔、降雨量和气温变化而呈现迥异面貌的景观。它于1916年作为夏威夷国家公园的一部分设立，1961年成为独立的国家公园。哈莱阿卡拉意为“太阳之家”，这一名称呼应了夏威夷口述传说“moʻolelo”中毛伊捉住太阳、延长白昼的故事。
+
+前往哈莱阿卡拉山顶观赏日出的游客须提前预约；名额最多提前60天开放。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%93%88%e8%8e%b1%e4%ba%9a%e5%8d%a1%e6%8b%89%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20261105_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 6")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261106_PipiwaiTrail"&FORM=HPQUIZ "必应主页测验 2026 11月 6")
+[下载480](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_800x480.jpg&rf=LaDigue_800x480.jpg "竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_1280x720.jpg&rf=LaDigue_1280x720.jpg "竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_UHD.jpg&rf=LaDigue_UHD.jpg "竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国")
+
+---
 ### 11月05日：向山巅再迈一步
 #### 石墙边的木制翻越梯，黑岩，湖区，英格兰（© Alex Treadway/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_1280x720.jpg&rf=LaDigue_1280x720.jpg "两只灰狼，黄石国家公园，怀俄明州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "两只灰狼，黄石国家公园，怀俄明州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_UHD.jpg&rf=LaDigue_UHD.jpg "两只灰狼，黄石国家公园，怀俄明州，美国")
-
----
-### 10月22日：静水映斑斓
-#### 内藏山国立公园的秋景，韩国（© Twenty47studio/Getty Images）
-
-![静水映斑斓](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_800x480.jpg&rf=LaDigue_800x480.jpg "静水映斑斓")
-
-在韩国，很少有地方能像内藏山国立公园一样尽显秋日的魔力，这里的山坡闪耀着猩红、橙色、黄色和金色的绚丽光彩。公园位于韩国西南部，尤以鲜艳的枫叶色彩闻名，是韩国首屈一指的赏秋胜地之一。其名称意为“山中藏有许多秘密”，体现了这一地区丰富多样的景观。
-
-内藏山于1971年获指定，成为韩国第八座国家公园，其山地景观由此受到国家公园制度保护。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%86%85%e8%97%8f%e5%b1%b1%e5%9b%bd%e7%ab%8b%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20261021_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 22")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261022_NaejangsanNP"&FORM=HPQUIZ "必应主页测验 2026 10月 22")
-[下载480](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_800x480.jpg&rf=LaDigue_800x480.jpg "内藏山国立公园的秋景，韩国")
-[下载720](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_1280x720.jpg&rf=LaDigue_1280x720.jpg "内藏山国立公园的秋景，韩国")
-[下载1080](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "内藏山国立公园的秋景，韩国")
-[下载UHD](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_UHD.jpg&rf=LaDigue_UHD.jpg "内藏山国立公园的秋景，韩国")
 
 ---
