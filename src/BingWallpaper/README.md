@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月07日：归来的草原巨兽
+#### 草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国（© Tandem Stock/Adobe Stock）
+
+![归来的草原巨兽](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_800x480.jpg&rf=LaDigue_800x480.jpg "归来的草原巨兽")
+
+再艰难的环境，也挡不住野牛吃草的脚步。美国全国野牛日赞颂这种北美哺乳动物：它体重可达2000磅(约907千克)，奔跑时速却能达到35英里(约56千米)。这个节日定在每年11月的第一个星期六，旨在向2016年成为美国国家哺乳动物的野牛致敬。
+
+野牛在泥土中打滚形成的浅坑可能积水，为草原植物和动物提供栖息地。
+
+[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e6%b4%b2%e9%87%8e%e7%89%9b&form=hpcapt&filters=HpDate:"20261106_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 7")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261107_DakotaBison"&FORM=HPQUIZ "必应主页测验 2026 11月 7")
+[下载480](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_800x480.jpg&rf=LaDigue_800x480.jpg "草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_1280x720.jpg&rf=LaDigue_1280x720.jpg "草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_UHD.jpg&rf=LaDigue_UHD.jpg "草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国")
+
+---
 ### 11月06日：穿越毛伊岛的绿色隧道
 #### 竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国（© MNStudio/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_1280x720.jpg&rf=LaDigue_1280x720.jpg "皇家葡萄牙语阅览室，里约热内卢，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "皇家葡萄牙语阅览室，里约热内卢，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_UHD.jpg&rf=LaDigue_UHD.jpg "皇家葡萄牙语阅览室，里约热内卢，巴西")
-
----
-### 10月23日：荒野伙伴
-#### 两只灰狼，黄石国家公园，怀俄明州，美国（© John Morrison/Getty Images）
-
-![荒野伙伴](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_800x480.jpg&rf=LaDigue_800x480.jpg "荒野伙伴")
-
-两只灰狼穿行在怀俄明州黄石国家公园的山艾灌丛中，这里生活着北美洲一些最受密切关注的狼群。厚实的皮毛帮助它们抵御严冬，敏锐的感官则使它们成为技艺高超的猎手和交流者。
-
-灰狼可以通过嚎叫、肢体语言、气味标记以及多种发声方式进行交流，包括吠叫、呜咽和低吼。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%81%b0%e7%8b%bc&form=hpcapt&filters=HpDate:"20261022_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 23")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261023_YellowstoneWolves"&FORM=HPQUIZ "必应主页测验 2026 10月 23")
-[下载480](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_800x480.jpg&rf=LaDigue_800x480.jpg "两只灰狼，黄石国家公园，怀俄明州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_1280x720.jpg&rf=LaDigue_1280x720.jpg "两只灰狼，黄石国家公园，怀俄明州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "两只灰狼，黄石国家公园，怀俄明州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_UHD.jpg&rf=LaDigue_UHD.jpg "两只灰狼，黄石国家公园，怀俄明州，美国")
 
 ---
