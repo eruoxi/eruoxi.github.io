@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月08日：光芒四射的节日
+#### 排灯节灯笼，孟买，马哈拉施特拉邦，印度（© Dinodia Photo/Getty Images）
+
+![光芒四射的节日](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_800x480.jpg&rf=LaDigue_800x480.jpg "光芒四射的节日")
+
+一年中最黑暗的夜晚遇上最明亮的庆典，会是什么景象？答案就是排灯节。世界各地数百万人庆祝这个灯节，点亮油灯和灯笼，绘制兰戈利彩绘，祈祷、品尝甜点，并与家人团聚。
+
+排灯节持续五天，但由于它遵循印度教阴历，每年在公历上的日期都会变化。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%8e%92%e7%81%af%e8%8a%82&form=hpcapt&filters=HpDate:"20261107_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 8")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261108_DiwaliLamps"&FORM=HPQUIZ "必应主页测验 2026 11月 8")
+[下载480](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_800x480.jpg&rf=LaDigue_800x480.jpg "排灯节灯笼，孟买，马哈拉施特拉邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_1280x720.jpg&rf=LaDigue_1280x720.jpg "排灯节灯笼，孟买，马哈拉施特拉邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "排灯节灯笼，孟买，马哈拉施特拉邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_UHD.jpg&rf=LaDigue_UHD.jpg "排灯节灯笼，孟买，马哈拉施特拉邦，印度")
+
+---
 ### 11月07日：归来的草原巨兽
 #### 草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国（© Tandem Stock/Adobe Stock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_1280x720.jpg&rf=LaDigue_1280x720.jpg "玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_UHD.jpg&rf=LaDigue_UHD.jpg "玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大")
-
----
-### 10月24日：书香里的极致华美
-#### 皇家葡萄牙语阅览室，里约热内卢，巴西（© Antonio Salaverry/Shutterstock）
-
-![书香里的极致华美](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_800x480.jpg&rf=LaDigue_800x480.jpg "书香里的极致华美")
-
-今天，我们走进巴西里约热内卢的皇家葡萄牙语阅览室。在这里，翻开一本书这一朴素举动，被赋予了宏伟的建筑抱负。巴西独立仅15年后，43名葡萄牙移民于1837年创办了这家机构；约半个世纪后，机构最终迁入眼前这座以华丽的新曼努埃尔式建成的建筑。书架环绕宽阔的阅览大厅，高逾70英尺；大厅上方覆盖着一扇巨型彩绘玻璃天窗，让自然光也成为设计的一部分。
-
-据场馆官网介绍，皇家葡萄牙语阅览室工作日10时至17时免费开放参观。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%9a%87%e5%ae%b6%e8%91%a1%e8%90%84%e7%89%99%e8%af%ad%e9%98%85%e8%a7%88%e5%ae%a4&form=hpcapt&filters=HpDate:"20261023_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 24")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261024_PortugueseLibrary"&FORM=HPQUIZ "必应主页测验 2026 10月 24")
-[下载480](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_800x480.jpg&rf=LaDigue_800x480.jpg "皇家葡萄牙语阅览室，里约热内卢，巴西")
-[下载720](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_1280x720.jpg&rf=LaDigue_1280x720.jpg "皇家葡萄牙语阅览室，里约热内卢，巴西")
-[下载1080](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "皇家葡萄牙语阅览室，里约热内卢，巴西")
-[下载UHD](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_UHD.jpg&rf=LaDigue_UHD.jpg "皇家葡萄牙语阅览室，里约热内卢，巴西")
 
 ---
