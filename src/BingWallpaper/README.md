@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月09日：艺术与韵律交汇之地
+#### 特里亚纳历史街区，塞维利亚，西班牙（© Andrzej Rostek/Getty Images）
+
+![艺术与韵律交汇之地](https://cn.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_800x480.jpg&rf=LaDigue_800x480.jpg "艺术与韵律交汇之地")
+
+在西班牙安达卢西亚地区首府塞维利亚，跨过瓜达尔基维尔河，城市的节奏似乎便悄然改变。河对岸是色彩缤纷的特里亚纳街区，陶艺、弗拉门戈和当地传统融入日常生活。自19世纪以来，伊莎贝尔二世桥——又称特里亚纳桥——一直连接着这里与塞维利亚的历史中心。
+
+特里亚纳市场下方保留着圣豪尔赫城堡的遗址；这座城堡曾是宗教裁判所的总部，如今设有历史展览。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e5%a1%9e%e7%bb%b4%e5%88%a9%e4%ba%9a&form=hpcapt&filters=HpDate:"20261108_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 9")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261109_TrianaSpain"&FORM=HPQUIZ "必应主页测验 2026 11月 9")
+[下载480](https://cn.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_800x480.jpg&rf=LaDigue_800x480.jpg "特里亚纳历史街区，塞维利亚，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_1280x720.jpg&rf=LaDigue_1280x720.jpg "特里亚纳历史街区，塞维利亚，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特里亚纳历史街区，塞维利亚，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_UHD.jpg&rf=LaDigue_UHD.jpg "特里亚纳历史街区，塞维利亚，西班牙")
+
+---
 ### 11月08日：光芒四射的节日
 #### 排灯节灯笼，孟买，马哈拉施特拉邦，印度（© Dinodia Photo/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_UHD.jpg&rf=LaDigue_UHD.jpg "秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚")
-
----
-### 10月25日：群峰与宁静相遇之地
-#### 玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大（© Andrey Popov/Getty Images）
-
-![群峰与宁静相遇之地](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_800x480.jpg&rf=LaDigue_800x480.jpg "群峰与宁静相遇之地")
-
-夜幕降临加拿大艾伯塔省的贾斯珀国家公园时，群山便有了全新的背景。该公园于2011年被指定为暗夜天空保护区，面积超过11,000平方千米，并采取了减少光污染的措施。在这里，繁星、行星和银河系联袂上演天幕奇观，让游客不由得仰望天空。晨光到来后，视线又从头顶的天空转向脚下的景致。
-
-据加拿大公园管理局介绍，精灵岛距玛琳湖北岸14公里，只能乘船抵达。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%8e%9b%e7%90%b3%e6%b9%96&form=hpcapt&filters=HpDate:"20261024_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 25")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261025_MaligneFest"&FORM=HPQUIZ "必应主页测验 2026 10月 25")
-[下载480](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_800x480.jpg&rf=LaDigue_800x480.jpg "玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_1280x720.jpg&rf=LaDigue_1280x720.jpg "玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_UHD.jpg&rf=LaDigue_UHD.jpg "玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大")
 
 ---
