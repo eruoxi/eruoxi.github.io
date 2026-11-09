@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月10日：惬意放松，尽享海岛时光
+#### 玫瑰岛航拍图，巴哈马（© Abstract Aerial Art/Getty Images）
+
+![惬意放松，尽享海岛时光](https://cn.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_800x480.jpg&rf=LaDigue_800x480.jpg "惬意放松，尽享海岛时光")
+
+从空中俯瞰，玫瑰岛就像一抹绿意，周围环绕着深浅不一的蓝色海水。这座狭长的小岛位于巴哈马天堂岛以东仅三英里处，没有繁忙的道路和成片的城市街区，取而代之的是沙滩、浅海和岛内潟湖。宁静的外表之下，它还藏着一段电影故事：1965年的詹姆斯·邦德冒险电影《霹雳弹》曾在玫瑰岛取景，其中包括“飞碟号”被炸毁的场景。
+
+玫瑰岛只能乘船抵达；从拿骚或天堂岛出发，航程通常需25至30分钟，具体取决于海况。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e5%93%88%e9%a9%ac%e7%8e%ab%e7%91%b0%e5%b2%9b&form=hpcapt&filters=HpDate:"20261109_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 10")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261110_RoseIsland"&FORM=HPQUIZ "必应主页测验 2026 11月 10")
+[下载480](https://cn.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_800x480.jpg&rf=LaDigue_800x480.jpg "玫瑰岛航拍图，巴哈马")
+[下载720](https://cn.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_1280x720.jpg&rf=LaDigue_1280x720.jpg "玫瑰岛航拍图，巴哈马")
+[下载1080](https://cn.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玫瑰岛航拍图，巴哈马")
+[下载UHD](https://cn.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_UHD.jpg&rf=LaDigue_UHD.jpg "玫瑰岛航拍图，巴哈马")
+
+---
 ### 11月09日：艺术与韵律交汇之地
 #### 特里亚纳历史街区，塞维利亚，西班牙（© Andrzej Rostek/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋叶缤纷的池杉林，乔治亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋叶缤纷的池杉林，乔治亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_UHD.jpg&rf=LaDigue_UHD.jpg "秋叶缤纷的池杉林，乔治亚州，美国")
-
----
-### 10月26日：大自然的秋日乐章
-#### 秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚（© Nadya85/Getty Images）
-
-![大自然的秋日乐章](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的秋日乐章")
-
-在保加利亚的西罗多彼山脉，秋叶汇聚在奔腾的西托沃瀑布旁。瀑布位于普罗夫迪夫西南方向的西托沃村附近，从一座古老石桥下倾泻而下；桥拱如画框般圈住飞瀑，宛若童话书中的场景。覆满苔藓的石头和松树为秋日景观添上层层绿意，落叶则堆积在水边，或漂过一汪汪水潭。雨后和春季融雪期间，瀑布尤其奔涌欢腾，湍急水声回荡在周围的林地间。
-
-西罗多彼山脉被认定为关键生物多样性区域，这是对全球生物多样性至关重要地点的一项全球认定。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%bf%9d%e5%8a%a0%e5%88%a9%e4%ba%9a%e6%99%ae%e7%bd%97%e5%a4%ab%e8%bf%aa%e5%a4%ab%e8%a5%bf%e6%89%98%e6%b2%83&form=hpcapt&filters=HpDate:"20261025_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 26")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261026_SitovoWaterfall"&FORM=HPQUIZ "必应主页测验 2026 10月 26")
-[下载480](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_800x480.jpg&rf=LaDigue_800x480.jpg "秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚")
-[下载720](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚")
-[下载1080](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_UHD.jpg&rf=LaDigue_UHD.jpg "秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚")
 
 ---
