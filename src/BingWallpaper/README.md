@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月11日：奇妙纷呈的森林
+#### 大西洋森林，巴西（© FG Trade/Getty Images）
+
+![奇妙纷呈的森林](https://cn.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_800x480.jpg&rf=LaDigue_800x480.jpg "奇妙纷呈的森林")
+
+大西洋森林是世界上重要的生物多样性热点地区之一，沿巴西大西洋沿岸的广大地带延伸，并进入阿根廷和巴拉圭境内。这里的景观包括热带与亚热带森林、红树林和海岸生境，孕育了约2万种植物以及种类繁多的野生动物，其中包括美洲豹和金狮绢毛猴。几个世纪以来，大片森林已经消失，但它仍在储存碳，并为该地区数百万人提供淡水方面发挥着重要作用。
+
+大西洋森林地区生活着约1.5亿人，约占南美洲总人口的三分之一。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e8%a5%bf%e5%a4%a7%e8%a5%bf%e6%b4%8b%e6%a3%ae%e6%9e%97&form=hpcapt&filters=HpDate:"20261110_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 11")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261111_Atlantica"&FORM=HPQUIZ "必应主页测验 2026 11月 11")
+[下载480](https://cn.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_800x480.jpg&rf=LaDigue_800x480.jpg "大西洋森林，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_1280x720.jpg&rf=LaDigue_1280x720.jpg "大西洋森林，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大西洋森林，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_UHD.jpg&rf=LaDigue_UHD.jpg "大西洋森林，巴西")
+
+---
 ### 11月10日：惬意放松，尽享海岛时光
 #### 玫瑰岛航拍图，巴哈马（© Abstract Aerial Art/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_1280x720.jpg&rf=LaDigue_1280x720.jpg "库涅季采山城堡，波希米亚，捷克")
 [下载1080](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "库涅季采山城堡，波希米亚，捷克")
 [下载UHD](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_UHD.jpg&rf=LaDigue_UHD.jpg "库涅季采山城堡，波希米亚，捷克")
-
----
-### 10月27日：大自然的金色明镜
-#### 秋叶缤纷的池杉林，乔治亚州，美国（© Chris Moore/Getty Images）
-
-![大自然的金色明镜](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的金色明镜")
-
-这片池杉林倒映在平静的水面上，在落日余晖中熠熠生辉，呈现出色彩与对称之美，令人叹为观止。池杉原产于美国东南部，通常生长在浅水池塘、洼地和湿地生境中。这张照片拍摄于乔治亚州，当地的奥克弗诺基沼泽及其他低洼湿地中均可见这些树木。
-
-池杉会长出被称为“膝根”的瘤状根部结构，高出树木周围的水面或土壤。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b1%a0%e6%9d%89&form=hpcapt&filters=HpDate:"20261026_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 27")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261027_PondCypress"&FORM=HPQUIZ "必应主页测验 2026 10月 27")
-[下载480](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_800x480.jpg&rf=LaDigue_800x480.jpg "秋叶缤纷的池杉林，乔治亚州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_1280x720.jpg&rf=LaDigue_1280x720.jpg "秋叶缤纷的池杉林，乔治亚州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋叶缤纷的池杉林，乔治亚州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_UHD.jpg&rf=LaDigue_UHD.jpg "秋叶缤纷的池杉林，乔治亚州，美国")
 
 ---
