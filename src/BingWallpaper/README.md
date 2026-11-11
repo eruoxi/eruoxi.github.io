@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月12日：没有建筑师的建筑杰作
+#### 北窗，拱门国家公园，莫阿布，犹他州，美国（© lightphoto/Getty Images）
+
+![没有建筑师的建筑杰作](https://cn.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_800x480.jpg&rf=LaDigue_800x480.jpg "没有建筑师的建筑杰作")
+
+11月12日是拱门国家公园于1971年获指定为国家公园的周年纪念日。这座高海拔沙漠公园位于犹他州莫阿布以北，拥有2000多座天然砂岩拱门，是世界上拱门分布最密集的地区。今天图片中的北窗，是公园窗区最知名的地貌之一；在那里，高耸的岩脊、岩石开口和经自然雕琢的砂岩，共同构成了一片近乎建筑作品般的景观。
+
+拱门国家公园禁止游客攀爬、手脚并用地攀登、行走或站立在任何天然拱门上，也禁止从拱门上绳降。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%8b%b1%e9%97%a8%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20261111_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 12")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261112_NorthWindow"&FORM=HPQUIZ "必应主页测验 2026 11月 12")
+[下载480](https://cn.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_800x480.jpg&rf=LaDigue_800x480.jpg "北窗，拱门国家公园，莫阿布，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_1280x720.jpg&rf=LaDigue_1280x720.jpg "北窗，拱门国家公园，莫阿布，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北窗，拱门国家公园，莫阿布，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_UHD.jpg&rf=LaDigue_UHD.jpg "北窗，拱门国家公园，莫阿布，犹他州，美国")
+
+---
 ### 11月11日：奇妙纷呈的森林
 #### 大西洋森林，巴西（© FG Trade/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_1280x720.jpg&rf=LaDigue_1280x720.jpg "立石，埃夫伯里，威尔特郡，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "立石，埃夫伯里，威尔特郡，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_UHD.jpg&rf=LaDigue_UHD.jpg "立石，埃夫伯里，威尔特郡，英格兰")
-
----
-### 10月28日：历史守望之地
-#### 库涅季采山城堡，波希米亚，捷克（© Marek Saroch/Alamy）
-
-![历史守望之地](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_800x480.jpg&rf=LaDigue_800x480.jpg "历史守望之地")
-
-这些城墙会讲述怎样的故事？库涅季采山城堡高踞于捷克波希米亚东部，见证了数百年的历史。城堡的历史可追溯至14世纪末，后来逐渐发展为一座宏伟的要塞和贵族宅邸。它地势高耸，可俯瞰周围乡野，也因此成为一处重要据点。
-
-1645年，一支瑞典军队攻占库涅季采山城堡，并在撤离前将其焚毁，加速了城堡此后的长期衰败。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%ba%93%e6%b6%85%e5%ad%a3%e9%87%87%e5%b1%b1%e5%9f%8e%e5%a0%a1&form=hpcapt&filters=HpDate:"20261027_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 28")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261028_KuneticeCastle"&FORM=HPQUIZ "必应主页测验 2026 10月 28")
-[下载480](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_800x480.jpg&rf=LaDigue_800x480.jpg "库涅季采山城堡，波希米亚，捷克")
-[下载720](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_1280x720.jpg&rf=LaDigue_1280x720.jpg "库涅季采山城堡，波希米亚，捷克")
-[下载1080](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "库涅季采山城堡，波希米亚，捷克")
-[下载UHD](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_UHD.jpg&rf=LaDigue_UHD.jpg "库涅季采山城堡，波希米亚，捷克")
 
 ---
