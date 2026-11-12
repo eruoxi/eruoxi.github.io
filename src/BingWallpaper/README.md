@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月13日：冰下秘境
+#### 亚伯拉罕湖，艾伯塔省，加拿大（© Guang Cao/Getty Images）
+
+![冰下秘境](https://cn.bing.com/th?id=OHR.AbrahamCanada_ZH-CN0344365912_800x480.jpg&rf=LaDigue_800x480.jpg "冰下秘境")
+
+黎明的第一缕曙光映照在亚伯拉罕湖冰封的湖面上，远处是落基山脉的群峰。冬季，这座位于艾伯塔省的如画湖泊以困在冰层下的甲烷气泡而闻名。强风使湖面不被积雪覆盖，让人们整个冬天都能观赏这一景象。到了春天，冰层融化，气体便逸散到大气中。
+
+亚伯拉罕湖以斯托尼纳科达族向导赛拉斯·亚伯拉罕命名；这一名称由艾伯塔省政府举办的征名比赛选出。
+
+[Bing搜索](https://cn.bing.com/search?q=%e8%89%be%e4%bc%af%e5%a1%94%e7%9c%81%e4%ba%9a%e4%bc%af%e6%8b%89%e7%bd%95%e6%b9%96&form=hpcapt&filters=HpDate:"20261112_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 13")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261113_AbrahamCanada"&FORM=HPQUIZ "必应主页测验 2026 11月 13")
+[下载480](https://cn.bing.com/th?id=OHR.AbrahamCanada_ZH-CN0344365912_800x480.jpg&rf=LaDigue_800x480.jpg "亚伯拉罕湖，艾伯塔省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.AbrahamCanada_ZH-CN0344365912_1280x720.jpg&rf=LaDigue_1280x720.jpg "亚伯拉罕湖，艾伯塔省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.AbrahamCanada_ZH-CN0344365912_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亚伯拉罕湖，艾伯塔省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.AbrahamCanada_ZH-CN0344365912_UHD.jpg&rf=LaDigue_UHD.jpg "亚伯拉罕湖，艾伯塔省，加拿大")
+
+---
 ### 11月12日：没有建筑师的建筑杰作
 #### 北窗，拱门国家公园，莫阿布，犹他州，美国（© lightphoto/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_1280x720.jpg&rf=LaDigue_1280x720.jpg "沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_UHD.jpg&rf=LaDigue_UHD.jpg "沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国")
-
----
-### 10月29日：薄雾邂逅千年时光
-#### 立石，埃夫伯里，威尔特郡，英格兰（© George W Johnson/Getty Images）
-
-![薄雾邂逅千年时光](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_800x480.jpg&rf=LaDigue_800x480.jpg "薄雾邂逅千年时光")
-
-晨雾在英格兰威尔特郡埃夫伯里的立石间飘荡，眼前景象仿佛超越了时间。这些古老的巨石构成了世界上最非凡的史前景观之一，其核心是一座约建于4500年前的宏大新石器时代纪念性建筑。埃夫伯里拥有世界上最大的史前石圈，还有一座巨型环形遗址，以及延伸至周围乡野的石列大道。它与附近的锡尔伯里山、西肯尼特大道等遗迹共同组成一处规模宏大的新石器时代遗址群，令一代又一代游客、研究人员和考古学家为之着迷。
-
-20世纪30年代，考古学家亚历山大·凯勒重新竖起了许多倒伏的埃夫伯里巨石，并用混凝土标出缺失巨石的位置。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a8%81%e5%b0%94%e7%89%b9%e9%83%a1%e5%9f%83%e5%a4%ab%e4%bc%af%e9%87%8c%e7%8e%af%e5%bd%a2%e9%81%97%e5%9d%80&form=hpcapt&filters=HpDate:"20261028_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 29")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261029_AveburyStones"&FORM=HPQUIZ "必应主页测验 2026 10月 29")
-[下载480](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_800x480.jpg&rf=LaDigue_800x480.jpg "立石，埃夫伯里，威尔特郡，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_1280x720.jpg&rf=LaDigue_1280x720.jpg "立石，埃夫伯里，威尔特郡，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "立石，埃夫伯里，威尔特郡，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_UHD.jpg&rf=LaDigue_UHD.jpg "立石，埃夫伯里，威尔特郡，英格兰")
 
 ---
