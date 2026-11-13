@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月14日：唯有向上发展
+#### 中国香港维多利亚港（© Juan Romero/Cavan Images）
+
+![唯有向上发展](https://cn.bing.com/th?id=OHR.BlueHK_ZH-CN1382345392_800x480.jpg&rf=LaDigue_800x480.jpg "唯有向上发展")
+
+欢迎来到香港，这里拥有全球最多的摩天大楼。图中的高楼耸立在维多利亚港上方，港口水深，使香港得以发展成为繁忙的贸易港。自19世纪40年代起，载着茶叶、丝绸和其他货物的船只便在这里往来；第二次世界大战后的几十年间，经济增长急剧加速，带动了建筑业的繁荣。港口与山丘之间可用的平地有限，开发商只得向上建造，塑造了这片独具特色的天际线。2026年，香港有569栋高度超过492英尺的建筑，比任何其他城市都多。
+
+“幻彩咏香江”通常于晚上8点上演，以音乐配合维多利亚港上空的激光和探照灯光束。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%b8%ad%e5%9b%bd%e9%a6%99%e6%b8%af%e7%bb%b4%e5%a4%9a%e5%88%a9%e4%ba%9a%e6%b8%af&form=hpcapt&filters=HpDate:"20261113_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 14")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261114_BlueHK"&FORM=HPQUIZ "必应主页测验 2026 11月 14")
+[下载480](https://cn.bing.com/th?id=OHR.BlueHK_ZH-CN1382345392_800x480.jpg&rf=LaDigue_800x480.jpg "中国香港维多利亚港")
+[下载720](https://cn.bing.com/th?id=OHR.BlueHK_ZH-CN1382345392_1280x720.jpg&rf=LaDigue_1280x720.jpg "中国香港维多利亚港")
+[下载1080](https://cn.bing.com/th?id=OHR.BlueHK_ZH-CN1382345392_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国香港维多利亚港")
+[下载UHD](https://cn.bing.com/th?id=OHR.BlueHK_ZH-CN1382345392_UHD.jpg&rf=LaDigue_UHD.jpg "中国香港维多利亚港")
+
+---
 ### 11月13日：冰下秘境
 #### 亚伯拉罕湖，艾伯塔省，加拿大（© Guang Cao/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣巴尔多禄茂教堂，法兰克福，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣巴尔多禄茂教堂，法兰克福，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_UHD.jpg&rf=LaDigue_UHD.jpg "圣巴尔多禄茂教堂，法兰克福，德国")
-
----
-### 10月30日：展翅高飞的时节
-#### 沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国（© Terry St.Louis/Getty Images）
-
-![展翅高飞的时节](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_800x480.jpg&rf=LaDigue_800x480.jpg "展翅高飞的时节")
-
-冬天为新墨西哥州的博斯克德尔阿帕奇国家野生动物保护区带来熟悉的节奏。沙丘鹤陆续飞来，湿地聚满鸟儿，这片区域成为季节性野生动物的聚集地。这座占地57,331英亩的保护区成立于1939年，旨在为迁徙的水鸟提供受保护的中途栖息地。如今，这里的湿地、田野和水道全年滋养着野生动物。画面中的沙丘鹤尤其是保护区冬季的标志性身影。
-
-西班牙语“Bosque del Apache”意为“阿帕奇人的树林”，得名于曾在里奥格兰德河沿岸树林扎营的阿帕奇人。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%b2%99%e4%b8%98%e9%b9%a4&form=hpcapt&filters=HpDate:"20261029_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 30")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261030_AutumnCranes"&FORM=HPQUIZ "必应主页测验 2026 10月 30")
-[下载480](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_800x480.jpg&rf=LaDigue_800x480.jpg "沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_1280x720.jpg&rf=LaDigue_1280x720.jpg "沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_UHD.jpg&rf=LaDigue_UHD.jpg "沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国")
 
 ---
