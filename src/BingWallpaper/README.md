@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月15日：霜染枝叶
+#### 覆霜的红叶杜鹃（© avoferten/Shutterstock）
+
+![霜染枝叶](https://cn.bing.com/th?id=OHR.FirstFrost_ZH-CN2219029557_800x480.jpg&rf=LaDigue_800x480.jpg "霜染枝叶")
+
+随着秋天的第一场霜降临南方，冰晶在常绿灌木的叶片上凝结，就像这株杜鹃。春日花朵的粉色、橙色和黄色早已褪去，但新的色彩盛宴即将上演：绿色的叶片渐渐变成深浅不一的红色和紫色。对植物而言，这些新形成的色素能在气温下降时保护叶片；对园丁而言，白霜映衬下则是一幅绚丽的秋日景象。春天到来时，新芽会让灌木重披绿装，缤纷的色彩轮回也将重新开始。
+
+使杜鹃叶片呈现红色或紫色的色素叫作花青素。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%9d%9c%e9%b9%83%e8%8a%b1&form=hpcapt&filters=HpDate:"20261114_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 15")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261115_FirstFrost"&FORM=HPQUIZ "必应主页测验 2026 11月 15")
+[下载480](https://cn.bing.com/th?id=OHR.FirstFrost_ZH-CN2219029557_800x480.jpg&rf=LaDigue_800x480.jpg "覆霜的红叶杜鹃")
+[下载720](https://cn.bing.com/th?id=OHR.FirstFrost_ZH-CN2219029557_1280x720.jpg&rf=LaDigue_1280x720.jpg "覆霜的红叶杜鹃")
+[下载1080](https://cn.bing.com/th?id=OHR.FirstFrost_ZH-CN2219029557_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "覆霜的红叶杜鹃")
+[下载UHD](https://cn.bing.com/th?id=OHR.FirstFrost_ZH-CN2219029557_UHD.jpg&rf=LaDigue_UHD.jpg "覆霜的红叶杜鹃")
+
+---
 ### 11月14日：唯有向上发展
 #### 中国香港维多利亚港（© Juan Romero/Cavan Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑森林，巴登-符腾堡州，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑森林，巴登-符腾堡州，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_UHD.jpg&rf=LaDigue_UHD.jpg "黑森林，巴登-符腾堡州，德国")
-
----
-### 10月31日：往昔帝国的幽影
-#### 圣巴尔多禄茂教堂，法兰克福，德国（© AlxeyPnferov/Getty Images）
-
-![往昔帝国的幽影](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_800x480.jpg&rf=LaDigue_800x480.jpg "往昔帝国的幽影")
-
-忘了烟雾机吧。德国法兰克福有更能烘托气氛的景物：一座哥特式大教堂，塔楼仿佛随时能上演一场午夜招魂会。画面中的圣巴尔多禄茂教堂有着中世纪风格的轮廓，简直像是万圣节特意挑选的布景。不过，这个节日本身的历史更加离奇。
-
-1562年至1792年，神圣罗马帝国的当选皇帝曾在法兰克福的圣巴尔多禄茂教堂举行加冕仪式。
-
-[Bing搜索](https://cn.bing.com/search?q=%e4%b8%87%e5%9c%a3%e8%8a%82&form=hpcapt&filters=HpDate:"20261030_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 10月 31")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261031_FrankfurtHalloween"&FORM=HPQUIZ "必应主页测验 2026 10月 31")
-[下载480](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_800x480.jpg&rf=LaDigue_800x480.jpg "圣巴尔多禄茂教堂，法兰克福，德国")
-[下载720](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_1280x720.jpg&rf=LaDigue_1280x720.jpg "圣巴尔多禄茂教堂，法兰克福，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣巴尔多禄茂教堂，法兰克福，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_UHD.jpg&rf=LaDigue_UHD.jpg "圣巴尔多禄茂教堂，法兰克福，德国")
 
 ---
