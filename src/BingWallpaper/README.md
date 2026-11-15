@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月16日：历经岁月，屹立不倒
+#### 美国新墨西哥州吉拉悬崖民居国家纪念地（© Chiara Salvadori/Getty Images）
+
+![历经岁月，屹立不倒](https://cn.bing.com/th?id=OHR.GilaCliff_ZH-CN2393001519_800x480.jpg&rf=LaDigue_800x480.jpg "历经岁月，屹立不倒")
+
+壮丽的景色和坚实的岩石地基，是这些嵌在新墨西哥州悬崖上的古老民居的魅力所在。游牧者早已将崖居溪上方的天然洞穴用作临时栖身之所，但真正将这里当作家园的，是美洲原住民莫戈隆文化的族人。考古学家认为，他们在13世纪70至80年代，于五处岩穴中建造了数十个房间。这里一度同时住着多达15个家庭；他们在此抚养子女、制作陶器，俯瞰肥沃的吉拉河谷，并在那里种植作物、狩猎野生动物。大约在1300年，莫戈隆人出于未知原因离开，留下了美国西南部最重要的考古遗址之一。1907年11月16日，西奥多·罗斯福总统将此地指定为吉拉悬崖民居国家纪念地，帮助确保它得到保护，留存给后代。
+
+吉拉悬崖民居的原始屋顶木梁至今仍保存着；木梁的年轮帮助考古学家确定这些古老建筑的年代。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%90%89%e6%8b%89%e6%82%ac%e5%b4%96%e6%b0%91%e5%b1%85%e5%9b%bd%e5%ae%b6%e7%ba%aa%e5%bf%b5%e5%9c%b0&form=hpcapt&filters=HpDate:"20261115_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 16")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261116_GilaCliff"&FORM=HPQUIZ "必应主页测验 2026 11月 16")
+[下载480](https://cn.bing.com/th?id=OHR.GilaCliff_ZH-CN2393001519_800x480.jpg&rf=LaDigue_800x480.jpg "美国新墨西哥州吉拉悬崖民居国家纪念地")
+[下载720](https://cn.bing.com/th?id=OHR.GilaCliff_ZH-CN2393001519_1280x720.jpg&rf=LaDigue_1280x720.jpg "美国新墨西哥州吉拉悬崖民居国家纪念地")
+[下载1080](https://cn.bing.com/th?id=OHR.GilaCliff_ZH-CN2393001519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美国新墨西哥州吉拉悬崖民居国家纪念地")
+[下载UHD](https://cn.bing.com/th?id=OHR.GilaCliff_ZH-CN2393001519_UHD.jpg&rf=LaDigue_UHD.jpg "美国新墨西哥州吉拉悬崖民居国家纪念地")
+
+---
 ### 11月15日：霜染枝叶
 #### 覆霜的红叶杜鹃（© avoferten/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大")
-
----
-### 11月01日：林间迷雾
-#### 黑森林，巴登-符腾堡州，德国（© Britus/Getty Images）
-
-![林间迷雾](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_800x480.jpg&rf=LaDigue_800x480.jpg "林间迷雾")
-
-今天，我们一起欣赏笼罩在黑森林上空的朦胧景色。黑森林绵延约160公里，横跨德国西南部，汇集了葱郁的山丘、幽深的山谷、湖泊和迷人的小镇。最高峰费尔德贝格山海拔1,493米；多瑙河和内卡河也发源于黑森林。这里同样不乏历史与传统。林业长期以来在当地占据重要地位，而延续数百年的钟表制造传统，更让别具特色的布谷鸟钟名扬德国以外。
-
-黑森林传统民俗头饰“绒球帽”上有14个羊毛绒球；未婚女性传统上佩戴红色绒球帽。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%be%b7%e5%9b%bd%e9%bb%91%e6%a3%ae%e6%9e%97&form=hpcapt&filters=HpDate:"20261031_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 1")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261101_SchwarzwaldAutumn"&FORM=HPQUIZ "必应主页测验 2026 11月 1")
-[下载480](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_800x480.jpg&rf=LaDigue_800x480.jpg "黑森林，巴登-符腾堡州，德国")
-[下载720](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_1280x720.jpg&rf=LaDigue_1280x720.jpg "黑森林，巴登-符腾堡州，德国")
-[下载1080](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑森林，巴登-符腾堡州，德国")
-[下载UHD](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_UHD.jpg&rf=LaDigue_UHD.jpg "黑森林，巴登-符腾堡州，德国")
 
 ---
