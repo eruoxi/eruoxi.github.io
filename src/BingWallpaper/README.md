@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月17日：走进广阔的大自然
+#### 雪松林步道，冰川国家公园，蒙大拿州，美国（© DBushue Photography/Getty Images）
+
+![走进广阔的大自然](https://cn.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_800x480.jpg&rf=LaDigue_800x480.jpg "走进广阔的大自然")
+
+全国徒步日快乐！是时候呼吸清爽的秋日空气，走进广阔的大自然了。今天的图片展示的是蒙大拿州冰川国家公园的雪松林步道；公园内的徒步步道总长达700英里。这条长0.9英里的环形步道设有高架栈道，穿行于北美乔柏和铁杉属树木之间。公园拥有适合不同能力水平游客的路线，沿途可欣赏高山湖泊、野花草甸、山口，以及一直延伸至加拿大边境的荒野。不过，即使家门口没有壮丽风景，随着白昼渐短，沿着绿树成荫的街道散散步，也能轻松庆祝这个日子，享受出门走走的益处。
+
+在冰川国家公园的雪松林步道，游客可观赏雪崩峡谷，并在雪崩溪附近留意聆听美洲河乌的鸣声。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%86%b0%e5%b7%9d%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad%e7%9a%84%e9%9b%aa%e6%9d%be%e6%9e%97%e6%ad%a5%e9%81%93&form=hpcapt&filters=HpDate:"20261116_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 17")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261117_TrailCedars"&FORM=HPQUIZ "必应主页测验 2026 11月 17")
+[下载480](https://cn.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_800x480.jpg&rf=LaDigue_800x480.jpg "雪松林步道，冰川国家公园，蒙大拿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_1280x720.jpg&rf=LaDigue_1280x720.jpg "雪松林步道，冰川国家公园，蒙大拿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪松林步道，冰川国家公园，蒙大拿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_UHD.jpg&rf=LaDigue_UHD.jpg "雪松林步道，冰川国家公园，蒙大拿州，美国")
+
+---
 ### 11月16日：历经岁月，屹立不倒
 #### 美国新墨西哥州吉拉悬崖民居国家纪念地（© Chiara Salvadori/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_1280x720.jpg&rf=LaDigue_1280x720.jpg "布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_UHD.jpg&rf=LaDigue_UHD.jpg "布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利")
-
----
-### 11月02日：写在冰上的未来
-#### 北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大（© Danita Delimont/Adobe Stock）
-
-![写在冰上的未来](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_800x480.jpg&rf=LaDigue_800x480.jpg "写在冰上的未来")
-
-11月也许让我们离节日季又近了一步，但北极熊有别的打算。它们聚集在加拿大马尼托巴省的哈得孙湾沿岸，等待海冰形成，以便重返冰面捕猎海豹。每年上演的这一幕催生了在11月第一周举行的北极熊周，以庆祝北极地区体型最大的陆生捕食者。北极熊是游泳健将、捕猎高手，也极其适应地球上最严酷的环境之一。然而，海冰不断缩减，意味着许多北极熊不得不在陆地上待更久，觅食更加困难，与人类相遇的风险也随之上升。
-
-为了寻找食物和合适的海冰，北极熊在一个季节里可能跋涉超过620英里。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%8c%97%e6%9e%81%e7%86%8a%e5%91%a8&form=hpcapt&filters=HpDate:"20261101_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 2")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261102_HudsonBear"&FORM=HPQUIZ "必应主页测验 2026 11月 2")
-[下载480](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_800x480.jpg&rf=LaDigue_800x480.jpg "北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_1280x720.jpg&rf=LaDigue_1280x720.jpg "北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大")
 
 ---
