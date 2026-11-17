@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月18日：从黄昏狩猎到黎明
+#### 一对仓鸮（© Zahoor Salmi/Getty Images）
+
+![从黄昏狩猎到黎明](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_ZH-CN2930153291_800x480.jpg&rf=LaDigue_800x480.jpg "从黄昏狩猎到黎明")
+
+沐浴在傍晚光线中的这对仓鸮，正等待狩猎开始。夜幕降临时，这些猛禽便迅速行动，倾听鼠类和田鼠类在草丛或落叶中发出的细微动静。它们心形的面庞有助于将声音汇集到耳朵，使其听觉跻身动物界最敏锐的行列。这让它们能在黑暗中精准定位猎物，然后悄无声息地俯冲而下，柔软的羽毛掩盖了它们靠近的声响。秋天，年轻的仓鸮会离开巢穴，寻找自己的领地。随着夜晚变长，你可能会在傍晚更早地看到它们掠过田野，寻找晚餐。
+
+仓鸮不会发出‘咕咕’声；它们会发出令人毛骨悚然的尖叫声，这或许解释了为什么它们被视为厄运的预兆。
+
+[Bing搜索](https://cn.bing.com/search?q=%e4%bb%93%e9%b8%ae&form=hpcapt&filters=HpDate:"20261117_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 18")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261118_BarnOwlsUnite"&FORM=HPQUIZ "必应主页测验 2026 11月 18")
+[下载480](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_ZH-CN2930153291_800x480.jpg&rf=LaDigue_800x480.jpg "一对仓鸮")
+[下载720](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_ZH-CN2930153291_1280x720.jpg&rf=LaDigue_1280x720.jpg "一对仓鸮")
+[下载1080](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_ZH-CN2930153291_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一对仓鸮")
+[下载UHD](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_ZH-CN2930153291_UHD.jpg&rf=LaDigue_UHD.jpg "一对仓鸮")
+
+---
 ### 11月17日：走进广阔的大自然
 #### 雪松林步道，冰川国家公园，蒙大拿州，美国（© DBushue Photography/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_1280x720.jpg&rf=LaDigue_1280x720.jpg "五彩落羽杉间划船的人们，宣城，安徽省，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "五彩落羽杉间划船的人们，宣城，安徽省，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_UHD.jpg&rf=LaDigue_UHD.jpg "五彩落羽杉间划船的人们，宣城，安徽省，中国")
-
----
-### 11月03日：群峰间的宁静
-#### 布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利（© leonid_tit/Getty Images）
-
-![群峰间的宁静](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_800x480.jpg&rf=LaDigue_800x480.jpg "群峰间的宁静")
-
-布莱埃斯湖坐落在意大利北部南蒂罗尔的多洛米蒂山脉，海拔近1500米。湖泊四周森林环绕，法内斯-塞内斯-布莱埃斯湖自然公园的壮丽群峰耸立其间，以动人的碧绿和湛蓝湖水闻名。一条3.5公里长的步道环绕湖岸，游客也可以乘坐传统木质划艇，从另一种视角欣赏风光。这里还是多条山间徒步路线的起点，包括多洛米蒂山脉著名的多洛米蒂高山步道1号。
-
-布莱埃斯湖最深处达36米，平均水深约17米。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%a4%9a%e6%b4%9b%e7%b1%b3%e8%92%82%e5%b1%b1%e8%84%89&form=hpcapt&filters=HpDate:"20261102_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 3")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261103_AlpineBraies"&FORM=HPQUIZ "必应主页测验 2026 11月 3")
-[下载480](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_800x480.jpg&rf=LaDigue_800x480.jpg "布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利")
-[下载720](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_1280x720.jpg&rf=LaDigue_1280x720.jpg "布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利")
-[下载1080](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利")
-[下载UHD](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_UHD.jpg&rf=LaDigue_UHD.jpg "布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利")
 
 ---
