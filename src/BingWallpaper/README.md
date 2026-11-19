@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月20日：在峡湾中大快朵颐
+#### 正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛（© Espen Bergersen/Minden Pictures）
+
+![在峡湾中大快朵颐](https://cn.bing.com/th?id=OHR.Megaptera_ZH-CN3361807823_800x480.jpg&rf=LaDigue_800x480.jpg "在峡湾中大快朵颐")
+
+在挪威北部特罗姆斯的克瓦尔岛近海，座头鲸穿行于寒冷的北极海水中，寻找一顿丰盛的美餐。冬季，它们追随迁徙的鲱鱼进入峡湾，来到这一地区。座头鲸以气泡网捕食闻名：这种非凡的狩猎技巧是鲸鱼吹出一圈圈气泡，将鱼群围拢，然后张开大嘴向上猛冲，捕获猎物。在今天的图片中，一头座头鲸在柔和的霞光下潜入冰冷的波浪，定格了挪威北部荒野中宁静的一刻。
+
+座头鲸尾鳍上的独特斑纹、形状和伤疤，能帮助研究人员识别不同个体，并长期追踪它们的行踪。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%ba%a7%e5%a4%b4%e9%b2%b8&form=hpcapt&filters=HpDate:"20261119_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 20")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261120_Megaptera"&FORM=HPQUIZ "必应主页测验 2026 11月 20")
+[下载480](https://cn.bing.com/th?id=OHR.Megaptera_ZH-CN3361807823_800x480.jpg&rf=LaDigue_800x480.jpg "正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛")
+[下载720](https://cn.bing.com/th?id=OHR.Megaptera_ZH-CN3361807823_1280x720.jpg&rf=LaDigue_1280x720.jpg "正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛")
+[下载1080](https://cn.bing.com/th?id=OHR.Megaptera_ZH-CN3361807823_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.Megaptera_ZH-CN3361807823_UHD.jpg&rf=LaDigue_UHD.jpg "正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛")
+
+---
 ### 11月19日：思想在此成形
 #### 雕塑《知识之躯》，由豪梅·普兰萨创作，位于德国法兰克福的法兰克福歌德大学（© Todamo/Shutterstock）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_1280x720.jpg&rf=LaDigue_1280x720.jpg "竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_UHD.jpg&rf=LaDigue_UHD.jpg "竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国")
-
----
-### 11月05日：向山巅再迈一步
-#### 石墙边的木制翻越梯，黑岩，湖区，英格兰（© Alex Treadway/Getty Images）
-
-![向山巅再迈一步](https://cn.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_800x480.jpg&rf=LaDigue_800x480.jpg "向山巅再迈一步")
-
-一座简朴的木制翻越梯，将人们引向英格兰最负盛名的风景区之一。被列为联合国教科文组织世界遗产的湖区，湖泊波光粼粼，山丘崎岖起伏，古老的石墙纵横其间；自然力量与世代相传的农耕传统共同塑造了这片景观。
-
-英格兰湖区于2017年被列入联合国教科文组织世界遗产名录，其独特的文化景观由此获得认可。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%8b%b1%e6%a0%bc%e5%85%b0%e6%b9%96%e5%8c%ba&form=hpcapt&filters=HpDate:"20261104_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 5")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261105_StileCrossing"&FORM=HPQUIZ "必应主页测验 2026 11月 5")
-[下载480](https://cn.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_800x480.jpg&rf=LaDigue_800x480.jpg "石墙边的木制翻越梯，黑岩，湖区，英格兰")
-[下载720](https://cn.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_1280x720.jpg&rf=LaDigue_1280x720.jpg "石墙边的木制翻越梯，黑岩，湖区，英格兰")
-[下载1080](https://cn.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "石墙边的木制翻越梯，黑岩，湖区，英格兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_UHD.jpg&rf=LaDigue_UHD.jpg "石墙边的木制翻越梯，黑岩，湖区，英格兰")
 
 ---
