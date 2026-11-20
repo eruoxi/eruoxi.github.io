@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月21日：陶瓦屋顶下的梦
+#### 法国普罗旺斯-阿尔卑斯-蔚蓝海岸大区尼斯（© Siripong Kaewla-iad/Getty Images）
+
+![陶瓦屋顶下的梦](https://cn.bing.com/th?id=OHR.RedNice_ZH-CN3518429866_800x480.jpg&rf=LaDigue_800x480.jpg "陶瓦屋顶下的梦")
+
+在今天的图片中，尼斯沐浴在温暖的阳光下：赤陶色屋顶、历史悠久的教堂和柔和色调的建筑外墙，拼成法国蔚蓝海岸的一幅斑斓图景。尼斯由古希腊人建立，长期与意大利王室萨伏依王朝有着渊源，并于1860年正式成为法国的一部分。如今，在这座位于法国南部的海滨城市，那段层层叠叠的历史依然随处可见：古老的建筑与蔚蓝的地中海海水、蔚蓝海岸阳光照耀的山丘交相辉映。
+
+1824年，英国游客在尼斯海滨开辟了一条小路，后来逐渐发展为享有盛誉的英国人步行大道（Promenade des Anglais）。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%b3%95%e5%9b%bd%e5%b0%bc%e6%96%af&form=hpcapt&filters=HpDate:"20261120_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 21")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261121_RedNice"&FORM=HPQUIZ "必应主页测验 2026 11月 21")
+[下载480](https://cn.bing.com/th?id=OHR.RedNice_ZH-CN3518429866_800x480.jpg&rf=LaDigue_800x480.jpg "法国普罗旺斯-阿尔卑斯-蔚蓝海岸大区尼斯")
+[下载720](https://cn.bing.com/th?id=OHR.RedNice_ZH-CN3518429866_1280x720.jpg&rf=LaDigue_1280x720.jpg "法国普罗旺斯-阿尔卑斯-蔚蓝海岸大区尼斯")
+[下载1080](https://cn.bing.com/th?id=OHR.RedNice_ZH-CN3518429866_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "法国普罗旺斯-阿尔卑斯-蔚蓝海岸大区尼斯")
+[下载UHD](https://cn.bing.com/th?id=OHR.RedNice_ZH-CN3518429866_UHD.jpg&rf=LaDigue_UHD.jpg "法国普罗旺斯-阿尔卑斯-蔚蓝海岸大区尼斯")
+
+---
 ### 11月20日：在峡湾中大快朵颐
 #### 正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛（© Espen Bergersen/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_1280x720.jpg&rf=LaDigue_1280x720.jpg "草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_UHD.jpg&rf=LaDigue_UHD.jpg "草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国")
-
----
-### 11月06日：穿越毛伊岛的绿色隧道
-#### 竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国（© MNStudio/Getty Images）
-
-![穿越毛伊岛的绿色隧道](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_800x480.jpg&rf=LaDigue_800x480.jpg "穿越毛伊岛的绿色隧道")
-
-火山、雨林和竹林？毛伊岛上的哈莱亚卡拉国家公园三者兼有。公园的范围从毛伊岛上海拔10023英尺的山顶一直延伸到海岸，保护着随海拔、降雨量和气温变化而呈现迥异面貌的景观。它于1916年作为夏威夷国家公园的一部分设立，1961年成为独立的国家公园。哈莱阿卡拉意为“太阳之家”，这一名称呼应了夏威夷口述传说“moʻolelo”中毛伊捉住太阳、延长白昼的故事。
-
-前往哈莱阿卡拉山顶观赏日出的游客须提前预约；名额最多提前60天开放。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%93%88%e8%8e%b1%e4%ba%9a%e5%8d%a1%e6%8b%89%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20261105_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 6")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261106_PipiwaiTrail"&FORM=HPQUIZ "必应主页测验 2026 11月 6")
-[下载480](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_800x480.jpg&rf=LaDigue_800x480.jpg "竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_1280x720.jpg&rf=LaDigue_1280x720.jpg "竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_UHD.jpg&rf=LaDigue_UHD.jpg "竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国")
 
 ---
