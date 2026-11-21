@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月22日：海浪间的庇护所
+#### 西班牙坎塔布里亚自治区的圣胡斯塔隐修院与小教堂（© Tramont_ana/Getty Images）
+
+![海浪间的庇护所](https://cn.bing.com/th?id=OHR.JustaHermitage_ZH-CN3751022621_800x480.jpg&rf=LaDigue_800x480.jpg "海浪间的庇护所")
+
+今天图片中的圣胡斯塔隐修院建于16世纪，坐落在西班牙坎塔布里亚自治区北部崎岖海岸的悬崖间，俯瞰坎塔布连海上翻涌的浪涛。这座小教堂部分嵌入岩石中，与圣胡斯塔与圣鲁菲娜的圣髑有关，后来成为一处朝圣地。它受到庇护的石墙，与四周汹涌的海浪和嶙峋的悬崖形成鲜明对比。
+
+坎塔布里亚自治区的圣胡斯塔隐修院依崖而建，朝南的门上方有一扇小方窗，为堂内引入光线。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%9c%a3%e8%83%a1%e6%96%af%e5%a1%94%e5%b0%8f%e6%95%99%e5%a0%82&form=hpcapt&filters=HpDate:"20261121_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 22")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261122_JustaHermitage"&FORM=HPQUIZ "必应主页测验 2026 11月 22")
+[下载480](https://cn.bing.com/th?id=OHR.JustaHermitage_ZH-CN3751022621_800x480.jpg&rf=LaDigue_800x480.jpg "西班牙坎塔布里亚自治区的圣胡斯塔隐修院与小教堂")
+[下载720](https://cn.bing.com/th?id=OHR.JustaHermitage_ZH-CN3751022621_1280x720.jpg&rf=LaDigue_1280x720.jpg "西班牙坎塔布里亚自治区的圣胡斯塔隐修院与小教堂")
+[下载1080](https://cn.bing.com/th?id=OHR.JustaHermitage_ZH-CN3751022621_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西班牙坎塔布里亚自治区的圣胡斯塔隐修院与小教堂")
+[下载UHD](https://cn.bing.com/th?id=OHR.JustaHermitage_ZH-CN3751022621_UHD.jpg&rf=LaDigue_UHD.jpg "西班牙坎塔布里亚自治区的圣胡斯塔隐修院与小教堂")
+
+---
 ### 11月21日：陶瓦屋顶下的梦
 #### 法国普罗旺斯-阿尔卑斯-蔚蓝海岸大区尼斯（© Siripong Kaewla-iad/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_1280x720.jpg&rf=LaDigue_1280x720.jpg "排灯节灯笼，孟买，马哈拉施特拉邦，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "排灯节灯笼，孟买，马哈拉施特拉邦，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_UHD.jpg&rf=LaDigue_UHD.jpg "排灯节灯笼，孟买，马哈拉施特拉邦，印度")
-
----
-### 11月07日：归来的草原巨兽
-#### 草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国（© Tandem Stock/Adobe Stock）
-
-![归来的草原巨兽](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_800x480.jpg&rf=LaDigue_800x480.jpg "归来的草原巨兽")
-
-再艰难的环境，也挡不住野牛吃草的脚步。美国全国野牛日赞颂这种北美哺乳动物：它体重可达2000磅(约907千克)，奔跑时速却能达到35英里(约56千米)。这个节日定在每年11月的第一个星期六，旨在向2016年成为美国国家哺乳动物的野牛致敬。
-
-野牛在泥土中打滚形成的浅坑可能积水，为草原植物和动物提供栖息地。
-
-[Bing搜索](https://cn.bing.com/search?q=%e7%be%8e%e6%b4%b2%e9%87%8e%e7%89%9b&form=hpcapt&filters=HpDate:"20261106_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 7")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261107_DakotaBison"&FORM=HPQUIZ "必应主页测验 2026 11月 7")
-[下载480](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_800x480.jpg&rf=LaDigue_800x480.jpg "草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_1280x720.jpg&rf=LaDigue_1280x720.jpg "草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_UHD.jpg&rf=LaDigue_UHD.jpg "草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国")
 
 ---
