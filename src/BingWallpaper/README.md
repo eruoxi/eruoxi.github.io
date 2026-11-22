@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月23日：自然中的几何之美
+#### 蕨类植物的卷曲嫩叶（© Reza Saputra/Getty Images）
+
+![自然中的几何之美](https://cn.bing.com/th?id=OHR.FibonacciFern_ZH-CN3882237848_800x480.jpg&rf=LaDigue_800x480.jpg "自然中的几何之美")
+
+今天的图片展示了一片蕨类嫩叶的顶端逐渐卷曲的样子，呼应着自然界随处可见的几何图案。在数学中，斐波那契数列也遵循类似的递进规律：每个数都是前两个数之和，即0、1、1、2、3、5、8，依此类推。今天是斐波那契日；选定这一天，是因为日期11/23中的数字与这一数列相呼应，以此向它致敬。图中的蕨类嫩叶终将随着生长而舒展开来，而在植物世界的其他地方，这一数列还会不断出现在向日葵花盘、松果、多肉植物和菠萝的螺旋排列中。
+
+斐波那契数列因一道关于兔子繁殖的13世纪数学题而广为人知。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%96%90%e6%b3%a2%e9%82%a3%e5%a5%91%e6%97%a5&form=hpcapt&filters=HpDate:"20261122_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 23")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261123_FibonacciFern"&FORM=HPQUIZ "必应主页测验 2026 11月 23")
+[下载480](https://cn.bing.com/th?id=OHR.FibonacciFern_ZH-CN3882237848_800x480.jpg&rf=LaDigue_800x480.jpg "蕨类植物的卷曲嫩叶")
+[下载720](https://cn.bing.com/th?id=OHR.FibonacciFern_ZH-CN3882237848_1280x720.jpg&rf=LaDigue_1280x720.jpg "蕨类植物的卷曲嫩叶")
+[下载1080](https://cn.bing.com/th?id=OHR.FibonacciFern_ZH-CN3882237848_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蕨类植物的卷曲嫩叶")
+[下载UHD](https://cn.bing.com/th?id=OHR.FibonacciFern_ZH-CN3882237848_UHD.jpg&rf=LaDigue_UHD.jpg "蕨类植物的卷曲嫩叶")
+
+---
 ### 11月22日：海浪间的庇护所
 #### 西班牙坎塔布里亚自治区的圣胡斯塔隐修院与小教堂（© Tramont_ana/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_1280x720.jpg&rf=LaDigue_1280x720.jpg "特里亚纳历史街区，塞维利亚，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特里亚纳历史街区，塞维利亚，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_UHD.jpg&rf=LaDigue_UHD.jpg "特里亚纳历史街区，塞维利亚，西班牙")
-
----
-### 11月08日：光芒四射的节日
-#### 排灯节灯笼，孟买，马哈拉施特拉邦，印度（© Dinodia Photo/Getty Images）
-
-![光芒四射的节日](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_800x480.jpg&rf=LaDigue_800x480.jpg "光芒四射的节日")
-
-一年中最黑暗的夜晚遇上最明亮的庆典，会是什么景象？答案就是排灯节。世界各地数百万人庆祝这个灯节，点亮油灯和灯笼，绘制兰戈利彩绘，祈祷、品尝甜点，并与家人团聚。
-
-排灯节持续五天，但由于它遵循印度教阴历，每年在公历上的日期都会变化。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%8e%92%e7%81%af%e8%8a%82&form=hpcapt&filters=HpDate:"20261107_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 8")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261108_DiwaliLamps"&FORM=HPQUIZ "必应主页测验 2026 11月 8")
-[下载480](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_800x480.jpg&rf=LaDigue_800x480.jpg "排灯节灯笼，孟买，马哈拉施特拉邦，印度")
-[下载720](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_1280x720.jpg&rf=LaDigue_1280x720.jpg "排灯节灯笼，孟买，马哈拉施特拉邦，印度")
-[下载1080](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "排灯节灯笼，孟买，马哈拉施特拉邦，印度")
-[下载UHD](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_UHD.jpg&rf=LaDigue_UHD.jpg "排灯节灯笼，孟买，马哈拉施特拉邦，印度")
 
 ---
