@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月24日：秋日的保护色
+#### 红松鼠，凯恩戈姆斯国家公园，苏格兰高地（© Scotland: The Big Picture/Minden Pictures）
+
+![秋日的保护色](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_800x480.jpg&rf=LaDigue_800x480.jpg "秋日的保护色")
+
+红松鼠是英国唯一的本土松鼠物种，在苏格兰的凯恩戈姆斯国家公园繁衍生息。这座公园是它们的重要庇护地：古老的喀里多尼亚欧洲赤松林和较新形成的针叶林，为松鼠提供了充足的栖息空间和食物，让它们一年四季都能觅食欧洲赤松的种子、坚果和其他美味。今天的照片中，一只红松鼠栖身于橙黄相间的秋叶间，仿佛与苏格兰高地的景色融为一体，正盘算着下一步要去哪里。
+
+英国约八成的现存红松鼠生活在苏格兰；它们用树枝交织成巢，内部铺上树叶。这种巢称为“松鼠巢”（drey）。
+
+[Bing搜索](https://cn.bing.com/search?q=%e6%ac%a7%e4%ba%9a%e7%ba%a2%e6%9d%be%e9%bc%a0&form=hpcapt&filters=HpDate:"20261123_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 24")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261124_CairngormsSquirrel"&FORM=HPQUIZ "必应主页测验 2026 11月 24")
+[下载480](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_800x480.jpg&rf=LaDigue_800x480.jpg "红松鼠，凯恩戈姆斯国家公园，苏格兰高地")
+[下载720](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_1280x720.jpg&rf=LaDigue_1280x720.jpg "红松鼠，凯恩戈姆斯国家公园，苏格兰高地")
+[下载1080](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红松鼠，凯恩戈姆斯国家公园，苏格兰高地")
+[下载UHD](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_UHD.jpg&rf=LaDigue_UHD.jpg "红松鼠，凯恩戈姆斯国家公园，苏格兰高地")
+
+---
 ### 11月23日：自然中的几何之美
 #### 蕨类植物的卷曲嫩叶（© Reza Saputra/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_1280x720.jpg&rf=LaDigue_1280x720.jpg "玫瑰岛航拍图，巴哈马")
 [下载1080](https://cn.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玫瑰岛航拍图，巴哈马")
 [下载UHD](https://cn.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_UHD.jpg&rf=LaDigue_UHD.jpg "玫瑰岛航拍图，巴哈马")
-
----
-### 11月09日：艺术与韵律交汇之地
-#### 特里亚纳历史街区，塞维利亚，西班牙（© Andrzej Rostek/Getty Images）
-
-![艺术与韵律交汇之地](https://cn.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_800x480.jpg&rf=LaDigue_800x480.jpg "艺术与韵律交汇之地")
-
-在西班牙安达卢西亚地区首府塞维利亚，跨过瓜达尔基维尔河，城市的节奏似乎便悄然改变。河对岸是色彩缤纷的特里亚纳街区，陶艺、弗拉门戈和当地传统融入日常生活。自19世纪以来，伊莎贝尔二世桥——又称特里亚纳桥——一直连接着这里与塞维利亚的历史中心。
-
-特里亚纳市场下方保留着圣豪尔赫城堡的遗址；这座城堡曾是宗教裁判所的总部，如今设有历史展览。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%a5%bf%e7%8f%ad%e7%89%99%e5%a1%9e%e7%bb%b4%e5%88%a9%e4%ba%9a&form=hpcapt&filters=HpDate:"20261108_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 9")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261109_TrianaSpain"&FORM=HPQUIZ "必应主页测验 2026 11月 9")
-[下载480](https://cn.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_800x480.jpg&rf=LaDigue_800x480.jpg "特里亚纳历史街区，塞维利亚，西班牙")
-[下载720](https://cn.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_1280x720.jpg&rf=LaDigue_1280x720.jpg "特里亚纳历史街区，塞维利亚，西班牙")
-[下载1080](https://cn.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特里亚纳历史街区，塞维利亚，西班牙")
-[下载UHD](https://cn.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_UHD.jpg&rf=LaDigue_UHD.jpg "特里亚纳历史街区，塞维利亚，西班牙")
 
 ---
