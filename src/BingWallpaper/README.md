@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月26日：彩虹落下的地方
+#### 怀卢库河上的彩虹瀑布，希洛市，夏威夷州，美国（© Peter Unger/Getty Images）
+
+![彩虹落下的地方](https://cn.bing.com/th?id=OHR.RFHilo_ZH-CN5962114314_800x480.jpg&rf=LaDigue_800x480.jpg "彩虹落下的地方")
+
+在夏威夷大岛的希洛，水流、阳光与葱郁绿意交汇于彩虹瀑布。威陆库河的河水从80英尺高的熔岩岩壁上奔流而下，落入下方的水潭时激起水雾。晴朗的早晨，阳光照进水雾，便可能映出为瀑布赋名的绚丽彩虹。这座壮观的瀑布在夏威夷语中称为瓦伊阿努埃努埃（Waiānuenue），意为“彩虹之水”；它四周环绕着热带植被，在夏威夷传说中也占有特殊地位。
+
+根据夏威夷传说，彩虹瀑布下方的洞穴曾是希娜的居所；她是半神毛伊的母亲。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%a4%8f%e5%a8%81%e5%a4%b7%e5%b7%9e%e6%80%80%e5%8d%a2%e5%ba%93%e6%b2%b3%e7%9a%84%e5%bd%a9%e8%99%b9%e7%80%91%e5%b8%83&form=hpcapt&filters=HpDate:"20261125_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 26")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261126_RFHilo"&FORM=HPQUIZ "必应主页测验 2026 11月 26")
+[下载480](https://cn.bing.com/th?id=OHR.RFHilo_ZH-CN5962114314_800x480.jpg&rf=LaDigue_800x480.jpg "怀卢库河上的彩虹瀑布，希洛市，夏威夷州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.RFHilo_ZH-CN5962114314_1280x720.jpg&rf=LaDigue_1280x720.jpg "怀卢库河上的彩虹瀑布，希洛市，夏威夷州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.RFHilo_ZH-CN5962114314_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "怀卢库河上的彩虹瀑布，希洛市，夏威夷州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RFHilo_ZH-CN5962114314_UHD.jpg&rf=LaDigue_UHD.jpg "怀卢库河上的彩虹瀑布，希洛市，夏威夷州，美国")
+
+---
 ### 11月25日：美国西南部的一场雪
 #### 日落观景点，布莱斯峡谷国家公园，犹他州（© Colin D. Young/Alamy）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_1280x720.jpg&rf=LaDigue_1280x720.jpg "北窗，拱门国家公园，莫阿布，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北窗，拱门国家公园，莫阿布，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_UHD.jpg&rf=LaDigue_UHD.jpg "北窗，拱门国家公园，莫阿布，犹他州，美国")
-
----
-### 11月11日：奇妙纷呈的森林
-#### 大西洋森林，巴西（© FG Trade/Getty Images）
-
-![奇妙纷呈的森林](https://cn.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_800x480.jpg&rf=LaDigue_800x480.jpg "奇妙纷呈的森林")
-
-大西洋森林是世界上重要的生物多样性热点地区之一，沿巴西大西洋沿岸的广大地带延伸，并进入阿根廷和巴拉圭境内。这里的景观包括热带与亚热带森林、红树林和海岸生境，孕育了约2万种植物以及种类繁多的野生动物，其中包括美洲豹和金狮绢毛猴。几个世纪以来，大片森林已经消失，但它仍在储存碳，并为该地区数百万人提供淡水方面发挥着重要作用。
-
-大西洋森林地区生活着约1.5亿人，约占南美洲总人口的三分之一。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e8%a5%bf%e5%a4%a7%e8%a5%bf%e6%b4%8b%e6%a3%ae%e6%9e%97&form=hpcapt&filters=HpDate:"20261110_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 11")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261111_Atlantica"&FORM=HPQUIZ "必应主页测验 2026 11月 11")
-[下载480](https://cn.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_800x480.jpg&rf=LaDigue_800x480.jpg "大西洋森林，巴西")
-[下载720](https://cn.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_1280x720.jpg&rf=LaDigue_1280x720.jpg "大西洋森林，巴西")
-[下载1080](https://cn.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大西洋森林，巴西")
-[下载UHD](https://cn.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_UHD.jpg&rf=LaDigue_UHD.jpg "大西洋森林，巴西")
 
 ---
