@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月25日：美国西南部的一场雪
+#### 日落观景点，布莱斯峡谷国家公园，犹他州（© Colin D. Young/Alamy）
+
+![美国西南部的一场雪](https://cn.bing.com/th?id=OHR.SunsetPoint_ZH-CN5737034685_800x480.jpg&rf=LaDigue_800x480.jpg "美国西南部的一场雪")
+
+白雪让布莱斯峡谷国家公园焕然一新：大地披上银装，鲜艳的橙红色石林在雪地上拔地而起。从公园最著名的观景点之一——日落观景点望去，这些奇特的岩石造型属于克拉伦组。构成它们的石灰岩约在5000万年前沉积，后来又经风化和侵蚀塑造成形。由于公园大部分地区海拔超过8000英尺，早在10月就可能降雪。今天的照片中，积雪覆着峡谷的山脊和石柱，薄雾从崖壁间飘过，呈现出美国西南部标志性的冬日景象。
+
+在布莱斯峡谷，一年中有超过170个夜晚的气温会跨越冰点。渗入岩缝的水结冰膨胀，帮助将岩石逐渐塑造成石林柱。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e8%8e%b1%e6%96%af%e5%b3%a1%e8%b0%b7%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20261124_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 25")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261125_SunsetPoint"&FORM=HPQUIZ "必应主页测验 2026 11月 25")
+[下载480](https://cn.bing.com/th?id=OHR.SunsetPoint_ZH-CN5737034685_800x480.jpg&rf=LaDigue_800x480.jpg "日落观景点，布莱斯峡谷国家公园，犹他州")
+[下载720](https://cn.bing.com/th?id=OHR.SunsetPoint_ZH-CN5737034685_1280x720.jpg&rf=LaDigue_1280x720.jpg "日落观景点，布莱斯峡谷国家公园，犹他州")
+[下载1080](https://cn.bing.com/th?id=OHR.SunsetPoint_ZH-CN5737034685_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落观景点，布莱斯峡谷国家公园，犹他州")
+[下载UHD](https://cn.bing.com/th?id=OHR.SunsetPoint_ZH-CN5737034685_UHD.jpg&rf=LaDigue_UHD.jpg "日落观景点，布莱斯峡谷国家公园，犹他州")
+
+---
 ### 11月24日：秋日的保护色
 #### 红松鼠，凯恩戈姆斯国家公园，苏格兰高地（© Scotland: The Big Picture/Minden Pictures）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_1280x720.jpg&rf=LaDigue_1280x720.jpg "大西洋森林，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大西洋森林，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_UHD.jpg&rf=LaDigue_UHD.jpg "大西洋森林，巴西")
-
----
-### 11月10日：惬意放松，尽享海岛时光
-#### 玫瑰岛航拍图，巴哈马（© Abstract Aerial Art/Getty Images）
-
-![惬意放松，尽享海岛时光](https://cn.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_800x480.jpg&rf=LaDigue_800x480.jpg "惬意放松，尽享海岛时光")
-
-从空中俯瞰，玫瑰岛就像一抹绿意，周围环绕着深浅不一的蓝色海水。这座狭长的小岛位于巴哈马天堂岛以东仅三英里处，没有繁忙的道路和成片的城市街区，取而代之的是沙滩、浅海和岛内潟湖。宁静的外表之下，它还藏着一段电影故事：1965年的詹姆斯·邦德冒险电影《霹雳弹》曾在玫瑰岛取景，其中包括“飞碟号”被炸毁的场景。
-
-玫瑰岛只能乘船抵达；从拿骚或天堂岛出发，航程通常需25至30分钟，具体取决于海况。
-
-[Bing搜索](https://cn.bing.com/search?q=%e5%b7%b4%e5%93%88%e9%a9%ac%e7%8e%ab%e7%91%b0%e5%b2%9b&form=hpcapt&filters=HpDate:"20261109_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 10")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261110_RoseIsland"&FORM=HPQUIZ "必应主页测验 2026 11月 10")
-[下载480](https://cn.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_800x480.jpg&rf=LaDigue_800x480.jpg "玫瑰岛航拍图，巴哈马")
-[下载720](https://cn.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_1280x720.jpg&rf=LaDigue_1280x720.jpg "玫瑰岛航拍图，巴哈马")
-[下载1080](https://cn.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玫瑰岛航拍图，巴哈马")
-[下载UHD](https://cn.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_UHD.jpg&rf=LaDigue_UHD.jpg "玫瑰岛航拍图，巴哈马")
 
 ---
