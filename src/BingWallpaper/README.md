@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月27日：灰金交织的峡谷
+#### 夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国（© Jeff Foott/Minden）
+
+![灰金交织的峡谷](https://cn.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_800x480.jpg&rf=LaDigue_800x480.jpg "灰金交织的峡谷")
+
+脸峡谷隐于古老的砂岩地貌之中，是美国犹他州南部鲍威尔湖沿岸96座峡谷之一。许多峡谷远离公路，若非1963年修建格伦峡谷大坝形成的湖水淹入，此前很难抵达。湖水沿溪流和峡谷向上游延伸约186英里（约300公里），你可以乘船、划皮划艇或驾驶摩托艇探索。
+
+鲍威尔湖附近的彩虹桥是当地美洲原住民的圣地；这座天然石桥高约290英尺。
+
+[Bing搜索](https://cn.bing.com/search?q=%e9%b2%8d%e5%a8%81%e5%b0%94%e6%b9%96&form=hpcapt&filters=HpDate:"20261126_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 27")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261127_FaceCanyon"&FORM=HPQUIZ "必应主页测验 2026 11月 27")
+[下载480](https://cn.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_800x480.jpg&rf=LaDigue_800x480.jpg "夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_1280x720.jpg&rf=LaDigue_1280x720.jpg "夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_UHD.jpg&rf=LaDigue_UHD.jpg "夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国")
+
+---
 ### 11月26日：彩虹落下的地方
 #### 怀卢库河上的彩虹瀑布，希洛市，夏威夷州，美国（© Peter Unger/Getty Images）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.AbrahamCanada_ZH-CN0344365912_1280x720.jpg&rf=LaDigue_1280x720.jpg "亚伯拉罕湖，艾伯塔省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.AbrahamCanada_ZH-CN0344365912_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亚伯拉罕湖，艾伯塔省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.AbrahamCanada_ZH-CN0344365912_UHD.jpg&rf=LaDigue_UHD.jpg "亚伯拉罕湖，艾伯塔省，加拿大")
-
----
-### 11月12日：没有建筑师的建筑杰作
-#### 北窗，拱门国家公园，莫阿布，犹他州，美国（© lightphoto/Getty Images）
-
-![没有建筑师的建筑杰作](https://cn.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_800x480.jpg&rf=LaDigue_800x480.jpg "没有建筑师的建筑杰作")
-
-11月12日是拱门国家公园于1971年获指定为国家公园的周年纪念日。这座高海拔沙漠公园位于犹他州莫阿布以北，拥有2000多座天然砂岩拱门，是世界上拱门分布最密集的地区。今天图片中的北窗，是公园窗区最知名的地貌之一；在那里，高耸的岩脊、岩石开口和经自然雕琢的砂岩，共同构成了一片近乎建筑作品般的景观。
-
-拱门国家公园禁止游客攀爬、手脚并用地攀登、行走或站立在任何天然拱门上，也禁止从拱门上绳降。
-
-[Bing搜索](https://cn.bing.com/search?q=%e6%8b%b1%e9%97%a8%e5%9b%bd%e5%ae%b6%e5%85%ac%e5%9b%ad&form=hpcapt&filters=HpDate:"20261111_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 12")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261112_NorthWindow"&FORM=HPQUIZ "必应主页测验 2026 11月 12")
-[下载480](https://cn.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_800x480.jpg&rf=LaDigue_800x480.jpg "北窗，拱门国家公园，莫阿布，犹他州，美国")
-[下载720](https://cn.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_1280x720.jpg&rf=LaDigue_1280x720.jpg "北窗，拱门国家公园，莫阿布，犹他州，美国")
-[下载1080](https://cn.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北窗，拱门国家公园，莫阿布，犹他州，美国")
-[下载UHD](https://cn.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_UHD.jpg&rf=LaDigue_UHD.jpg "北窗，拱门国家公园，莫阿布，犹他州，美国")
 
 ---
