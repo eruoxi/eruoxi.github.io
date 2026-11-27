@@ -1,4 +1,21 @@
 ## Bing Wallpaper(最近15天)
+### 11月28日：跨越时光的桥梁
+#### 捷克布拉格老城区与伏尔塔瓦河（© Lara_Uhryn/Getty Images）
+
+![跨越时光的桥梁](https://cn.bing.com/th?id=OHR.VltavaPrague_ZH-CN9898139716_800x480.jpg&rf=LaDigue_800x480.jpg "跨越时光的桥梁")
+
+从莱特纳公园望去，秋色中的布拉格沿捷克伏尔塔瓦河两岸铺展。照片中，河水穿过历史悠久的老城区和小城区，从前景的马内斯桥下流过。如今，伏尔塔瓦河上横跨着许多美丽的桥梁，但数百年间只有一座查理大桥，即照片中从下往上数第二座桥。1357年，查理四世在位期间，这座桥奠下第一块基石；直到1841年，它都是步行过河的唯一通道。如今，石拱、哥特式桥塔和桥上的雕像吸引大批游客，想拍到好照片，最好黎明时就来。也可以继续走到下一座军团桥，那里人少一些，还能欣赏布拉格国家剧院、布拉格城堡和热闹的查理大桥。
+
+布拉格的查理大桥原称石桥或布拉格桥；自1870年起沿用如今的名称。
+
+[Bing搜索](https://cn.bing.com/search?q=%e5%b8%83%e6%8b%89%e6%a0%bc%e7%9a%84%e6%a1%a5%e6%a2%81&form=hpcapt&filters=HpDate:"20261127_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 28")
+[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261128_VltavaPrague"&FORM=HPQUIZ "必应主页测验 2026 11月 28")
+[下载480](https://cn.bing.com/th?id=OHR.VltavaPrague_ZH-CN9898139716_800x480.jpg&rf=LaDigue_800x480.jpg "捷克布拉格老城区与伏尔塔瓦河")
+[下载720](https://cn.bing.com/th?id=OHR.VltavaPrague_ZH-CN9898139716_1280x720.jpg&rf=LaDigue_1280x720.jpg "捷克布拉格老城区与伏尔塔瓦河")
+[下载1080](https://cn.bing.com/th?id=OHR.VltavaPrague_ZH-CN9898139716_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "捷克布拉格老城区与伏尔塔瓦河")
+[下载UHD](https://cn.bing.com/th?id=OHR.VltavaPrague_ZH-CN9898139716_UHD.jpg&rf=LaDigue_UHD.jpg "捷克布拉格老城区与伏尔塔瓦河")
+
+---
 ### 11月27日：灰金交织的峡谷
 #### 夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国（© Jeff Foott/Minden）
 
@@ -235,22 +252,5 @@
 [下载720](https://cn.bing.com/th?id=OHR.BlueHK_ZH-CN1382345392_1280x720.jpg&rf=LaDigue_1280x720.jpg "中国香港维多利亚港")
 [下载1080](https://cn.bing.com/th?id=OHR.BlueHK_ZH-CN1382345392_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国香港维多利亚港")
 [下载UHD](https://cn.bing.com/th?id=OHR.BlueHK_ZH-CN1382345392_UHD.jpg&rf=LaDigue_UHD.jpg "中国香港维多利亚港")
-
----
-### 11月13日：冰下秘境
-#### 亚伯拉罕湖，艾伯塔省，加拿大（© Guang Cao/Getty Images）
-
-![冰下秘境](https://cn.bing.com/th?id=OHR.AbrahamCanada_ZH-CN0344365912_800x480.jpg&rf=LaDigue_800x480.jpg "冰下秘境")
-
-黎明的第一缕曙光映照在亚伯拉罕湖冰封的湖面上，远处是落基山脉的群峰。冬季，这座位于艾伯塔省的如画湖泊以困在冰层下的甲烷气泡而闻名。强风使湖面不被积雪覆盖，让人们整个冬天都能观赏这一景象。到了春天，冰层融化，气体便逸散到大气中。
-
-亚伯拉罕湖以斯托尼纳科达族向导赛拉斯·亚伯拉罕命名；这一名称由艾伯塔省政府举办的征名比赛选出。
-
-[Bing搜索](https://cn.bing.com/search?q=%e8%89%be%e4%bc%af%e5%a1%94%e7%9c%81%e4%ba%9a%e4%bc%af%e6%8b%89%e7%bd%95%e6%b9%96&form=hpcapt&filters=HpDate:"20261112_1600"+mgzv3configlist:"BingQA_Encyclopedia_Layout" "Bing Wallpaper 2026 11月 13")
-[必应主页测验](https://cn.bing.com/search?q=Bing+homepage+quiz&filters=WQOskey:"HPQuiz_20261113_AbrahamCanada"&FORM=HPQUIZ "必应主页测验 2026 11月 13")
-[下载480](https://cn.bing.com/th?id=OHR.AbrahamCanada_ZH-CN0344365912_800x480.jpg&rf=LaDigue_800x480.jpg "亚伯拉罕湖，艾伯塔省，加拿大")
-[下载720](https://cn.bing.com/th?id=OHR.AbrahamCanada_ZH-CN0344365912_1280x720.jpg&rf=LaDigue_1280x720.jpg "亚伯拉罕湖，艾伯塔省，加拿大")
-[下载1080](https://cn.bing.com/th?id=OHR.AbrahamCanada_ZH-CN0344365912_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亚伯拉罕湖，艾伯塔省，加拿大")
-[下载UHD](https://cn.bing.com/th?id=OHR.AbrahamCanada_ZH-CN0344365912_UHD.jpg&rf=LaDigue_UHD.jpg "亚伯拉罕湖，艾伯塔省，加拿大")
 
 ---
